@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 602 - Crazy Battle Intent
 slug: une-folle-intention-de-bataille
 ---
-Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit la main vers la terre, et grâce à sa culture au stade précoce de l'Ascendant, il fit trembler le sol! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
+Les yeux de Wang Lin étaient totalement injectés de sang alors qu'il contemplait le sol sous ses pieds. La quantité de Fruits d'Ascension Céleste qu'il avait absorbée ne représentait que le dixième de la récolte présente ici. Il tendit sa main gauche vers la terre, et grâce à sa culture au stade précoce de l'Ascendant, il fit trembler le sol! Aussitôt, d'innombrables fruits s'envolèrent des arbres pour converger vers lui.
 
 Près de 100 000 Fruits d'Ascension Céleste furent ainsi stockés dans son sac de rangement. À cet instant, Wang Lin ne pouvait plus réprimer l'intention de bataille et de meurtre qui bouillonnait dans son cœur. Il laissa échapper un rugissement et s'apprêta à partir.
 
@@ -24,7 +24,7 @@ Il frappa son sac de rangement pour dévorer une grande quantité de pilules, pu
 
 « Tuer! » L'unique pensée qui habitait l'esprit de Wang Lin était de tuer!
 
-L'intention meurtrière qu'il avait contenue en devenant mortel explosa à nouveau sous la stimulation des Fruits d'Ascension Céleste!
+L'intention meurtrière qu'il avait effacée en devenant mortel explosa à nouveau sous la stimulation des Fruits d'Ascension Céleste!
 
 Le démon qui avait fait trembler la Mer des Démons et le Pays de Zhao venait de s'éveiller!
 
@@ -46,7 +46,7 @@ Puis, d'un geste, il sortit une cruche à vin de son sac de rangement. C'était 
 
 Dès qu'il l'eut sortie, il en but quatre!
 
-Aussitôt le liquide céleste introduit dans son organisme, l'énergie spirituelle céleste parcourut ses méridiens comme un tonnerre déchaîné. Une quantité inimaginable d'énergie spirituelle céleste circulait en lui, au point qu'il risquait de ne pouvoir la contenir! Si ses méridiens n'avaient pas été renforcés lors de son entrée au stade Ascendant et raffinés par le démon ancien, il n'aurait certainement pas pu supporter cela!
+Aussitôt le liquide céleste introduit dans son organisme, l'énergie spirituelle céleste parcourut ses méridiens comme un tonnerre déchaîné. Une quantité inimaginable d'énergie spirituelle céleste circulait en lui, au point qu'il risquait de ne pouvoir la contenir! Si ses méridiens n'avaient pas été renforcés lors de son entrée au stade Ascendant et stimulés par l'ancien démon, il n'aurait certainement pas pu supporter cela!
 
 Wang Lin semblait avoir perdu la raison. Ses cheveux flottaient sauvagement dans l'air tandis qu'il chargeait comme un homme dément.
 
@@ -62,7 +62,7 @@ L'énergie spirituelle céleste déferlait dans le corps de Wang Lin au moment o
 
 À cet instant, Wang Lin était comme une flamme: chaque fois que l'être dans la tour noire tentait de l'éteindre, elle se rallumait de plus belle.
 
-Ce n'était pas qu'il n'était plus blessé; au contraire, il était gravement atteint par les assauts continus de l'entité dans la tour. Cependant, grâce aux Fruits d'Ascension Céleste, la stimulation de son âme originelle ne s'apaiserait pas de sitôt, à moins qu'il ne meure!
+Il n'était pas indemne; au contraire, il était gravement atteint par les assauts continus de l'entité dans la tour. Cependant, grâce aux Fruits d'Ascension Céleste, la stimulation de son âme originelle ne s'apaiserait pas de sitôt, à moins qu'il ne meure!
 
 Sous cette stimulation, peu importaient la gravité de ses blessures, il n'en avait cure!
 
@@ -96,13 +96,13 @@ Le paysage ressemblait à l'enfer! C'était une vision aussi étrange qu'extrêm
 
 Leurs morts générèrent des filaments de gaz blanc qui rattrapèrent Wang Lin et pénétrèrent dans son corps. Ces essences aidèrent rapidement à réparer son corps meurtri et son âme originelle.
 
-Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Luo s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
+Dans le Pays des Démons de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Luo s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet du stade avancé de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
 
 Soudain, son expression changea lorsqu'il vit une météorite enflammée fendre le ciel. Ses yeux se plissèrent pour l'observer attentivement, puis son visage se décomposa.
 
 « Un cultivateur Ascendant! »
 
-Il baissa rapidement la tête et ordonna à ses soldats de reculer, refusant de provoquer un tel être. Il remarqua également que cet Ascendant semblait avoir perdu la raison.
+Il baissa rapidement la tête et se replia parmi ses soldats, refusant de provoquer un tel être. Il remarqua également que cet Ascendant semblait avoir perdu la raison.
 
 Ce qui le terrifia davantage fut de constater que partout où l'individu passait, la terre se desséchait et était absorbée. Heureusement, leurs trajectoires ne se croisaient pas, sans quoi Zi Shu aurait immédiatement changé de direction pour rester loin de lui.
 
@@ -126,7 +126,7 @@ Le regard de Wang Lin étant saturé d'instinct de combat, il fut extrêmement s
 
 Il esquissa un sourire sinistre, puis son corps bondit vers Zi Shu. Sa vitesse était telle qu'il apparut instantanément aux côtés du commandant.
 
-L'expression de Zi Shu changea radicalement. Il s'attendait à ce que l'homme fuie, et non qu'il charge alors qu'il était au bord de la mort. Il poussa un grognement avant de former un sceau de la main, libérant l'épée géante de son dos.
+L'expression de Zi Shu changea radicalement. Il s'attendait à ce que l'homme fuie, et non qu'il charge alors qu'il était grièvement blessé. Il poussa un grognement avant de former un sceau de la main, libérant l'épée géante de son dos.
 
 Au moment où l'épée s'élançait, Wang Lin surgit. Il saisit la lame de sa main droite et la projeta violemment derrière lui, tout en passant à toute allure à côté de Zi Shu.
 
@@ -138,7 +138,7 @@ Wang Lin ne marqua aucun temps d'arrêt et s'engouffra dans la masse des 30 000 
 
 Des filaments de sceaux de vie continuaient d'apparaître et de pénétrer son corps! Un quart d'heure plus tard, le sol était jonché de cadavres et de sang. Une fois le carnage terminé, Wang Lin s'envola vers l'horizon.
 
-Il possédait désormais 30 000 sceaux de vie, chacun porteur d'une vitalité infinie. À mesure que chaque marque disparaissait, son corps se rétablissait un peu plus. Les sceaux se dissipaient rapidement, mais la régénération de Wang Lin suivait le même rythme.
+Il possédait désormais 30 000 sceaux de vie, chacun porteur d'une vitalité infinie. À mesure que chaque marque disparaissait, son corps se rétablissait un peu plus. Les sceaux se dissipaient rapidement, mais le corps de Wang Lin se régénérait à toute vitesse.
 
 La colère du sens divin dans la tour noire de l'ancien champ de bataille redoubla d'intensité.
 

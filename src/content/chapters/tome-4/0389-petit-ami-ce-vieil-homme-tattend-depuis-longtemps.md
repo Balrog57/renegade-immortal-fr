@@ -8,7 +8,7 @@ slug: petit-ami-ce-vieil-homme-tattend-depuis-longtemps
 ---
 « Cette personne est... »
 
-Les lueurs sanglantes disparurent instantanément. Wang Lin réfléchit un moment et ses yeux brillèrent d'une lueur vive.
+Le regard venu de l'anneau de sang disparut instantanément. Wang Lin réfléchit un moment et ses yeux brillèrent d'une lueur vive.
 
 « Que je reste ou non à la Secte de l'Affinement de l'Âme n'a plus d'importance. Pour que mon âme originelle se rétablisse complètement, j'aurai besoin de pilules extraordinaires. En dehors de cela, il me faudra une pression spirituelle extrêmement puissante. Ce n'est pas que je manque de méthodes, mais elles sont un peu dangereuses... »
 
@@ -30,7 +30,7 @@ Au sein de la Secte de l'Affinement de l'Âme, les disciples des trois montagnes
 
 Su Jinshi s'était rendu à la Montagne de l'Affinement de l'Âme il y a de nombreuses années et y avait obtenu un jade d'affinement de l'âme.
 
-Su Jinshi serra les dents et déclara: « Je peux te donner le jade d'extraction de l'âme, mais il me manque 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
+Su Jinshi serra les dents et déclara: « Je peux te donner le jade d'extraction de l'âme, mais il me manque plus de 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
 
 Wang Lin regarda Su Jinshi. Vu son niveau de culture, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de mille âmes ordinaire qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
 
@@ -48,7 +48,7 @@ Quant à la dernière, l'élevage de gu, c'était la plus vicieuse et la plus pu
 
 L'élevage de gu utilisait une méthode mystérieuse pour transformer une âme vivante en une sorte de gu capable de tuer sans laisser de trace. Avec le temps et un raffinage continu, elle finissait par devenir une bête d'âme gu, dotée de la puissance d'un cultivateur au stade de la Formation du Noyau.
 
-Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Secte de l'Affinement de l'Âme avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte des Pilules Démoniaques.
+Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, mais il y a longtemps, un disciple de la Montagne de l'Extraction de l'Âme avait trahi son ordre pour s'enfuir. Grâce à cette méthode, sous une identité transformée, il sema la terreur dans un pays de culture de rang 4 et fonda sa propre secte: la Secte des Pilules Démoniaques.
 
 Cet homme utilisait une méthode occulte pour raffiner les bêtes d'âme gu en pilules, puis y fondait le qi vert des cadavres pour accroître leur puissance, formant ainsi un noyau vert. Il nomma cela la Méthode du Noyau Vert, ce qui lui permit d'atteindre le stade de la Formation de l'Âme. Il était considéré comme un génie de son temps.
 

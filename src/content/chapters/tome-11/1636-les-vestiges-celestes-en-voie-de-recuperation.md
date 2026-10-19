@@ -90,7 +90,7 @@ Le cri strident devint plus intense, et la main desséchée agrippa le bord du v
 
 « Trop bruyant! » Avant que la voix ne puisse achever sa phrase, Wang Lin laissa échapper un reniflement méprisant et l'interrompit. Il fit un pas en avant et sa main droite fendit l'air comme l'éclair pour saisir la main desséchée. Dans un éclair de froideur, Wang Lin tira violemment l'être hors du vortex.
 
-« Tu te débattais avec tant de douleur, laisse-moi t'aider à sortir! Sors d'ici, bordel! » Wang Lin poussa un rugissement et tira de toutes ses forces. La statue s'effondra totalement et une silhouette mince et nue fut extraite du vortex. Il la projeta sans ménagement au sol.
+« Tu te débattais avec tant de douleur, laisse-moi t'aider à sortir! Sors de là! » Wang Lin poussa un rugissement et tira de toutes ses forces. La statue s'effondra totalement et une silhouette mince et nue fut extraite du vortex. Il la projeta sans ménagement au sol.
 
 La terre trembla sous l'impact et une onde de choc se propagea, creusant un trou gigantesque dans le sol. Wang Lin s'élança immédiatement dans cette fosse!
 

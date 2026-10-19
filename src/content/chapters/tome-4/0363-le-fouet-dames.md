@@ -72,7 +72,7 @@ Le corps de Papillon Rouge trembla tandis qu'elle fixait l'objet. Elle se tourna
 
 « Ceng Niu, espèce de scélérat! »
 
-Les yeux de Wang Lin brillèrent et il éclata d'un rire sonore. Puis, son regard s'assombrit brusquement: « Un scélérat? Dans le royaume céleste, il n'y avait aucune haine entre nous. Je ne t'avais jamais importunée. Pourtant, tu as tenté de me tuer à maintes reprises. Même maintenant, j'ignore toujours pourquoi tu voulais ma mort. Pourquoi ne puis-je pas résister quand tu cherches à m'éliminer? »
+Les yeux de Wang Lin brillèrent et il éclata d'un rire sonore. Puis, son regard s'assombrit brusquement: « Un scélérat? Dans le royaume céleste, il n'y avait aucune haine entre nous. Je ne t'avais jamais importunée. Pourtant, tu as tenté de me tuer à maintes reprises. Même maintenant, j'ignore toujours pourquoi tu voulais ma mort. Il n'y aurait donc que toi qui aies le droit de me tuer, et moi je ne pourrais pas résister? »
 
 Le visage de Papillon Rouge était sombre. Sans aucune hésitation, elle pointa la rose et les six pétales restants se dispersèrent.
 

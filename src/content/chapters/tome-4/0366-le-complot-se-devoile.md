@@ -12,7 +12,7 @@ L'âme originelle de Wang Lin regagna son corps et son visage devint livide. Bie
 
 Au moment où l'épée de la sagesse de Papillon Rouge l'avait frappé, son âme originelle avait été touchée. Sans l'approfondissement de son domaine de la Vie et de la Mort depuis qu'il avait atteint le stade intermédiaire de la Formation de l'Âme, son âme originelle aurait été anéantie.
 
-Même à cet instant, son domaine de la Vie et de la Mort n'était qu'un peu plus puissant que celui de Papillon Rouge. C'était parce que, comme elle l'avait affirmé, le cycle de la réincarnation céleste était, par essence, impitoyable.
+Même à cet instant, son domaine de la Vie et de la Mort n'était qu'un peu plus puissant que celui de Papillon Rouge. C'était parce que, comme elle l'avait affirmé, le cycle de la réincarnation céleste était, par essence, dénué d'émotion.
 
 Cependant, il existait une frontière ténue entre l'impitoyabilité et l'absence d'émotion, une différence d'un seul caractère, celle de l'inné et de l'acquis. En raison de cette nuance, Wang Lin l'avait emporté de justesse.
 
@@ -32,7 +32,7 @@ Wang Lin chargea rapidement, la lance dans une main, tandis que de l'autre, il a
 
 Boum!
 
-Le géant de glace poussa un rugissement et bondit dans les airs pour frapper Wang Lin. Cependant, la lance étant plus longue, elle s'élança vers le front du géant pour atteindre Papillon Rouge. La main du géant agrippa la lance.
+Le géant de glace poussa un rugissement et bondit dans les airs pour frapper Wang Lin. Cependant, la lance, plus rapide encore, fonça vers le front du géant pour atteindre Papillon Rouge. La main du géant agrippa la lance.
 
 Pourtant, l'énergie de l'épée suivait immédiatement la lance, s'abattant avec fureur.
 

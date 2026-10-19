@@ -82,7 +82,7 @@ L'aura des huit portes se manifesta soudainement. Wang Lin perçut immédiatemen
 
 Ses yeux brillèrent d'une lueur mystérieuse. Sans hésiter, il s'élança et projeta son Sens Divin pour traquer le reste des disciples de la Secte Dong Lin. Ils furent saisis par la terreur tandis que Wang Lin leur arrachait leurs jetons de jade.
 
-Plus il collectait de jetons, plus la distorsion s'intensifiait et plus la troisième âme tremblait. Chaque action de Wang Lin contredisait les souvenirs de la troisième âme. Ce contraste puissant était sur le point de déchirer la mémoire, et Wang Lin percevait les auras des huit portes avec une clarté croissante.
+Plus il collectait de jetons, plus la distorsion s'intensifiait et plus la troisième âme sombrait dans une violente confusion. Chaque action de Wang Lin contredisait les souvenirs de la troisième âme. Ce contraste puissant était sur le point de déchirer la mémoire, et Wang Lin percevait les auras des huit portes avec une clarté croissante.
 
 « La compétition de la Secte Dong Lin n'aura ni deuxième ni troisième essai. Si je prends tous les jetons de jade dès la première épreuve, il n'y aura plus d'autres étapes car je serai le seul vainqueur. Cela subvertira totalement les souvenirs de la troisième âme! » Les yeux de Wang Lin étincelèrent tandis qu'il se déplaçait avec rapidité. Tous les disciples de la Secte Dong Lin perdirent leurs jetons face à lui sur son passage.
 

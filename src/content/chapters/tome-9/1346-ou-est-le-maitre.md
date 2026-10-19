@@ -44,7 +44,7 @@ La boule de tonnerre suivait le mouvement de la main du vieil homme. Elle déchi
 
 « Merde, encore ça!! » hurla Xu Liguo en retirant sa main pour se transformer en brume noire et se disperser. À l'instant même où il se dissipa, la sphère de tonnerre noir frappa.
 
-Un bang tonitruant retentit, faisant trembler la terre et provoquant d'innombrables fissures spatiales. Le tonnerre se propagea dans toutes les directions tandis que le vacarme persistait!
+Un fracas tonitruant retentit, faisant trembler la terre et provoquant d'innombrables fissures spatiales. Le tonnerre se propagea dans toutes les directions tandis que le vacarme persistait!
 
 Tout cela se produisit en un éclair. Après avoir été frappé, Xu Liguo se transforma en brume noire et réapparut au loin. Son corps se reforma, mais il était flou; même son corps spirituel était gravement blessé.
 
@@ -78,7 +78,7 @@ Tandis que la poursuite continuait, Xu Liguo s'affaiblissait de plus en plus, ma
 
 Soudain, une voix douce résonna dans le monde: « Quel esprit d'épée à la langue acérée. Je veux voir si tu pourras encore tenir ce genre de propos après que j'aurai drainé ton corps spirituel pour te sceller dans le corps d'un porc ou d'un chien! »
 
-Un homme d'âge moyen vêtu de bleu apparut avec cette voix. Son apparition fut extrêmement bizarre, se tenant juste sur la trajectoire de fuite de Xu Liguo!
+Un homme d'âge moyen vêtu d'une robe taoïste bleue apparut avec cette voix. Son apparition fut extrêmement bizarre, se tenant juste sur la trajectoire de fuite de Xu Liguo!
 
 La magnifique femme s'écria instantanément de joie: « Parrain!! »
 
@@ -98,7 +98,7 @@ Des grondements tonitruants retentirent et Xu Liguo s'effondra une fois de plus.
 
 « Maître, sauvez-moi. Si vous ne me sauvez pas, je vais mourir!! » Xu Liguo était terrifié. S'il n'avait pas provoqué la femme au point de ne plus pouvoir faire marche arrière, il se serait depuis longtemps rendu.
 
-« C'est vrai, tu as encore un Maître. Je veux voir quel est le cran de ton Maître pour me provoquer. Il devra être enterré avec toi! » L'homme d'âge moyen afficha un sourire serein.
+« C'est vrai, tu as encore un Maître. Je veux voir quel est le cran de ton Maître pour me provoquer, et qui il est au sein de ton clan. Il devra être enterré avec toi! » L'homme d'âge moyen afficha un sourire serein.
 
 Cependant, à cet instant précis, une voix glaciale émergea lentement du monde. Cette voix ressemblait à des milliers de lames tranchantes et dégageait un froid puissant!
 

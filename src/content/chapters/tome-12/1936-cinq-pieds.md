@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1936 - Five Feet
 slug: cinq-pieds
 ---
-Bien que le visage de la silhouette à l'extérieur ne fût fait que de chair et de sang, dépourvu de peau, Wang Lin avait été témoin de la scène terrifiante de l'Ancêtre Céleste scellant le Taureau Céleste lorsqu'il avait absorbé la veine de feu.
+Bien que le visage de la silhouette à l'extérieur ne fût fait que de chair et de sang, dépourvu de peau, Wang Lin avait été témoin de la scène de l'Ancêtre Céleste scellant le Taureau Céleste lorsqu'il avait absorbé la veine de feu.
 
 Le visage de cette silhouette vague ressemblait étrangement à celui de l'Ancêtre Céleste!
 
@@ -26,9 +26,9 @@ Les yeux de Wang Lin s'illuminèrent et il regarda l'Exalté Empyréen Hai Zi: �
 
 « J'ai entendu mon Maître en parler une fois. Il y a fort longtemps, le clan céleste ne possédait qu'un seul continent. L'Ancêtre Céleste scella les êtres venus de l'extérieur pour créer les 72 continents que nous connaissons aujourd'hui.
 
-« Mon Maître m'a dit un jour qu'après avoir scellé le soixante-douzième être, l'Ancêtre Céleste avait disparu. Nul ne sait où il est parti. Même ses descendants l'ont cherché durant des éons sans jamais en connaître l'issue.
+« Mon Maître m'a dit un jour qu'après avoir scellé le soixante-douzième être, l'Ancêtre Céleste avait disparu. Nul ne sait où il est parti. Même ses descendants l'ont cherché pendant très longtemps sans jamais en connaître l'issue.
 
-« Cependant, mon Maître a un jour murmuré quelque chose qui laissait entendre que l'Ancêtre Céleste n'avait pas simplement disparu... Il soupçonnait qu'il avait rencontré quelque chose... Quant aux détails, il ne souhaitait pas s'étendre sur le sujet. » L'Exalté Empyréen Hai Zi parla lentement, le regard pensif.
+« Cependant, mon Maître a un jour murmuré quelque chose qui laissait entendre que l'Ancêtre Céleste n'avait pas simplement disparu... Il soupçonnait qu'il avait connu un revers... Quant aux détails, il ne souhaitait pas s'étendre sur le sujet. » L'Exalté Empyréen Hai Zi parla lentement, le regard pensif.
 
 En entendant ces paroles, Wang Lin resta silencieux, plongé dans ses réflexions.
 
@@ -58,7 +58,7 @@ L'Exalté Empyréen Hai Zi demanda promptement: « Où avez-vous appris que l'Ar
 
 « J'ai entendu dire par un Exalté Empyréen sous les ordres du Grand Empyréen Wu Feng qu'il y avait des esprits d'arbres sous l'Arbre de la Mer et de la Montagne... » Wang Lin approfondissait sa réflexion.
 
-« Je suis déjà venue ici par le passé et j'avais une grotte, mais peu de temps. Pourtant, il y a 200 ans, mon Maître m'a soudainement ordonné de m'installer ici pour une longue durée... Vous avez été guidé vers cet endroit par un subordonné du Grand Empyréen Wu Feng... Et pourtant, ce territoire appartient au Grand Empyréen Dao Yi. » L'expression de l'Exalté Empyréen Hai Zi était d'une profonde mélancolie.
+« Je suis déjà venue ici par le passé et j'avais une grotte, mais peu de temps. Pourtant, il y a 200 ans, mon Maître m'a soudainement ordonné de m'installer ici pour une longue durée... Vous avez été guidé vers cet endroit par un subordonné du Grand Empyréen Wu Feng... Et pourtant, ce territoire appartient au Grand Empyréen Dao Yi. » L'expression de l'Exalté Empyréen Hai Zi était très sombre.
 
 Wang Lin esquissa un léger sourire. Les paroles de la jeune femme signifiaient qu'elle avait saisi la clé du problème.
 
@@ -70,9 +70,9 @@ L'expression de Wang Lin resta neutre et il secoua silencieusement la tête. Pou
 
 « Un cultivateur ordinaire ne pourrait pas percer à jour mon origine, et même des Exaltés Empyréens auraient du mal à me détecter. Cependant, ce n'est aucun secret pour les Grands Empyréens! »
 
-« La personne sous le Grand Empyréen Wu Feng m'a dirigée ici dans l'intention de vérifier mon identité, et elle poursuit le même objectif que le Grand Empyréen Jiu Di! »
+« La personne sous le Grand Empyréen Wu Feng m'a dirigée ici dans l'intention de vérifier mon identité, et elle poursuit probablement le même objectif que le Grand Empyréen Jiu Di! »
 
-« Bien que le Grand Empyréen Jiu Di utilise sa disciple comme appât, sa méthode reste manifestement bienveillante; il se contente de la laisser vivre ici pour attirer silencieusement l'Esprit de l'Arbre de la Mer et de la Montagne. En revanche, je n'ai aucun lien avec le Grand Empyréen Wu Feng, il se moque donc de savoir si je vis ou si je meurs. Il peut ainsi vérifier mon identité tout en extrayant la paume brisée! »
+« Bien que le Grand Empyréen Jiu Di utilise sa disciple comme appât, sa méthode reste plutôt clémente; il se contente de la laisser vivre ici pour attirer silencieusement l'Esprit de l'Arbre de la Mer et de la Montagne. En revanche, je n'ai aucun lien avec le Grand Empyréen Wu Feng, il se moque donc de savoir si je vis ou si je meurs. Il peut ainsi vérifier mon identité tout en extrayant la paume brisée! »
 
 « Ils ne se soucient pas de savoir si je viens du monde des grottes ou non, mais ils veulent savoir si je suis un cultivateur d'un Pays Ancien!! » Wang Lin cultivait depuis près de 3 000 ans et, particulièrement dans le monde des grottes, il avait surmonté crise après crise grâce à sa propre capacité d'analyse et de déduction.
 
@@ -84,7 +84,7 @@ Bien que son esprit ne fût pas d'une intelligence démoniaque, il possédait un
 
 « Tant que je ne révèle pas mon identité, tout ira bien malgré ma provenance du monde des grottes. Attendons encore un peu; après tout, ce ne sont que des suppositions. » Wang Lin réfléchit et observa l'Exalté Empyréen Hai Zi. La belle femme gardait les yeux clos, le visage impassible.
 
-« Si le Grand Empyréen Jiu Di l'utilise vraiment comme appât, c'est qu'elle cache elle aussi quelque chose! » Wang Lin revenait à ses hypothèses initiales, de plus en plus convaincu. Cependant, des doutes subsistaient: quel secret la paume brisée partageait-elle avec le clan céleste pour attirer l'attention des Grands Empyréens?
+« Si le Grand Empyréen Jiu Di l'utilise vraiment comme appât, c'est qu'elle a quelque chose d'anormal! » Wang Lin revenait à ses hypothèses initiales, de plus en plus convaincu. Cependant, des doutes subsistaient: quel secret la paume brisée partageait-elle avec le clan céleste pour attirer l'attention des Grands Empyréens?
 
 Wang Lin détourna le regard et se concentra à nouveau sur l'absorption de l'Esprit de l'Arbre de la Mer et de la Montagne. Peu importe les événements à venir, accroître son niveau de culture était la condition sine qua non pour affronter l'avenir!
 
@@ -108,7 +108,7 @@ Tout comme Wang Lin sentait son parfum, elle ressentait la chaleur corporelle é
 
 Wang Lin fronça également les sourcils. Dans toute sa vie, hormis quelques femmes, il avait rarement été aussi proche d'une inconnue. Il éprouvait lui aussi un grand inconfort, et les effluves de parfum qui émanaient d'elle le troublaient sans cesse.
 
-En comptant leurs sept années de cohabitation forcée, l'Exalté Empyréen Hai Zi était d'une beauté absolue, comparable à Mu Bingmei. Ce sentiment fit soupirer Wang Lin intérieurement.
+En comptant les sept années passées côte à côte, l'Exalté Empyréen Hai Zi était d'une beauté absolue, comparable à Mu Bingmei. Ce sentiment fit soupirer Wang Lin intérieurement.
 
 « Je ne peux pas laisser cela durer... » Les yeux de Wang Lin s'illuminèrent. Mais à cet instant, sous l'effet du rétrécissement et des fissures, l'ombre extérieure réapparut. Elle attaqua violemment le rideau, et le fracas extérieur devint assourdissant. Les craquelures commencèrent à se propager sur la paroi lumineuse.
 

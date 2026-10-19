@@ -94,19 +94,19 @@ La carte, en revanche, s'avéra très utile. Après avoir récupéré le jade, W
 
 Plus important encore, le regard que Wang Lin lui avait lancé avant de partir était d'un calme absolu. Des ondulations résonnèrent sous les pieds de Wang Lin et il disparut soudainement. Cette scène fut plus terrifiante que n'importe quelle menace.
 
-Le cœur de Du Qing trembla en voyant Wang Lin s'évanouir, et après un long moment, il laissa échapper un soupir.
+Le cœur de Du Qing trembla en voyant Wang Lin disparaître, et après un long moment, il laissa échapper un soupir.
 
-« Je me souviendrai de l'aide du Compagnon Cultivateur Du. Si l'occasion se présente, je vous rembourserai. » Après le départ de Wang Lin, ses paroles résonnèrent encore dans les oreilles de Du Qing.
+« Je me souviendrai de l'aide du Compagnon Cultivateur Du. Si l'occasion se présente, je vous revaudrai cela. » Après le départ de Wang Lin, ses paroles résonnèrent encore dans les oreilles de Du Qing.
 
 Le septième jour suivant le départ de Wang Lin, les veines secondaires de feu terrestre à travers tout le continent du Taureau Céleste s'effondrèrent, et une explosion de feu déferla sur le continent. L'air lui-même devint brûlant, et la simple respiration suffisait à rendre irritable.
 
-Comme ce phénomène se produisit en de nombreux endroits du continent, il attira l'attention des diverses sectes. Elles envoyèrent de nombreux disciples, et parfois même des Anciens pour inspecter les lieux, mais ils ne trouvèrent aucune trace. Lorsqu'ils arrivaient, ils ne voyaient plus que des veines desséchées.
+Comme ce phénomène se produisit en de nombreux endroits du continent, il attira l'attention des diverses sectes. Elles envoyèrent de nombreux disciples, et parfois même des Anciens pour inspecter les lieux, mais ils ne trouvèrent aucune trace. Lorsqu'ils arrivaient, ils ne voyaient plus que des ruines.
 
 Une demi-lune plus tard, à la montagne entourée d'un brouillard noir où se trouvait autrefois la Secte des Sept Dao, Wang Lin sortit de la montagne, l'air pensif.
 
 Il devait venir ici. Ici, il pouvait ressentir l'aura du monde des grottes et les années d'attente de Xuan Luo.
 
-Wang Lin émergea du brouillard noir et jeta un regard vers la montagne intérieure. Il réfléchit un instant avant de pousser un soupir et de reprendre sa route.
+Wang Lin émergea du brouillard noir et jeta un regard vers la montagne voilée par le brouillard. Il réfléchit un instant avant de pousser un soupir et de reprendre sa route.
 
 « Situ, Qing Shui, Li Qianmei, et tous ceux qui se sont réincarnés... Où êtes-vous tous maintenant...? » Wang Lin tourna le dos pour partir, son allure dégageant une profonde solitude.
 

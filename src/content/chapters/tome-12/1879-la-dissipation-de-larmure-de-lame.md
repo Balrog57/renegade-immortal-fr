@@ -8,9 +8,9 @@ slug: la-dissipation-de-larmure-de-lame
 ---
 Les quatre Messagers du Démon Vert étaient pétris de terreur. Après avoir été projetés en l'air, ils se regardèrent et s'enfuirent dans quatre directions différentes sans la moindre hésitation.
 
-Tout en se dispersant, chacun utilisa des méthodes distinctes. Deux d'entre eux sortirent des trésors: l'un était une grue de papier verte, l'autre un fouet blanc.
+Tout en se dispersant, chacun utilisa des méthodes distinctes. Deux d'entre eux sortirent des trésors: l'un était une grue de papier verte, l'autre un chasse-mouches blanc.
 
-Les deux premiers montèrent sur leurs trésors et s'envolèrent à toute allure. Quant aux deux autres, l'un se mordit la langue et cracha du sang; une lumière verte l'enveloppa, il fusionna avec son propre sang et, instantanément, parcourut 10 000 kilomètres.
+Les deux premiers montèrent sur leurs trésors et s'envolèrent à toute allure. Quant aux deux autres, l'un se mordit la langue et cracha du sang; une lumière verte l'enveloppa, il fusionna avec son propre sang et, instantanément, parcourut 5 000 kilomètres.
 
 Le dernier Messager du Démon Vert forma des sceaux et son corps commença à pivoter, créant un tourbillon qui reliait le ciel et la terre. Il s'élança rapidement vers l'horizon.
 
@@ -20,7 +20,7 @@ Cependant, comment Wang Lin pouvait-il les laisser s'échapper? Il devait rempli
 
 Des ondulations résonnèrent sous ses pieds et il disparut instantanément.
 
-Lorsqu'il réapparut, il se tenait devant le Messager du Démon Vert qui s'était transformé en tourbillon. Dès son apparition, Wang Lin agita la main droite et attaqua avec la puissance du tonnerre!
+Lorsqu'il réapparut, il se tenait devant le Messager du Démon Vert qui s'était transformé en tourbillon. Dès son apparition, Wang Lin agita brusquement la main droite vers l'arrière et attaqua avec la puissance du tonnerre!
 
 Sous cette attaque, le monde trembla et la paume de Wang Lin fut remplacée par une foudre fulgurante. Le tonnerre était éblouissant, formant une immense sphère électrique dont les contours étaient parcourus d'innombrables lignes de force terrifiantes.
 
@@ -38,11 +38,11 @@ Le Messager du Démon Vert était scellé par ce réseau; il n'avait aucune chan
 
 En un éclair, il disparut.
 
-À l'ouest de la Prairie du Ciel Extrême, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle, comme s'il était possédé par la démence.
+À l'ouest de la Prairie de l'Extrême Ciel, l'autre Messager du Démon Vert, assis sur une grue de papier, affichait un visage pâle. Il fuyait à une vitesse folle, comme s'il était possédé par la démence.
 
 De son point de vue, ce qui venait de se produire était tout simplement terrifiant. Ils étaient venus ici pour accomplir la tâche confiée par le Vieil Ancêtre: tuer Wang Lin.
 
-Même si un accident s'était produit et que Wang Lin avait obtenu l'armure de l'âme, il n'avait pas eu peur. Après tout, il connaissait certains détails sur l'armure du Taureau Céleste: elle avait une limite de temps.
+Même si un accident s'était produit et que Wang Lin avait obtenu l'armure de l'âme, il n'avait pas été trop effrayé. Après tout, il connaissait certains détails sur l'armure du Taureau Céleste: elle avait une limite de temps.
 
 Mais en voyant Wang Lin utiliser un sort de foi, il comprit soudain que ce dernier n'était pas un être ordinaire!
 
@@ -96,7 +96,7 @@ Un instant plus tard, un rugissement excité du Taureau Céleste retentit là o�
 
 La lueur rouge de l'épée de sang devint encore plus éclatante après avoir tué les trois messagers de stade intermédiaire de la Tribulation du Vide. Quelques caractères anciens commencèrent à apparaître sur la lame.
 
-Ces caractères n'étaient pas ceux des cultivateurs, mais ceux des êtres antiques!
+Ces caractères n'étaient pas ceux des cultivateurs, mais ceux du Clan Ancien!
 
 Les cheveux blancs de Wang Lin flottaient au vent tandis que sa cultivation chutait jusqu'au stade intermédiaire de la Tribulation Arcane. Il paraissait épuisé lorsqu'il fit un pas vers le palais souterrain.
 
@@ -108,7 +108,7 @@ Le tatouage brilla, donnant à Wang Lin une apparence très singulière.
 
 Dès qu'il pénétra dans le palais souterrain, ses jambes fléchirent. Une puissante sensation de faiblesse envahit son corps, comme s'il avait perdu sa culture pour redevenir un simple mortel.
 
-Les plus de 1 000 cultivateurs, y compris Yan Lu et sa compagnie, tournèrent tous des regards anxieux vers lui. Ne pouvant voir ce qui se passait à l'extérieur du palais souterrain, ils attendaient le verdict.
+Les plus de 1 000 cultivateurs, y compris Yan Luan et sa compagnie, tournèrent tous des regards anxieux vers lui. Ne pouvant voir ce qui se passait à l'extérieur du palais souterrain, ils attendaient le verdict.
 
 « Sur les six vieux monstres de stade intermédiaire de la Tribulation du Vide, deux se sont échappés et trois sont morts... » Wang Lin ne savait pas si le vieil homme nommé Zhao possédait un avatar ou non car il n'était pas assez proche pour le savoir; il ne le mentionna donc pas.
 
@@ -122,6 +122,6 @@ Il ignora le silence de mort provoqué par ses paroles. Tous les cultivateurs re
 
 « Est-ce là le véritable pouvoir de l'armure d'âme... »
 
-Il n'y eut aucun tumulte. Chacun médita en silence avant de se disperser lentement. Yan Lu et les autres jetèrent également des regards complexes vers la grotte de Wang Lin avant de retourner dans les leurs pour entamer leur guérison. Après tout, ils avaient eux aussi été blessés lors du combat précédent.
+Il n'y eut aucun tumulte. Chacun médita en silence avant de se disperser lentement. Yan Luan et les autres jetèrent également des regards complexes vers la grotte de Wang Lin avant de retourner dans les leurs pour entamer leur guérison. Après tout, ils avaient eux aussi été blessés lors du combat précédent.
 
 En un éclair, sept jours passèrent!

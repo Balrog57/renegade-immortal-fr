@@ -12,9 +12,9 @@ Le regard de Wang Lin était calme. Le Daoïste du Tonnerre était gravement ble
 
 La première condition pour raffiner une marionnette était que la personne raffinée soit consentante!
 
-Wang Lin dit calmement: « Je tiendrai ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû forcer ton âme originelle à sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
+Wang Lin dit calmement: « Je n'ai pas manqué à ma promesse, mais cette seconde étape ne pourra aboutir que si tu es d'accord. Afin d'éviter tout accident, j'ai dû forcer ton âme originelle à sortir. » De sa main droite, il fit signe au gardien céleste et à la Bête du Tonnerre de s'emparer immédiatement du Daoïste du Tonnerre. Si celui-ci tentait quoi que ce soit, ils attaqueraient sans la moindre hésitation.
 
-Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit le corps de ce dernier. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
+Sans accorder un regard à l'âme originelle du Daoïste du Tonnerre, Wang Lin saisit cette âme et la plaça devant lui. Après avoir récupéré le sac de rangement, il cracha une nouvelle bouffée d'énergie originelle qui enveloppa le corps du Daoïste du Tonnerre.
 
 L'âme originelle du Daoïste du Tonnerre affichait une humeur extrêmement sombre alors qu'il fixait froidement Wang Lin. Il voulait voir quelle sorte d'empreinte ce Xu Mu allait laisser!
 
@@ -64,7 +64,7 @@ Wang Lin ajouta calmement: « Même si tu possèdes un sort de sauvetage, il ne 
 
 Deux voies s'offraient au Daoïste du Tonnerre. La première consistait à prendre des risques et à résister, mais il savait que malgré la puissance de son sort de sauvetage, celui-ci ne pouvait rivaliser avec les deux rayons d'énergie d'épée. Si les deux attaquaient simultanément, il n'aurait aucune issue!
 
-La seconde était d'accepter et de devenir une marionnette... Il échangerait trois mille ans de sa vie contre sa liberté, et cela à la condition que Wang Lin tienne sa promesse et ne meure pas durant cette période... Le Daoïste du Tonnerre observa la marionnette qui n'avait pas prononcé un mot depuis le début.
+La seconde était d'accepter et de devenir une marionnette... Il échangerait trois mille ans de sa vie contre sa liberté, et cela à la condition que Wang Lin tienne sa promesse et que lui-même ne meure pas au combat durant cette période... Le Daoïste du Tonnerre observa la marionnette qui n'avait pas prononcé un mot depuis le début.
 
 « Le corps de cette marionnette est extrêmement robuste; il peut même combattre des trésors magiques à mains nues... Il ne devrait donc pas mourir au combat... »
 

@@ -40,7 +40,7 @@ Après avoir réfléchi un instant, une lueur de froideur passa dans les yeux de
 
 « Il y a aussi Maître Nuage-Âme. Lorsqu'il a été téléporté ici, il l'a été vers un lieu aléatoire, mais j'ignore où. Cependant, cet endroit est rempli de dangers, et être transporté ici au hasard est périlleux. Il est probable qu'il ne puisse même pas se défendre pour le moment. »
 
-« Ces trois-là ont tous été mis en difficulté par moi, mais ce Chen Tianjun de la Secte de la Bête de Bataille est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
+« Ces trois-là ont tous été piégés par moi, mais ce Chen Tianjun de la Secte de la Bête de Bataille est parti tôt. Bien que nous ayons senti ses sorts se dissiper auparavant, il est difficile de prouver qu'il est mort... »
 
 Chacun ici complotait contre les autres, et personne ne voulait laisser autrui quitter cet endroit avec le trésor. C'était ce qu'on appelle: « même si un homme ne veut pas nuire au tigre, le tigre, lui, voudra toujours nuire à l'homme ». Si l'on reste passif, on finit inévitablement par être victime de complots. Les yeux de Wang Lin s'illuminèrent; il avait depuis longtemps percé à jour leurs intentions. C'est pourquoi il avait agi le premier en forçant Maître Nuage-Âme à se téléporter ailleurs, puis il avait piégé la vieille femme dans la restriction afin de pouvoir affronter Maître Pin Cendré.
 
@@ -66,9 +66,9 @@ Wang Lin fixa l'objet. Il avait la sensation que si le clou disparaissait compl�
 
 Après avoir observé silencieusement la cicatrisation, Wang Lin ferma les yeux et son âme originelle commença à lutter. Puisqu'il ne pouvait l'extraire par une force extérieure, il allait tenter d'utiliser son énergie originelle et son pouvoir d'Ancien Dieu pour le forcer à sortir.
 
-Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de culture, il ne pouvait que le supprimer. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
+Le temps passa et trois jours supplémentaires s'écoulèrent. Wang Lin ouvrit les yeux. Avec son niveau de culture, il ne pouvait que le contenir. Il ne parvenait pas à expulser la lumière aux sept couleurs, et encore moins le clou.
 
-« Si je ne peux que le supprimer, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Pin Cendré en venant dans le Royaume aux Sept Couleurs.
+« Si je ne peux que le contenir, alors ce n'est pas encore fini. Maintenant, j'ai juste besoin d'aide... S'il y a suffisamment d'aides, je devrais être capable de forcer la sortie des sept couleurs et du clou! » Wang Lin regarda silencieusement la fiole de jade. C'était l'objectif ultime de Maître Pin Cendré en venant dans le Royaume aux Sept Couleurs.
 
 Tenant la fiole, le sens divin de Wang Lin se déploya. Elle était à moitié remplie d'un liquide noir. Cela ressemblait à du sang, mais n'en dégageait pas l'odeur.
 
@@ -86,7 +86,7 @@ Sans poser de questions, Wang Lin agita ses manches. Xu Liguo était sur le poin
 
 Après avoir quitté la grotte, Wang Lin prit une profonde inspiration pour endurer la douleur à son épaule droite et s'élança. Il ne se dirigeait pas vers les profondeurs du Royaume aux Sept Couleurs, mais vers la chaîne de montagnes extérieure, au-delà de la vallée.
 
-Cet endroit était peuplé de pics montagneux habités par des bêtes féroces.
+Cet endroit était peuplé de pics montagneux habités par des bêtes féroces faites de brume.
 
 Ces bêtes féroces étaient précisément les « aides » auxquelles Wang Lin avait pensé!
 
@@ -114,12 +114,12 @@ La moitié de son corps était recouverte de cette lueur. Avec la méthode de Wa
 
 Des éclairs de lumière noire déchiraient l'air tandis que les deux aigles continuaient d'attaquer le corps de Wang Lin. Ses blessures s'aggravèrent et du sang jaillit de sa bouche, mais son visage était empreint d'extase.
 
-Tant que la racine n'était pas touchée, un corps d'Ancien Dieu pouvait se rétablir instantanément. Même s'il subissait des blessures mortelles, Wang Lin s'en moquait, pourvu qu'il puisse expulser le clou aux sept couleurs.
+Tant que la racine n'était pas touchée, un corps d'Ancien Dieu pouvait se rétablir en peu de temps. Même s'il subissait de graves blessures, Wang Lin s'en moquait, pourvu qu'il puisse expulser le clou aux sept couleurs.
 
 À ce moment-là, le corps de Wang Lin avait atteint ses limites. La lumière aux sept couleurs sur son épaule droite s'était totalement condensée pour redevenir le clou aux sept couleurs.
 
 Sous ces assauts continus, le clou semblait se desserrer et montrait des signes d'expulsion.
 
-C'est à cet instant qu'un autre rugissement retentit depuis le sommet de la montagne et qu'un troisième aigle surgit. Il se transforma en un rayon de lumière et percuta impitoyablement la poitrine de Wang Lin.
+C'est à cet instant qu'un autre rugissement retentit depuis le sommet de la montagne et qu'un troisième aigle surgit. Il se transforma en un rayon de lumière noire et percuta impitoyablement la poitrine de Wang Lin.
 
 Le corps de Wang Lin trembla; l'impact puissant donna à son corps déjà meurtri l'impression qu'il allait s'effondrer, mais ses yeux étaient remplis de joie. Il laissa échapper un rire alors que son épaule droite explosait dans une gerbe de sang. Dans la chair et le sang projetés, un éclat aux sept couleurs jaillit: c'était le clou aux sept couleurs!

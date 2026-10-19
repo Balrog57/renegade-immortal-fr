@@ -32,7 +32,7 @@ Le tonnerre grondait dans le ciel tandis que les foudres s'abattaient sur Liu Qi
 
 Voyant qu'il n'avait plus aucune chance de s'échapper, une lueur de férocité traversa les yeux de Liu Qingyun et il hurla: « Si tu veux me tuer, alors meurs avec moi! » Une folie pure habitait son regard alors qu'il choisissait de s'autodétruire sans la moindre hésitation!
 
-Il ne s'agissait pas de la totalité de son âme originelle. Avec sa ruse, il n'aurait jamais pris un tel risque; autrefois, il avait divisé une petite partie de son âme afin de pouvoir sauver sa vie en cas de crise majeure.
+Il ne s'agissait pas de la totalité de son âme originelle. Avec sa ruse, il n'aurait jamais pris un tel risque; autrefois, il avait détaché un peu moins de la moitié de son âme afin de pouvoir sauver sa vie en cas de crise majeure.
 
 À cet instant, il décida de tout miser. Une aura destructrice émana de son âme originelle. Son expression était féroce alors qu'il était sur le point d'exploser. L'autodestruction d'un cultivateur du stade Scruteur du Nirvana était bien plus puissante que celle du cadavre de feu. Une fois l'explosion déclenchée, la planète Suzaku s'effondrerait!
 
@@ -98,6 +98,6 @@ Soudain, la silhouette du jeune homme apparut à des milliers de pieds de là, c
 
 Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pas s'effondrer et répondit: « L'emplacement du Céleste du Tonnerre de Luotian, Xu Mu, est toujours inconnu. Nous le recherchons activement! »
 
-Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont redoutables. »
+Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont bien rigoureux. »
 
 Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance de Culture va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »

@@ -16,9 +16,9 @@ Wang Lin ignorait quel serait le domaine qu'il finirait par comprendre, mais il 
 
 Sept jours après le départ de Xu Tao, celui-ci revint accompagné d'un homme d'âge moyen au port royal. L'homme entra respectueusement dans la boutique aux côtés de Xu Tao. Sans se soucier de son rang, il s'agenouilla et effectua trois prosternations.
 
-Le regard de Wang Lin balaya l'individu, mais il ne dit mot. Il comprit aisément que cet homme était le supérieur de Xu Tao, ce qui signifiait qu'il s'agissait de la haute personnalité que le cultivateur aux grandes oreilles recherchait.
+Le regard de Wang Lin balaya l'individu, mais il ne dit mot. Il comprit aisément que cet homme était le supérieur de Xu Tao, ce qui signifiait qu'il s'agissait de la haute personnalité que le cultivateur aux grandes oreilles voulait éliminer.
 
-Aux yeux d'un mortel ordinaire, cette personne était un être suprême, mais pour Wang Lin, cet homme n'était qu'une fourmi. Bien qu'il possédât une certaine culture, s'il ne pouvait atteindre le stade de l'Établissement des Fondations, il ne pourrait échapper au cycle de la vie et de la mort.
+Aux yeux d'un mortel ordinaire, ce prince, issu de la famille royale, était un être suprême, mais pour Wang Lin, cet homme n'était qu'une fourmi. Bien qu'il possédât une certaine culture, s'il ne pouvait atteindre le stade de l'Établissement des Fondations, il ne pourrait échapper au cycle de la vie et de la mort.
 
 L'homme d'âge moyen semblait déjà connaître le tempérament de Wang Lin. Après ses prosternations, il sortit un sac de rangement et le déposa respectueusement sur la table. Puis, lui et Xu Tao quittèrent les lieux avec déférence.
 

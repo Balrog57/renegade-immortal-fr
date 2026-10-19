@@ -10,13 +10,13 @@ slug: la-fille-de-qing-shui
 
 Elle ne pourrait jamais oublier ces scènes du passé. Lors de sa divination, elle avait clairement aperçu la silhouette qui détruirait le Système Stellaire Antique.
 
-À cet instant, elle ne pouvait que réprimer son angoisse. Elle leva sa main d'ivoire et les cultivateurs environnants se précipitèrent tous vers elle.
+À cet instant, elle ne pouvait que réprimer son angoisse. Elle pointa sa main d'ivoire vers l'avant, et les cultivateurs qui l'entouraient s'élancèrent aussitôt en avant.
 
 L'armée du Royaume Extérieur attaqua de huit directions différentes, telle huit épées acérées visant la formation planétaire.
 
-Des grondements tonitruants résonnèrent et, peu après, une onde de choc monstrueuse se propagea. Les cultivateurs du Vide Arcanique qui observaient la scène agitèrent leurs mains pour dissiper l'onde de choc afin qu'elle n'affecte pas les assaillants du Royaume Extérieur.
+Des grondements tonitruants résonnèrent. Une autre planète de culture s'effondra, et une onde de choc monstrueuse se propagea. Les cultivateurs du Vide Arcanique qui observaient la scène agitèrent leurs mains pour dissiper l'onde de choc afin qu'elle n'affecte pas les assaillants du Royaume Extérieur.
 
-Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les dernières paroles de Wang Lin pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer des Nuages, de la Rivière Invoquée, du Vide Brillant et, désormais, dans cette ultime bataille.
+Mu Bingmei se tenait sur une planète, entourée de milliers de cultivateurs de la Secte Divine. Au fil des années, en tant que maîtresse de la Secte Divine, Mu Bingmei avait utilisé son charme unique et les paroles que Wang Lin avait prononcées autrefois pour unir la Secte. Depuis lors, la Secte Divine l'avait toujours écoutée et avait déployé toute sa puissance lors de la bataille de la Mer des Nuages, de la Rivière Invoquée, du Vide Brillant et, désormais, dans cette ultime bataille.
 
 Ils avaient subi d'immenses pertes, tant en vies qu'en blessures, et elle-même avait frôlé la mort à deux reprises. Désormais, il ne restait plus que quelques milliers de membres de la Secte Divine.
 
@@ -34,9 +34,9 @@ Parmi les envahisseurs du Royaume Extérieur se trouvait un jeune homme vêtu de
 
 Le regard du jeune homme perça la lumière et se posa sur Mu Bingmei. Il sourit.
 
-« Belle enfant, ne t'inquiète pas, cet écran va bientôt se briser. J'ai entendu dire que tu étais la femme du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la culture de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
+« Belle enfant, ne t'inquiète pas, cet écran va bientôt se briser. J'ai entendu dire que tu étais l'une des femmes du défunt Seigneur du Royaume Scellé. J'ai toujours été intéressé par la culture de couple avec la femme d'autrui. » Cette voix semblait émaner lentement de l'autre côté de la lumière. Même le fracas tonitruant des dizaines de milliers de cultivateurs ne parvenait pas à étouffer ses paroles.
 
-Ce jeune homme était l'un des sept cultivateurs du troisième niveau, juste en dessous de ceux du Vide Arcanique!
+Ce jeune homme était l'un des sept cultivateurs de la troisième étape, juste en dessous de ceux du Vide Arcanique!
 
 Il leva sa main droite, pointa Mu Bingmei du doigt et sourit:
 
@@ -58,7 +58,7 @@ Au-dessus d'eux, hors de la lumière de la formation planétaire, des dizaines d
 
 Ses attaques, à elles seules, rivalisaient avec celles de dizaines de milliers d'autres cultivateurs!
 
-Cet homme était également l'un des sept cultivateurs du troisième niveau! Son corps imposant ressemblait à une montagne meurtrière. Il poussa un rugissement et attaqua aux côtés de la multitude. En souriant, il frappa l'écran lumineux, provoquant ses distorsions et son instabilité.
+Cet homme était également l'un des sept cultivateurs de la troisième étape! Son corps imposant ressemblait à une montagne meurtrière. Il poussa un rugissement et attaqua aux côtés de la multitude. En souriant, il frappa l'écran lumineux, provoquant ses distorsions et son instabilité.
 
 « Tout est sur le point de s'achever... C'est ainsi, et c'est bien ainsi... » La femme en rose dissimulait son épuisement profond. Son corps semblait si fragile que le moindre souffle de vent aurait pu la faire s'effondrer. Elle détourna les yeux du ciel pour regarder ses compagnons du Vide Brillant.
 
@@ -88,9 +88,9 @@ Soudain, un cri strident jaillit de la formation planétaire et un rayon de lumi
 
 Dans un fracas de tonnerre, la lumière verte fut légèrement dispersée et recula de quelques pas. De l'autre côté, le vieil homme fut repoussé de mille pieds; ses yeux brillèrent d'un éclat sinistre. Dans un sourire narquois, il traça un sceau et une brume noire envahit la zone.
 
-« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie! Tu es digne d'être le dernier disciple du Seigneur du Royaume Scellé! Ta culture n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes Joss! »
+« Tu es puissant, Empereur Qing Lin du Royaume Céleste de la Pluie! Tu es digne d'être le disciple du précédent Seigneur du Royaume Scellé! Ta culture n'est manifestement pas aussi élevée que la mienne, mais tu parviens à emprunter le pouvoir des Flammes Joss! »
 
-La lumière verte se dissipa, révélant le corps de Qing Lin. Son visage était pâle et il était gravement blessé. Il n'avait eu qu'un bref instant de repos avant de repartir au combat contre les cultivateurs du troisième niveau du Royaume Extérieur!
+La lumière verte se dissipa, révélant le corps de Qing Lin. Son visage était pâle et il était gravement blessé. Il n'avait eu qu'un bref instant de repos avant de repartir au combat contre les cultivateurs de la troisième étape du Royaume Extérieur!
 
 Depuis le début du siège, il ne cessait ainsi!
 

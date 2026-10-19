@@ -12,7 +12,7 @@ Dans un fracas assourdissant, la boue entourant Wang Lin se mit à tourbillonner
 
 « Mort par la boue! » rugit Xu Decai, tandis que la sphère de boue se rétractait violemment.
 
-Xu Decai était une figure célèbre sur le Continent du Démon Vert. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte de la Voie Démoniaque!
+Xu Decai était une figure célèbre sur le Continent du Démon Vert. Ce qui le rendait terrifiant était sa vitesse d'exécution inégalée. Parmi les cultivateurs de même rang, il pouvait exploiter cet avantage pour lancer des sorts sans interruption, refusant à ses adversaires la moindre seconde de répit jusqu'à ce qu'il les bombarde à mort! C'était aussi la raison pour laquelle, bien qu'il fût un cultivateur errant, il avait été invité par la Secte du Dao Démoniaque!
 
 Wang Lin se trouvait à l'intérieur de cette masse et se retrouvait encerclé par quatre colosses de boue. Des grondements sourds résonnaient, mêlés à la puissance mystérieuse de l'encens de Xu Decai qui imprégnait son corps. À l'extérieur de la masse boueuse, une ombre gigantesque semblable à une baleine ouvrit sa gueule pour tout dévorer.
 
@@ -28,7 +28,7 @@ Puis, l'herbe s'agita et fut arrachée à la terre; chaque brin se transforma en
 
 L'ombre de la baleine, qui s'était transformée en neuf pythons empoisonnés, rouvrit sa gueule, prête à dévorer Wang Lin une seconde fois. Cette chose était extrêmement étrange. Selon l'expérience de Xu Decai, dès qu'elle aurait dévoré plus de trois fois, tout cultivateur de même niveau serait gravement blessé!
 
-Face à ce spectacle, Wang Lin sentit son cuir chevelu s'engourdir. Il n'aurait jamais imaginé qu'un être puisse lancer des sorts avec une telle intensité. En un laps de temps si court, l'adversaire avait déployé une variété de sortilèges phénoménale. Les environs étaient saturés d'attaques, donnant à Wang Lin l'illusion de ne pas affronter un seul homme, mais une armée entière!
+Face à ce spectacle, Wang Lin sentit son cuir chevelu s'engourdir. Il n'aurait jamais imaginé qu'un être puisse lancer des sorts avec une telle intensité. En un laps de temps si court, l'adversaire avait déployé une variété de sortilèges phénoménale. Les environs, sur une très vaste étendue, étaient saturés d'attaques, donnant à Wang Lin l'illusion de ne pas affronter un seul homme, mais une armée entière!
 
 Il était trop tard pour réfléchir lorsque la nuée d'épées jaunes fondit sur lui, chargée d'une aura si puissante qu'elle semblait destinée à trancher sa chair. La vitesse et la succession ininterrompue des sorts ne lui laissèrent aucun répit. À peine apparut-il que les attaques le percutèrent.
 
@@ -58,7 +58,7 @@ Les pupilles de Xu Decai se rétractèrent sous l'effet de la terreur. Il recula
 
 « Mon Dao Céleste! » s'écria-t-il d'une voix misérable, déchirée par le chagrin. Ses yeux devinrent rouges de rage et de douleur. Son Dao Céleste avait été dévoré; c'était au-delà de son imagination, une impossibilité absolue. Bien que Wang Lin possédât un Dao Céleste, il n'avait jamais entendu parler d'un Dao Céleste capable d'en dévorer un autre!
 
-Il ignorait que le Dao Céleste de Wang Lin contenait un objet nommé la Pierre Spatiale! Wang Lin avait quitté le monde de la grotte avec son Dao Céleste, mais il avait laissé les lois établies par celui-ci pour maintenir l'équilibre.
+Il ignorait que le Dao Céleste de Wang Lin contenait un objet nommé la Pierre Spatiale! Wang Lin avait quitté le monde de la grotte avec son Dao Céleste, mais il avait laissé les lois établies par celui-ci, qui devaient perdurer à jamais.
 
 Wang Lin recula rapidement jusqu'à une distance de dix mille pieds, puis avala la Pierre Spatiale. Ce fut la première fois qu'il put reprendre son souffle et relâcher un peu la pression de ce combat. Des vagues de douleur parcoururent son corps. Il jeta un regard solennel et excité vers Xu Decai!
 
@@ -72,4 +72,4 @@ Cependant, malgré ses recherches désespérées, il ne trouva aucune trace de l
 
 À cet instant, deux vieux monstres du stade intermédiaire de la Tribulation du Vide et une cultivatrice du stade initial de la Tribulation du Vide quittèrent leurs équipes pour s'approcher. Mais la silhouette de Wang Lin apparut encore plus loin, derrière l'équipe que les trois cultivateurs de la Tribulation du Vide avaient laissée derrière eux.
 
-L'objectif de Wang Lin était clair: attirer ces trois individus loin d'ici pour entamer un massacre et éliminer tous ceux qui se trouvaient sur son chemin.
+L'objectif de Wang Lin était clair: attirer ces trois individus loin d'ici pour entamer un massacre et tuer tous ceux qui se trouvaient là.

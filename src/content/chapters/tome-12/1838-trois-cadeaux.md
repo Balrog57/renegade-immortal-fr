@@ -84,7 +84,7 @@ Ce n'était pas la première fois qu'il obtenait une telle goutte dans sa vie; c
 
 Cependant, la goutte qu'il tenait là dépassait de loin ce que l'Omniscient lui avait donné. Il était impossible de les comparer; c'était comme comparer la lune éclatante à une luciole!
 
-« Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent du Fleuve Céleste et j'ai également utilisé de nombreux cultivateurs possédant des essences aquatiques pour les nourrir. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
+« Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent du Fleuve Céleste et je l'ai nourrie dans le corps de nombreux cultivateurs possédant des essences aquatiques, puis je l'ai extraite de leur corps. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
 
 « J'espère que ces trois cadeaux te plairont. J'espère que tu protégeras ma Secte de la Grande Âme... et que tu permettras à mes descendants de retourner sur le Continent Central! »
 

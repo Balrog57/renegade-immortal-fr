@@ -62,7 +62,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse: « Le 
 
 Cette révélation le surprit; il ne s'attendait pas à découvrir un tel secret sur la planète Suzaku.
 
-« À l'époque, le maître de Papillon Rouge avait prédit qu'elle affronterait une crise mortelle. Elle savait probablement que cette épreuve était inévitable et a trouvé, d'une manière ou d'une autre, cette matrice. Avant que Papillon Rouge ne soit confrontée à sa calamité, elle a pris une partie de son âme pour l'envoyer ailleurs… Elle voulait utiliser ce procédé pour offrir une chance de survie à Papillon Rouge... »
+« À l'époque, le maître de Papillon Rouge avait prédit qu'elle affronterait une crise mortelle. Elle savait probablement que cette épreuve était très difficile à éviter et a trouvé, d'une manière ou d'une autre, cette matrice. Avant que Papillon Rouge ne soit confrontée à sa calamité, elle a pris une partie de son âme pour l'envoyer ailleurs… Elle voulait utiliser ce procédé pour offrir une chance de survie à Papillon Rouge... »
 
 « Ainsi, même si Papillon Rouge est morte, grâce à cette parcelle d'âme, elle peut renaître et échapper à ce désastre! » Wang Lin se redressa et regarda Zhou Wutai.
 
@@ -74,7 +74,7 @@ Wang Lin resta silencieux et quitta la pièce. Il se tint au sommet de la statue
 
 « Je suis également heureux qu'elle ne soit pas morte… Il ne reste plus beaucoup d'amis, j'espère pouvoir la revoir un jour. » Zhou Wutai sourit avant de pousser un soupir et de hocher la tête. La haine du passé s'était dissipée depuis longtemps sous le passage du temps.
 
-« Peut-être que je l'ai déjà croisée… » Les yeux de Wang Lin se plissèrent alors qu'il passait en revue les deux mille dernières années, mais il ne trouva aucune réponse.
+« Peut-être que je l'ai déjà croisée… » Les yeux de Wang Lin se plissèrent alors qu'il passait en revue les deux mille et quelques dernières années, mais il ne trouva aucune réponse.
 
 « Oublie cela. Si elle souhaite que nous sachions, nous la rencontrerons un jour. Si elle ne le veut pas, alors nous ferons simplement comme si elle était morte… » Zhou Wutai semblait quelque peu abattu. Il regarda Wang Lin comme s'il voulait dire quelque chose, mais finit par se taire.
 
@@ -90,7 +90,7 @@ Wang Lin partit.
 
 Sa silhouette disparut de la statue de Suzaku. Zhou Wutai resta seul, immobile sur la statue, fixant l'endroit où Wang Lin s'était volatilisé. Il paraissait plus accablé encore.
 
-« Liu Mei est morte… » Zhou Wutai s'assit et soupira. Il saisit une cruche de vin et commença à boire. Durant ces deux mille dernières années, une figure n'avait jamais quitté son cœur.
+« Liu Mei est morte… » Zhou Wutai s'assit et soupira. Il saisit une cruche de vin et commença à boire. Pendant près de deux mille ans, une figure n'avait jamais quitté son cœur.
 
 Il but jusqu'à ce que le ciel s'obscurcisse. Puis, il leva les yeux vers la voûte céleste et se mit à rire, un rire empreint d'une profonde tristesse.
 
@@ -116,7 +116,7 @@ C'était un chemin sans retour! Une fois que l'on y avait posé le pied, il fall
 
 « Il reste un dernier endroit où je dois me rendre sur la planète Suzaku! » Wang Lin fendit les airs avec le fou, son regard porté vers l'horizon.
 
-C'était là que se trouvait la profonde cavité du Clan du Tatouage. L'endroit même où l'ancien Empereur Divin Oiseau Vermillon avait voulu s'aventurer!
+C'était là que se trouvait la profonde cavité du Clan du Tatouage. L'endroit même où l'avatar de l'ancien Saint Empereur, Huang Long Zhenren, avait voulu s'aventurer!
 
 Le secret qui se cachait dans la dix-neuvième couche tourmentait Wang Lin depuis longtemps.
 

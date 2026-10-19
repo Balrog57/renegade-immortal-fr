@@ -32,9 +32,9 @@ Les 300 ombres d'âmes originelles ouvrirent lentement les yeux, regardant autou
 
 L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à briser ses bras qui canalisaient un sortilège. Son esprit venait également de subir un choc violent. L'énergie et le sang à l'intérieur de son corps étaient en plein chaos et son âme originelle était au bord de l'effondrement.
 
-Étant au cinquième niveau de la Calamité Céleste, il reconnut immédiatement qu'il faisait face à un cultivateur de la troisième étape qu'il ne pouvait offenser. Cependant, il ne comprenait pas quelle offense il avait pu commettre pour provoquer une telle punition.
+Étant au cinquième Fléau Céleste, il reconnut immédiatement qu'il faisait face à un cultivateur de la troisième étape qu'il ne pouvait offenser. Cependant, il ne comprenait pas quelle offense il avait pu commettre pour provoquer une telle punition.
 
-Il n'avait même pas imaginé que ce cultivateur de la troisième étape ne provenait pas du Système Stellaire Antique, mais du Royaume Intérieur. Il savait que tous les cultivateurs du Royaume Intérieur s'étaient rassemblés à Luotian pour leur ultime lutte et qu'il était impossible qu'ils soient ici.
+Il n'avait même pas imaginé que ce cultivateur de la troisième étape ne provenait pas du Système Stellaire Antique, mais du Royaume Intérieur. Il savait que la plupart des cultivateurs du Royaume Intérieur s'étaient rassemblés à Luotian pour leur ultime lutte et qu'il était impossible qu'ils soient ici.
 
 Tandis qu'il paniquait, avant même d'avoir pu achever sa phrase, sa vision fut inondée d'une lumière blanche. Il leva les yeux vers la faille et vit un homme vêtu de blanc, aux cheveux blancs, traverser l'aura de mort.
 
@@ -74,7 +74,7 @@ Wang Lin détourna son regard de la planète et s'élança vers le ciel, la sph�
 
 « Puisque vous êtes venus, ne partez pas! » La voix de Wang Lin était glaciale alors qu'il fixait l'horizon où l'aura de mort s'envolait. L'espace se distordit et un homme d'âge moyen en sortit.
 
-Cet homme portait une robe taoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue d'environ 1 000 pieds apparut autour de lui. Le vortex d'aura de mort percuta le bouclier.
+Cet homme portait une robe taoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue d'environ 1 000 pieds apparut devant lui. Le vortex d'aura de mort percuta le bouclier.
 
 Des grondements tonnantes retentirent et des fissures apparurent sur le bouclier tremblant. Cependant, celui-ci ne se brisa pas, mais fut repoussé avec l'homme d'âge moyen.
 
@@ -92,11 +92,11 @@ L'homme était livide. Après l'effondrement de son bouclier, il recula une fois
 
 Au moment où il ouvrait son monde de la Flamme Joss, Wang Lin pointa la main droite vers l'avant.
 
-« Arrête! »
+« Immobile! »
 
 En un seul mot, le corps de l'homme s'immobilisa. À cet instant précis, Wang Lin se rapprocha et sa paume frappa le corps de l'adversaire. Un grondement résonna à l'intérieur de l'homme, puis la main de Wang Lin se porta vers son front.
 
-Dans un fracas sourd, l'homme trembla et du sang jaillit de tous ses orifices. Ses yeux étaient emplis de lutte et de terreur alors qu'il tentait désespérément de briser le sort « Arrête ».
+Dans un fracas sourd, l'homme trembla et du sang jaillit de tous ses orifices. Ses yeux étaient emplis de lutte et de terreur alors qu'il tentait désespérément de briser le sort d'immobilisation.
 
 Cependant, face à Wang Lin, il n'en eut pas la possibilité. Une lueur glaciale passa dans les yeux de Wang Lin. Il brisa l'esprit de l'homme et le scella par deux frappes de paume. Puis, sa main droite balaya le cou de l'homme d'âge moyen.
 

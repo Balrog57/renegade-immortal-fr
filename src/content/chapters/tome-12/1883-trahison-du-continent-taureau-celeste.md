@@ -36,7 +36,7 @@ Yun Yifeng, disciple de la Secte Gui Yi, n'hésita pas. Sa main droite toucha le
 
 Le vieil homme nommé Bord-des-Nuages hésita un instant, mais ne refusa pas non plus. Il extirpa également une parcelle de son âme de vie et l'envoya vers le grand hall.
 
-Quant à Tang Jia, elle réfléchit un moment puis serra les dents. Elle était prête à payer n'importe quel prix pour le développement de sa secte. Sans compter que c'était nécessaire, sinon elle ne pourrait jamais être téléportée depuis le Continent du Démon Vert.
+Quant à Ta Jia, elle réfléchit un moment puis serra les dents. Elle était prête à payer n'importe quel prix pour le développement de sa secte. Sans compter que c'était nécessaire, sinon elle ne pourrait jamais être téléportée depuis le Continent du Démon Vert.
 
 Les trois envoyèrent leurs âmes de vie, ne laissant que Wang Lin.
 
@@ -44,7 +44,7 @@ Wang Lin songea en silence. Après un long moment, il regarda le grand hall et d
 
 « Je refuse. Je dois retourner à la Secte de la Grande Âme pour rencontrer l'Ancêtre avant de prendre une décision! Adieu! » Sur ces mots, Wang Lin recula lentement, s'apprêtant à quitter la place.
 
-« Tu peux partir, mais laisse l'armure d'âme! » La voix majestueuse tonna depuis le grand hall. Une main géante faite de gaz noirs, couvrant le ciel, s'abattit vers Wang Lin.
+« Tu peux partir, mais laisse l'armure d'âme! » La voix majestueuse tonna depuis le grand hall. Une main géante faite de brume noire, couvrant le ciel, s'abattit vers Wang Lin.
 
 Une lueur de froideur traversa le regard de Wang Lin. D'innombrables pensées traversèrent son esprit. Tout allait trop vite pour qu'il puisse comprendre la cause de ce revirement.
 
@@ -56,7 +56,7 @@ Ce sentiment était viscéral. En vérité, Wang Lin ne voulait pas garder l'arm
 
 Après tout, cet objet ne lui appartenait pas, mais au Continent Taureau Céleste tout entier.
 
-Cependant, ce tournant inattendu rendait Wang Lin extrêmement prudent. Il ignorait quels changements s'étaient produits sur le Continent Taureau Céleste durant les six mois passés dans la Prairie du Ciel Extrême!
+Cependant, ce tournant inattendu rendait Wang Lin extrêmement prudent. Il ignorait quels changements s'étaient produits sur le Continent Taureau Céleste durant les six mois passés dans la Prairie de l'Extrême Ciel!
 
 Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. Avec elle, il conservait un moyen de survie; sans elle, il avait l'impression de sombrer dans un abîme!
 
@@ -66,7 +66,7 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 « Il y a un problème ici! La Secte Gui Yi connaît mon identité, sait que je viens du monde des grottes et connaît mon lien avec Xuan Luo, et pourtant... » Wang Lin ne comprenait pas, et il n'avait pas le temps de comprendre. Entre abandonner l'armure et affronter l'inconnu, ou garder l'armure et se battre, il choisit sans hésiter la seconde option!
 
-Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Bord-des-Nuages. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
+Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Ta Jia et Bord-des-Nuages. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire qui lui enveloppait même le visage; seuls ses cheveux blancs flottaient sans qu'aucun vent ne soufflât.
 
 Le niveau de culture de Wang Lin bondit soudainement du stade avancé de la Tribulation de l'Esprit au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit de la Guerre. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
@@ -98,19 +98,19 @@ La Voile Fantôme de protection de la Secte de la Grande Âme était un secret h
 
 Ces deux objets suffisaient à rendre n'importe qui fou! C'était la raison pour laquelle Bord-des-Nuages s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
 
-Tang Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
+Ta Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
 
-Seul Yun Yifeng resta silencieux, l'expression sombre. Il ne poursuivit pas. Cependant, alors que Tang Jia s'élançait, il ouvrit la bouche et lui envoya un message par Sens Divin.
+Seul Yun Yifeng resta silencieux, l'expression sombre. Il ne poursuivit pas. Cependant, alors que Ta Jia s'élançait, il ouvrit la bouche et lui envoya un message par Sens Divin.
 
-Tang Jia fut secouée par le message de Yun Yifeng peu après son départ. Elle se retourna brusquement vers lui.
+Ta Jia fut secouée par le message de Yun Yifeng peu après son départ. Elle se retourna brusquement vers lui.
 
 « Est-ce vrai? »
 
 Yun Yifeng la regarda et hocha la tête.
 
-L'expression de Tang Jia devint complexe et elle reprit sa course. Cependant, son état d'esprit avait radicalement changé.
+L'expression de Ta Jia devint complexe et elle reprit sa course. Cependant, son état d'esprit avait radicalement changé.
 
-Ce n'est qu'après le départ de Tang Jia que Yun Yifeng se retourna et s'agenouilla devant le grand hall.
+Ce n'est qu'après le départ de Ta Jia que Yun Yifeng se retourna et s'agenouilla devant le grand hall.
 
 « Maître de Secte, vous devez donner des explications à ce disciple! Ce disciple a déjà informé la secte de l'identité de Wang Lin et de son lien avec le Grand Empyréen Xuan Luo... »
 

@@ -59,7 +59,7 @@ Ce geste fit brusquement changer l'expression de Xu Li. Il saisit rapidement son
 
 Wang Lin le regarda. Il ouvrit la main pour en sortir un morceau de jade. En plaçant le jade contre son front, une carte apparut dans son esprit. C'était le morceau de jade qu'il avait obtenu de Zhou Zihong au Temple du Dieu de la Guerre; il contenait la carte des pays situés près du pays de Huo Fen.
 
-En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer des Démons. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées.
+En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer des Démons. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées, aussi nommée terre des reliques immortelles.
 
 On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison qu'après les bouleversements de Huo Fen, ses cultivateurs choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
 
@@ -85,7 +85,7 @@ Xu Li expliqua lentement: « Chaque fois que l'on tue, on accumule un peu d'aura
 
 Mai Guorong prit une inspiration. Il demanda avec hésitation: « Maître, d'après vos paroles, cet homme n'a pas encore atteint le stade de l'Âme Naissante? »
 
-Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau, celui de la fausse Âme Naissante. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
+Xu Li réfléchit un instant, puis acquiesça: « Bien qu'il ne soit pas au stade de l'Âme Naissante, il est très proche. Si ma perception est juste, il a déjà atteint le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Formation du Noyau. Pour éviter tout problème inutile, ne parle de cela à personne. Même après notre retour à la Secte Hao Ran, garde le silence. Compris? »
 
 Mai Guorong hocha vigoureusement la tête. Même si Xu Li n'avait rien dit, il n'aurait pas osé parler du redoutable cultivateur qu'ils venaient de croiser; l'impression laissée par cet homme était trop terrifiante pour risquer de tels ennuis.
 
@@ -121,7 +121,7 @@ En un an, Wang Lin avait réussi à réprimer totalement cette ligne rouge, mais
 
 En parallèle, Wang Lin consacrait son temps à l'étude de la technique de l'avatar. C'était là son moyen de contourner son incapacité à franchir le stade de l'Âme Naissante. Il se remémorait avec précision la grotte du temple du Dieu de la Guerre pour en extraire les secrets de cette technique d'incarnation.
 
-Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de fusionner les deux corps pour maximiser les chances de réussite. Cependant, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'atteignait pas trente ans.
+Cette technique consistait à créer un second corps réel, un double. L'idée était d'utiliser l'avatar pour accélérer la vitesse de culture, puis, au moment de franchir le stade de l'Âme Naissante, de fusionner les deux corps pour maximiser les chances de réussite. Cependant, cette technique étant incomplète, l'avatar présentait un défaut fatal: il ne possédait aucune culture lors de sa création et sa durée de vie n'atteignait pas trente ans.
 
 À l'époque, Wang Lin n'avait pas pu utiliser cette méthode faute de pilules suffisantes pour lui-même et son double. Mais aujourd'hui, il voyait dans cette technique un moyen non seulement de préserver sa culture, mais aussi d'atteindre le stade de l'Âme Naissante. Son plan était d'utiliser l'avatar pour atteindre ce stade en trente ans, puis de le fusionner avec son corps actuel afin de briser le blocage qui l'empêchait de progresser.
 

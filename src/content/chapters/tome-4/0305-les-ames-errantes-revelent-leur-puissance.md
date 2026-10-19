@@ -8,7 +8,7 @@ slug: les-ames-errantes-revelent-leur-puissance
 ---
 Plus de dix mille âmes errantes hurlaient en tourbillonnant autour de Wang Lin. Leurs regards glacials se posaient par intermittence sur les individus postés sur la plateforme.
 
-Ces âmes étaient de véritables âmes errantes issues du champ de bataille extraterrestre. Il avait déployé des efforts considérables pour contourner les lois de ce monde et réussir à les en extraire.
+Ces âmes étaient de véritables âmes errantes issues du champ de bataille étranger. Il avait déployé des efforts considérables et n'avait pu les en extraire qu'en échappant de justesse aux effets de la Loi de l'Annihilation.
 
 En réalité, il avait collecté plus de 100 000 âmes errantes au cours de ses années passées sur le champ de bataille, mais il n'avait pu en faire sortir que 10 000.
 
@@ -28,7 +28,7 @@ Cet homme était également un membre du Clan des Démons Géants venu de Suzaku
 
 Parmi les personnes présentes sur la plateforme, un homme d'âge moyen vêtu d'un manteau gris se distinguait. Ses yeux étaient sombres, son nez légèrement aquilin, et son visage exhalait une profonde mélancolie. Il fixa Wang Lin et fit un pas vers lui.
 
-Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme; il n'était qu'à un stade avancé de l'Âme Naissante. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
+Le membre du Clan des Démons Géants observa cet homme sans dire un mot, affichant plutôt une expression moqueuse. À ses yeux, le niveau de culture de cet individu n'atteignait même pas le stade de la Formation de l'Âme; il n'était qu'au stade avancé de l'Âme Naissante, à son apogée. Tenter d'ôter la vie d'un cultivateur de la Formation de l'Âme avec un tel niveau revenait à frapper un rocher avec un œuf.
 
 L'homme au manteau gris s'avança prudemment vers les âmes errantes. Il commença à psalmodier et une sphère de flammes noires se forma dans sa paume. Dès l'apparition de cette flamme noire, une vague de chaleur se propagea dans l'air.
 
@@ -48,7 +48,7 @@ Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitè
 
 Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixant froidement les personnes sur la plateforme.
 
-L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et parfaitement préparés. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort sur le coup.
+L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et dotés de pouvoirs redoutables. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort sur le coup.
 
 Voyant que ses flammes s'étouffaient et qu'une multitude de ces créatures mystérieuses rôdaient encore, l'homme serra les dents et agita la main. Un petit chaudron apparut alors dans sa main. Son regard trahissait une profonde amertume alors qu'il s'apprêtait à l'utiliser pour fuir vers sa planète d'origine.
 
@@ -92,7 +92,7 @@ Wang Lin esquissa un sourire: « Oh? Si le frère Chi Hu a des préoccupations, 
 
 Chi Hu serra les dents, sortit un morceau de jade et le lança à Wang Lin en déclarant: « Une fois que vous aurez vu cela, vous comprendrez. »
 
-Wang Lin attrapa le jade et l'examina avec son Sens Divin. Même lui ne put s'empêcher d'être ébranlé. Ce jade contenait une image enregistrée par perception divine: la scène d'un lieu d'une beauté sublime, foisonnant de fleurs, d'herbe verdoyante et d'eaux cristallines.
+Wang Lin attrapa le jade et l'examina avec son Sens Divin. Même lui ne put s'empêcher d'être ébranlé. Ce jade contenait une image enregistrée par perception divine: la scène d'un lieu d'une beauté sublime, foisonnant de fleurs, de chants d'oiseaux, d'herbe verdoyante et d'eaux cristallines.
 
 L'élément le plus frappant était un bassin d'eau où flottait un cercueil de jade. Trois épées célestes transperçaient ce cercueil; l'une d'elles ressemblait étrangement à celle que tenait le squelette noir. Ce qui fit rétrécir les pupilles de Wang Lin, c'était la certitude que l'intégralité du cercueil était façonnée en jade céleste.
 

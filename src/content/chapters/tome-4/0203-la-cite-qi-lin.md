@@ -40,11 +40,11 @@ Depuis que Wang Lin avait quitté le pays de Zhao, en incluant le temps passé s
 
 L'homme qu'il était devenu n'avait plus rien à voir avec le petit garçon de la Secte Heng Yue du pays de Zhao. Wang Lin pensait parfois que si son quatrième oncle ne lui avait pas cédé la place de son fils toutes ces années auparavant, il ne serait probablement aujourd'hui qu'un tas de poussière.
 
-Cependant, son chemin n'aurait pas été aussi ardu. Il aurait passé les examens d'État pour entrer à la cour et ses parents n'auraient pas connu une telle fin. Ils auraient acquis le respect une fois leur fils entré au service de l'État, ainsi que la richesse qui en découle. Ils auraient mené des vies calmes, mais satisfaisantes et pleines de dignité.
+Cependant, son chemin n'aurait pas été aussi ardu. Il aurait passé les examens d'État pour entrer à la cour et ses parents n'auraient pas connu une telle fin. Ils auraient acquis le respect une fois leur fils entré au service de l'État, ainsi que la richesse qui en découle, et les membres du clan auraient recherché leurs faveurs. Ils auraient mené des vies calmes, riches, satisfaites et fières.
 
 Wang Lin prit une profonde inspiration pour apaiser les émotions qui surgissaient soudainement dans son cœur.
 
-Le vieil homme Ji Mo, Teng Huayuan, Pu Nanzi et d'autres cultivateurs du pays de Zhao, les experts de cette famille démoniaque, et même le chef de la Secte des Cadavres: tous étaient des hommes que Wang Lin devait éliminer.
+Le vieil homme Ji Mo, Teng Huayuan, Pu Nanzi et d'autres cultivateurs du pays de Zhao, les experts du Clan des Démons Géants, et même le chef de la Secte des Cadavres: tous étaient des hommes que Wang Lin devait éliminer.
 
 De plus, Wang Lin nourrissait des doutes sur la manière dont Teng Huayuan avait retrouvé sa famille. Il enquêterait minutieusement sur cette affaire, et quiconque y serait lié rejoindrait sa liste de cibles.
 
@@ -74,7 +74,7 @@ Cette scène étrange attira rapidement l'attention de Wang Lin.
 
 Yun Fei lui murmura à l'oreille: « Ces cultivateurs sont des gardes envoyés par le Manoir de la Cité Qi Lin. À l'intérieur de la cité, il n'existe aucun autre groupe aussi puissant que le Manoir; c'est donc lui qui contrôle tout. Toute secte extérieure doit se plier aux lois de la cité pour y entrer. »
 
-Wang Lin acquiesça. Selon son analyse, cela s'expliquait par l'influence démesurée du Manoir de la Cité. C'était pour cette raison que les gardes extérieurs agissaient ainsi et que même les cultivateurs de la Formation du Noyau n'osaient pas troubler l'ordre établi.
+Wang Lin acquiesça. Selon son analyse, cela s'expliquait par la puissance démesurée du Manoir de la Cité : le chien qui s'appuie sur son maître, le renard qui emprunte la majesté du tigre. Même les gardes de Fondation postés à la porte portaient une peau de tigre ; c'est pour cette raison que même les cultivateurs de la Formation du Noyau ravalaient leur orgueil.
 
 Peu après, ce fut au tour de Wang Lin et Yun Fei. Elle sortit son jade et, après avoir payé une certaine quantité de pierres spirituelles, elle guida Wang Lin vers l'intérieur.
 

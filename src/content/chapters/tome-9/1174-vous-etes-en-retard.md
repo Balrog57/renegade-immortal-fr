@@ -14,7 +14,7 @@ Son départ ne manqua pas d'attirer l'attention de nombreux vieux monstres, en p
 
 « Si je retourne là-bas avec autant de jades célestes, je réussirai à coup sûr! » Il prit une profonde inspiration et s'apprêtait à revoir son plan une dernière fois lorsqu'il redressa brusquement la tête. C'était comme si son regard pouvait percer les murs pour voir Wu Qing fendre les airs à l'extérieur.
 
-« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zhihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
+« Bien que Wu Qing soit désormais au stade de Briseur du Nirvana, sa cupidité n'a pas diminué; elle a même augmenté. Ce qui est encore plus frappant, c'est que bien qu'il se prenne pour un stratège, il n'est en réalité qu'un homme d'une immense vanité. Je l'ai invité à participer car j'avais entendu parler de frictions entre sa Secte de la Collection des Démons et Lu Zhihao, et je voulais voir si je pouvais provoquer un conflit. Puisqu'il poursuit Lu Zihao, ce dernier mourra sans aucun doute. Peu importe. Puisque j'ai traité avec lui, je ne laisserai pas ses cristaux d'origine tomber entre les mains d'un autre. » Maître Pin Cendré afficha un sourire sinistre tandis que son sens divin s'élançait pour suivre de près Wu Qing.
 
 Au quatrième étage d'un restaurant de la ville principale, un homme et une femme étaient assis l'un face à l'autre. L'homme était vêtu de blanc, et sa compagne était une magnifique jeune femme dont la robe fleurie sublimait la beauté du visage.
 
@@ -76,7 +76,7 @@ Un craquement tellurique retentit et la montagne s'effondra de manière inattend
 
 Wu Qing fut stupéfait et son visage se décomposa. Sans hésiter, ses mains formèrent un sceau, faisant apparaître des vents noirs et blancs autour de lui. Ces deux courants s'élancèrent vers le ciel et fusionnèrent pour former un vortex gris.
 
-« Pouvoir d'arrachage céleste! » hurla Wu Qing en projetant sa main en avant. Le vortex commença soudainement à gonfler, aspirant toute l'énergie originelle dans un rayon de 5 000 kilomètres. Le vortex sembla occulter le ciel alors qu'il s'abattait sur Wang Lin.
+« Pouvoir d'arrachage céleste! » hurla Wu Qing en projetant sa main en avant. Le vortex commença soudainement à gonfler, aspirant toute l'énergie originelle dans un rayon de dizaines de milliers de kilomètres. Le vortex sembla occulter le ciel alors qu'il s'abattait sur Wang Lin.
 
 L'esprit de Wu Qing trembla violemment. L'image de Wang Lin brisant cette montagne d'un seul coup de poing résonnait encore en lui. Sa main droite plongea dans le vide pour ouvrir son espace de stockage, sur le point de sortir un trésor.
 
@@ -84,11 +84,11 @@ C'est à cet instant précis que Wang Lin ouvrit les yeux. Ils étaient empreint
 
 « Wu Qing, ta mort est arrivée! » La voix de Wang Lin, telle un vent glacial, résonna dans la zone. Lorsqu'elle atteignit les oreilles de Wu Qing, elle lui glaça le sang.
 
-À cet instant, Wang Lin fit un pas en avant et projeta sa paume droite. Cette frappe plongea toute l'énergie originelle des 5 000 kilomètres environnantes dans le chaos. Simultanément, Wang Lin pointa rapidement le dos de sa main droite avec deux doigts de sa main gauche!
+À cet instant, Wang Lin fit un pas en avant et projeta sa paume droite. Cette frappe plongea toute l'énergie originelle des dizaines de milliers de kilomètres environnantes dans le chaos. Simultanément, Wang Lin pointa rapidement le dos de sa main droite avec deux doigts de sa main gauche!
 
 Toute l'énergie originelle sur des dizaines de milliers de kilomètres se rassembla soudainement sous le contrôle de Wang Lin! Cette énergie majestueuse convergea vers les doigts de Wang Lin avant de s'engouffrer dans sa main droite, se transformant en une force inimaginable qui jaillit vers le vortex.
 
-Les deux sorts se rejoignirent et entrèrent en collision, provoquant un tonnerre céleste qui fit vibrer tout Peng Lai! La main gauche de Wang Lin ne s'arrêta pas et pointa une seconde fois le dos de sa main droite.
+Les deux sorts se rejoignirent et entrèrent en collision, provoquant un tonnerre céleste qui fit vibrer une bonne partie de Peng Lai! La main gauche de Wang Lin ne s'arrêta pas et pointa une seconde fois le dos de sa main droite.
 
 Lors de ce second contact, toute l'énergie originelle dans un rayon de 50 000 kilomètres se précipita frénétiquement pour pénétrer le vortex créé par Wu Qing.
 
@@ -146,7 +146,7 @@ Son âme originelle s'échappa, mais fut balayée par la paume avant d'avoir pu 
 
 Dès que Wu Qing eut péri, Wang Lin s'avança vers l'endroit où l'espace de stockage avait été ouvert. Très peu de temps s'était écoulé entre l'arrivée et la mort de Wu Qing. Bien qu'il ne s'agût pas d'une exécution instantanée, elle fut d'une netteté absolue.
 
-L'espace de stockage n'avait même pas eu le temps de se refermer. La mort de son propriétaire avait effacé sa marque, et l'ouverture se refermait rapidement. Juste avant la fermeture complète, la main droite de Wang Lin s'y engouffra sans pitié pour tout rafler. C'était une technique qu'il avait conçue pour dépouiller les espaces de stockage des cultivateurs dépassant le stade de Purificateur du Nirvana!
+L'espace de stockage n'avait même pas eu le temps de se refermer. La mort de son propriétaire avait effacé sa marque, et l'ouverture se refermait rapidement. Juste avant la fermeture complète, la main droite de Wang Lin s'y engouffra sans pitié pour tout rafler. C'était une technique qu'il avait conçue pour dépouiller les espaces de stockage des cultivateurs du stade de Purificateur du Nirvana!
 
 Tuer l'adversaire dès l'ouverture de son espace de stockage permet d'en saisir instantanément les richesses!
 
@@ -164,9 +164,9 @@ Cette scène était d'une telle violence que tous les cultivateurs de Peng Lai f
 
 En un instant, la paume percuta l'une des pierres flottantes. La pierre s'effondra immédiatement et la cité qui reposait dessus fut totalement désintégrée. Elle ne put absolument rien faire pour stopper l'élan de la paume.
 
-Dans son sillage, d'innombrables grondements résonnèrent et plus de dix pierres du côté droit s'écroulèrent. La paume passa près de la ville principale centrale, déplaçant légèrement la pierre vers la gauche par sa simple pression.
+Dans son sillage, d'innombrables grondements résonnèrent et plus de dix pierres du côté droit s'écroulèrent. La paume passa près de la ville principale centrale, faisant légèrement pencher la pierre vers la gauche par sa simple pression.
 
-Un fracas apocalyptique remplaça tout autre son au monde. La paume pénétra la partie est de la ville principale et s'élança dans le vide, comme si une entité luttait contre les cieux!
+Un fracas apocalyptique remplaça tout autre son au monde. La paume traversa la partie est des cités flottantes et s'élança dans le vide, comme si une entité luttait contre les cieux!
 
 Une seule paume pour percer les cieux! Elle brisa la barrière protectrice de Peng Lai et s'engouffra dans l'espace. De vastes quantités de brume furent aspirées par la paume, augmentant considérablement sa puissance.
 

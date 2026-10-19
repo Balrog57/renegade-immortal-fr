@@ -22,7 +22,7 @@ La mystérieuse famille Xiang de la planète Dong Lin et la famille de Li Yuan f
 
 Tout comme le Système de l'Alliance possédait une planète de culture de rang 9, le Système Stellaire de Luotian abritait une famille ayant survécu encore plus longtemps: une lignée existant depuis les temps primordiaux. Cette famille primordiale était la véritable puissance absolue de Luotian, et elle demeurait extrêmement mystérieuse.
 
-Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la culture depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et assisté à la création du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire de Luotian. Il était fort probable que cette lignée primordiale détenait le secret de l'ancien Royaume Céleste; leurs simples sorts suffisaient à dominer tout le système stellaire.
+Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la culture depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et suivi le parcours du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire de Luotian. Il était fort probable que cette lignée primordiale détenait le secret de l'ancien Royaume Céleste; leurs simples sorts suffisaient à dominer tout le système stellaire.
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
@@ -30,7 +30,7 @@ Les deux vieillards qui soutenaient le sceau fragmentaire au-dessus du pavillon 
 
 Wang Lin répondit avec calme: « Xu Mu! »
 
-Les yeux du vieil homme se plissèrent: « Bien que le Frère Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon des Collections! »
+Les yeux du vieil homme se plissèrent: « Bien que le Compagnon Cultivateur Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon des Collections! »
 
 À peine eut-il fini sa phrase que le vieil homme à ses côtés fixa Wang Lin et demanda soudainement: « Le Compagnon Cultivateur Xu a-t-il un lien avec la famille Xu de la planète Dong Lin? »
 
@@ -42,7 +42,7 @@ Les yeux de Wang Lin brillèrent et il esquissa un léger sourire.
 
 Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. En entendant les paroles de Wang Lin, il comprit que celui-ci connaissait parfaitement le Pavillon des Collections. On ne pouvait y pénétrer qu'une fois le pavillon ouvert, et cela requérait la participation d'au moins deux membres issus des quatre grandes familles.
 
-Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de pure lumière apparut à la jonction des cornes.
+Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de lumière apparut à la jonction des cornes.
 
 « Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. Je vous souhaite de faire une riche récolte! » Celui qui avait invité Wang Lin à devenir Ancien non familial joignit les poings, d'une voix fort sincère.
 
@@ -58,7 +58,7 @@ L'Ancien de la famille Chen déclara d'un ton lent: « Peu importe. À quoi bon 
 
 Le vieillard sans corps demanda: « Ancien Chen, comptez-vous vraiment inviter cet homme à devenir un Ancien non familial au sein de votre famille? »
 
-L'Ancien Chen acquiesça: « Cet homme est formidable. La famille Chen a besoin d'un tel talent; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Compagnon Cultivateur Yao! Quant au corps du Compagnon Cultivateur Lu, ma famille le compensera! Compagnon Song, la famille Chen vous offrira également un présent! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan! »
+L'Ancien Chen acquiesça: « Cet homme est formidable. La famille Chen a besoin d'un tel talent; par conséquent, mes confrères, ne cherchez pas à rivaliser avec moi! Si cet homme devient réellement un Ancien non familial de la famille Chen, alors faites comme si vous ignoriez ce qui est arrivé au Compagnon Cultivateur Yao! Quant au corps du Compagnon Cultivateur Lu, ma famille le compensera! Compagnon Song, la famille Chen vous offrira également un petit avantage! Bien entendu, tout cela suppose que cet homme accepte de rejoindre notre clan! »
 
 Tandis qu'ils discutaient, Wang Lin atteignit un espace mystérieux. Les environs étaient noyés dans une brume grise et son Sens Divin ne pouvait s'y étendre. Un murmure indistinct émanait de toutes les directions, atteignant ses oreilles sans qu'il puisse en saisir le sens.
 
@@ -82,7 +82,7 @@ Wang Lin recula de quelques pas et confectionna un sceau manuel. Il utilisa son 
 
 Instantanément, l'être de brume montra des signes d'effondrement. Son corps entier trembla et, après un long moment, une voix profonde retentit:
 
-« Seigneur Céleste de rang 9! Vous pouvez vous rendre au neuvième étage du Pavillon des Collections pour chercher des sorts célestes! »
+« Seigneur Céleste de rang 9! Vous pouvez vous rendre au neuvième étage du Pavillon des Collections pour consulter des sorts célestes! »
 
 Les yeux de Wang Lin débordèrent d'excitation. Il serra fermement le poing, remit immédiatement la femme dans la pagode, puis la rangea dans son sac. Son cœur tambourinait violemment; il était rare qu'il éprouve de telles émotions.
 

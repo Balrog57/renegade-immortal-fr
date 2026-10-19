@@ -11,11 +11,11 @@ Sur une plateforme située non loin du cultivateur élancé se trouvait un homme
 
 Il tenait un petit boulier à la main. D'un mouvement de doigt, il produisait des cliquetis nets et percutants.
 
-« Pas intéressant, pas intéressant... » Le cultivateur corpulent secoua la tête, faisant trembler les plis de graisse sur son visage. Tout en marmonnant, il agita la main et d'innombrables restrictions apparurent, s'abattant sur les cultivateurs qui se précipitaient vers lui. Sous l'impact de ces restrictions, les cultivateurs furent saisis de tremblements avant de sombrer dans la mer de brouillard en contrebas, comme s'ils avaient été scellés.
+« Pas rentable, pas rentable... » Le cultivateur corpulent secoua la tête, faisant trembler les plis de graisse sur son visage. Tout en marmonnant, il agita la main et d'innombrables restrictions apparurent, s'abattant sur les cultivateurs qui se précipitaient vers lui. Sous l'impact de ces restrictions, les cultivateurs furent saisis de tremblements avant de sombrer dans la mer de brouillard en contrebas, comme s'ils avaient été scellés.
 
 Bien qu'il ne restât que 28 plateformes, sept d'entre elles avaient été infiltrées avec succès et finalement dérobées au terme de nombreux combats! Réussir à voler une plateforme dans de telles circonstances prouvait que ces individus n'étaient pas ordinaires.
 
-Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme du quatrième Fléau Céleste figurait parmi eux. Les cinq autres ne manquaient pas de puissance de culture et appartenaient chacun à un clan différent; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
+Les occupants de ces sept plateformes attirèrent également l'attention de Wang Lin. Ce qui le surprit, c'est que le vieil homme du quatrième Fléau Céleste, qui avait fui en déroute plus tôt, figurait parmi eux. Les cinq autres ne manquaient pas de puissance de culture et appartenaient chacun à un clan différent; ils étaient imprégnés d'une intention meurtrière telle qu'ils ressemblaient à des dieux de la destruction.
 
 L'un d'eux avait conquis sa plateforme avec une facilité déconcertante: une vieille femme en vert au visage parsemé de bosses. Son apparence était terrifiante et, tandis qu'elle avançait, les cultivateurs alentour affichaient des expressions de confusion totale. La plateforme qu'elle convoitait faisait l'objet d'un affrontement entre plus de dix cultivateurs. Pourtant, dès que la vieille femme s'approcha, leurs regards se troublèrent et ils reculèrent inopinément. Même l'ancien propriétaire abandonna sa place, permettant à la vieille femme de s'y installer.
 
@@ -23,7 +23,7 @@ La mer de brouillard gronda tandis que de plus en plus de colonnes de brume jail
 
 Bien que ce fût bref, l'élimination fut d'une cruauté extrême. Parmi des centaines de cultivateurs, plus de 90 % avaient péri, ne laissant que 28 survivants.
 
-L'expression de Wang Lin demeura calme tandis qu'il s'asseyait pour cultiver. Il convertissait la chair et le sang qu'il avait absorbés afin de favoriser sa récupération. Il n'avait pas révélé trop de ses méthodes; son identité de cultivateur du Feu Éthéré, ses sorts puissants et ses divers trésors restaient secrets.
+L'expression de Wang Lin demeura calme tandis qu'il s'asseyait pour cultiver. Il convertissait la chair, le sang et les âmes originelles qu'il avait absorbés afin de favoriser sa récupération. Il n'avait pas révélé trop de ses méthodes; son identité de cultivateur du Feu Éthéré, ses sorts puissants et ses divers trésors restaient secrets.
 
 Cet endroit était imprégné de danger et d'une étrange atmosphère. La menace ne provenait pas seulement de la tombe elle-même, mais aussi des cultivateurs alentour. Mieux valait donc rester un peu discret pour paraître insondable, et n'affirmer sa puissance qu'au besoin: c'était la méthode la plus efficace.
 
@@ -61,7 +61,7 @@ Le regard de Wang Lin se fit grave alors qu'il voyait le brouillard entourer sa 
 
 À cet instant, un sentiment de danger envahit l'esprit de Wang Lin. Il se retourna brusquement et agita la main droite. Dans un bruit de tonnerre, le brouillard derrière lui fut repoussé, révélant une bête hideuse à l'aspect humanoïde, couverte de pus. Ses mains et ses ongles étaient fins et acérés. Frappée par la gifle de Wang Lin, la créature recula dans la brume et disparut instantanément.
 
-Simultanément, des cris plaintifs retentirent non loin de là. Il était évident que certaines attaques sournoises avaient porté leurs fruits. Les yeux de Wang Lin s'illuminèrent. Il reconnut cette bête! Bien que sa forme fût légèrement différente, elle lui procurait la même sensation que la créature mystérieuse sortie de la tête du dieu antique dans les Terres des Esprits Démoniaques!
+Simultanément, des cris plaintifs retentirent non loin de là. Il était évident que certaines attaques sournoises avaient porté leurs fruits. Les yeux de Wang Lin s'illuminèrent. Il reconnut cette bête! Bien que sa forme fût légèrement différente, elle lui procurait la même sensation que la créature mystérieuse sortie de la tête du dieu antique dans la Terre des Esprits Démoniaques!
 
 Avec un froid reniflement, Wang Lin agita la main, déclenchant une bourrasque qui balaya le brouillard environnant. Presque tous les cultivateurs firent de même en utilisant leurs sorts pour dégager la vue. En un éclair, le brouillard fut repoussé sur des centaines de milliers de pieds, créant ainsi une ouverture!
 
@@ -75,6 +75,6 @@ Alors que sa voix résonnait, les bêtes humanoïdes poussèrent des rugissement
 
 Les yeux de Wang Lin brillèrent. Il percevait des émotions oppressantes émanant de ces bêtes féroces. Il pourrait utiliser cela pour embraser le Feu Éthéré!
 
-Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans le Système Stellaire Antique! Comme ils n'avaient pas été vus depuis des dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième pas!
+Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans le Système Stellaire Antique! Comme ils n'apparaissaient qu'une fois tous les dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième pas!
 
 Ces légendes habitaient le cœur des cultivateurs du Système Stellaire Antique. Tous les présents étaient puissants et connaissaient ces récits terrifiants: des rumeurs disant qu'un simple geste d'un cultivateur du Feu Éthéré pouvait réduire des milliers de personnes en cendres... Des rumeurs affirmant que son regard pouvait enflammer les sept émotions, sans que personne puisse y résister... Des rumeurs prétendant qu'ils étaient le cauchemar de leurs ennemis, capable de consumer l'adversaire en embrasant ses propres émotions... Des rumeurs selon lesquelles la colère d'un tel être pourrait embraser celle de tous, le laissant seul debout au sommet d'une montagne de cadavres... Rumeurs... Rumeurs... Encore des rumeurs... À l'exception de la jeune fille du Clan de l'Extermination des Sceaux, personne ici, pas même la femme en blanc, ne savait qu'un légendaire cultivateur du Feu Éthéré se cachait parmi eux... Car avant d'être utilisé, le Feu Éthéré est invisible...

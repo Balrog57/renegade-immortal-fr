@@ -6,13 +6,13 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1023 - Escape by Breaking the Bottle
 slug: evasion-par-la-rupture-de-la-bouteille
 ---
-La puissance de la mer de flammes dépassait l'imagination de Wang Lin. Les flammes dans ses yeux s'estompèrent progressivement. Lorsque les royaumes à l'intérieur de la bouteille s'effondrèrent, il se déplaça instantanément pour récupérer le sac et le cristal jaune que la personne mystérieuse lui avait donnés et qui restaient dans la tour noire.
+La puissance de la mer de flammes dépassait l'imagination de Wang Lin. Les flammes dans ses yeux s'estompèrent progressivement. Lorsque les royaumes à l'intérieur de la bouteille s'effondrèrent, la téléportation ne fut plus limitée dans le royaume où il se trouvait, et il s'en servit pour récupérer le sac et le cristal jaune que la personne mystérieuse lui avait donnés et qui restaient dans la tour noire.
 
 Il n'eut pas le temps d'examiner le cristal jaune. À peine l'eut-il placé dans son sac que la mer de flammes se précipita vers le dernier royaume du monde de la bouteille!
 
 La mer de flammes s'étendit sur 98 royaumes, concentrant la puissance de ces derniers en une force irrésistible qui percuta la dernière barrière.
 
-Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague de chaleur intense inonda le monde! La puissance de cette mer de flammes était déjà supérieure au « Brûle les Cieux » de Ming Hai! Wang Lin n'avait atteint cet effet qu'en ayant absorbé un excès de feu qu'il devait impérativement relâcher. Le feu avait subi une transformation à travers son corps, et il lui serait impossible de manifester une telle puissance à nouveau.
+Un bruit assourdissant résonna dans chaque recoin de la bouteille et une vague de chaleur intense inonda le monde! La puissance de cette mer de flammes était déjà supérieure au « Brûle les Cieux » de Ming Hai! Wang Lin n'avait atteint cet effet qu'en ayant absorbé un excès de feu qu'il devait impérativement relâcher. Le feu avait transité par son corps, qui lui avait servi de relais pour évacuer l'excédent, et il lui serait impossible de manifester une telle puissance à nouveau.
 
 À moins que quelqu'un ne crée une autre mer de flammes inextinguible pour que Wang Lin l'absorbe jusqu'à sa limite, avant de la relâcher intégralement.
 
@@ -32,7 +32,7 @@ Wang Lin aspirait à la puissance nécessaire pour combattre des cultivateurs au
 
 Après tout, la différence entre chaque petite étape au sein de la seconde étape était immense. Même si Wang Lin possédait la puissance d'un Dieu Ancien, certains gouffres ne pouvaient être franchis si facilement, comme l'écart entre le stade intermédiaire et le stade avancé du Purificateur du Nirvana!
 
-L'Ancêtre de Sang était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
+L'Ancêtre Sanguin était resté au stade intermédiaire du Purificateur du Nirvana pendant une longue période sans parvenir à atteindre le stade avancé. Cela prouvait la difficulté de la tâche!
 
 En vérité, à moins d'une fortune exceptionnelle, il était très difficile pour les cultivateurs d'atteindre le stade avancé et le sommet de celui-ci. Outre l'élargissement de son propre domaine, il fallait apprendre à contrôler les lois du monde.
 
@@ -100,7 +100,7 @@ Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un 
 
 L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Luo!
 
-Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait la Zibeline Marquée d'Étoiles.
+Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Blaireau Marqué d'Étoiles.
 
 Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Culture du Nuage Céleste, étaient apparus!
 

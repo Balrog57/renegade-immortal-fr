@@ -28,9 +28,9 @@ Son corps trembla!
 
 L'espace devant Wang Lin disparut et tout fut déchiré. Une force indescriptible jaillit des yeux de la statue et pénétra dans l'esprit de Wang Lin.
 
-Le monde rugissait à ses oreilles et l'espace lui-même semblait se déchirer! Le monde entier s'effondra dans le vide et Wang Lin, frappé par ce choc, se perdit dans cette confusion.
+Le monde rugissait à ses oreilles, le tonnerre lui-même était réduit en pièces, et l'espace semblait se déchirer! Le monde entier s'effondra dans le vide et Wang Lin, frappé par ce choc, se perdit dans cette confusion.
 
-Après un laps de temps inconnu — 10 ans, 100 ans, 1 000 ans, 10 000 ans... — jusqu'au jour où Wang Lin aperçut un continent dans le vide. Ce continent était sans limites. Wang Lin fut frappé par une illumination; il sentit que la taille de ce continent dépassait largement celle de l'ensemble du Système Stellaire Antique. Même en additionnant les Royaumes Intérieur et Extérieur, ils ne couvriraient même pas un dix-millième de ce continent.
+Après un laps de temps inconnu — 10 ans, 100 ans, 10 000 ans, 100 000 ans... — jusqu'au jour où Wang Lin aperçut un continent dans le vide. Ce continent était sans limites. Wang Lin fut frappé par une illumination; il sentit que la taille de ce continent dépassait largement celle de l'ensemble du Système Stellaire Antique. Même en additionnant les Royaumes Intérieur et Extérieur, ils ne couvriraient même pas un dix-millième de ce continent.
 
 Tout ce qu'il avait perçu dans son esprit se dissipa pour redevenir néant. Le corps de Wang Lin trembla et il reprit conscience.
 
@@ -46,11 +46,11 @@ S'il y avait eu un temps réel, ce fut l'instant précis où son regard avait cr
 
 « Qu'est-ce que... Qu'est-ce que c'est donc...? » Le regard de Wang Lin retomba une nouvelle fois sur la statue. Cette seconde observation était différente de la première. La statue, en apparence ordinaire, semblait avoir changé et dégageait désormais une majesté indescriptible!
 
-Cette majesté pouvait faire passer n'importe quel cultivateur pour une simple fourmi! Même le monde entier devait s'incliner devant elle! Wang Lin eut même l'impression vague que même les cultivateurs du troisième niveau... trembleraient devant cette statue!
+Cette majesté pouvait faire passer n'importe quel cultivateur pour une simple fourmi! Même le monde entier devait s'incliner devant elle! Wang Lin eut même l'impression vague que même les cultivateurs du troisième pas... trembleraient devant cette statue!
 
 « Qui est-il, au juste...? » songea Wang Lin.
 
-De toutes les statues qu'il avait vues de sa vie, seule celle de Qing Lin dans la Terre des Esprits Démoniaques pouvait briser l'esprit d'un homme. Bien que cette statue n'ait pas démantelé son esprit, Wang Lin avait le sentiment vague que la statue de Qing Lin n'était qu'une fourmi face à celle-ci!
+De toutes les statues qu'il avait vues de sa vie, seule celle de l'Empereur Céleste Qing Lin dans la Terre des Esprits Démoniaques pouvait briser l'esprit d'un homme. Bien que cette statue n'ait pas démantelé son esprit, Wang Lin avait le sentiment vague que la statue de Qing Lin n'était qu'une fourmi face à celle-ci!
 
 La statue ne représentait qu'un homme d'âge moyen ordinaire. L'homme regardait vers le haut avec une expression sereine; aucune émotion ne transparaissait.
 

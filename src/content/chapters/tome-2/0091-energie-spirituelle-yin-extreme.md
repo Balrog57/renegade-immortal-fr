@@ -113,7 +113,7 @@ Wang Lin ressentit cette étrange énergie dans son corps. Ses yeux s'illuminèr
 
 En examinant les débris, il retint son souffle: la structure interne de la pierre avait entièrement changé. Il n'y restait plus rien de la roche: de part en part, ce n'étaient que couches de glace brisées en d'innombrables fines veines. En d'autres termes, par un simple contact de son pouvoir spirituel, il n'avait pas seulement gelé la pierre, il en avait transmué la structure même.
 
-Wang Lin ignorait qu'après avoir dévoré cette énergie Yin, son énergie spirituelle avait subi une métamorphose radicale. Même si Situ Nan s'était réveillé, il n'aurait pu comprendre ce qui venait de se passer.
+Wang Lin ignorait qu'après avoir dévoré cette énergie Yin, son énergie spirituelle avait subi un changement étrange. Même si Situ Nan s'était réveillé, il n'aurait pu comprendre ce qui venait de se passer.
 
 À l'époque mythique de l'Antiquité, outre les différents niveaux de culture, il existait trois royaumes pour l'énergie spirituelle: Ji, Dao et Shi. Ces trois royaumes ne se franchissaient pas l'un après l'autre: une fois formé, un royaume ne changeait plus jamais de toute la vie, à moins de dissiper sa culture pour recommencer. La difficulté d'accès à ces royaumes n'était ni grande ni petite, mais ils étaient presque toujours atteints par hasard, sans que l'on s'y attende.
 

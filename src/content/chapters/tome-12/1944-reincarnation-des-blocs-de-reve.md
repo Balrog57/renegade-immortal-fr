@@ -32,13 +32,13 @@ Cependant, ces personnes semblaient incapables de voir Wang Lin et Liu Jinbiao. 
 
 « Ce qui existe et ce qui n'existe pas. Je regarde le monde de mes yeux et le monde me regarde en retour... Lorsque je ferme les yeux, tout devient faux, mais si le monde fermait les yeux... deviendrais-je moi-même une illusion? » Wang Lin contemplait la pluie tombant du ciel.
 
-« Je ne comprends pas ce que Maître a dit, mais je sens que la réincarnation m'a fait comprendre la seconde étape de la tromperie. Se tromper soi-même ne s'arrête pas dès que l'on y croit. Il faut aussi faire croire au monde...
+« Je ne comprends pas ce que Maître a dit, mais je sens que la réincarnation m'a fait comprendre la seconde étape de la tromperie. Se tromper soi-même ne s'arrête pas dès que l'on y croit. Il faut aussi faire croire au monde, au cycle de la réincarnation et au cours des années...
 
 « Se tromper soi-même, c'est en vérité tromper le cycle de la réincarnation! Puisque j'ai trompé la réincarnation, je peux alors agir à ma guise. Les Cieux ne peuvent s'opposer à ma volonté et le cycle de la réincarnation ne peut arrêter mon âme. Tromper le monde, tromper le temps...
 
 « Je ne comprenais pas cela auparavant, mais après l'éveil par la réincarnation, j'ai compris... » murmura Liu Jinbiao derrière Wang Lin.
 
-« Qui a instauré les 3 000 Grands Daos? Qui choisit ces lois dans ce monde? Le Dao de la tromperie a été rejeté par les hommes comme étant sans honneur, mais ils ignorent que le Dao de la tromperie doit figurer parmi les 3 000 Grands Daos! » Le rêve de Liu Jinbiao était de faire de la tromperie l'un des 3 000 Grands Daos!
+« Qui a instauré les 3 000 Grands Daos? Qui choisit ces lois dans ce monde? Le Dao de la tromperie a été rejeté par les hommes comme étant sans honneur, mais ils ignorent que ce Dao, affaire purement de cœur, doit figurer parmi les 3 000 Grands Daos! » Le rêve de Liu Jinbiao était de faire de la tromperie l'un des 3 000 Grands Daos!
 
 Même dans cette vie, il restait le même.
 
@@ -60,11 +60,11 @@ Qu'il s'agisse de lui ou de Liu Jinbiao, tous deux luttaient pour confirmer leur
 
 « J'ai expérimenté la vie et la mort, j'ai traversé le karma, j'ai cherché le vrai et le faux pour moi qui ai sombré dans la mer... S'il existe une quatrième essence éthérée, c'est la réincarnation...
 
-« Cette réincarnation n'est pas celle de la vie et de la mort, mais la réincarnation du monde. Non pas la vie des âmes, mais le Dao... La réincarnation de toute chose... » Wang Lin prit une profonde inspiration, leva les pieds et avança sous la pluie.
+« Cette réincarnation n'est pas celle de la vie et de la mort, mais la réincarnation du monde. Non pas l'arrachement des âmes aux Sources jaunes, mais le Dao... La réincarnation de tous les êtres... » Wang Lin prit une profonde inspiration, leva les pieds et avança sous la pluie.
 
-« Entrave le Dao Céleste. Toutes les âmes sous les cieux doivent subir la tribulation divine. Libère-toi des convictions qui ne mènent qu'à la destruction et marche sur le chemin du véritable Dao!
+« Entrave le Dao Céleste. Toutes les âmes sous les cieux doivent traverser d'innombrables tribulations. Libère-toi de la prison profonde d'une seule obsession et marche sur le chemin du véritable Dao!
 
-« Face à l'inconnu infini, toutes les âmes doivent résoudre leurs interrogations de vie et se libérer des machinations du Ciel. Obtiens le chemin de la vie et marche sur le chemin du véritable Dao!
+« Depuis des temps immémoriaux, toutes les âmes doivent dissiper la confusion du monde présent et se libérer des machinations du Ciel. Obtiens le chemin de la vie future et marche sur le chemin du véritable Dao!
 
 « Verrouille la fortune du ciel et scelle le monde souterrain. Ceux qui n'atteignent pas le véritable Dao sombreront dans une mer de souffrances et perdront à jamais le chemin du véritable Dao. Marche sur le chemin du véritable Dao! »
 
@@ -74,7 +74,7 @@ Cette écriture sacrée était complexe, et il l'avait à peine comprise autrefo
 
 « Ceux qui n'atteignent pas le véritable Dao sombreront dans une mer de souffrances et perdront à jamais le chemin du véritable Dao...
 
-« Toutes les âmes sous les cieux doivent subir la tribulation divine. Libère-toi des convictions qui ne mènent qu'à la destruction...
+« Toutes les âmes sous les cieux doivent traverser d'innombrables tribulations. Libère-toi de la prison profonde d'une seule obsession...
 
 « J'ai compris la vie et la mort, et la vie et la mort sont une corde. Une extrémité est la vie, l'autre est la mort. Liées ensemble, elles forment un cercle.
 

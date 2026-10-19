@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2055 - Ancient Dao Three Soul Splits!"
 slug: la-triple-division-de-lame-de-lancien-dao
 ---
-« Je suis l'Ancien, je suis né avant que le monde n'apparaisse et j'ai survécu avant que le monde ne commence. Cependant, avant moi, il y avait encore les Célestes. Puisque les Célestes veulent faire de moi leur esclave, qu'ils me laissent les détruire!
+« Je suis l'Ancien, je suis né avant que le monde n'apparaisse et j'ai survécu avant que le monde ne commence. Cependant, avant moi, il y avait encore les Célestes. Puisque les Célestes veulent faire de moi leur esclave, c'est moi qui les détruirai!
 
 « Si j'échoue, mes descendants seront les ennemis des Célestes pour d'innombrables générations, jusqu'à ce qu'il ne reste plus aucun Céleste!
 
@@ -50,9 +50,9 @@ C'est pourquoi même la famille impériale et les plus déterminés ne faisaient
 
 Et presque personne n'avait jamais tenté une troisième fois; presque tous étaient morts.
 
-La rumeur prétendait qu'au fil des âges, seul le plus puissant des Grands Empyréens, Gu Dao, avait choisi de se briser totalement et avait finalement réussi.
+La rumeur prétendait qu'au fil des âges, seul le plus puissant des Grands Empyréens, Gu Dao, avait choisi de se briser totalement lors de la troisième division et avait finalement réussi.
 
-Comparée à la deuxième calamité de la troisième épreuve, la troisième n'était pas considérée comme une véritable calamité. La Bénédiction de l'Ancêtre était, en réalité, une récompense offerte par l'Ancêtre.
+Comparée à la deuxième calamité de la troisième épreuve, la troisième n'était pas considérée comme une véritable calamité. La Bénédiction de l'Ancêtre était, en réalité, une récompense accordée par l'Ancêtre à ceux qui avaient franchi les six premières calamités.
 
 Il pouvait s'agir d'un fragment de mémoire, peut-être d'un sortilège incomplet, ou encore d'une parcelle de sang de l'Ancêtre extrêmement pur... Il existait même une infime chance qu'il s'agisse de sang d'âme...
 

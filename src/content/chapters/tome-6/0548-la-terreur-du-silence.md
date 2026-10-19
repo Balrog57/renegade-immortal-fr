@@ -74,7 +74,7 @@ Chaque régiment de mille hommes possédait un chef, tous étant les fidèles li
 
 S'il n'avait pas agi immédiatement, c'était parce qu'il comprenait parfaitement les lois militaires de ces contrées, grâce aux souvenirs de Lou Yun. Les neuf pays de cette région suivaient un droit militaire très différent du monde de la culture. À moins d'avoir une puissance suffisante pour défier l'Empereur Démon, il fallait se plier à leurs lois si l'on souhaitait bénéficier de leur puissance!
 
-Tout étranger arrivant en Terre des Esprits Démoniaques devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
+Tout étranger arrivant en Terre des Esprits Démoniaques devait d'abord s'intégrer à l'un des neuf pays et obtenir un commandement militaire. C'était l'unique moyen de s'imposer. Si l'on se retrouvait seul face à un homme commandant des dizaines de milliers de soldats, le combat était inutile. Bien que la culture de ces soldats ne fût pas élevée, certains d'entre eux étaient de véritables maîtres; leur nombre les rendait redoutables, d'autant plus qu'ils étaient experts en formations mystérieuses et imprévisibles.
 
 De plus, si l'on massacrait trop de soldats démons, le commandant en chef — un être presque aussi puissant que le Général Démon — finirait par apparaître. À ce moment-là, un cultivateur solitaire ne pourrait plus jamais s'imposer dans ce pays! Il serait contraint de fuir vers la nation voisine, et ce, de façon répétée jusqu'à ne plus pouvoir circuler en Terre des Esprits Démoniaques. Il finirait par devoir se terrer dans un lieu isolé pour cultiver, perdant ainsi toute chance d'obtenir des mérites militaires ou de fusionner avec un démon ancien!
 
@@ -90,9 +90,9 @@ Le temps s'écoula rapidement. Wang Lin cultiva dans cette zone ouverte pendant 
 
 Pourtant, durant ces trois jours, la rage de Hu Pao ne fit que croître. De plus en plus de soldats démons les traitaient avec un mépris total, considérant leur nouveau commandant comme insignifiant.
 
-Sima Yan, quant à lui, devenait de plus en plus méfiant. Il sentait que quelque chose clochait, car le comportement du nouveau commandant défiait toute logique. En trois jours, il ne s'était impliqué dans aucune affaire du camp et n'avait pas prononcé un mot, restant assis là à cultiver comme s'il était déjà mort.
+Sima Yan, quant à lui, devenait de plus en plus méfiant. Il sentait que quelque chose clochait, car le comportement du nouveau commandant défiait toute logique. En trois jours, il ne s'était impliqué dans aucune affaire du camp et n'avait pas prononcé un mot, restant assis là à cultiver, comme s'il s'était retiré du monde.
 
-Si ce n'était la présence de l'un d'entre eux, constamment irrité et prêt à exploser, Sima Yan aurait été encore plus sur ses gardes. Il n'avait pas peur que Wang Lin agisse ou s'emporte; il était préparé à ces scénarios, prêt à le discréditer ou à l'expulser. Ce qui l'effrayait, c'était ce silence indéchiffrable.
+Si l'un des hommes de Wang Lin restait constamment irrité et prêt à exploser, la vigilance de Sima Yan n'en serait que plus grande. Il n'avait pas peur que Wang Lin agisse ou s'emporte; il était préparé à ces scénarios, prêt à le discréditer ou à l'expulser. Ce qui l'effrayait, c'était ce silence indéchiffrable.
 
 « À quoi pense réellement ce nouveau commandant... » Sima Yan se trouvait dans sa demeure, entouré de huit hommes: les chefs de régiment!
 

@@ -10,13 +10,13 @@ Ces décennies passées en tant que mortel furent les années les plus paisibles
 
 Bien que de nombreuses années se soient écoulées, il ne pouvait oublier ce qu'il avait vécu à l'époque. En pensant à Da Niu, il soupira et vida d'un trait tout le vin contenu dans son verre.
 
-La façon dont ce vin était préparé le rendait très fort lorsqu'on le buvait, mais il laissait ensuite un arrière-goût véritablement mémorable. Il ressemblait beaucoup au vin que Da Niu lui apportait autrefois.
+Ce vin, légèrement piquant à l'entrée en bouche, laissait ensuite un arrière-goût véritablement mémorable. Il ressemblait beaucoup au vin que Da Niu lui apportait autrefois.
 
 Treize restait silencieux. Il semblait percevoir que Wang Lin avait l'esprit ailleurs. La seule chose qu'il pouvait faire était de verser du vin pour Wang Lin dès que son verre était vide.
 
 Hu Pao avait résisté longtemps, et après avoir avalé une grande quantité de salive, il finit par ne plus pouvoir se retenir. Il regarda Wang Lin, puis prit silencieusement un pot, brisa le sceau et se versa un verre. Il leva la coupe, la but d'un trait, et se sentit aussitôt revigoré.
 
-Juste au moment où il allait se servir à nouveau, il vit Treize le regarder froidement. Il se sentit lésé, pensant: « Je veux juste boire un peu de vin. L'Ancêtre ne dit rien; pourquoi fais-tu tant de bruit? »
+Juste au moment où il allait se servir à nouveau, il vit Treize le regarder froidement. Il se sentit lésé, pensant: « Je veux juste boire un peu de vin. L'Ancêtre ne dit rien; pourquoi te mêles-tu de ce qui ne te regarde pas? »
 
 Bien qu'il songeât cela, il ne le montra pas sur son visage.
 
@@ -50,7 +50,7 @@ Le regard de Treize devint sérieux alors qu'il se tournait vers eux. Il prit un
 
 Hu Pao fronça également les sourcils, mais il savait que quelque chose ne tournait pas rond avec l'Ancêtre. Ce n'était pas le moment de chercher les ennuis, alors il réprima sa colère.
 
-L'un des hommes robustes en armure noire s'exclama bruyamment: « Seigneur Commandant, ne vous inquiétez pas. Lorsque cet individu arrivera après-demain, nous rassemblerons toutes les unités et lui montrerons qui est le véritable commandant! »
+L'un des hommes robustes en armure noire s'exclama bruyamment en se frappant la poitrine: « Seigneur Commandant, ne vous inquiétez pas. Lorsque cet individu arrivera après-demain, nous rassemblerons toutes les unités et lui montrerons qui est le véritable commandant! »
 
 L'homme au visage sombre essuya le vin sur sa bouche et demanda d'une voix grave: « Avez-vous découvert ses origines? »
 
@@ -58,7 +58,7 @@ Un autre soldat en armure noire répondit à voix basse: « C'est un étranger. 
 
 « Hmph! » L'homme au visage sombre saisit un autre pot de vin et en prit une grande gorgée.
 
-« Seigneur Commandant, dès son arrivée, je le défierai pour voir de quelle force il est capable. Selon les règles de l'armée, si sa puissance est insuffisante, même s'il a été nommé par le Seigneur Général, il ne pourra pas prendre le commandement des troupes. »
+« Seigneur Commandant, après-demain au petit matin, dès son arrivée, je le défierai pour voir de quelle force il est capable. Selon les règles de l'armée, si sa puissance est insuffisante, même s'il a été nommé par le Seigneur Général, il ne pourra pas prendre le commandement des troupes. »
 
 « C'est vrai! Pourquoi le Seigneur Général a-t-il fait de ce nouveau venu le commandant tout en rétrogradant l'ancien Commandant au poste de vice-commandant?! Cela n'a aucun sens, et personne ne peut rester les bras croisés face à une telle injustice! »
 
@@ -98,7 +98,7 @@ Le premier pot de vin servait à tâter le terrain; la signification des deux su
 
 Voyant que le groupe de Wang Lin ne s'était toujours pas retiré, les soldats démons s'impatientèrent. L'un d'eux cria: « Tu cherches la mort! »
 
-Sur ces mots, il marcha vers Wang Lin.
+Sur ces mots, il marcha vers Wang Lin et voulut le repousser brutalement.
 
 Sur le côté, les yeux de Treize devinrent extrêmement froids et il lança un coup de poing direct. La réaction du démon ne fut pas lente, mais il fut tout de même surpris. En réponse, sa main se crispa en un poing et il fit circuler son énergie spirituelle démoniaque. Une lueur démoniaque apparut soudainement autour de son poing, se transformant en un tigre féroce qui percuta le coup de Treize.
 

@@ -22,7 +22,7 @@ Les grondements se déchaînèrent alors que les trois épées entraient en coll
 
 L'origine de l'épée de sang était mystérieuse et renfermait un pouvoir infini. Même face aux deux épées de la divine rétribution, elle ne se montrait pas moins puissante et devenait de plus en plus féroce!
 
-Un rugissement tonitruant jaillit des nuages lors du choc des trois lames. Une vague de pression s'en échappa; cette pression était presque solide en se propageant, comprimant davantage le pavillon de jade blanc à travers la faille!
+Un rugissement tonitruant jaillit des nuages lors du choc des trois lames. Une vague de pression s'en échappa; cette pression était presque solide en se propageant, et le pavillon de jade blanc sortit encore un peu plus de la faille!
 
 Deux autres épées se trouvaient derrière la statue du pavillon. L'une d'elles se fissura soudainement et une épée noire jaillit. Elle s'allia aux épées verte et bleue pour tenter de supprimer l'épée de sang.
 
@@ -92,7 +92,7 @@ Les fracas tonitruants continuèrent de résonner alors que la montagne de nuage
 
 La pression était si intense qu'elle fit vaciller la formation protectrice de la Secte Démon. Des craquements se firent entendre et des fissures se propagèrent.
 
-Des bruits de déchirement résonnèrent dans le corps de Wang Lin alors que la pression infinie l'assaillait de toutes parts. Ses pieds s'écrasaient contre le ciel étoilé avec un bruit insupportable.
+Des bruits sourds résonnèrent dans le corps de Wang Lin alors que la pression infinie l'assaillait de toutes parts. Ses pieds s'écrasaient contre le ciel étoilé avec un bruit insupportable.
 
 Son visage devint légèrement rouge et son énergie originelle circula dans tout son corps. Il fixa la montagne de nuages et ses yeux s'illuminèrent!
 

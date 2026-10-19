@@ -54,7 +54,7 @@ C'était l'assurance de celui qui tient tout entre ses mains!
 
 « Vous vouliez transférer l'héritage de Ming Dao à Wang Lin et saisir son corps; vous l'avez donc attiré ici pour qu'il devienne l'œil droit de la tête de l'Ancêtre Céleste.
 
-« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyréen Gémeaux pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'utilisais Dao Fei pour le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche!
+« Vous aviez même prédit que Wang Lin solliciterait le Grand Empyréen Gémeaux pour sauver Dao Fei, car ils pourraient me contenir un temps. Vous avez profité du moment où j'enfermais Dao Fei dans le palais souterrain et où j'utilisais le sortilège du Retour à l'Origine Ancestrale pour faire de lui l'œil gauche!
 
 « Puis, vous avez utilisé le sort spécial de votre clan Dao Wang pour forcer la tête de l'Ancêtre Céleste à parler afin de lever le sceau de votre clan. Croyez-vous que j'ignorais tout cela? » L'Empereur Céleste éclata de rire.
 

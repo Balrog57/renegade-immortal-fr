@@ -6,15 +6,15 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 916 - Alliances Style
 slug: le-style-de-lalliance
 ---
-D’innombrables fragments d'âmes se trouvaient à l'intérieur du drapeau des milliards d'âmes, et tous s'engouffrèrent dans les dix-huit couches de l'enfer. La rancœur au sein de ces abysses ne cessait de croître à mesure que les fragments d'âmes s'y précipitaient. Leurs hurlements déments auraient fait perdre connaissance à n'importe quel mortel qui les aurait entendus.
+D’innombrables fragments d'âmes se trouvaient à l'intérieur du Drapeau des Un Milliard d'Âmes, et tous s'engouffrèrent dans les dix-huit couches de l'enfer. La rancœur au sein de ces abysses ne cessait de croître à mesure que les fragments d'âmes s'y précipitaient. Leurs hurlements déments auraient fait perdre connaissance à n'importe quel mortel qui les aurait entendus.
 
 Même l'esprit d'un cultivateur serait ébranlé par ces cris. Ils étaient le fruit de la douleur et des griefs des âmes d'innombrables êtres que Wang Lin avait massacrés!
 
 Parmi eux se trouvaient l'Ancêtre Sanguin, les êtres célestes, les membres de la famille Yao et bien d'autres puissants cultivateurs. Bien qu'ils ne fussent que des fragments d'âmes et n'aient plus leur force d'autrefois, leur puissance n'était pas de nature à ce que des cultivateurs ordinaires puissent y résister!
 
-S'y ajoutaient les innombrables fragments d'âmes contenus dans le drapeau des milliards d'âmes. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
+S'y ajoutaient les innombrables fragments d'âmes contenus dans le Drapeau des Un Milliard d'Âmes. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
 
-À l'intérieur du drapeau des milliards d'âmes, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Tampon de Scellement Céleste.
+À l'intérieur du Drapeau des Un Milliard d'Âmes, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Sceau Céleste.
 
 Alors que Wang Lin se tenait là, une lueur de froideur traversa son regard et il s'écria: « Voici mon cycle de réincarnation des dix-huit couches de l'enfer! »
 
@@ -24,7 +24,7 @@ Les premières victimes furent les bêtes féroces qui, prises de panique, se di
 
 Les quelques cultivateurs stationnés dans les environs pâlirent, l'esprit secoué par ces sons, et s'enfuirent précipitamment de leurs quartiers. Ils ne voulaient plus rester une seconde de plus.
 
-Le garçon à la grosse tête haletait, fixant avec stupéfaction le Tampon de Scellement Céleste des Dix-huit Enfers. Grâce à son niveau de culture, il comprit immédiatement que ce trésor était hors du commun.
+Le garçon à la grosse tête haletait, fixant avec stupéfaction le Sceau Céleste des Dix-huit Enfers. Grâce à son niveau de culture, il comprit immédiatement que ce trésor était hors du commun.
 
 Les pupilles de Lei Ji se rétractèrent. Face aux dix-huit couches de l'enfer, il ressentit une peur viscérale, venant du plus profond de son cœur.
 
@@ -32,7 +32,7 @@ Wang Lin frappa son sac de rangement et deux sphères de lumière apparurent dan
 
 Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans les dix-huit couches de l'enfer et les remit dans son sac. Ces deux âmes originelles du stade précoce du Scruteur du Nirvana étaient cruciales pour restaurer sa culture. Il les garda au cas où il en aurait besoin plus tard.
 
-À cet instant, il se redressa, fixa le ciel, forma un sceau de la main et pointa le Tampon de Scellement Céleste. Celui-ci rétrécit et fut englouti par Wang Lin.
+À cet instant, il se redressa, fixa le ciel, forma un sceau de la main et pointa le Sceau Céleste. Celui-ci rétrécit et fut englouti par Wang Lin.
 
 « Allons-y! » dit Wang Lin d'un ton calme avant de faire un pas pour quitter la planète. Lei Ji et ses compagnons le suivirent rapidement.
 
@@ -46,11 +46,11 @@ Des groupes de cultivateurs de Luotian s'élancèrent rapidement vers la région
 
 En passant, ils générèrent un fracas tel que l'espace lui-même semblait sur le point de s'effondrer. L'énergie d'épée émise par des dizaines de milliers d'épées volantes fit changer les couleurs du monde.
 
-Les épées volantes défiaient la hauteur du ciel et menaçaient de faire basculer le monde. Inconsciemment, elles dégageaient une sensation de pouvoir inverser le temps et fendre les cieux.
+Les épées volantes défiaient la hauteur du ciel et menaçaient de faire basculer le monde. Inconsciemment, elles dégageaient une sensation de pouvoir inverser le temps et fendre les cieux. Un arc blanc semblable à un arc-en-ciel traversait le soleil, et les constellations tournaient jusqu'à l'aube, comme si la terre se fendait et que le ciel s'ouvrait au printemps.
 
 Les cultivateurs de Luotian étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de culture pour poursuivre leur progression.
 
-Le Maître Yan Leizi, porté par une sphère de flammes avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
+Le Maître Yan Leizi, porté par une sphère de flammes bleutées avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
 
 Ils furent contraints de poursuivre leur offensive dans la région nord car ils étaient restés trop longtemps dans la région occidentale. Ils ne pouvaient pas battre en retraite sans combattre; ainsi, bien qu'il sût que l'Alliance complotait, il fut forcé de foncer!
 
@@ -108,7 +108,7 @@ Dans le domaine nord, une ondulation parcourut les rangs de l'armée de l'Allian
 
 Les yeux du Maître Yan Leizi virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à cette provocation. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs de Luotian! »
 
-Le Maître Yan Leizi leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un fleuve couvrant l'immensité céleste.
+Le Maître Yan Leizi leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un ravin s'étendant sur l'immensité céleste.
 
 Au même instant, une pression colossale s'en échappa et dix-huit sphères de sang, larges de cent pieds, descendirent des cieux!
 

@@ -38,7 +38,7 @@ Dans la partie méridionale du Royaume Céleste, une chaîne de montagnes sembla
 
 En se rapprochant, la chaîne de montagnes s'effondra progressivement pour venir se poser sur les deux piliers!
 
-La voix tonna soudainement une ultime fois: « Que la terre du nord forge la porte céleste! » Le Royaume Céleste du Nord trembla violemment et des fissures apparurent. Tandis que le sol vacillait, un pan rectangulaire de terre fut arraché!
+La voix tonna soudainement une ultime fois: « Que la terre du nord forge la porte céleste! » La partie nord du Royaume Céleste trembla violemment et des fissures apparurent. Tandis que le sol vacillait, un pan rectangulaire de terre fut arraché!
 
 Ce fragment de terre s'éleva lentement, rétrécissant jusqu'à devenir une porte monumentale nichée entre les trois piliers!
 
@@ -100,7 +100,7 @@ Une aura destructrice se propagea, écrasant tout être vivant!
 
 Après un long moment, les secousses cessèrent. Le Royaume Céleste en plein effondrement plongea dans le silence; plus aucun son n'en émanait. L'obscurité du ciel disparut progressivement jusqu'à n'en laisser aucune trace. La porte gigantesque avait perdu son battant, et il ne restait que l'encadrement, immobile.
 
-La scène changea une fois de plus. Un temps indéterminé s'était écoulé et une immense faille était apparue au cœur du Royaume Céleste. Cette brèche mesurait environ 100 000 pieds de large et émettait une lueur spectrale. On pouvait vaguement distinguer un système stellaire de l'autre côté. Une planète pourpre s'y trouvait, grouillante d'innombrables bêtes féroces dont la caractéristique la plus frappante était l'immensité des gueules!
+La scène changea une fois de plus. Un temps indéterminé s'était écoulé et une immense faille était apparue au cœur du Royaume Céleste. Cette brèche mesurait environ 100 000 pieds de long et émettait une lueur spectrale. On pouvait vaguement distinguer un système stellaire de l'autre côté. Une planète pourpre s'y trouvait, grouillante d'innombrables bêtes féroces dont la caractéristique la plus frappante était l'immensité des gueules!
 
 Elles se précipitèrent dans la faille pour surgir dans le Royaume Céleste du Vent.
 

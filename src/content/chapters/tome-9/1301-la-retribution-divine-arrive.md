@@ -10,7 +10,7 @@ Les milliers de cultivateurs étaient toujours assis à l'extérieur de la faill
 
 Ils étaient habitués à ce mode de vie et avaient passé de nombreuses années ainsi.
 
-Les trois membres de la Secte Démon, enveloppés d'une lueur bleue, étaient également assis au loin et jetaient parfois des regards vers la faille.
+Les trois membres de la Secte Démon, enveloppés de brume, étaient également assis au loin et jetaient parfois des regards vers la faille.
 
 Cela faisait presque un mois que Wang Lin était entré dans la faille spatiale. Pour des cultivateurs, un mois n'était qu'un instant; souvent, une seule session de culture pouvait durer plusieurs mois.
 
@@ -90,7 +90,7 @@ Lorsque les seize Anciens de la Secte Démon émergèrent, ils virent les nuages
 
 Alors que les Anciens étaient sous le choc, une voix antique résonna depuis le cœur de la Secte Démon: « C'est la Rétribution Infinie! » Cette voix semblait extrêmement préoccupée par l'événement.
 
-En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Démon et prit la forme d'un homme d'âge moyen. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
+En entendant cette voix, les seize Anciens se tournèrent respectueusement vers la Secte: « Salutations, Grand Ancien! » Un rayon de lumière jaillit de la Secte Démon et prit la forme d'un homme d'âge moyen vêtu d'une robe de daoïste. Bien qu'il paraisse jeune, il dégageait une aura ancestrale, comme s'il avait existé depuis des éternités.
 
 L'homme regarda les nuages avec émotion et déclara lentement: « Il existe de nombreux types de rétributions divines: le tonnerre, l'âme, la puissance, et bien d'autres. Mais seule la Rétribution Infinie est la plus terrifiante. Elle est en constante mutation et, selon la rumeur, sa puissance égale celle du Ciel lui-même. Elle tue sans aucun doute! Je me demande quel cultivateur a pu déclencher une telle rétribution par mégarde! »
 
@@ -104,7 +104,7 @@ Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation
 
 « Personne au sein de ma Secte Démon n'a déclenché cette rétribution, donc la secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
 
-Les nuages s'étendaient avec frénésie. En peu de temps, ils enveloppèrent totalement la région de rang 9. Les éclairs et les tonnerres étaient si denses à l'intérieur qu'ils auraient pu terrasser n'importe quel cultivateur.
+Les nuages s'étendaient avec frénésie. En peu de temps, ils enveloppèrent totalement la région de rang 9. Les éclairs et les tonnerres étaient si denses à l'intérieur qu'ils auraient ébranlé l'esprit de tout cultivateur qui les voyait.
 
 Alors que les nuages continuaient leur progression, la brèche vers l'autre monde s'élargissait. Le gigantesque pavillon blanc était désormais à moitié sorti!
 

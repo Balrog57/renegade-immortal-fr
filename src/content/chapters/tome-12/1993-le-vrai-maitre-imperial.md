@@ -12,9 +12,9 @@ S'il ne parvenait pas à absorber par la force le pouvoir de l'Ancêtre Céleste
 
 Il ne permettrait jamais une telle chose. Ayant atteint la dernière étape, il était sur le point de réussir et refusait catégoriquement d'échouer maintenant!
 
-« Même l'Enseignant Impérial n'a pu percer mon plan. Jiu Di n'est venu que parce qu'il est proche de la cité ancestrale, mais Dao Yi et Wu Feng sont arrivés si vite! »
+« Même l'Enseignant Impérial n'a pu percer mon plan. Jiu Di n'est venu que parce qu'il se trouve dans la cité ancestrale, mais Dao Yi et Wu Feng sont arrivés si vite! »
 
-L'Empereur Céleste serra les dents et, sans hésiter, leva la main droite pour pointer un doigt devant lui. À l'instant où le doigt retomba, il s'effondra en un amas de chair et de sang.
+L'Empereur Céleste serra les dents et, sans hésiter, leva la main droite pour pointer un doigt devant lui. À l'instant où le doigt retomba, celui-ci s'effondra en un amas de chair et de sang.
 
 « En utilisant ma propre chair et mon sang, descendants de l'Ancêtre Céleste, activez la loi de l'Astral Immortel pour lever le sceau éternel sur le clan Dao Wang! » rugit l'Empereur Céleste, tandis que ses doigts restants se désintégraient. Ce n'étaient pas seulement ses doigts, mais même sa paume qui s'effondrait.
 
@@ -32,7 +32,7 @@ C'était l'ultime atout de l'Empereur Céleste: il ne laisserait pas l'Enseignan
 
 Alors que l'Enseignant Impérial était sur le point de mourir, un souvenir scellé depuis une éternité s'éveilla.
 
-Il se souvenait vaguement que le clan Dao Wang, après des années d'héritage, était presque éteint. Il se rappelait qu'après sa naissance, il ne restait plus que trois personnes, lui inclus.
+Il se souvenait vaguement que le clan Dao Wang, après des années d'héritage, était presque éteint. Il se rappelait que, bien longtemps après sa naissance, il ne restait plus que trois personnes, lui inclus.
 
 Il ignorait qui étaient ses parents et personne ne lui l'avait dit. Il savait seulement qu'il était un membre du clan Dao Wang... En dehors de lui, il se souvenait avoir vu une femme et une petite fille.
 

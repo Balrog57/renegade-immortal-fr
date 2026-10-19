@@ -56,7 +56,7 @@ Wang Lin esquissa un sourire et secoua la tête: « Maître, ces deux montagnes 
 
 À ces mots, une lueur de choc apparut dans les yeux de l'Omniscient. Il dévisagea Wang Lin avant de laisser échapper un rire. D'un revers de manches, il emmena Wang Lin vers la montagne centrale à une vitesse fulgurante.
 
-« La force mentale de cet enfant surpasse celle des autres. Être capable de trouver des indices sur mon sort au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
+« Cet enfant a un esprit plus vif que les autres. Être capable de trouver des indices sur mon sort au stade intermédiaire de la Transformation de l'Âme est extrêmement rare! »
 
 L'expression de Wang Lin était parfaitement normale, mais son cœur tremblait. En voyant les trois montagnes, un souvenir très ancien de l'ancien dieu Tu Si surgit dans son esprit.
 
@@ -98,7 +98,7 @@ Néanmoins, ce genre d'épreuve n'était rien de nouveau pour Wang Lin. Dans la 
 
 Le temps passa lentement. À mesure qu'il approchait du sommet, l'aura glaciale devenait plus intense et la lumière autour du corps de Wang Lin s'intensifiait encore. Lorsqu'il fut à cent pas du sommet, il s'arrêta et cessa d'avancer.
 
-Il prit une profonde inspiration et, au moment où il expira, une série de craquements retentit. Son souffle se transforma en flocons de glace à un mètre de sa bouche dans un crépitement net.
+Il prit une profonde inspiration et, au moment où il expira, une série de craquements retentit. Son souffle se transforma en grains de glace à un mètre de sa bouche dans un crépitement net.
 
 Simultanément, l'aura glaciale s'engouffra dans sa bouche et son nez. Cette aura ne disparut que lentement, aidée par l'énergie spirituelle céleste à l'intérieur de son corps.
 

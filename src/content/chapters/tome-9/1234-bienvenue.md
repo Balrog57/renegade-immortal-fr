@@ -86,7 +86,7 @@ Sa voix trahissait son émotion. Dès que son cri résonna, tous suivirent son r
 
 Au centre de leurs regards, une silhouette blanche se déplaçait parmi les bêtes-moustiques. Sous ses pas avançait une bête-moustique d'un or pâle!
 
-À mesure qu'il progressait, les moustiques rouges, autrefois si féroces, devenaient bien plus dociles. Ils n'osaient point barrer la route au jeune homme en blanc et lui ouvraient même le passage. Il y avait même... une pointe d'adoration dans leurs yeux.
+À mesure qu'il progressait, les moustiques rouges, autrefois si féroces, devenaient bien plus dociles. Ils n'osaient point barrer la route au jeune homme en blanc et lui ouvraient même le passage. Il y avait même dans leurs regards un respect indiscutable.
 
 Le sifflement de ces bêtes résonna et elles cessèrent de prêter attention aux cultivateurs. Au lieu de cela, elles encerclèrent le cultivateur en blanc — ou plus précisément, la bête-moustique or pâle. Elles formèrent un cercle autour d'elle et s'envolèrent vers la brume rouge émanant de la fissure du Royaume Céleste du Vent.
 

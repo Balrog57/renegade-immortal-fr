@@ -10,7 +10,7 @@ Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qu
 
 Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Frère apprenti aîné, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »
 
-Il jeta la cuisse de poulet qu'il tenait et ses yeux brillèrent de rage.
+Il jeta la cuisse de poulet qu'il tenait et ses yeux eurent un éclat fugace.
 
 « Cependant, je me demande quelles sont les chances que ce junior Wang Lin transforme cette petite fille Liu Mei en son propre fourneau de culture... Frère apprenti aîné, voyons si ton disciple est meilleur ou si mon candidat choisi est supérieur. Ce sera fort divertissant! »
 
@@ -42,7 +42,7 @@ Un homme d'âge moyen se tenait devant lui, entouré de tables, de chaises et d'
 
 L'homme d'âge moyen était assis sur une chaise; il saisit une tasse, en prit une gorgée et dit: « Jeune Ceng Niu, je suis Li Yuanfeng, le maître de secte de Xue Yu. Je suis venu ici pour prendre ta vie pour Papillon Rouge! »
 
-« Transformation de l'Âme! » Il fut capable d'identifier le niveau de culture de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
+« Vieux monstre de la Transformation de l'Âme! » Il fut capable d'identifier le niveau de culture de l'homme d'un seul regard. Son expression s'obscurcit davantage. Sans la moindre hésitation, il tenta de déchirer une faille spatiale pour s'échapper avec la boussole stellaire.
 
 Wang Lin savait qu'il ne pouvait rien contre un cultivateur de la Transformation de l'Âme. Sa seule chance était la fuite.
 
@@ -108,13 +108,13 @@ D'un air sombre, il fixa le vieil homme en robe noire et lâcha: « Le Clan des 
 
 L'homme retira son masque, révélant un Ancien aux cheveux gris, dont les yeux brillaient comme la lumière lunaire.
 
-Il regarda Wang Lin en riant: « Jeune Ceng Niu, ce vieux est bel et bien du Clan des Démons Géants. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune maître, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
+Il regarda Wang Lin en riant: « Jeune Ceng Niu, ce vieux est bel et bien du Clan des Démons Géants. Dans le Royaume Céleste, tu as dérobé la boussole stellaire à notre jeune chef de clan Chi Hu, je suis donc ici pour la reprendre aujourd'hui. J'espère que tu ne m'en voudras pas. »
 
 Le regard de Wang Lin était sombre. Sa main droite tremblait alors qu'il sortait des pilules de son sac pour les avaler devant les deux cultivateurs de la Transformation de l'Âme. Puis, il dit calmement: « Deux vieux monstres de la Transformation de l'Âme se sont déplacés simultanément pour me tuer... Je n'oublierai jamais cet honneur! »
 
 L'homme d'âge moyen sourit faiblement: « C'est exact. Même si tu vas mourir, tu devrais le faire avec le sourire. Quant à tes trésors, ils m'intéressent grandement. » Sur ces mots, il pointa de nouveau Wang Lin.
 
-Cette fois, une vague d'énergie spirituelle jaillit du doigt de l'homme vers lui.
+Cette fois, une onde d'énergie spirituelle, épaisse comme un bras, jaillit du doigt de l'homme vers lui.
 
 Wang Lin, ayant réussi à récupérer un peu d'énergie, sortit le drapeau de restriction et le fit tournoyer. Un gaz de restriction en émana, formant des murs pour bloquer la décharge d'énergie.
 

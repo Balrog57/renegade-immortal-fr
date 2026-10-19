@@ -24,7 +24,7 @@ L'intention de combat dans les yeux de Chen Tao s'intensifia tandis qu'il riait:
 
 Sur ce, il déchira la partie supérieure de ses vêtements pour exposer son torse. Il frappa son sac de rangement et une longue corde noire apparut dans sa main. Cette corde semblait être une créature vivante; dès son apparition, une odeur fétide s'en dégagea, émettant une aura désolée.
 
-« Bête, mon Tendon de Dragon Terrestre a survécu seul sur une planète démoniaque pendant cinq cents ans. Il a été extrait d'un dragon démoniaque mort. Je veux voir si tu peux échapper à ce tendon! » Sur ces mots, il fit un pas en avant et projeta directement le tendon vers la bête spirituelle, ignorant royalement Wang Lin.
+« Bête, mon Tendon de Dragon Terrestre a survécu seul sur une planète démoniaque pendant plus de cinq cents ans. Il a été extrait d'un dragon démoniaque mort. Je veux voir si tu peux échapper à ce tendon! » Sur ces mots, il fit un pas en avant et projeta directement le tendon vers la bête spirituelle, ignorant royalement Wang Lin.
 
 La bête poussa un rugissement et chargea. Elle esquiva le tendon, apparut instantanément aux côtés de Chen Tao et tenta de le dévorer.
 
@@ -110,9 +110,9 @@ Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis re
 
 Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait ses bras, fixant Wang Lin d'un regard indifférent. Son intention de combat ne faiblit pas, elle s'intensifia même lorsqu'il déclara solennellement: « Une fois que tu auras atteint le stade Ascendant, nous nous battrons à nouveau, Septième Frère! »
 
-Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendant, il aurait sans doute été blessé malgré sa capacité à encaisser le coup.
+Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendant, il aurait certainement été blessé malgré sa capacité à encaisser le coup.
 
-L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Violette et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le véritable disciple de la Division Violette! »
+L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Violette et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le détenteur du titre de l'un des sept véritables disciples de l'Omniscient de la Division Violette! »
 
 Sur ces mots, l'Omniscient pointa l'espace entre ses sourcils; un cristal pourpre d'une pureté cristalline apparut sur son front et tomba dans sa main. Il lança ensuite le cristal, qui vola dans un rayon de lumière pourpre vers Chen Tao et s'inséra entre ses sourcils.
 

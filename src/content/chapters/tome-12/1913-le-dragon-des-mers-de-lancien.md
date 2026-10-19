@@ -42,11 +42,11 @@ D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un é
 
 La voix de la silhouette dorée était lente, mais chaque mot résonnait comme un coup de tonnerre. Les huit cultivateurs ainsi nommés furent envahis par l'excitation.
 
-Ces huit noms appartenaient aux seize individus les plus remarquables de cette guerre présents à la Secte Gui Yi!
+Ces huit noms désignaient, parmi les seize cultivateurs les plus remarquables de cette guerre, ceux qui se trouvaient à la Secte Gui Yi!
 
 Alors que ces paroles résonnaient, le Maître de la Secte Gui Yi laissa échapper un profond soupir et esquissa un sourire. Cette guerre semblait complexe, mais elle était en réalité très simple: la bataille entre les deux continents servait à mettre en avant la nouvelle génération afin d'attirer l'attention de l'Empereur Céleste et de pouvoir entrer dans le temple ancestral!
 
-Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés Tribulants du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
+Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés de Tribulation du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
 
 « Nous obéissons tous à la volonté de l'Empereur! »
 

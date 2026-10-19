@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1577 - Foreign
 slug: letranger
 ---
-Le temps s'écoulait lentement. Il ne restait plus beaucoup de sang dans l'œil gauche et, au fil des heures, la majeure partie de son pouvoir se dissipait. Cependant, cet œil ayant été formé par un démon ancien à neuf étoiles, bien que le sang fût peu abondant, il constituait néanmoins une source de nourriture prodigieuse pour Wang Lin!
+Le temps s'écoulait lentement. Il ne restait plus beaucoup de sang dans l'œil gauche et, au fil des ans, une bonne partie de son pouvoir s'était dissipée. Cependant, cet œil ayant été formé par un démon ancien à neuf étoiles, bien que le sang fût peu abondant, il constituait néanmoins une source de nourriture prodigieuse pour Wang Lin!
 
-Le pouvoir du démon ancien, raffiné à partir du sang, pénétra dans le corps de Wang Lin par son bras droit. Après avoir circulé dans tout son organisme, il se dirigea vers la statue du démon ancien qu'il tenait dans sa main gauche.
+Le pouvoir du démon ancien, raffiné à partir du sang, pénétra dans le corps de Wang Lin par son bras droit. Après avoir circulé dans tout son organisme, il se dirigea vers la statue du démon ancien qu'il pressait de sa main gauche.
 
 Cette statue émit une lueur rouge démoniaque, comme si elle s'éveillait, et continua d'absorber la puissance du démon ancien.
 
@@ -22,17 +22,17 @@ Une, deux... cinq étoiles de démons anciens apparurent. La lueur rouge démoni
 
 Le onzième jour, le sang ancien se désintégra en fragments rouges qui flottèrent devant Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il agita sa main droite sans hésiter. Il attira immédiatement tous les fragments de sang dans sa paume, laquelle prit alors l'apparence d'une main ensanglantée d'un rouge sombre. Il regarda la statue du démon ancien et abattit sa paume sur le sommet du crâne de celle-ci!
+Les yeux de Wang Lin s'illuminèrent et il agita sa main droite sans hésiter. Il attira immédiatement tous les fragments de sang dans sa paume, laquelle prit alors l'apparence d'une main ensanglantée d'un brun sombre. Il regarda la statue du démon ancien et abattit sa paume sur le sommet du crâne de celle-ci!
 
 Un fracas de tonnerre retentit lors de l'impact. Tous les fragments de sang séché dans la main de Wang Lin furent absorbés par la statue. Cela provoqua la libération d'une quantité phénoménale d'énergie démoniaque qui hurla à travers le ciel.
 
 À cet instant, les cinq étoiles de démons anciens dans l'œil gauche de la statue clignotèrent rapidement et un faible sixième vortex apparut. Ce vortex se condensa promptement pour devenir une véritable sixième étoile.
 
-« Il n'y avait pas beaucoup de sang ancien ici... et au fil des ans, la plupart du pouvoir s'est dissipé... Mais j'ai toujours cet autre démon ancien! » Les yeux de Wang Lin brillèrent d'une lueur vive et sa main gauche tendit le bras pour ouvrir une faille vers son espace de stockage. Il en sortit le démon ancien qu'il avait capturé au Dieu du Sang!
+« Il n'y avait pas beaucoup de sang ancien ici... et au fil des ans, une bonne part du pouvoir s'est dissipée... Mais j'ai toujours cet autre démon ancien! » Les yeux de Wang Lin brillèrent d'une lueur vive et sa main gauche tendit le bras pour ouvrir une faille vers son espace de stockage. Il en sortit le démon ancien qu'il avait capturé au Dieu du Sang!
 
 Ce démon ancien était scellé et dormait. Wang Lin brisa le sceau, et à l'instant même où il s'éveilla, la main de Wang Lin s'abattit sur son corps.
 
-Un bruit de tonnerre éclata et les étoiles de démons anciens dans l'œil gauche du démon s'effondrèrent. Une vague d'énergie démoniaque se projeta vers la statue du démon ancien sous le contrôle de Wang Lin.
+Un bruit de tonnerre éclata et les étoiles de démons anciens dans l'œil gauche du démon s'effondrèrent. Une vague d'énergie démoniaque, projetée par la paume de Wang Lin, se dirigea vers la statue du démon ancien.
 
 Après avoir fusionné avec cette énergie, le démon ancien devint si rouge qu'il semblait fait de sang pur. La sixième étoile de démon ancien se forma instantanément et le vortex de la septième apparut. Grâce aux derniers vestiges du sang de l'œil gauche de Ye Mo et à la puissance du démon ancien extrait du Dieu du Sang, la statue de Wang Lin put enfin former sa septième étoile!
 

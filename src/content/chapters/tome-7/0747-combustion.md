@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 747 - Burning
 slug: combustion
 ---
-En un instant, la vision de Wang Lin se brouilla et son corps s'effondra au sol.
+En un instant, la vision de Wang Lin se brouilla et son corps se posa au sol.
 
 Li Yuan affichait un visage pâle lorsqu'il atterrit à trente-trois mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la vitesse avait été si grande que son corps avait failli ne pas la supporter.
 

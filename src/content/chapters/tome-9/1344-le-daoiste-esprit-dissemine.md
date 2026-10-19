@@ -12,7 +12,7 @@ Ce qui le bouleversait le plus, c'est que ce puissant cultivateur du Briseur du 
 
 « Quel est son niveau de culture? »
 
-Le choc provoqua une onde de choc immense dans l'esprit du jeune homme chauve, mais comparé à cela, le fait que Wang Lin l'ait démasqué était encore plus stupéfiant. D'après les paroles de Wang Lin, celui-ci savait depuis longtemps qu'il était suivi. Cela dépassait toutes ses espérances!
+Le choc provoqua une onde de choc immense dans l'esprit du jeune homme chauve, mais comparé à cela, le fait que Wang Lin l'ait démasqué était encore plus stupéfiant. D'après les paroles de Wang Lin, celui-ci savait depuis longtemps qu'il était suivi. Cela dépassait toutes ses prévisions!
 
 Bien que son niveau de culture ne fût pas au sommet, sa technique de dissimulation, héritée d'une époque immémoriale, l'était. Aucun Céleste n'avait pu le détecter lors de ses déplacements à travers les 7 Millions de Mondes, même ceux possédant un niveau de culture bien supérieur.
 
@@ -66,7 +66,7 @@ Les yeux de Wang Lin brillèrent d'intérêt et il s'avança à son tour, traver
 
 Wang Lin gardait une expression sereine tout en voyageant avec lui à travers les mondes. À cet instant, des capitales mortelles, des pans entiers de l'espace, et même la pluie printanière ou le vent d'automne défilaient sans cesse autour d'eux.
 
-« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Ancien principal du Clan du Tonnerre Dispersé...
+« Malheureusement, bien que mon talent fût excellent, je ne pouvais plus contenir ma culture. À deux cents ans, elle déborda et déclencha la rétribution divine... Le Céleste qui apparut était l'actuel Grand Ancien du Clan du Tonnerre Dispersé...
 
 « Son niveau de culture à l'époque n'était que celui d'un Scruteur du Nirvana. J'étais gravement blessé et au bord de la mort; je ne pouvais tout simplement pas résister... Cependant, au lieu de m'achever, il a réduit ma culture à néant avant de partir...
 
@@ -104,4 +104,4 @@ Wang Lin réfléchissait silencieusement en écoutant le récit du jeune homme, 
 
 « À partir de ce jour, je ne fus plus confus. Je me suis juré de briser ce monde, de sortir et de voir ce qui se trouvait au-delà. Pour vérifier si mes soupçons étaient fondés! » Le jeune homme était transporté par l'excitation. C'était la première fois qu'il confiait cela à quelqu'un.
 
-« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Dispersé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur du Nirvana! Même mes avatars avaient atteint les stades du Scruteur et du Purificateur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »
+« J'ai commencé à cultiver. Chacun de mes avatars a également commencé à pratiquer la technique de l'Esprit Dispersé. Le temps a passé, mais l'indignation dans mon cœur ne cessait de croître... Jusqu'à ce que j'atteigne le stade du Briseur du Nirvana! Une petite partie de mes avatars avait même atteint les stades du Scruteur et du Purificateur du Nirvana! J'ai enfin brisé ma cage et j'ai fait un pas dans la voûte étoilée! »

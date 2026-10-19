@@ -68,7 +68,7 @@ D'une pensée, il referma l'espace de stockage qui n'avait pas encore succombé 
 
 Après ce bref instant, Wang Lin était trempé de sueur. Sa respiration était courte et ses yeux injectés de sang alors qu'il contemplait le vide. Devant lui flottaient une épée ensanglantée et un sceau doré!
 
-L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageait l'aura du Vide Tribulant. On y percevait également une trace de l'aura d'un Grand Empyréen, signe qu'il avait été façonné par l'un des neuf soleils.
+L'épée exsudait une intention meurtrière, tandis que le sceau doré dégageait l'aura de la Tribulation du Vide. On y percevait également une trace de l'aura d'un Grand Empyréen, signe qu'un des neuf soleils l'avait matérialisé à partir de l'illusion.
 
 « Certains trésors sans grande importance ont péri, mais peu importe qu'ils soient brisés. Cependant, trois trésors ont survécu à l'effondrement mais ont été emportés par les failles. J'étais prêt et j'ai laissé mon Sens Divin sur eux; peut-être pourrai-je les retrouver un jour. »
 

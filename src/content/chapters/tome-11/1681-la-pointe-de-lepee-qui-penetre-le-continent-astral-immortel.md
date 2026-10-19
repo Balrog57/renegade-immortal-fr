@@ -66,19 +66,19 @@ Lors de sa charge, la force de rejet devint encore plus violente, mais elle ne p
 
 En un éclair, il se rapprocha à cent pieds, mais cette fois il ne s'arrêta pas et fonça droit devant lui. En un instant, l'épée de sang percuta directement la porte de pierre!
 
-L'épée s'enfonça de trois pouces dans la pierre!
+L'épée s'enfonça de trois pieds dans la pierre!
 
 Un bourdonnement retentit alors que l'arme vibrait violemment sous l'effet d'une puissante force de rejet. Celle-ci entra en collision avec les six essences de Wang Lin, tentant de briser son âme originelle.
 
 Au moment où l'épée transperça le talisman et pénétra la porte, l'âme originelle de Wang Lin ressentit une aura qui n'appartenait pas à la grotte, mais qu'il connaissait parfaitement!
 
-C'était l'aura du Continent Astral Immortel, l'endroit que son sens divin avait exploré juste après la fin de son Dao de Rêve!
+C'était l'aura du Continent Astral Immortel, l'endroit que son sens divin avait exploré juste après la fin de son Dao du Rêve!
 
 Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs du troisième pas avaient souvent besoin de très longtemps pour le traverser.
 
-Le Continent Astral Immortel était réputé pour être l'endroit le plus spectaculaire de l'univers!
+Le Continent Astral Immortel était surnommé « le bord du ciel et la fin de la terre », l'endroit le plus spectaculaire de l'univers!
 
-Dans la partie orientale du Continent Astral Immortel, s'étendait une chaîne de montagnes infinie, drapée de brume et imprégnée d'énergie céleste. Les oiseaux et les fleurs embaumaient l'air, tandis que des grues volantes dansaient dans le ciel.
+Dans la partie orientale du Continent Astral Immortel, s'étendait une chaîne de montagnes infinie, drapée de brume et imprégnée d'énergie céleste. Les oiseaux et les fleurs embaumaient l'air, tandis que des bêtes célestes et des grues volantes dansaient dans le ciel.
 
 Cette chaîne de montagnes représentait environ 10 % du Système Stellaire du Vide Brillant. Elle paraissait sans fin, mais elle n'était qu'un grain de poussière comparée à l'immensité du Continent Astral Immortel!
 

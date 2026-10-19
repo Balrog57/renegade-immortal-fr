@@ -26,9 +26,9 @@ Wang Lin inclina respectueusement la tête et joignit ses mains en signe d'acqui
 
 Maître Yan Leizi rit et lança un regard chargé de sous-entendus au garçon au grand crâne avant de partir. Le vieil homme qui l'accompagnait le suivit rapidement. Les deux disparurent à l'horizon.
 
-L'expression de Wang Lin était neutre, mais il se détendit intérieurement. Lorsqu'il était entré dans la région occidentale, sous l'influence de la sphère de Luotian, il avait déjà un plan en tête. C'était la raison pour laquelle il avait risqué de sortir la Branche de l'Arbre du Tonnerre du Monde avant la bataille finale: il l'avait utilisée pour gagner leur confiance.
+L'expression de Wang Lin était neutre, mais il se détendit intérieurement. Lorsqu'il était entré dans la région occidentale, sous l'influence de la sphère de Luotian, il avait déjà un plan en tête. C'était la raison pour laquelle il avait risqué de sortir la Branche de l'Arbre du Monde du Tonnerre pendant le combat contre Yu Fei: il l'avait utilisée pour gagner leur confiance.
 
-Parmi les étoiles, l'expression satisfaite de Maître Yan Leizi s'effaça pour laisser place à un visage de marbre, rendant ses pensées impénétrables. Le vieil homme à ses côtés eut une illumination et dit aussitôt: « Seigneur du Temple, de mon point de vue, ce Xu Mu ment manifestement. De plus, ce garçon au grand crâne est l'un des Cieux Célestiaux, mais il est contrôlé par Xu Mu! À mon avis... »
+Parmi les étoiles, l'expression satisfaite de Maître Yan Leizi s'effaça pour laisser place à un visage de marbre, rendant ses pensées impénétrables. Le vieil homme à ses côtés eut une illumination et dit aussitôt: « Seigneur du Temple, de mon point de vue, ce Xu Mu ment manifestement. De plus, ce garçon au grand crâne est l'un des Célestes Divins, mais il est contrôlé par Xu Mu! À mon avis... »
 
 Maître Yan Leizi se retourna et lança un regard glacial au vieil homme. Devant cette menace, le corps de ce dernier trembla et il s'empressa d'avaler la fin de sa phrase.
 
@@ -52,7 +52,7 @@ La poussière avait été balayée par les eaux, et le ruissellement creusait de
 
 Le bruit des gouttes frappant les branches et les feuilles résonnait partout. L'eau glissait le long des limbes pour se condenser en un point à leur base, tombant en fins filets tels une voie lactée. De nombreuses bêtes féroces cherchaient un abri pour échapper à ce déluge; seules quelques petites bêtes aimant l'eau se faufilaient sous la pluie durant cette interminable saison des pluies.
 
-La montagne où se trouvait Wang Lin se dressait fièrement sous l'averse. Le garçon au grand crâne fixait la pluie, plongé dans une profonde réflexion.
+La montagne où se trouvait Wang Lin se dressait, toute droite, sous l'averse. Le garçon au grand crâne fixait la pluie, plongé dans une profonde réflexion.
 
 Les restrictions de la montagne n'empêchaient pas la pluie de tomber; par conséquent, le sommet était lui aussi noyé sous l'eau. En regardant la pluie, le garçon se remémora son enfance. À cette époque, il passait déjà de longs moments à contempler la pluie, l'esprit ailleurs.
 
@@ -76,7 +76,7 @@ Une planète autrefois riche en énergie spirituelle fut à moitié dévastée p
 
 Ce territoire était situé loin du Clan des Immortels Délaissés, ce qui garantissait leur sécurité. Lei Ji n'avait trouvé aucun moyen de rendre cette faveur, si ce n'est en saisissant sa hache de guerre pour massacrer lui-même le Clan des Immortels Délaissés. Il avait rapporté leurs têtes pour honorer Ye Wuyou!
 
-En contemplant son passé, Lei Ji éprouva du regret. Il n'était pas aussi stupide qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte des Cadavres avait duré trop longtemps, embrumant son esprit.
+En contemplant son passé, Lei Ji fut saisi d'émotion. Il n'était pas aussi stupide qu'il en avait l'air; au contraire, il était extrêmement rusé. Ses dizaines de milliers d'années d'existence lui avaient appris bien des choses. C'était simplement que son emprisonnement par la Secte des Cadavres avait duré trop longtemps, embrumant son esprit.
 
 C'est précisément cette ruse qui avait poussé Lei Ji à accepter sans hésiter de devenir la monture de Wang Lin. Après l'avoir observé, il s'était dit que s'il suivait cet homme, il pourrait peut-être un jour retourner sur la Planète du Géant Démon pour accomplir sa vengeance!
 

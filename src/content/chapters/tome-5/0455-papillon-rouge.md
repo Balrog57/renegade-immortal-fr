@@ -58,7 +58,7 @@ La lame en forme de demi-lune était singulière. Grâce à son Sens Divin, il r
 
 Les trois individus volaient à leur vitesse maximale. Après le temps de brûler trois bâtons d'encens, la limite de la zone des bassins apparut à l'horizon. Les yeux de Wang Lin s'illuminèrent et il utilisa immédiatement la téléportation. Lorsqu'il réapparut, il se trouvait déjà à la lisière de la zone. Dès son apparition, il s'élança sans marquer la moindre pause.
 
-Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, hésita également avant de choisir une autre direction et de se séparer de Zhou Wutai.
+Zhou Wutai hésita un instant avant de suivre Wang Lin. La femme, elle, choisit aussitôt une autre direction et de se séparer de Zhou Wutai.
 
 Toutes les épées du trésor s'arrêtèrent là; seule la lame en forme de demi-lune poursuivit sa course, sortant de la zone des bassins sans ralentir.
 
@@ -120,6 +120,6 @@ Et comme Xu Liguo était un démon, il n'était pas facile à détruire. Pour l'
 
 Après avoir rangé l'épée céleste, il regarda la montagne arc-en-ciel au loin et s'apprêta à s'y diriger. Cependant, à cet instant précis, son expression changea et il se retourna vers une montagne voisine. Là, il aperçut une silhouette rouge. Cette figure était empreinte de vide et de solitude.
 
-Elle se tenait là, tel un papillon rouge voulant s'envoler avec le vent, mais condamné à rester.
+Elle se tenait là, tel un papillon rouge voulant s'envoler avec le vent, mais contrainte de rester dans la poussière du monde.
 
 « Papillon Rouge! »

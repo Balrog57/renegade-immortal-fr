@@ -7,7 +7,7 @@ en: Chapter 190 - The Ancient Gods Inheritance (part 4)
 slug: lheritage-du-dieu-ancien-partie-4
 ---
 
-Dans le corps du Dieu Ancien, des cultivateurs démoniaques fouillaient presque chaque recoin de son immense anatomie. Bien que la tâche fût laborieuse pour eux, ils connaissaient parfaitement les lieux, y compris Meng Tuozi. Ils ne craignaient même pas les ondes de Qi; certains s'y précipitaient même pour poursuivre leurs recherches.
+Dans le corps du Dieu Ancien, des cultivateurs démoniaques fouillaient presque chaque recoin de son immense anatomie. Bien que la tâche fût laborieuse pour eux, ils connaissaient parfaitement les lieux, y compris Bossu Meng. Ils ne craignaient même pas les ondes de Qi; certains s'y précipitaient même pour poursuivre leurs recherches.
 
 Malgré leurs efforts, ils ne trouvaient rien. Pourtant, aucun des cultivateurs démoniaques ne renonçait, car la découverte ou non du Dévoreur d'Âmes conditionnait directement leur avenir.
 
@@ -33,7 +33,7 @@ Wang Lin s'enfonça rapidement dans le sol pour atteindre l'endroit où reposait
 
 Mais soudain, après d'innombrables années de sommeil, le bébé ouvrit les yeux. Le liquide doré qui l'entourait se rétracta brusquement, absorbé par l'enfant alors qu'il commençait à grandir. Ce qui suivit fut une véritable calamité. Wang Lin vit le bébé devenir un adolescent. D'un seul mouvement, l'adolescent fit mourir toute la végétation de la planète, laquelle se mua en un liquide vert s'engouffrant vers le noyau pour être absorbée par lui.
 
-Le processus dura une éternité...
+Le processus dura très longtemps...
 
 Quelles que soient les recherches des cultivateurs, ils ne trouvaient rien. C'était comme si quelque chose les aveuglait; ils ne parvenaient pas à comprendre où passait toute l'essence végétale. Peu après, ce fut au tour de l'énergie spirituelle: elle disparut intégralement en un temps record, laissant la planète exsangue. Les cultivateurs n'eurent d'autre choix que de migrer.
 
@@ -61,7 +61,7 @@ Quant à la progéniture des Dieux Anciens, elle était élevée avec une cruaut
 
 Wang Lin prit une profonde inspiration. Selon ces souvenirs, il comprit qu'il n'y avait ni trésors magiques ni résidus de pilules; tout cela n'était que des inventions de personnes mal informées ou aux motifs cachés. En utilisant les souvenirs acquis et sa connexion avec le corps du Dieu Ancien, il découvrit que l'héritage de puissance avait déjà été récupéré par quelqu'un, il y a des dizaines de milliers d'années.
 
-L'urgence pour Wang Lin était de trouver un moyen de quitter le corps du Dieu Ancien. Les souvenirs contenaient la réponse, mais celle-ci le laissa impuissant. Pour une personne ordinaire, sortir d'ici était presque impossible, mais pour un successeur, c'était d'une simplicité déconcertante: il suffisait d'être dans la Mer de la Connaissance du Dieu Ancien et de laisser parler son cœur pour partir.
+L'urgence pour Wang Lin était de trouver un moyen de quitter le corps du Dieu Ancien. Les souvenirs contenaient la réponse, mais celle-ci le laissa impuissant. Pour une personne ordinaire, sortir d'ici était presque impossible, mais pour un successeur, c'était d'une simplicité déconcertante: il suffisait de se trouver dans la Mer de la Connaissance du Dieu Ancien et d'obéir à un simple élan du cœur pour partir.
 
 Si Wang Lin était entré dans la Mer de la Connaissance de manière conventionnelle en obtenant la mémoire héritée, tout aurait été simple. Mais ayant acquis une partie de cette mémoire par une méthode alternative, il devait impérativement se rendre à la Mer de la Connaissance. Auparavant, il ignorait la difficulté de cette entreprise, mais désormais, grâce à ce qu'il avait reçu, on pouvait dire que dans la Terre du Dieu Ancien, personne ne pouvait rivaliser avec sa maîtrise de la Mer de la Connaissance.
 

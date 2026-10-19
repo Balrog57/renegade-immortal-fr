@@ -62,7 +62,7 @@ En entendant les paroles du vieil homme, le jeune homme en pourpre fut stupéfai
 
 « Je vais te faire l'honneur, alors dégage d'ici immédiatement et ne reviens jamais! » La voix glaciale de Wang Lin frappa l'ancien comme un vent glacial.
 
-Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre de la Secte de l'Origine, il demeurait un cultivateur au stade intermédiaire de la Purification du Nirvana. Ne pouvant réellement percer le niveau de culture de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
+Le visage du vieil homme s'assombrit instantanément. Bien qu'il fût moins puissant que l'ancêtre de la Secte de l'Origine, il demeurait un cultivateur au stade intermédiaire du Purificateur du Nirvana. Ne pouvant réellement percer le niveau de culture de l'autre, il avait fait preuve de politesse, mais il ne s'attendait pas à une telle arrogance.
 
 « Quel ton arrogant. Même lorsque l'ancêtre de la Secte de l'Origine a affronté notre Secte du Dao Pourpre, il a dû... » Avant que le vieil homme ne puisse achever sa phrase, le jeune homme en pourpre derrière lui éclata de rire.
 
@@ -102,7 +102,7 @@ Un fracas assourdissant retentit et le cristal de glace vola en éclats sanglant
 
 Tout cela se produisit en quelques respirations! Une exécution instantanée!
 
-Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour qu'un cultivateur domine le monde de la cultivation. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur de la fin de la Purification du Nirvana s'il ne mourait pas sur le coup!
+Jusque dans la mort, le vieil homme ne put croire qu'il avait été tué si rapidement! Pourtant, sa fin n'avait rien d'illogique. Que ce soit l'énergie de massacre ou l'invocation de la pluie, ces sorts étaient assez puissants pour qu'un cultivateur domine le monde de la cultivation. De plus, l'attaque provenant du trésor de Pseudo-Vide du Nirvana était suffisante pour arracher une couche de peau à un cultivateur de la fin du Purificateur du Nirvana s'il ne mourait pas sur le coup!
 
 Sans même mentionner l'expérience de combat de Wang Lin, Song Wude n'était pas mort des mains d'un inconnu quelconque!
 

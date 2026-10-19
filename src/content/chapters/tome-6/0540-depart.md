@@ -22,7 +22,7 @@ Cependant, ce garçon ne maîtrisait pas la technique de raffinage corporel, ce 
 
 Il leva sa main droite et s'assit. Après un instant, ses yeux brillèrent, et son âme originelle jaillit pour pénétrer le front de Treize.
 
-Comparer l'âme de Treize à celle de Wang Lin revenait à comparer une luciole au soleil. Wang Lin perçut sans effort les souvenirs de Treize de l'année écoulée.
+Comparer l'âme de Treize à celle de Wang Lin revenait à comparer une luciole à la pleine lune. Wang Lin perçut sans effort les souvenirs de Treize de l'année écoulée.
 
 Il vit Treize endurer des douleurs que des êtres normaux ne pourraient supporter, et il subissait ce supplice chaque nuit. Il supportait la souffrance d'essayer d'absorber l'énergie spirituelle démoniaque alors que tous ses méridiens étaient brisés, puis la douleur de cette énergie pénétrant sa chair. La sensation était celle de millions de petits insectes rongeant son corps de l'intérieur.
 
@@ -50,7 +50,7 @@ Le corps de Treize trembla. Il respectait tant Wang Lin qu'il lui raconta prompt
 
 Wang Lin hocha discrètement la tête, mais son visage resta impassible tandis qu'il disait lentement: « Treize, toute cette énergie spirituelle démoniaque est inutile sans tes méridiens pour la faire circuler. Si tu en accumules trop dans ton corps, tu mourras à coup sûr! »
 
-Le visage de Treize pâlit et il esquissa un sourire pitoyable. Il prit une profonde inspiration et dit: « Ancêtre, Treize ne veut pas devenir un être inutile... Je savais que collecter cette énergie n'était probablement pas une bonne idée. Cependant, c'était le seul moyen pour moi de sentir que je n'étais pas sans valeur. J'ai de l'énergie spirituelle démoniaque, comme tout le monde... »
+Le visage de Treize pâlit et il esquissa un sourire pitoyable. Il prit une profonde inspiration et dit: « Ancêtre, Treize ne veut pas devenir un être inutile... Je savais que collecter cette énergie n'était probablement pas une bonne idée. Cependant, c'était le seul moyen pour moi de sentir que je n'étais pas sans valeur. J'ai moi aussi de l'énergie spirituelle démoniaque... »
 
 Finalement, la voix de Treize s'affaiblit et il serra les poings.
 
@@ -62,11 +62,11 @@ Le corps de Treize trembla violemment. Son visage fut illuminé par la joie. San
 
 « Ancêtre, Treize ne vous décevra absolument pas! » Treize regarda Wang Lin avec une détermination qu'il n'avait jamais manifestée auparavant.
 
-Wang Lin réfléchit encore un instant, puis toucha sa sacoche de stockage. Il en sortit un morceau de jade, le pressa contre son front pour y imprimer des informations, puis le lança à Treize. « Tu possèdes de l'énergie spirituelle démoniaque dans ton corps, tu devrais donc être capable de voir à l'intérieur. »
+Wang Lin réfléchit encore un instant, puis toucha sa sacoche de stockage. Il en sortit un morceau de jade, le pressa contre son front pour y imprimer des informations, puis le lança à Treize. « Tu possèdes de l'énergie spirituelle démoniaque dans ton corps : garde ce jade contre ta peau, tu devrais pouvoir le consulter. »
 
 En recevant le jade, l'excitation qui fit vibrer le cœur de Treize fut indescriptible. Il se prosterna plusieurs fois avant de s'éclipser.
 
-Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait organisé tout ce qu'il savait sur le Clan du Démon Géant pour le lui transmettre.
+Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fin de compte, il n'avait pas transmis la Tactique de l'Ancien Dieu à Treize. À la place, il avait résumé une partie de ce qu'il savait sur le Clan du Démon Géant pour le lui transmettre.
 
 « S'il parvient à maîtriser la méthode de raffinement corporel du Clan du Démon Géant, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
 

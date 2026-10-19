@@ -12,13 +12,13 @@ Zhou Wutai partit avec la bouteille de vin à moitié vide et laissa le jade der
 
 Wang Lin réfléchit un instant, puis scruta le jade de son Sens Divin. Au fil des instants, son expression devint de plus en plus sombre.
 
-« Le dao de Liu Mei… Le Domaine de la Cruauté aux Mille Changements… Caché sous des milliers d'émotions changeantes se trouve un cœur impitoyable. Je l'avais déjà remarqué à l'époque, mais si Liu Mei continue de s'immiscer dans mes affaires, j'ai bien un moyen de m'occuper d'elle! » Wang Lin broya le jade entre ses doigts.
+« Le dao de Liu Mei… Le Domaine de la Cruauté des Mille Illusions… Caché sous des milliers d'émotions changeantes se trouve un cœur impitoyable. Je l'avais déjà remarqué à l'époque, mais si Liu Mei continue de s'immiscer dans mes affaires, j'ai bien un moyen de m'occuper d'elle! » Wang Lin broya le jade entre ses doigts.
 
 Il se leva, entra dans l'ancien réseau de transfert, l'activa et disparut.
 
 Le pays de Chu était la nation la plus proche du Clan des Immortels Délaissés. Il y avait naturellement de nombreux membres de ce clan ici.
 
-La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels Délaissés depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs portaient des tatouages imprimés sur leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches des sectes de cultivateurs avaient été touchés accidentellement par les sorts lors des assauts du Clan des Immortels Délaissés.
+La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels Délaissés depuis bien longtemps; cela s'était produit dès leur apparition. Tous les cultivateurs de la secte portaient des tatouages implantés dans leur corps. Les mortels avaient eu de la chance et n'avaient pas été trop affectés; seuls quelques villages trop proches des sectes de cultivateurs avaient été touchés accidentellement par les sorts lors des assauts du Clan des Immortels Délaissés.
 
 Hormis le fait de ravir les enfants capables de cultiver, le Clan des Immortels Délaissés ne tuait pas les mortels.
 
@@ -40,7 +40,7 @@ Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. 
 
 Wang Lin ne se rendit pas à la Secte du Ciel Nuageux, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une aide, mais risquerait fort d'attirer le massacre du Clan des Immortels Délaissés.
 
-Wang Lin croisa de nombreux membres du Clan des Immortels Délaissés en survolant le Chu. Cependant, la plupart d'entre eux étaient au stade des quatre feuilles et très peu atteignaient celui des cinq feuilles.
+Wang Lin croisa de nombreux membres du Clan des Immortels Délaissés en survolant le Chu. Cependant, la plupart d'entre eux étaient au stade des quatre feuilles ou moins, et très peu atteignaient celui des cinq feuilles.
 
 Initialement, Wang Lin voulait quitter ces lieux pour se rendre sur le champ de bataille étranger afin de rassembler des âmes errantes, mais à cet instant, son cœur trembla.
 
@@ -50,11 +50,11 @@ Initialement, Wang Lin voulait quitter ces lieux pour se rendre sur le champ de 
 
 Il vola à toute allure et, en un clin d'œil, arriva au-dessus de l'orifice menant à la Nécropole Immortelle. L'aura de la plante était encore plus puissante de près. Elle était si immense qu'elle recouvrait entièrement l'entrée de la Nécropole. Wang Lin ne semblait qu'une insignifiante fourmi face à cette plante.
 
-En contemplant ce végétal gigantesque, il eut soudain une pensée. Il agita alors sa main droite et se dissimula.
+En contemplant ce végétal gigantesque, il eut soudain une pensée. Il forma alors un sceau de la main droite et se dissimula.
 
 Peu après, une lueur fantomatique émana de la plante tandis qu'un chaman aux cinq feuilles en émergeait. Celui-ci se transforma en un nuage noir et s'envola au loin.
 
-Une fois celui-ci parti, Wang Lin réapparut. Ses yeux brillèrent et il pointa la plante du doigt. Un rayon d'énergie spirituelle jaillit vers l'immense végétal. Au moment où l'énergie toucha la plante, celle-ci se désintégra en une multitude de poussières dorées.
+Une fois celui-ci parti, Wang Lin réapparut. Ses yeux brillèrent et il pointa la plante du doigt. Un rayon d'énergie spirituelle jaillit vers l'immense végétal. Au contact de la plante, l'énergie se brisa aussitôt en une multitude d'éclats cristallins qui se dispersèrent.
 
 « Intéressant! » Wang Lin ricana. Il frappa son sac de rangement et en sortit une sculpture sur bois. La tenant en main, il murmura: « Conversion! »
 
@@ -92,7 +92,7 @@ Le vent sifflait à ses oreilles alors qu'il s'élançait dans le trou. Dès qu'
 
 L'entrée au stade précoce de la Transformation de l'Âme avait étendu son Sens Divin et sa portée de téléportation. En une seule impulsion, il arriva à l'entrée de la deuxième couche. Il scruta toute la première couche et ne trouva que quelques chamans, tous seulement au stade des trois feuilles.
 
-Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait attendu avec l'Ancien du Pavillon de Raffinement des Trésors la croissance du Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
+Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait, avec l'Ancien du Pavillon de Raffinement des Trésors, condensé le Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
 
 Après avoir inspecté les lieux, Wang Lin disparut de nouveau. Cette fois, il réapparut devant l'entrée de la quatrième couche. En voyant cela, son expression changea légèrement et il se dissimula promptement.
 

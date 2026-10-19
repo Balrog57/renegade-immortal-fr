@@ -20,7 +20,7 @@ Tout le Royaume Extérieur commença à se mobiliser. Ils attendaient, attendant
 
 Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont le Maître du Dao Rêve Bleu avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
 
-Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué l'estimé Nan Zhao, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant sa trace inconnue!
+Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué l'estimé Nan Zhao, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant son sort incertain entre la vie et la mort!
 
 C'était cet homme qui avait libéré l'océan de poison et les bêtes-moustiques, devenant un véritable cauchemar pour les cultivateurs du Royaume Extérieur!
 
@@ -64,7 +64,7 @@ La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi
 
 Après cette bataille, le nom de « Seigneur du Royaume Scellé Wang Lin » s'était propagé dans tout le Royaume Intérieur. Presque toutes les régions connaissaient les exploits du Seigneur du Royaume Scellé lors de ce combat!
 
-Il avait tué l'ancêtre de troisième étape du Clan des Hirondelles de Feu, il avait tué l'estimé Nan Zhao, cultivateur de troisième étape du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
+Il avait tué l'ancêtre du Clan des Hirondelles de Feu, il avait tué l'estimé Nan Zhao, cultivateur du Royaume Extérieur, et il avait tué l'avatar du Grand Maître Yun Luo!
 
 Avec sa hache, il avait stoppé la troisième armée d'invasion du Royaume Extérieur et fait en sorte que des dizaines de milliers de cultivateurs n'osent faire le moindre pas dans le Royaume Intérieur!
 
@@ -90,7 +90,7 @@ Maître Lu Fu croyait que le Seigneur du Royaume Scellé était toujours vivant!
 
 Xi Zifeng de Luotian et Xie Qing de la planète Ling Dong croyaient aussi que leur maître était toujours en vie!
 
-Shengong Hu et Zhan Konglei le croyaient également!
+Shengong Hu et Zhan Konglie le croyaient également!
 
 Les marques d'esclavage de l'estimée Ling Dong et de Zhou Jin ne s'étaient pas estompées, et la présence massive de bêtes-moustiques empoisonnées dans le Système Stellaire de la Mer des Nuages renforçait la conviction de beaucoup que le Seigneur du Royaume Scellé était toujours vivant!
 

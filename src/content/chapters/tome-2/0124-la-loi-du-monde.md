@@ -78,7 +78,7 @@ Xu Hao et Ge Yang avaient été particulièrement malchanceux. Juste après avoi
 
 Face à une telle détermination, leur survie était impossible. Ils furent rapidement dévorés. Comme ils n'avaient pas eu le temps de fouiller le sac de Ma Liang, cela signifiait au moins que son butin était intact.
 
-En examinant les trois sacs de rangement, Wang Lin fut stupéfait. Pierres spirituelles, trésors magiques ou matériaux rares: tout y était. Il fallait dire que cela représentait cinquante ans de travail pour ces deux-là.
+En examinant les trois sacs de rangement, Wang Lin fut stupéfait. Pierres spirituelles, trésors magiques ou matériaux rares: tout y était. Il fallait dire que cela représentait cinquante ans de réserves accumulées par ces deux-là.
 
 Rien qu'en pierres spirituelles de qualité moyenne, ils en possédaient plus de deux mille. Wang Lin prit une pierre et se remémora une formation qu'il avait dépensé tant d'efforts à étudier dans la faille spatiale, dans le manuel de base des formations: la Formation de Destruction de la Carapace de la Tortue Mystérieuse. Cette formation n'avait aucune capacité offensive, mais sa défense était remarquable. C'était aussi l'une des rares parmi les formations de base à pouvoir suivre celui qui la déployait lors de ses déplacements.
 

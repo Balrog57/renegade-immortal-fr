@@ -12,7 +12,7 @@ Dès son apparition, le cœur de Shang Guanmo se mit à battre la chamade. Il se
 
 Li Muwan toucha l'écaille du dragon comme si elle effectuait un calcul. À cet instant, sa peau était comme de la graisse figée, son souffle comme le parfum de l'orchidée ; les yeux concentrés, sa main de jade effleurait l'écaille.
 
-Même les fluctuations de son essence de sang ne l'affectaient pas. Peu à peu, une lueur de compréhension se mit à briller dans ses yeux et elle passa à l'écaille suivante.
+Même les fluctuations de son sang d'essence d'âme ne l'affectaient pas. Peu à peu, une lueur de compréhension se mit à briller dans ses yeux et elle passa à l'écaille suivante.
 
 Wang Lin apparut dans la pièce et s'assit en position du lotus avant de sortir son sac de rangement. Après avoir massacré tous ces cultivateurs, il y avait plus d'une centaine de Noyaux Dorés à l'intérieur de son sac.
 
@@ -92,7 +92,7 @@ Il venait de prendre sa décision et était prêt à passer à l'action lorsqu'i
 
 Le Sens Divin du Royaume Ji de Wang Lin n'aurait pas dû être aussi puissant, mais il avait autrefois été l'un des dévoreurs d'âmes. Même si son sens divin avait changé, la pression et les capacités du dévoreur d'âmes étaient toujours présentes.
 
-Cela faisait de Wang Lin la plus grande faiblesse du démon. Après que celui-ci eut crié un moment, Wang Lin retira son Sens Divin du Royaume Ji. Le démon se tint à l'écart, abattu et sans force. Toute trace de rébellion avait disparu de son visage ; à la place, il affichait une profonde expression de flagornerie.
+Cela faisait de Wang Lin l'ennemi naturel du démon. Après que celui-ci eut crié un moment, Wang Lin retira son Sens Divin du Royaume Ji. Le démon se tint à l'écart, abattu et sans force. Toute trace de rébellion avait disparu de son visage ; à la place, il affichait une profonde expression de flagornerie.
 
 Il ne craignait personne, si ce n'est Wang Lin. Si Wang Lin l'avait maintenu ainsi pendant une demi-heure, son noyau fraîchement formé se serait brisé.
 

@@ -14,7 +14,7 @@ Le problème résidait dans le fait que ces volcans paraissaient trop réels. D'
 
 Cette frontière ténue entre le vrai et le faux suffisait à faire vaciller tout cultivateur inférieur au stade du Briseur du Nirvana. Même les cultivateurs du Briseur du Nirvana y auraient été sensibles. Après tout, il s'agissait du premier des trois derniers sorts de l'Empereur Céleste Bai Fan.
 
-Montagnes S'Écroulent!
+Effondrement des Montagnes!
 
 La colère qui bouillonnait dans le cœur de Wang Lin se manifesta sous la forme de ces volcans alors qu'il traquait la bête-moustique. Ces créatures dégageaient une odeur unique que seul leur propre clan pouvait détecter. À cet instant, la bête-moustique affichait une expression féroce; l'effluve de ses congénères était si puissante qu'il n'était même pas nécessaire de chercher pour la trouver.
 
@@ -44,11 +44,11 @@ Un groupe de cultivateurs de l'Alliance, ayant reçu l'ordre de se retirer du ch
 
 Ce n'est qu'à ce moment qu'ils entendirent le cri de la bête-moustique, un son dont la portée semblait bien en retard sur la vitesse du monstre. Les visages des cultivateurs se décomposèrent; terrifiés, ils échangèrent un regard avant de fuir les lieux précipitamment.
 
-Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé. Les planètes de culture y étaient rares et, pour la plupart, abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
+Grâce à sa vitesse, la bête ne mit pas longtemps à suivre l'odeur de ses semblables jusqu'à un champ stellaire jonché de débris. Bien qu'il fût situé dans la zone centrale, cet endroit était très reculé. Les planètes y étaient rares, et celles qui existaient étaient abandonnées. En conséquence, presque aucun cultivateur ne s'y aventurait.
 
 En voyant cette étendue de ruines, la bête-moustique poussa un cri strident, ses yeux brillant d'une colère infinie. Elle chargea à travers le champ de débris dans une série de fracas successifs, pulvérisant tout ce qui se dressait sur son passage. La bête fonçait tête baissée dans les profondeurs du chaos, comme possédée par la folie.
 
-À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer des Nuages. Leur Secte de la Porte Céleste pourrait alors les échanger contre des bénéfices inestimables.
+À l'intérieur d'un écran de lumière verte, niché au cœur des décombres, une formation érigée par près de cent cultivateurs touchait à sa fin. Les deux anciens vêtus de pourpre étaient exaltés. Une fois la formation achevée, ils pourraient ramener ces bêtes-moustiques géantes dans le système stellaire de la Mer des Nuages. Leur Secte de la Porte Céleste pourrait alors les échanger contre d'immenses bénéfices.
 
 Leur humeur était excellente tandis qu'ils discutaient; tous leurs soucis s'étaient dissipés à l'approche de l'achèvement. Cependant, soudainement, les bêtes-moustiques géantes qui étaient pourtant apaisées par l'encens commencèrent à hurler. Ce n'était pas une seule créature qui criait, mais toutes; leurs yeux devinrent rouges et elles se mirent à se débattre violemment.
 

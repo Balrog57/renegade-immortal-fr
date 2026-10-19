@@ -10,7 +10,7 @@ Dans le palais impérial du Dao Antique, l'homme vêtu de la robe royale serra l
 
 Derrière lui, le vieil homme n'osait même pas respirer bruyamment. Il était tout aussi stupéfait, mais sous la pression exercée, il ne montrait rien de son trouble.
 
-« J'ai senti l'aura du sang de l'âme... » Une intention meurtrière étincela dans les yeux de l'homme en robe royale. Il nourrissait une intuition depuis des centaines d'années, et celle-ci était comme une épine logée dans son cœur!
+« J'ai senti l'aura du sang de l'âme... » Une intention meurtrière étincela dans les yeux de l'homme en robe royale. Il nourrissait une supposition depuis des centaines d'années, et celle-ci était comme une épine logée dans son cœur!
 
 Après un long silence, l'homme en robe royale ordonna: « Vite, fusionnez ces femmes sélectionnées avec l'âme! »
 
@@ -20,7 +20,7 @@ L'homme en robe royale agita sa manche et disparut.
 
 Dans la partie sud de la ville, devant le Temple du Dao Antique, Wang Lin était entouré par les citoyens du Dao Antique qui le regardaient avec horreur. Il avança vers le temple mais n'y pénétra pas; il disparut simplement devant l'édifice.
 
-Lorsqu'il réapparut, il se trouvait dans la montagne arrière, au sein d'un palais semblable à un paradis. À ses côtés coulait un ruisseau limpide qui serpentait le long d'un sentier rocheux, où des poissons nageaient joyeusement.
+Lorsqu'il réapparut, il se trouvait dans la montagne arrière, au sein d'un lieu semblable à un paradis. À ses côtés coulait un ruisseau limpide qui serpentait le long d'un sentier rocheux, où des poissons nageaient joyeusement.
 
 Près du ruisseau se dressait une hutte, devant laquelle se trouvaient une table et quelques chaises de pierre. Un jeune homme vêtu d'une robe verte était assis sur l'une des chaises. Bien qu'il parût jeune, il dégageait une aura antique, comme s'il avait vécu durant d'innombrables éons.
 
@@ -68,7 +68,7 @@ Il décida de rester ici longtemps. S'il n'y avait pas d'imprévu... il pourrait
 
 Trois jours passèrent en un éclair. Wang Lin resta dans ce paradis, contemplant le lever et le coucher du soleil tout en respirant l'air pur. Au bout de trois jours, il sentit l'appel de Xuan Luo. Il fit un pas et des ondulations se propagèrent dans l'espace. Il disparut alors de cet éden.
 
-Lorsqu'il réapparut, il se trouvait devant le Temple du Dao Antique. C'était le matin du quatrième jour, et la montagne était drapée d'un voile de brume verdâtre. Xuan Luo se tenait devant le temple, et derrière lui se trouvaient neuf personnes.
+Lorsqu'il réapparut, il se trouvait devant le Temple du Dao Antique. C'était le matin du quatrième jour, et la montagne était drapée d'un voile de brume légère. Xuan Luo se tenait devant le temple, et derrière lui se trouvaient neuf personnes.
 
 Parmi ces neuf individus, il y avait sept hommes et deux femmes. Leur culture était extraordinaire; tous les neuf avaient atteint la perfection des vingt-sept étoiles et obtenu le titre de Dao Antique. À l'apparition de Wang Lin, tous leurs regards convergèrent vers lui.
 

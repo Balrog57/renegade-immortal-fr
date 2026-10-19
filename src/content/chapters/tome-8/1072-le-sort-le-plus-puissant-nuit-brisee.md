@@ -8,9 +8,9 @@ slug: le-sort-le-plus-puissant-nuit-brisee
 ---
 Pour la première fois, l'Omniscient fronça légèrement les sourcils. Tout ce qui s'était produit au sein de la Grotte de l'Empereur Céleste avait été intégré à ses calculs. Il savait également que si le voyage dans la grotte semblait simple, chaque étape recelait des plans laissés par l'Empereur Céleste Qing Lin. En s'y précipitant, l'Omniscient était devenu une pièce du jeu de l'Empereur Céleste. La seule pensée d'être indirectement en compétition avec l'Empereur Céleste Qing Lin faisait battre rapidement son cœur, d'ordinaire si imperturbable.
 
-L'ancien Empereur Céleste était-il réellement omnipotent, ou l'Omniscient était-il un cran au-dessus? Il n'avait pas la réponse, mais cette chance était extrêmement précieuse! Une fois qu'il aurait réussi, son cœur Dao progresserait par bonds prodigieux. La confiance en soi et l'élan de vaincre le plan de l'Empereur Céleste Qing Lin lui permettraient de guérir ses blessures passées et d'atteindre des sommets encore plus élevés!
+L'ancien Empereur Céleste était-il réellement infaillible, ou l'Omniscient était-il un cran au-dessus? Il n'avait pas la réponse, mais cette chance était extrêmement précieuse! Une fois qu'il aurait réussi, son cœur Dao progresserait par bonds prodigieux. La confiance en soi et l'élan de vaincre le plan de l'Empereur Céleste Qing Lin lui permettraient de guérir ses blessures passées et d'atteindre des sommets encore plus élevés!
 
-Même en cas d'échec, cela resterait une fortune pour l'Omniscient. Il pourrait utiliser ce plan qu'il avait élaboré durant d'innombrables années pour comprendre tout ce dont il avait besoin!
+Même en cas d'échec, cela resterait une fortune pour l'Omniscient. Il pourrait utiliser ce duel de calculs, qui s'étend sur d'innombrables années, pour comprendre tout ce dont il avait besoin!
 
 Pour saisir cette opportunité, il était prêt à payer n'importe quel prix. Peu importaient l'Ancien Démon Ta Jia ou l'Alliance de Culture! Même s'il devait provoquer une catastrophe, cela ne freinerait en rien la détermination de son cœur Dao!
 
@@ -20,7 +20,7 @@ Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing L
 
 Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil de l'Oiseau Vermillon de Wang Lin était un événement imprévu pour l'Omniscient. Dès cet instant, il ressentit une certaine pression.
 
-Dans son plan initial, l'Ancien Démon Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
+Dans son plan initial, l'Ancien Démon Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper et chasser tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
 
 Pourtant, l'Omniscient n'aurait jamais imaginé que ce maudit Wang Lin s'éveillerait une seconde fois! Au moment de ce second éveil, d'innombrables variables imprévisibles surgirent dans ses calculs.
 
@@ -30,11 +30,11 @@ Ses yeux se fermèrent soudainement et une lumière aux sept couleurs émana de 
 
 Ces huit couleurs vacillèrent, puis huit avatars distincts, vêtus de robes de couleurs différentes, en sortirent! L'Omniscient vêtu d'une robe grise était l'un d'eux.
 
-Bien que les huit avatars de l'Omniscient se ressemblassent, chacun possédait une aura différente. Ils se dispersèrent immédiatement vers Wang Lin et le Couple Céleste Nuageux. Trois d'entre eux chargèrent vers la voûte céleste qui s'effondrait.
+Bien que les huit avatars de l'Omniscient se ressemblassent, chacun possédait une aura différente. Ils se dispersèrent immédiatement vers Wang Lin, le Couple Céleste Nuageux et les autres cultivateurs. Trois d'entre eux chargèrent vers la voûte céleste qui s'effondrait.
 
 Simultanément, l'Impératrice Fleur fut entourée de lumière stellaire et, dans un fracas retentissant, cette lumière fut repoussée. Elle émergea de l'intérieur des neuf sphères. Bien qu'elles aient considérablement faibli, son expression demeurait sereine.
 
-L'Ancien Démon Ta Jia scruta le ciel avec gravité. Sa main s'étendit et une immense lame noire apparut. Tenant la lame, il ne fit pas face à l'Impératrice Fleur, mais au ciel, et fendit l'air de son épée, projetant un rayon d'énergie tranchante vers les hauteurs.
+L'Ancien Démon Ta Jia scruta le ciel avec gravité. Sa main s'étendit et une lame au dos épais apparut. Tenant la lame, il ne fit pas face à l'Impératrice Fleur, mais au ciel, et fendit l'air de son épée, projetant un rayon d'énergie tranchante vers les hauteurs.
 
 L'Impératrice Fleur esquissa un sourire. Dès que le changement survint dans le ciel, elle sut que les paroles de Qing Lin s'étaient réalisées!
 
@@ -58,7 +58,7 @@ Derrière ces débris, un cri de l'Oiseau Vermillon, faisant trembler les cieux,
 
 Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de lever les yeux. Mais en reculant, il sentit une loi familière apparaître autour de lui.
 
-Cette loi était celle qu'il avait comprise après avoir médité durant plusieurs mois sur le sommet de la montagne de la planète Esprit d'Eau. C'était aussi la puissance de son premier sort créé par lui-même: Nuit Brisée!
+Cette loi était celle qu'il avait comprise en observant le lever du soleil pendant plusieurs mois depuis le sommet de la montagne de la planète Esprit d'Eau. C'était aussi la puissance de son premier sort créé par lui-même: Nuit Brisée!
 
 La nuit brisée née de l'océan!
 

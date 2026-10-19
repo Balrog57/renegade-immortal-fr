@@ -28,13 +28,13 @@ Sun Youcai s'apprêtait à braver le danger pour traverser la paroi volcanique d
 
 Dès qu'il entra dans le volcan, Wang Lin aperçut Sun Youcai, qui contemplait la lave avec effroi.
 
-Wang Lin suivit le regard de l'homme vers la lave et vit des yeux triangulaires. Il prit une profonde inspiration et recula dans le tunnel. Se cachant sans bouger d'un pouce, il fixa ces yeux.
+Wang Lin suivit le regard de l'homme vers la lave et vit des yeux triangulaires. Il prit une profonde inspiration et recula dans le tunnel. Sans bouger d'un pouce, il fixa ces yeux.
 
 D'après les souvenirs de Ma Liang, d'après ce qu'il avait appris durant son enfance, aucune créature ne vivait dans les volcans de Huo Fen. Si une telle chose existait, il aurait été impossible qu'elle échappe à la détection des cultivateurs de la région. Il faut dire que tous les quelques ans, ou presque, les ancêtres des quatre grandes sectes scellaient les volcans par mesure de sécurité.
 
 Au même moment, Sun Youcai sembla être possédé par ce regard. Il descendit de son épée volante et posa ses pieds nus sur le rocher. Dès que sa peau toucha la pierre, une odeur de chair brûlée se propagea.
 
-Il ne fit que trois pas avant que sa chair et sa peau ne soient totalement consumées, révélant des os noircis par les flammes. Pourtant, Sun Youcai ne manifesta aucune souffrance lorsqu'il sauta dans la lave depuis le rebord du rocher.
+Il ne fit que trois pas avant que la plante de ses pieds ne soit totalement consumée, révélant des os noircis par les flammes. Pourtant, Sun Youcai ne manifesta aucune souffrance lorsqu'il sauta dans la lave depuis le rebord du rocher.
 
 Les yeux de Wang Lin s'illuminèrent et il tendit la main. Au moment où Sun Youcai chutait, il attrapa le sac de stockage à sa ceinture et recula prestement sans même jeter un regard derrière lui vers la lave.
 

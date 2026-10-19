@@ -10,7 +10,7 @@ Après l'affrontement entre Wang Lin et Papillon Rouge, le nom de Ceng Niu acqui
 
 Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre Divin, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
-L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de tout le continent Suzaku en dessous du stade de la Transformation de l'Âme.
+L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de toute la planète Suzaku en dessous du stade de la Transformation de l'Âme.
 
 Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait gagné une compréhension lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
@@ -36,7 +36,7 @@ Cependant, à ses yeux, Wang Lin n'était qu'un des fours de culture de Liu Mei.
 
 « Liu Mei, rends-toi à l'extrémité nord du continent Suzaku. Wang Lin s'y trouve... » Après avoir laissé ce message à Liu Mei, le vieil homme retourna en méditation.
 
-Les actions de Xue Yu allaient à l'encontre de sa volonté. Ils seraient sans aucun doute en danger à l'avenir.
+Les actions de Xue Yu allaient à l'encontre de sa volonté. Ils connaîtraient sans aucun doute une grave calamité à l'avenir.
 
 La silhouette de Liu Mei s'éleva du Mont Suzaku et se transforma en un rayon de lumière qui fonça vers la pointe nord du continent.
 

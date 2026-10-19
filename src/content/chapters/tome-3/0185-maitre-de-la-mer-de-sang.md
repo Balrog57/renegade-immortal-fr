@@ -12,7 +12,7 @@ Ses cheveux noirs flottaient derrière sa tête sans qu'un souffle de vent ne le
 
 Ses yeux brillaient d'un rouge intense et fixaient le Seigneur Démon des Six Désirs. Après un long moment, il soupira doucement, puis dit lentement: « Yi Er, tu te souviens encore de ton maître. Très bien. Mais mon nom est désormais le Dieu Démon Tu Si. »
 
-En entendant ces deux mots, le cœur du Seigneur Démon des Six Désirs fut ébranlé; il n'en croyait pas ses yeux. S'il s'était agi d'un simple homme ressemblant à son maître, il n'aurait pas été aussi bouleversé, mais cet individu l'appelait par un surnom que seuls quelques rares initiés connaissaient. Hormis son maître, le Magicien Démon Céleste, qui d'autre pouvait être?
+En entendant ces deux mots, le cœur du Seigneur Démon des Six Désirs fut ébranlé; il n'en croyait pas ses yeux. Il avait déjà été stupéfait en voyant que ce visage était identique à celui de son maître, et cet individu l'appelait désormais par un surnom que seuls quelques rares initiés connaissaient. Hormis son maître, le Magicien Démon Céleste, qui d'autre pouvait être?
 
 Le Seigneur Démon des Six Désirs prit une profonde inspiration. Le visage empreint d'incertitude, il fixa l'homme devant lui et demanda: « Toi... toi, es-tu un humain ou un démon? Pourquoi as-tu été transformé en démon comme le Bossu Meng? Et aussi, il y a mille ans, est-ce que tu... »
 
@@ -84,7 +84,7 @@ Wang Lin était presque à la sortie quand son visage se décomposa. Il perçut 
 
 Alors que le Bossu Meng tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était inférieure à celle des épines. Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
 
-Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le poison du Chaudron du Roi Poison. Ce poison étant originellement son propre trésor, il ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
+Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le poison du Chaudron du Roi Poison. Ce chaudron ayant été autrefois son trésor de vie, le poison ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
 
 Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque du Bossu Meng avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 

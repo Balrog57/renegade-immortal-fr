@@ -18,7 +18,7 @@ Au moment précis de sa disparition, un réseau de transfert apparut dans le bas
 
 Sur la planète Suzaku, sur la place d'une secte, un homme ressemblant à Huanglong discutait en souriant avec quelques cultivateurs de bas niveau lorsqu'il tourna soudainement le regard vers l'horizon. Ce fut l'instant même où le passage vers la 17e couche s'ouvrit.
 
-Après un long moment, il détourna les yeux et pensa: « Peu importe, il n'y a rien qu'il ne puisse voir dans la 17e couche. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite; il ne pourra pas pénétrer dans la 18e. »
+Après un long moment, il détourna les yeux et pensa: « Peu importe, il n'y a rien dans la 17e couche qui ne puisse être montré. La culture de ce petit gars a atteint un point tel qu'il peut percevoir certains secrets. Cependant, la 17e couche est sa limite; il ne pourra pas pénétrer dans la 18e. »
 
 Dans la 16e couche du Cimetière des Immortels, Ta Shan entra dans le réseau de transfert et disparut. Wang Lin attendit un instant pour s'assurer de l'absence de danger avant d'y pénétrer à son tour. Le garçon à la grosse tête, Lei Ji et Yun Quezi s'engouffrèrent rapidement eux aussi dans le dispositif.
 
@@ -26,7 +26,7 @@ La 17e couche du Cimetière des Immortels était plongée dans une obscurité to
 
 Grâce à cette clarté, les environs devinrent visibles!
 
-C'était une zone d'environ mille pieds de large où des chaînes pendaient de partout. Des cadavres étaient suspendus à ces chaînes, et ce que celles-ci dégageaient était de l'énergie spirituelle céleste!
+C'était une zone d'environ mille pieds de large où des chaînes pendaient de partout. Des cadavres étaient suspendus à ces chaînes, et ce que ces corps dégageaient était de l'énergie spirituelle céleste!
 
 Ces corps étaient tous des Célestes!
 
@@ -48,7 +48,7 @@ Heureusement, Wang Lin remarqua ce qui arrivait au garçon et posa sa main droit
 
 Ce dernier contempla les environs avec un profond effroi.
 
-Yun Quezi était tout autre. Il ressentait clairement l'aura de ses ancêtres en ce lieu. Le tatouage sur son corps commença à s'agiter de lui-même; il se rétracta rapidement et débuta sa dégradation!
+Yun Quezi était tout autre. Il ressentait clairement l'aura de son clan en ce lieu. Le tatouage sur son corps commença à s'agiter de lui-même; il se rétracta rapidement et débuta sa dégradation!
 
 Les tatouages sur sa peau mouvaient comme de l'eau courante, comme si une force invisible les pressait pour les concentrer vers la poitrine de Yun Quezi.
 
@@ -62,7 +62,7 @@ Ces corps ressemblaient à des momies, leurs bassins étant transpercés par les
 
 Les dépouilles étaient entassées; il y en avait au moins une centaine!
 
-Des traces de coups de fouet marquaient tous ces corps. Il semblait qu'ils aient tous subi d'innombrables tortures avant de mourir dans la misère.
+Des traces de coups de fouet marquaient tous ces corps. Il semblait qu'ils aient tous subi d'innombrables tortures avant de mourir misérablement.
 
 Des tatouages scintillaient sur leurs peaux. À chaque lueur, l'énergie spirituelle céleste émanant de leurs corps s'intensifiait.
 
@@ -74,7 +74,7 @@ Une telle torture avait engendré une haine absolue envers les Célestes, une ha
 
 « Ceci... » Yun Quezi contemplait la scène, stupéfait, incapable de prononcer le moindre mot pendant un long moment.
 
-« Ce sont des Célestes. De leur vivant, leurs niveaux de culture étaient tous supérieurs aux miens! » Le garçon à la grosse tête, se sentant le plus lié à ce lieu, éprouvait une agitation inexplicable.
+« Ce sont des Célestes. De leur vivant, leurs niveaux de culture étaient tous un peu supérieurs aux miens! » Le garçon à la grosse tête, le plus profondément touché par ce lieu, éprouvait une agitation inexplicable.
 
 Soudain, le bruit de chaînes s'entrechoquant retentit. L'une des momies s'agita et un tatouage brilla avant de pénétrer dans le corps pour s'y fusionner.
 
@@ -88,13 +88,13 @@ Cependant, un phénomène étrange survint brusquement!
 
 Dès que l'énergie du garçon s'activa, elle commença à se disperser et à s'évanouir à une vitesse bien supérieure à ce qu'il avait anticipé. Avant même d'avoir pu lancer son sort, une part immense de son énergie s'était dissipée, le faisant presque perdre la raison.
 
-Voyant la momie approcher, le regard de Wang Lin se fit glacial et il fit un pas en avant. Il pressa son doigt contre le vide, libérant l'énergie d'origine de son corps. Dans un bruit sourd, la momie fut projetée en arrière de plusieurs dizaines de pieds.
+Voyant la momie approcher, le regard de Wang Lin se fit glacial et il fit un pas en avant. Il pressa sa main contre le vide, libérant l'énergie d'origine de son corps. Dans un bruit sourd, la momie fut projetée en arrière de plusieurs dizaines de pieds.
 
 Ta Shan chargea tel un éclair, le poing fermé. Un tatouage apparut sur sa main et, en le voyant, la momie se montra instantanément respectueuse et recula, comme si elle n'osait affronter Ta Shan.
 
 Yun Quezi resta pétrifié par la scène. À cet instant, il eut l'impression d'être frappé par la foudre en se remémorant une rumeur ancienne!
 
-« Ceci... c'est la chambre de torture de mon Clan des Immortels Délaissés! La légende raconte que lorsque le plus ancien ancêtre du clan vint sur la planète Suzaku, il créa une couche au-delà des deux dernières et la nomma la chambre de torture. Quiconque n'appartenait pas à mon clan y était immédiatement tué! Je ne pensais pas que... que cela soit réel! »
+« Ceci... c'est la chambre de torture de mon Clan des Immortels Délaissés! La légende raconte que lorsque le plus ancien ancêtre du clan vint sur la planète Suzaku, il créa une couche au-delà des deux dernières et la nomma la chambre de torture. Quiconque n'appartenait pas à mon clan y était immédiatement tué par les gardes! Je ne pensais pas que... que cela soit réel! »
 
 Alors que la voix de Yun Quezi résonnait, les chaînes s'animèrent de nouveau. À cet instant, tous les cadavres maintenus par les liens ouvrirent les yeux simultanément.
 
@@ -116,7 +116,7 @@ Ce n'était pas la première fois que Wang Lin faisait face à ce type de sceau;
 
 Le vent noir rugissait tandis que les deux dragons noirs balayaient les flancs, capturant d'innombrables momies comme si elles étaient ligotées. Certains cadavres s'effondrèrent purement et simplement!
 
-La silhouette de Wang Lin apparut aux côtés de l'une des momies. Ses yeux étaient impitoyables alors qu'il pressait son doigt chargé d'intention de tonnerre. Sous la pression de son doigt, d'innombrables éclairs surgirent du vide pour converger vers lui. Le doigt de Wang Lin percuta le crâne de la momie.
+La silhouette de Wang Lin apparut aux côtés de l'une des momies. Ses yeux étaient impitoyables alors qu'il pressait ses deux doigts chargés d'intention de tonnerre. Sous la pression de ses doigts, d'innombrables éclairs surgirent du vide pour converger vers lui. Les doigts de Wang Lin percutèrent le crâne de la momie.
 
 Le corps de la dépouille trembla violemment et ses yeux vides retrouvèrent un bref instant de clarté. Une pointe de soulagement passa par elle avant que son corps ne s'effondre et ne disparaisse.
 

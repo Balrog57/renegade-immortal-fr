@@ -78,7 +78,7 @@ Une fois les trois fragments de la carte fusionnés, Wang Lin comprit que Huo Fe
 
 S'il voulait retourner à Zhao, il devrait traverser cette Mer des Démons, réputée être peuplée de cultivateurs démoniaques.
 
-La carte ne contenait que quelques détails sur la Mer des Démons. Elle indiquait simplement qu'il s'agissait d'un lieu extrêmement périlleux où même les cultivateurs de l'Âme Naissante n'osaient s'aventurer sans prudence.
+La carte ne contenait que quelques détails sur la Mer des Démons. Elle indiquait simplement qu'il s'agissait d'un lieu extrêmement périlleux où même les cultivateurs de l'Âme Naissante n'osaient s'y aventurer à la légère.
 
 La carte précisait également que la Mer des Démons n'était plus une véritable mer. Dans l'Antiquité, un puissant cultivateur avait fait évaporer l'océan pour éliminer son ennemi.
 
@@ -172,7 +172,7 @@ Wang Lin utilisa la technique d'évasion tellurique pendant trois jours consécu
 
 Plus important encore, Li Muwan connaissait un peu cette technique d'évasion tellurique. À moins d'atteindre la Formation du Noyau, il était impossible pour un cultivateur de l'utiliser pendant trois jours sans interruption. Elle devint très curieuse au sujet du liquide que Wang Lin buvait dès qu'il manquait d'énergie spirituelle.
 
-En entendant les paroles de Wang Lin, son visage pâlit davantage. Avec toute son intelligence, comment ne pas percevoir le sens caché de cette question? S'il parvenait à la sauver, il pourrait lui offrir une issue, comme attirer les bêtes ailleurs.
+En entendant les paroles de Wang Lin, son visage pâlit davantage. Avec toute son intelligence, comment ne pas percevoir le sens caché de cette question? Si elle parvenait à la fabriquer, il pourrait lui laisser une chance, comme attirer les bêtes ailleurs.
 
 Mais si elle échouait, elle était certaine que ce jeune homme froid lui arracherait sa pilule semi-finie et l'abandonnerait sur place.
 

@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 41 - Centipede
 slug: centipede
 ---
-Les disciples de la Secte Xuan Dao évaluaient également, en secret, les disciples de la Secte Heng Yue, en particulier ceux ayant atteint le 6ème niveau ou plus. L'allure de Wang Zhuo et sa culture au sommet du 5ème niveau avaient également marqué l'esprit des disciples de la Secte Xuan Dao.
+Les disciples de la Secte Xuan Dao évaluaient également, en secret, les disciples de la Secte Heng Yue, en particulier ceux du 6ème niveau, vêtus de noir. L'allure de Wang Zhuo et sa culture au 5ème niveau avaient également marqué l'esprit des disciples de la Secte Xuan Dao.
 
 Quant à Wang Lin, n'étant qu'au 3ème niveau, ils l'ignoraient totalement.
 
@@ -28,7 +28,7 @@ Sur cette pensée, il eut un rire et dit: « Ami Ouyang, vos disciples doivent �
 
 Les trois anciens de la Secte Xuan Dao hochèrent la tête et le suivirent dans la salle principale.
 
-Les anciens de la Secte Heng Yue emboîtèrent leur pas. L'Ancien Dao Xu fut le dernier à entrer. Il se tourna vers les disciples et lança: « Wang Zhuo, tu es chargé de veiller sur les disciples de la Secte Xuan Dao. Si un problème survient, ton maître ne te pardonnera pas! »
+Les anciens de la Secte Heng Yue emboîtèrent leur pas. L'Ancien Dao Xu fut le dernier à entrer. Il se tourna vers les disciples et lança: « Wang Zhuo, tu es chargé de veiller sur les disciples de la Secte Xuan Dao. Si un problème survient, je ne t'épargnerai pas! »
 
 Wang Zhuo semblait s'y attendre. Il répondit respectueusement: « Maître n'a aucune inquiétude à avoir. Je prendrai grand soin de nos frères et sœurs de la Secte Xuan Dao. »
 

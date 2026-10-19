@@ -16,7 +16,7 @@ Il y a quelque temps, un messager du Temple Céleste du Tonnerre avait été sce
 
 La main de Wang Lin traça un sceau et, d'un geste du doigt, il dissipa la restriction sur les trois drapeaux. À l'instant où celle-ci disparut, l'âme originelle scellée du messager s'échappa. Ses yeux étaient empreints de terreur et il tenta de se téléporter dès qu'il fut libre.
 
-Le regard de Wang Lin devint glacial et il frappa son sac de rangement. Le drapeau des un milliard d'âmes vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
+Le regard de Wang Lin devint glacial et il frappa son sac de rangement. Le drapeau d'âme du milliard d'âmes vola hors du sac et se mua en un immense nuage noir qui dévora l'âme originelle du messager du Temple Céleste du Tonnerre.
 
 « Ne me tuez pas, Camarade Cultivateur! Je vous offrirai un trésor de grande valeur en échange de ma vie, un trésor précieux! » Le messager se débattit à l'intérieur du nuage noir en implorant la clémence.
 
@@ -30,7 +30,7 @@ Le visage de Wang Lin ne trahissait aucune émotion tandis que sa main droite fo
 
 « C'est un rare trésor protecteur! » Après le temps nécessaire pour que la moitié d'un bâton d'encens brûle, les yeux de Wang Lin s'illuminèrent. Il lança les trois drapeaux en l'air, qui se mirent à tourner rapidement autour de lui. Un vortex violet se forma, offrant un certain degré de protection.
 
-L'énergie originelle du corps de Wang Lin jaillit dans le vortex violet, provoquant un changement radical. Le vortex accéléra de plusieurs fois et une brume pourpre apparut. Bientôt, le corps entier de Wang Lin fut complètement dissimulé par cette brume.
+L'énergie originelle du corps de Wang Lin jaillit dans le vortex violet, provoquant un changement radical. Le vortex accéléra de plusieurs fois et une brume violette apparut. Bientôt, le corps entier de Wang Lin fut complètement dissimulé par cette brume.
 
 Après trois respirations, la brume se dissipa. Wang Lin agita la main droite et les trois drapeaux furent replacés dans son sac.
 

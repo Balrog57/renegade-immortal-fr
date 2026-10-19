@@ -14,7 +14,7 @@ Le changement intérieur provoqua également un bouleversement à l'extérieur.
 
 Dès l'apparition de la faille, la brume fut aspirée vers elle. Celle-ci semblait exercer une force d'aspiration colossale, engloutissant tout sur son passage. En un éclair, plus de la moitié fut absorbée, et le reste continuait d'être rapidement happé par la faille.
 
-Non loin de la Tombe de l'Ordre Antique, sur une planète de culture desséchée et morte, le corps principal de Grande Désolation ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il avait toujours aimé rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
+Non loin de la Tombe de l'Ordre Antique, sur une planète de culture desséchée et morte, le corps principal de Grande Désolation, dont l'âme divisée venait d'être anéantie, ouvrit les yeux. Son visage était pâle et son regard empreint d'une cruauté sans nom. Durant sa vie, il ne cultiva que pour lui-même et aimait rompre ses promesses, mais tous ceux qui connaissaient cette habitude étaient morts, ce qui évitait que sa réputation ne se propage.
 
 Bien qu'il eût entretenu une certaine amitié avec la deuxième génération de l'Oiseau Vermillon, comment cela pouvait-il rivaliser avec les bénéfices? C'était en raison de son tempérament qu'il n'avait aucun véritable ami après des dizaines de milliers d'années de culture. Il laissa échapper un reniflement froid et son corps disparut. Il réapparut aussitôt devant la brume qui était aspirée avec rapidité.
 
@@ -62,7 +62,7 @@ Maître du Dao Miao Yin regarda l'homme en robe noire et demanda: « Divinez-vou
 
 Le Maître Démon des Neuf Cieux sourit et joignit les mains en signe de respect: « Il semble que vos blessures soient presque guéries. Si un accident survient, nous ne manquerons pas de vous solliciter. » Sans aucune hésitation, le Maître Démon des Neuf Cieux s'élança dans la faille. Celle-ci resta là, flottante. La silhouette floue en noir resta immobile et poussa un long soupir après un long moment.
 
-« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcanique Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système des Anciennes Étoiles... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
+« J'espère que rien ne se passera... Deux des cinq maîtres: Vide Arcane Grande Désolation, Zhou Jin, ainsi que les deux concubines de l'Immortel Vénérable de la haute antiquité. Ils représentent 30 % de la puissance de mon Système Stellaire Antique... Tous sont entrés dans la Tombe de l'Ordre Antique... Je suis inquiet... »
 
 À l'intérieur de la Tombe de l'Ordre Antique, les deux bras gigantesques avaient balayé l'espace et détruit la première plateforme de rang 9, tout en ouvrant une faille vers un autre monde.
 
@@ -80,7 +80,7 @@ Ce palais semblait aussi vaste que le ciel étoilé, rendant sa limite presque i
 
 Cette sensation funeste provenait des quatre rangées de cadavres de cultivateurs! Chaque rangée comptait près de mille individus. Ils se tenaient là, le sang suintant de leurs orifices. Leurs yeux étaient ouverts, injectés d'une intention meurtrière.
 
-Les vêtements de ces êtres étaient extrêmement étranges et différaient totalement de tout ce que Wang Lin avait vu jusqu'alors. Leurs habits semblaient faits d'eau courante, comme s'ils étaient vivants. Wang Lin n'avait aperçu de tels vêtements qu'au sein du Clan du Tonnerre Dispersé, à travers des images du passé. Des flammes vertes brûlaient au-dessus de leurs têtes, crépitant dans le silence du palais.
+Les vêtements de ces êtres étaient extrêmement étranges et différaient totalement de tout ce que Wang Lin avait vu jusqu'alors. Leurs habits semblaient faits d'eau courante, comme s'ils étaient vivants. Wang Lin n'avait aperçu de tels vêtements que sur les étrangers d'autrefois, au sein du Clan du Tonnerre Dispersé, dans les images du passé qu'il avait vues en recueillant la foudre impérissable. Des flammes vertes brûlaient au-dessus de leurs têtes, crépitant dans le silence du palais.
 
 « Des lampes humaines... » Wang Lin flottait dans le palais, observant ces cultivateurs. Ces êtres étaient devenus la source de lumière du lieu: leurs cadavres et leurs âmes originelles servaient de bougies aux flammes ardentes.
 

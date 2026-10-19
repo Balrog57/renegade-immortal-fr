@@ -26,7 +26,7 @@ Lentement, une tristesse envahit le regard de Wang Lin. Le froid apporté par la
 
 Ce froid, aucun feu ne pouvait le chasser et aucune technique ne pouvait le combler. Cette froideur provenait de la compréhension des cieux et était une étape indispensable pour éprouver la vie.
 
-Pour devenir un immortel, il faut d'abord devenir mortel.
+Pour atteindre la Formation de l'Âme, il faut d'abord devenir mortel.
 
 Redevenir mortel semble facile à dire, mais en réalité, est-ce si simple? En cet instant, Wang Lin faisait l'expérience de la solitude. Il savait qu'il devait continuer à l'endurer.
 
@@ -50,9 +50,9 @@ Le feu vacillait, éclairant parfois le visage de Wang Lin, le plongeant parfois
 
 Il prit délicatement chaque figurine, tandis que la froideur en son cœur s'apaisait. Mais alors que ce froid diminuait, sa tristesse, elle, grandissait.
 
-Wang Lin murmura pour lui-même: « Je ne peux pas lâcher prise, je ne peux pas lâcher prise... » Durant ses premières années de culture, il n'arrivait pas à se détacher de sa famille. Aujourd'hui encore, il ne pouvait les oublier.
+Wang Lin murmura pour lui-même: « Je ne peux pas lâcher prise, je ne peux pas lâcher prise... » Durant ses premières années de culture, il n'arrivait pas à se détacher de sa famille. Aujourd'hui encore, il n'y parvenait toujours pas.
 
-Mais ce sentiment différait de celui d'autrefois. Pour devenir un immortel, il devait d'abord redevenir mortel. S'il avait renoncé à toutes ses émotions envers sa famille, il n'aurait plus aucun moyen de comprendre la mortalité.
+Mais ce sentiment différait de celui d'autrefois. Pour atteindre la Formation de l'Âme, il devait d'abord redevenir mortel. S'il avait renoncé à toutes ses émotions envers sa famille, il n'aurait plus aucun moyen de comprendre la mortalité.
 
 Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa culture, mais aussi parce que son cœur abritait une infime parcelle d'émotion au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
 
@@ -64,7 +64,7 @@ Peu à peu, le vortex d'énergie spirituelle tourna plus vite encore et s'étend
 
 Lorsque les flocons de neige touchèrent le toit, ils commencèrent eux aussi à tournoyer. Ils se transformèrent bientôt en spirales de givre et s'envolèrent au loin.
 
-La neige tomba de plus en plus violemment. Progressivement, Wang Lin commença à s'éveiller; lorsqu'il reprit ses esprits, une fissure était apparue sur certaines sculptures.
+La neige tomba de plus en plus violemment. Progressivement, Wang Lin commença à s'éveiller; lorsqu'il reprit ses esprits, un peu moins de la moitié des sculptures s'étaient fendues.
 
 Bien que ces bois fussent fêlés, leur pression spirituelle était devenue plus intense. Même leur qualité s'était accrue.
 

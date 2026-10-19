@@ -86,7 +86,7 @@ Cette carapace exhalait une aura antique et était saturée d'une énergie spiri
 
 Des rugissements tonnèrent dans le ciel de sang, et un regard émergea du vortex. Il fixa lentement la carapace que le Shui Daozi présentait.
 
-« Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra retarder l'invasion extérieure de cent ans... Cent ans devraient suffire pour que plusieurs émissaires s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
+« Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra retarder l'invasion extérieure de cent ans... Cent ans devraient suffire pour que plusieurs Vénérables s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
 
 C'était une cloche, une cloche d'or!!
 

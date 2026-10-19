@@ -37,7 +37,7 @@ Sur la planète Ran Yun, une multitude de jades célestes flottaient autour de W
 
 Après une grande inspiration pour dévorer le reste de l'énergie spirituelle céleste, une grande quantité de jades célestes fut réduite en poussière. Wang Lin sembla remarquer quelque chose à l'extérieur; il se leva et sortit.
 
-La jeune fille sous la pierre était toujours en pleine culture. Elle exhalait deux volutes de gaz blanc qui encerclèrent son corps avant de se dissiper progressivement.
+La jeune fille sous la pierre était toujours en pleine culture. Elle exhalait une volute de gaz blanc qui encercla son corps avant de se dissiper progressivement.
 
 Elle ouvrit les yeux, fixa le ciel et murmura: « Mon talent est insuffisant, mais avec de l'assiduité, j'atteindrai un jour le stade intermédiaire de l'Âme Naissante. »
 
@@ -53,7 +53,7 @@ La jeune fille fronça encore plus les sourcils. Elle ne parvenait pas à percer
 
 Un éclat de lumière jaillit à l'entrée de l'une des pièces et une silhouette en sortit. C'était Wang Lin.
 
-Dès son apparition, l'homme en violet s'approcha soudainement. Un sentiment de prestige et de majesté émanait de Wang Lin.
+Dès que Wang Lin apparut, l'homme en violet posa aussitôt les yeux sur lui. Son regard portait une majesté écrasante qui pesait sur ce dernier.
 
 Une légère intention de combat monta chez l'homme en violet, mais il la réprima de force. Hormis Wang Lin, nul ne pouvait la détecter.
 
@@ -127,7 +127,7 @@ Lorsque la brume bleue se dissipa, il ne restait aucune trace de l'affrontement.
 
 « Il lui sera très difficile de survivre après avoir été emmené par ce Senior... » La jeune fille resta un moment dans l'inquiétude avant de fermer les yeux pour reprendre sa culture. Elle avait accompli son devoir.
 
-Après avoir quitté la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon des Trésors sur le côté est. L'homme en violet afficha un sourire amer et dit: « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
+Après avoir quitté la partie nord de la ville, Wang Lin se dirigea tranquillement vers le Pavillon du Trésor Intégral sur le côté est. L'homme en violet afficha un sourire amer et dit: « Camarade cultivateur Xu, mon nom est Sun Xi. Je n'avais aucune intention malveillante tout à l'heure. » En raison de son rang, il ne s'adresserait normalement jamais ainsi à quelqu'un de même niveau de culture. Cependant, lorsqu'il avait testé cet homme, la culture de ce Xu Mu était trop mystérieuse et il n'avait pu déceler aucun indice.
 
 Mais ce n'était pas le point le plus important. Il ressentait une assurance et une intention meurtrière terrifiante émaner de Wang Lin. Une telle aura ne pouvait provenir que d'une personne ayant tué des adversaires de même niveau, et pas une seule fois! C'était la seule façon d'acquérir une telle confiance en soi.
 

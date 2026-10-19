@@ -94,7 +94,7 @@ Les flammes sans fin chargèrent vers l'Oiseau Vermillon devant Wang Lin à une 
 
 La marque s'était éveillée et l'esprit de l'Oiseau Vermillon était apparu! Autrefois, un tel éveil était un événement majeur au sein des Quatre Sectes Divines! Quiconque appartenait à la lignée du Vermillon et s'éveillait devenait sans doute l'un des futurs Quatre Saints, sauf accident!
 
-En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé! À moins qu'un autre n'ait fait de même en secret!
+En cet instant, Wang Lin était le seul de la lignée du Vermillon à s'être éveillé! À condition qu'aucun autre n'ait fait de même!
 
 Ce cri ne fit pas que secouer le royaume où se trouvait Wang Lin! À cet instant précis, tous les autres royaumes du monde en bouteille entendirent ce cri fracassant!
 

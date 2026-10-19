@@ -18,7 +18,7 @@ Toutes les bêtes qui gisaient au sol se détendirent enfin et se dispersèrent 
 
 Wang Lin contourna la Montagne Heng Yue et, face aux vents violents, s'éloigna à toute allure. Les montagnes, les plaines, les forêts et les villages semblaient minuscules sous ses pieds alors qu'il passait au-dessus d'eux.
 
-En un clin d'œil, le village où il était né apparut dans son champ de vision. Wang Lin réfléchit un instant, puis survola le village sans même tourner la tête.
+En un clin d'œil, le village où il était né apparut dans son champ de vision. Wang Lin ralentit un instant, jeta un regard au village, puis le survola sans même tourner la tête.
 
 La Montagne Heng Yue était située à la frontière nord du pays de Zhao. C'était une région très reculée, où la plupart des gens vivaient dans de petits villages. La destination de Wang Lin se trouvait à plus de cinq mille kilomètres de là. Cette ville s'appelait Tian Shui et c'était la plus grande cité de la partie septentrionale de Zhao.
 
@@ -32,7 +32,7 @@ Dix jours plus tard, Wang Lin se sentit quelque peu perdu. Il se tenait, les sou
 
 « Je t'ai vu voler pendant tant de jours d'affilée... Je pensais que tu connaissais le chemin, mais il s'avère que non! »
 
-Wang Lin renifla et rétorqua: « Si tu ne m'avais pas, à chaque forêt aperçue en chemin, fait entrer et tourner à gauche et à droite, j'aurais certainement déjà trouvé la cité de Tian Shui. »
+Wang Lin renifla et rétorqua: « Si tu ne m'avais pas fait entrer dans chaque forêt aperçue en chemin pour tourner à gauche et à droite, j'aurais certainement déjà trouvé la cité de Tian Shui. »
 
 Situ Nan rit: « Il y a beaucoup de forêts sur cette route, il y pousse peut-être des plantes de l'élément bois. Je fais ça pour ton bien. »
 

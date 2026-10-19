@@ -88,7 +88,7 @@ Face à eux tous, bien que le regard de Wang Lin fût calme, son cœur bouillonn
 
 « Je me demande combien de personnes je pourrai sacrifier. » Wang Lin leva les yeux vers le ciel, et à cet instant, celui-ci gronda. Les nuages se déployèrent comme des vagues. Wang Lin vit le Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan et le reste des cultivateurs.
 
-« Première embuscade: l'Ombrelle Brûlante du Royaume. L'ombrelle raffine tout! » La main gauche de Wang Lin traça un sceau et pointa vers les cieux.
+« Première embuscade: l'Ombrelle Brûlante du Royaume. L'ombrelle raffine tous les êtres vivants! » La main gauche de Wang Lin traça un sceau et pointa vers les cieux.
 
 Le monde trembla et la voûte céleste vira au rouge. Ce rouge n'était pas celui du sang, mais celui des flammes. Une mer de feu surgit de nulle part et enveloppa le monde. Des ondulations résonnèrent dans cet océan ardent tandis qu'une immense ombrelle antique apparaissait. L'ombrelle se détacha de la mer de feu céleste.
 

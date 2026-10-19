@@ -28,7 +28,7 @@ Le monde de la culture est celui où les forts règnent. S'il ne pouvait même p
 
 Situ Nan avait toujours voulu qu'il emprunte la voie démoniaque, mais Wang Lin l'avait toujours refusée. Pourtant, après être mort une fois, il n'avait plus aucune raison de s'y opposer.
 
-« Et si je devenais un démon? » Lâcha-t-il dans un rire glacial avant de s'élancer dans les airs d'un geste de la main.
+« Devenir un démon, et alors! » Lâcha-t-il dans un rire glacial. D'un geste des deux mains, tous les cadavres alentour s'évanouirent en fumée, et il s'élança dans les airs.
 
 Au-dessus d'une chaîne de montagnes non volcaniques, chose rare à Huo Fen, Wang Lin fit un tour. Après avoir choisi un emplacement, il atterrit et le morceau de métal en jaillit pour creuser rapidement une grotte-demeure dans la montagne.
 
@@ -46,7 +46,7 @@ La pratique exigeait une condition stricte au début: tuer une personne par jour
 
 Wang Lin n'avait aucun intérêt pour cette culture, mais certaines techniques l'intriguèrent. Bien que ces arts démoniaques fussent cruels, ils étaient très pratiques.
 
-Il prit un deuxième jade. Son contenu le fit sourire. Une seule technique y était enregistrée: la Technique d'Évasion Terrestre.
+Il prit un deuxième jade. Son contenu le fit sourire. Une seule technique y était enregistrée: la pseudo-Technique d'Évasion Terrestre.
 
 Cette technique faisait partie des Cinq Techniques d'Évasion Élémentaires. Ces dernières étaient extrêmement célèbres : à l'époque antique, on les célébrait comme de grands pouvoirs divins. Même aujourd'hui, depuis la destruction de l'ancien monde de la culture et l'apparition de l'Alliance de Culture, les Cinq Techniques d'Évasion Élémentaires restaient rarissimes, et la renommée de leur pouvoir n'en était que plus mystérieuse.
 
@@ -54,9 +54,9 @@ Cependant, les Cinq Techniques d'Évasion Élémentaires étaient si célèbres 
 
 Le jade entre les mains de Wang Lin n'était pas non plus la véritable technique d'évasion des cinq éléments, mais elle était seulement un peu plus avancée que ces imitations superficielles. Pourtant, ce léger progrès faisait toute la différence, comme entre le ciel et la terre.
 
-Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique d'Évasion Terrestre. Ce n'est que le lendemain matin que Wang Lin ouvrit les yeux, l'air pénétrant. Au lieu de se lever, il frappa le sol de ses deux mains. Sa silhouette disparut soudainement pour réapparaître à trente pieds de là.
+Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique d'Évasion Terrestre. Ce n'est que le lendemain matin que Wang Lin ouvrit les yeux, le visage éclairé d'une lueur de compréhension. Au lieu de se lever, il frappa le sol de ses deux mains. Sa silhouette disparut soudainement pour réapparaître à trente pieds de là.
 
-Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang est bien plus robuste que mon précédent. Bien qu'il ne soit pas de rang supérieur, il reste de qualité moyenne, ce qui rend l'apprentissage de cette Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
+Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang a bien plus de talent et de racine spirituelle que mon précédent. Bien qu'il ne soit pas de rang supérieur, il reste de qualité moyenne, ce qui rend l'apprentissage de cette pseudo-Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
 
 Wang Lin sortit le seau en bois rempli de liquide spirituel, en but une grande gorgée, puis s'assit en méditation pour respirer. Une heure plus tard, toute la fatigue due à une nuit passée à tâtonner sur la Technique d'Évasion Terrestre avait disparu.
 
@@ -68,7 +68,7 @@ Wang Lin balaya ces informations d'un revers. Ce qui l'intéressait, c'était le
 
 En outre, il mentionnait sept ou huit pilules qu'il convoitait ardemment sans pouvoir les obtenir. Ensuite, il poursuivit l'inspection des autres objets des sacs de stockage.
 
-Hormis quelques flacons de pilules, Sun Youcai ne possédait aucun trésor magique. Si c'était auparavant, Wang Lin aurait été méfiant, mais après avoir lu ses journaux, il comprit que Sun Youcai avait tout troqué contre des pilules pour accroître sa culture.
+Hormis quelques flacons de pilules, Sun Youcai ne possédait aucun trésor magique. Si c'était auparavant, Wang Lin aurait été perplexe, mais après avoir lu ses journaux, il comprit que Sun Youcai avait presque tout troqué contre des pilules pour accroître sa culture.
 
 L'homme d'âge moyen vêtu de noir possédait une chose qui attira l'attention de Wang Lin: un papier jaune marqué d'un symbole noir. Le symbole dégageait des vagues d'une aura puissante.
 
@@ -90,7 +90,7 @@ Durant tout ce temps, Wang Lin n'avait pas trouvé le moment de vérifier ce jad
 
 Parallèlement, les disciples des diverses sectes remarquèrent les bêtes de feu aux embouchures des volcans. Tous furent stupéfaits et utilisèrent divers moyens pour transmettre l'information à leurs sectes respectives.
 
-Les quatre grandes sectes étaient très accoutumées à sceller les volcans et connaissaient bien les bêtes de feu. Cependant, ce genre de choses relevait des secrets que seuls les cultivateurs de l'Âme Naissante pouvaient connaître.
+Les quatre grandes sectes étaient très accoutumées à sceller les volcans et n'avaient qu'une vague connaissance des bêtes de feu. Cependant, ce genre de choses relevait des secrets que seuls les cultivateurs de l'Âme Naissante pouvaient connaître.
 
 À cet instant, dans la salle principale du Sanctuaire du Dieu de la Guerre, quatre hommes et deux femmes étaient assis, fronçant silencieusement les sourcils.
 
@@ -102,7 +102,7 @@ La belle femme qui avait croisé Wang Lin une fois répliqua sans ménagement: �
 
 Le lettré d'âge moyen ne s'en sentit pas gêné. Il regarda la femme avec tendresse, eut un petit rire et secoua la tête en silence.
 
-« Cette affaire est pourtant simple. Les bêtes spirituelles de feu existent depuis longtemps, mais elles n'ont jamais quitté les volcans. Je pense qu'il existe des restrictions naturelles qui les retiennent. Je dois simplement renforcer l'intensité des sceaux. Au lieu de perdre notre temps à discuter, nous pourrions agir dès maintenant. J'y vais. » L'homme agita ses manches, se leva et sortit. Il mesurait près de deux mètres et possédait un front proéminent.
+« Cette affaire est pourtant simple. Les bêtes spirituelles de feu existent depuis longtemps, mais elles n'ont jamais quitté les volcans. Je pense qu'il existe des restrictions naturelles qui les retiennent. Je dois simplement renforcer l'intensité des sceaux. Au lieu de perdre notre temps à discuter, nous pourrions agir dès maintenant. J'y vais. » L'homme agita ses manches, se leva et sortit. Il mesurait près de deux mètres et possédait des yeux larges comme des fleuves, un front proéminent et une bouche vaste comme la mer.
 
 Voyant que le silence s'était installé, l'homme nommé Song dit: « Peu importe. J'espère que l'apparition des bêtes de feu ne fera pas céder les sceaux. Faisons ce que nous faisons d'ordinaire et scellons les volcans dont nous avons la charge. »
 
@@ -110,7 +110,7 @@ La même scène se déroula à la Secte Luo He, à la Secte Démoniaque et à la
 
 Soudain, dans tout le pays de Huo Fen, on put voir divers cultivateurs de l'Âme Naissante de différentes sectes planer autour des volcans pour les sceller. Les fluctuations d'énergie spirituelle devinrent également plus violentes ces derniers jours.
 
-Alors qu'ils scellaient les volcans, tous les cultivateurs de l'Âme Naissante ne purent s'empêcher de sentir que quelque chose clochait. Chaque volcan était gardé par d'innombrables bêtes de feu qui attendaient à ses portes. Elles n'entravaient pas le scellement et n'attaquaient pas les cultivateurs; elles se contentaient d'attendre, le regard froid.
+Alors qu'ils scellaient les volcans, tous les cultivateurs de l'Âme Naissante ne purent s'empêcher de sentir que quelque chose clochait. Chaque volcan était gardé par d'innombrables bêtes de feu qui attendaient à ses portes. Elles n'entravaient pas le scellement et n'attaquaient pas les cultivateurs; elles se contentaient de les observer, le regard froid.
 
 Leurs actions donnaient l'impression qu'elles se souciaient peu des sceaux. Peu à peu, le cœur des cultivateurs de l'Âme Naissante qui participaient au scellement se fit de plus en plus lourd. Même les plus optimistes changèrent d'avis.
 
@@ -148,7 +148,7 @@ Ensuite, Wang Lin contrôla délicatement la couche d'énergie spirituelle pour 
 
 La création du fourneau réactionnel avait échoué.
 
-Wang Lin esquissa un sourire amer. Bien que déçu, il s'en était quelque peu méfié. Le jade indiquait que les chances de réussite étaient faibles. Il devait gagner en précision dans le contrôle des fils d'énergie, mais l'élément crucial restait le matériau du corps du fourneau.
+Wang Lin esquissa un sourire amer. Bien que déçu, il s'y était un peu préparé. Le jade indiquait que les chances de réussite étaient faibles. Il devait gagner en précision dans le contrôle des fils d'énergie, mais l'élément crucial restait le matériau du corps du fourneau.
 
 L'idéal aurait été d'obtenir le crâne d'une bête fraîchement morte ou celui d'une créature puissante. Un crâne de bête désolée donnerait des chances encore meilleures. Si la bête était morte depuis longtemps, les chances de succès s'effondraient. S'il ne s'agissait pas d'une bête spirituelle, le taux de réussite était pratiquement nul.
 
@@ -178,9 +178,9 @@ Heureusement, les bêtes de feu ne le poursuivirent pas; elles se dispersèrent 
 
 Dès cet instant, tout le pays de Huo Fen sombra dans le chaos. Les premiers touchés furent les mortels, incapables de se défendre contre les bêtes de feu; ils commencèrent tous à fuir le pays.
 
-Vinrent ensuite les petites et moyennes sectes ainsi que les familles, qui tournèrent leurs regards vers les quatre grandes sectes pour savoir si elles allaient combattre ou s'enfuir.
+Vinrent ensuite les familles de cultivateurs, petites et grandes, qui tournèrent leurs regards vers les quatre grandes sectes pour savoir si elles allaient combattre ou s'enfuir.
 
-Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuaire du Dieu de la Guerre. Après avoir rapporté l'affaire au pays de culture supérieur, ils ordonnèrent sans hésiter la migration.
+Les cultivateurs de l'Âme Naissante des quatre sectes se réunirent au Sanctuaire du Dieu de la Guerre. Après avoir rapporté l'affaire au pays de culture supérieur, ils ordonnèrent sans hésiter la migration. Tous les disciples au dehors regagnèrent aussitôt leurs sectes, et la migration de tout le pays commença.
 
 Après tout, nul ne savait quand un pays de culture de rang 4 viendrait, et les quatre grandes sectes n'osaient pas parier là-dessus. Si elles ne partaient pas vite, même une fois les bêtes de feu détruites, Huo Fen subirait de lourdes pertes de puissance et risquerait fort de retomber au rang 2.
 

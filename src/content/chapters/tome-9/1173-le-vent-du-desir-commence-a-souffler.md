@@ -90,7 +90,7 @@ La belle femme fronça les sourcils. Elle n'était pas seule: tous les vieux mon
 
 Même Maître Pin Cendré laissa paraître un soupçon d'insatisfaction.
 
-« Puisque le cultivateur Wu souhaite rivaliser avec moi jusqu'au bout... » Wang Lin était furieux, mais il sourit et fixa Wu Qing d'un regard profond.
+« Puisque le cultivateur Wu souhaite rivaliser avec moi jusqu'au bout... » Wang Lin ne se mit pas en colère; il sourit et fixa Wu Qing d'un regard profond.
 
 « Je n'en veux plus. » Après avoir dit cela, il ferma simplement les yeux pour contenir l'intention meurtrière qui bouillonnait en lui.
 
@@ -130,7 +130,7 @@ Une fois Wang Lin sorti, le sourire de Maître Pin Cendré s'effaça et il marmo
 
 En sortant de la pièce, l'expression de Wang Lin était neutre, mais il laissa échapper un reniflement froid. Puisqu'il avait osé venir ici, il ne craignait pas que l'on découvre sa fortune en jades célestes. Tout comme Maître Pin Cendré, qui n'était qu'un membre de la Secte du Jade Précieux mais possédait tant de cristaux originels.
 
-En songeant à ces cristaux, le cœur de Wang Lin manqua un battement tandis qu'il s'engageait dans le passage.
+En songeant à ces cristaux, le cœur de Wang Lin s'emballa de convoitise tandis qu'il s'engageait dans le passage.
 
 « Ce Maître Pin Cendré a certainement des intentions malveillantes, mais il ignore que les miennes sont bien plus viles que les siennes! Cinq mille cristaux originels ne suffiront pas à nourrir cette bête mutée. Si je veux que la bête-moustique puisse évoluer grâce à cette méthode et me protéger dans le Royaume Céleste du Vent, il me faudra une quantité phénoménale de cristaux originels! »
 

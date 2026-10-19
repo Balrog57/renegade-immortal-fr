@@ -68,9 +68,9 @@ Même le bouclier lumineux entourant l'épée de fer vacillait, comme s'il allai
 
 Wang Lin continuait de froncer les sourcils, la prudence s'intensifiant dans son regard. Il avait un mauvais pressentiment, comme si une existence terrifiante les attendait plus loin.
 
-« Aîné, bien que je n'aie jamais visité le Royaume Céleste du Tonnerre auparavant, je sais que les chaînes reliant les fragments ne devraient pas trembler aussi violemment. Aîné, regardez là-bas! » Li Yuan pointa le vide sur la gauche. Au bout de ce néant, on distinguait de vagues éclats de lumière.
+« Senior, bien que je n'aie jamais visité le Royaume Céleste du Tonnerre auparavant, je sais que les chaînes reliant les fragments ne devraient pas trembler aussi violemment. Senior, regardez là-bas! » Li Yuan pointa le vide sur la gauche. Au bout de ce néant, on distinguait de vagues éclats de lumière.
 
-« Aîné, il devrait y avoir une chaîne de tonnerre là-bas également, et pourtant nous pouvons voir la lumière. Je crains que ces secousses ne concernent pas seulement notre chaîne, mais la majorité des chaînes de la région! Je pense qu'un événement majeur est en cours! »
+« Senior, il devrait y avoir une chaîne de tonnerre là-bas également, et pourtant nous pouvons voir la lumière. Je crains que ces secousses ne concernent pas seulement notre chaîne, mais la majorité des chaînes de la région! Je pense qu'un événement majeur est en cours! »
 
 « Et si... et si nous faisions demi-tour? Avant de venir ici, l'ancêtre de ma famille m'a prévenu: si les chaînes reliant les fragments tremblent, cela signifie... cela signifie que les deux fragments sont sur le point de s'effondrer! » Le visage de la femme était pâle; elle ressentait elle aussi les vibrations de la chaîne.
 

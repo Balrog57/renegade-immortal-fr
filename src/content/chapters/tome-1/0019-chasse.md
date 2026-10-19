@@ -10,7 +10,7 @@ En repensant à ces gourdes, il ne put contenir sa colère. Peu importe la mani�
 
 Wang Lin ricana intérieurement, mais afficha un visage d'innocence en disant: « Je ne sais pas ce qu'est l'énergie spirituelle. J'ai simplement entendu dire que vous me donneriez une pierre spirituelle si je vous rapportais une gourde. Pourriez-vous m'expliquer ce qu'est l'énergie spirituelle? »
 
-Sun Dazhu en eut le vertige. Il fixa Wang Lin intensément pendant un long moment. Il commença à soupçonner que cette gourde était véritablement unique et que ce gamin stupide l'avait ramassée par pur coup de chance.
+Sun Dazhu en eut le vertige. Il fixa Wang Lin intensément pendant un long moment. Il commença à douter: ces gourdes étaient-elles aussi nombreuses qu'il l'avait supposé, ou n'y en avait-il qu'une, que ce gamin stupide avait ramassée par pur hasard?
 
 Après réflexion, il réalisa que les propos de Wang Lin étaient cohérents. Ce n'est qu'en atteignant le premier niveau de la Condensation de Qi que l'on peut déceler l'énergie spirituelle environnante. En y songeant, il regretta d'avoir introduit des substances dans sa nourriture. Le talent de ce gamin était déjà médiocre, et avec ce médicament, il lui faudrait au moins trente à cinquante ans avant d'atteindre le premier niveau de la Condensation de Qi.
 

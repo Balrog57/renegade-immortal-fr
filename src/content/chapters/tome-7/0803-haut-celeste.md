@@ -36,13 +36,13 @@ Des marques de tatouage ornaient leurs visages et leurs membres. Les plus notabl
 
 Un vieil homme s'avança de la foule. Il avait une chevelure blanche et le visage profondément ridé. Ses yeux brillaient d'un mélange d'admiration et d'une pointe d'excitation alors qu'il observait Wang Lin, scrutant sa main droite.
 
-« Que vient faire un Haut Céleste ici? » Son regard était empreint de respect tandis qu'il fixait le Tatouage de l'Os de la Bête sur la main droite de Wang Lin.
+« Haut Céleste, quelle est votre requête? » Son regard était empreint de respect tandis qu'il fixait le Tatouage d'Os de Bête sur la main droite de Wang Lin.
 
 Les yeux de Wang Lin restaient neutres, mais son cœur fut secoué. Avec près d'un millénaire de culture, il pouvait maintenir une expression calme même face à la stupéfaction. Pour l'instant, il ne laissa paraître le moindre signe de choc.
 
 Le terme « Haut Céleste » ne signifiait rien s'il sortait de la bouche de mortels, mais venant des membres du Clan des Immortels Délaissés, la portée était tout autre!
 
-Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon de la Collection, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
+Plus important encore, « Haut Céleste » n'était pas qu'un simple titre. Avant de se rendre au Pavillon des Collections, il n'y avait pas songé, mais désormais, l'idée ne pouvait lui échapper.
 
 Le regard de Wang Lin demeura serein lorsqu'il demanda lentement: « Vous pouvez percevoir mon niveau de culture? »
 
@@ -56,13 +56,13 @@ Après mûre réflexion, les yeux de Wang Lin s'illuminèrent et il demanda avec
 
 L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement: « Bien des années se sont écoulées depuis que le dernier décret céleste du Roi Céleste Xiaoyaozi est tombé. Quant à la durée exacte, cet humble serviteur est incapable de la calculer. »
 
-« Xiaoyaozi... » Wang Lin comprit soudain pourquoi le vieil homme ne quittait pas sa main droite du regard. Il leva cette main pour exposer pleinement le Tatouage de l'Os de la Bête, fixa le vieillard et demanda: « Connaissez-vous ceci? »
+« Xiaoyaozi... » Wang Lin comprit soudain pourquoi le vieil homme ne quittait pas sa main droite du regard. Il leva cette main pour exposer pleinement le Tatouage d'Os de Bête, fixa le vieillard et demanda: « Connaissez-vous ceci? »
 
 Les yeux du vieil homme s'emplirent d'exaltation lorsqu'il déclara respectueusement: « C'est le trésor du Roi Céleste Xiaoyaozi, la Paire de Dao Flétrie. Je la reconnais naturellement. Si vous la possédez, c'est que vous êtes un proche du Roi Céleste Xiaoyaozi. Êtes-vous venu pour le Fourneau Yin Mystérieux? »
 
 Wang Lin regarda le vieil homme sans répondre. Son regard se porta vers le continent situé derrière l'homme.
 
-Le vieillard dit avec déférence: « Ce vieux serviteur est impoli. Ô Céleste, je vous en prie, suivez-moi. Les Fruits de l'Esprit Céleste ont mûri il y a longtemps. Je vais ordonner à quelqu'un de vous en apporter pour que vous puissiez en goûter la saveur. »
+Le vieillard dit avec déférence: « Ce vieux serviteur a manqué à son devoir d'hospitalité. Ô Céleste, je vous en prie, suivez-moi. Les Fruits de l'Esprit Céleste ont mûri il y a longtemps. Je vais ordonner à quelqu'un de vous en apporter pour que vous puissiez en goûter la saveur. »
 
 Sous la conduite du vieil homme, Wang Lin suivit silencieusement. Quant au reste du Clan des Immortels Délaissés, ils traînaient derrière eux, comme s'ils craignaient de s'approcher trop près.
 

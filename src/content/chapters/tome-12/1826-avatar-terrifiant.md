@@ -18,7 +18,7 @@ Ce gaz vert était si léger qu'il ne pouvait être distingué qu'en y regardant
 
 Au même instant, une pression écrasante émanait de Wang Lin et de son véritable corps d'essence. Cette pression se propagea, faisant changer immédiatement l'expression de la jeune femme.
 
-Elle sentit distinctement les lignées de sang dans son corps trembler. Ce changement étrange provoqua des craquements sinistres provenant de sa propre chair.
+Elle sentit distinctement les lignées de sang dans son corps trembler. Ce changement étrange fit résonner des bruits sourds dans son propre corps.
 
 « Ceci... Quel est ce sort?! Il peut faire vibrer mes propres lignées de sang!! »
 
@@ -88,7 +88,7 @@ Tandis que ces pensées traversaient l'esprit de Wang Lin, la jeune femme rangea
 
 Les yeux de Wang Lin s'illuminèrent et il laissa échapper un reniflement froid. Il leva la main droite et frappa le vide à ses côtés. Son véritable corps d'essence, derrière lui, imita ce mouvement.
 
-Toute la veine de feu terrestre trembla. La veine principale était si vaste que, même privée de l'âme du dragon, elle ne s'éteindrait pas de sitôt. Sous cette frappe de Wang Lin, une volonté de l'origine du feu s'engouffra dans la veine.
+Toute la veine de feu terrestre trembla. La veine principale était si vaste que, même privée de l'âme du dragon, elle ne se tarirait pas de sitôt. Sous cette frappe de Wang Lin, une volonté de l'origine du feu s'engouffra dans la veine.
 
 La veine de feu tout entière entra en ébullition et une mer de flammes monstrueuse éclata. Cette mer étant d'une ampleur démesurée, les montagnes de la Secte de la Grande Âme semblèrent immédiatement s'embraser, et le feu terrestre se diffusa même dans les environs.
 
@@ -104,4 +104,4 @@ La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une part
 
 « Le véritable corps d'essence de feu est formé. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Antique, "Aucun Céleste", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
 
-« Petit ami, vous êtes venu en invité dans ma Secte de la Grande Âme pour repartir ainsi sans un mot? » Une voix antique résonna derrière lui.
+« Petit ami, vous êtes venu en invité dans ma Secte de la Grande Âme et vous partez déjà? » Une voix antique résonna derrière lui.

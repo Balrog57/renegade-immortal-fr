@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1967 - Little Wang Lin!"
 slug: petit-wang-lin
 ---
-Le Grand Empyréen Dao Yi laissa échapper un reniflement froid. Avec sa ruse, il comprit naturellement le sens des paroles de Wu Feng. Cependant, il n'était pas disposé à abandonner ainsi.
+Le Grand Empyréen Dao Yi laissa échapper un reniflement froid. Avec sa perspicacité, il comprit naturellement le sens des paroles de Wu Feng. Cependant, il n'était pas disposé à abandonner ainsi.
 
 « Je suis venu trop tôt... J'aurais dû venir un peu plus tard... J'aurais pu mieux évaluer la situation après que les autres aient révélé leurs conditions. » La raison pour laquelle Dao Yi était arrivé le premier était qu'il avait été le premier à tenter de recruter Wang Lin. Il pensait que Wang Lin accordait une grande importance aux trésors, et voulait donc arriver tôt pour l'impressionner immédiatement. À cet instant, ses vêtements se mirent à flotter avant de s'apaiser. Il ouvrit lentement la main, laissant flotter un cristal multicolore dans sa paume.
 
@@ -20,7 +20,7 @@ Cependant, il ne s'attendait pas à ce que Wu Feng tienne de tels propos.
 
 « Les Grands Empyréens sortent rarement de tels cristaux dao. Cela peut garantir ta sécurité, mais je te recommande d'attendre le Grand Empyréen Jiu Di. »
 
-« Wu Feng! Serait-ce parce que tu penses qu'il est désormais inutile d'essayer de le recruter?! Fais-tu cela pour nouer une relation avec lui?! » rugit le Grand Empyréen Dao Yi.
+« Wu Feng! Serait-ce parce que tu penses qu'il est désormais inutile d'essayer de le recruter?! Fais-tu semblant d'être bon pour nouer une relation avec lui?! » rugit le Grand Empyréen Dao Yi.
 
 « Et alors si c'est le cas? » rit le Grand Empyréen Wu Feng. Il y pensait effectivement. Si Wang Lin le suivait, il le traiterait avec sincérité. S'il ne le faisait pas, son aide permettrait d'établir une bonne relation entre eux. C'était faire d'une pierre deux coups, une situation bénéfique pour les deux parties.
 
@@ -72,17 +72,17 @@ Le silence de Wang Lin fit soupirer Hai Zi intérieurement, mais elle sourit. El
 
 Wang Lin esquissa un sourire amer.
 
-« Hai Zi, ne fais pas d'imprudence! » Dans le ciel, le Grand Empyréen Jiu Di conservait la même apparence, mais son expression était sérieuse. Pourtant, aucune majesté de Grand Empyréen ne se dégageait de lui; même sérieux, il paraissait ordinaire.
+« Hai Zi, ne fais pas de bêtises! » Dans le ciel, le Grand Empyréen Jiu Di conservait la même apparence, mais son expression était sérieuse. Pourtant, aucune majesté de Grand Empyréen ne se dégageait de lui; même sérieux, il paraissait ordinaire.
 
 « Wang Lin, ce vieil homme t'acceptera comme disciple. Es-tu d'accord? » Le Grand Empyréen Jiu Di appartenait à la même époque que l'Ancêtre Céleste. « Si tu acceptes, je peux te promettre qu'une fois le Royaume Divin Immémorial ouvert, je t'aiderai à y pénétrer! Et je t'aiderai à devenir un Grand Empyréen! » C'était un engagement que seuls les Grands Empyréens oseraient formuler, car eux seuls en connaissaient le prix.
 
-C'était ce qu'il avait dit à l'Ascendant Empyréen Ming Dao, mais face aux conditions occultes de l'Empereur Céleste, celui-ci n'avait pas choisi Jiu Di.
+C'était ce qu'il avait dit à l'Ascendant Empyréen Ming Dao, mais celui-ci, sans savoir quelles conditions l'Empereur Céleste lui avait offertes, n'avait pas choisi Jiu Di.
 
 « Avec mon aide, lorsque le Royaume Divin Immémorial s'ouvrira, tes chances de devenir un Grand Empyréen augmenteront de 30 %! Et si tu es mon disciple, alors même l'Empereur Céleste n'oserait pas agir contre toi! Peu importe la rancune qui vous oppose, avec ma présence, je pourrai t'aider à la régler définitivement! Parmi les Grands Empyréens, hormis le défunt Dong Lin, seule Gémeaux peut rivaliser avec ce vieil homme. Cependant, après sa dernière réincarnation, Gémeaux a subi un accident et son âme s'est fragmentée jusqu'à son stade originel. Elle est extrêmement faible. Ce vieil homme est ton meilleur choix », déclara lentement le Grand Empyréen Jiu Di.
 
 Wang Lin regarda Dao Yi, Wu Feng et Jiu Di. Les trois lui avaient proposé des conditions distinctes: les trésors de Dao Yi, l'égalité de Wu Feng et la promesse de Jiu Di.
 
-S'il comptait rester durablement au sein du clan céleste, Jiu Di serait le choix le plus sûr, et même choisir Wu Feng lui permettrait d'agir selon ses propres désirs. Seul Dao Yi était un choix que Wang Lin ne ferait pas à la légère. Après tout, il savait que son maître et Dao Yi s'étaient affrontés par le passé, et que le Souverain Céleste aux Sept Couleurs avait obtenu la Perle Défiant le Ciel lors de leur combat.
+S'il comptait rester durablement au sein du clan céleste, Jiu Di serait le choix le plus sûr, et même choisir Wu Feng lui permettrait de faire la pluie et le beau temps dans le clan céleste. Seul Dao Yi était un choix que Wang Lin ne ferait pas à la légère. Après tout, il savait que son maître et Dao Yi s'étaient affrontés par le passé, et que le Souverain Céleste aux Sept Couleurs avait obtenu la Perle Défiant le Ciel lors de leur combat.
 
 Mais Dao Yi restait un choix envisageable sans regret. Ses trésors étaient précisément ce que Wang Lin convoitait, mais si l'Empereur Céleste décidait d'agir, Wang Lin n'était pas certain que cet homme viendrait à son secours.
 

@@ -48,7 +48,7 @@ Le Maître Pin Cendré fut entouré d'une lueur sanglante alors que l'éclair ar
 
 Alors qu'il continuait de reculer, le Maître Pin Cendré ouvrit son espace de stockage de sa main droite pour en sortir un trésor magique. Cependant, à cet instant précis, il ressentit un puissant sentiment de danger. Un rayon de lumière aux sept couleurs se rapprocha instantanément de lui, perçant la lueur rouge qui s'effritait.
 
-Le visage du Maître Pin Cendré devint instantanément livide. La lumière aux sept couleurs était trop rapide. Le sang jaillit de sa poitrine lorsque le rayon le transperça. Son âme originelle tenta de s'échapper, mais il laissa échapper un gémissement misérable: un clou aux sept couleurs venait de percer la poitrine de son âme originelle.
+Le visage du Maître Pin Cendré devint instantanément livide. La lumière aux sept couleurs était trop rapide. Le sang jaillit de sa poitrine lorsque le rayon le transperça, et son corps éclata en un nuage de brume aux sept couleurs. Son âme originelle tenta de s'échapper, mais il laissa échapper un gémissement misérable: un clou aux sept couleurs venait de percer la poitrine de son âme originelle.
 
 Une lueur de panique traversa l'âme originelle du Maître Pin Cendré, bientôt remplacée par la folie. Wang Lin apparut immédiatement derrière lui et posa sa main droite sur sa tête. Il profitait du moment où l'âme originelle était gravement blessée et sur le point de sombrer dans la démence pour procéder à une fouille d'âme.
 
@@ -110,11 +110,11 @@ Alors qu'il voyait Wang Lin disparaître à l'horizon, Chen Tianjun poussa un so
 
 « Récolter ces cristaux sera très dangereux, je dois me préparer. » Chen Tianjun prit une profonde inspiration et serra le jade contre lui comme s'il s'agissait de son unique espoir de liberté. Il retourna dans sa grotte.
 
-Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses restrictions autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur du Nirvana.
+Wang Lin regagna la grotte située dans la vallée et sortit une grande quantité de cristaux d'origine. Il disposa de nombreuses formations autour de lui et commença à absorber l'énergie originelle. Celle-ci affluait de toutes parts, et il cultiva pour progresser vers le stade intermédiaire du Purificateur du Nirvana.
 
 « Bien que cet endroit soit périlleux, c'est le lieu idéal pour la culture. D'après les souvenirs du Maître Pin Cendré, il y avait cette statue de pierre qu'il utilisait pour reformer son corps. Peut-être pourrai-je en absorber une partie de la puissance. Il y a aussi ces trois individus du royaume extérieur; ils possèdent une force et des informations sur ce royaume dont j'ai besoin. »
 
-« Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction du Temps de Sima Mo... »
+« Il y a également cette vieille femme en vert avec sa Restriction de la Vie et de la Mort, ainsi que la Restriction Temporelle de Sima Mo... »
 
 Dans l'immensité des étoiles, il existait un système stellaire bien plus vaste que Luotian, Vide Brillant, Rivière Invoquée ou Mer des Nuages. Même en combinant ces quatre systèmes, ils ne pourraient égaler ce vaste ensemble stellaire.
 

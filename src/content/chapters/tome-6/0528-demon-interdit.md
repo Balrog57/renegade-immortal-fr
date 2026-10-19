@@ -6,11 +6,11 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 528 - Forbidden Devil
 slug: demon-interdit
 ---
-L'homme en robe noire jura intérieurement et recula précipitamment. Il n'avait aucune confiance dans sa capacité à vaincre l'individu qui se tenait devant lui; plutôt que de perdre son temps, il valait mieux s'enfuir le plus vite possible.
+L'homme en robe noire jura intérieurement et recula précipitamment. Il n'était pas certain de pouvoir vaincre l'individu qui se tenait devant lui; plutôt que de perdre son temps, il valait mieux s'enfuir le plus vite possible.
 
-Les yeux de Wang Lin s'illuminèrent. Au moment où le fragment d'épée et les flammes atteignirent leur cible, il utilisa deux couches de sceaux de force vitale pour bloquer la puissance des deux sorts.
+Les yeux de Wang Lin s'illuminèrent. Au moment où le fragment d'épée et les flammes atteignirent leur cible, il utilisa trois couches de sceaux de force vitale pour bloquer la puissance des deux sorts.
 
-Après tout, l'homme en robe noire était un puissant cultivateur au sommet du stade avancé de la Transformation de l'Âme. Cependant, la quantité d'énergie spirituelle céleste que cet homme contrôlait n'était pas une chose avec laquelle Wang Lin pouvait rivaliser. Ainsi, bien qu'il ait stoppé l'attaque, l'un des sceaux de force vitale s'effondra et disparut à jamais!
+Après tout, l'homme en robe noire était un puissant cultivateur au sommet du stade avancé de la Transformation de l'Âme. Cependant, la densité de l'énergie spirituelle céleste que cet homme maîtrisait n'était pas une chose avec laquelle Wang Lin pouvait rivaliser. Ainsi, bien qu'il ait stoppé l'attaque, l'un des sceaux de force vitale s'effondra et disparut à jamais!
 
 Les sceaux de force vitale étaient l'assurance de Wang Lin pour l'avenir. Il avait déployé tous ses efforts pour en créer à peine trois, et voilà que l'un d'eux venait d'être détruit par l'homme en robe noire. Bien que le cœur de Wang Lin lui fît mal face à cette perte, il était également animé par une intention meurtrière.
 
@@ -18,7 +18,7 @@ Voyant que l'ennemi n'avait pas l'intention de combattre et qu'il tentait de bat
 
 En pleine poursuite, il fit soudainement tournoyer le fouet.
 
-Le visage de l'homme en robe noire se décomposa; il se retourna brusquement pour tenter de saisir le fouet et hurla: « Sale gosse ingrat! Très bien, aujourd'hui, je vais te donner une leçon à la place de ton maître! »
+Le visage de l'homme en robe noire s'assombrit; il se retourna brusquement pour tenter de saisir le fouet et hurla: « Sale gosse ingrat! Très bien, aujourd'hui, je vais te donner une leçon à la place de ton maître! »
 
 Au moment où sa main tendue vers le fouet s'approcha, cinq points rouges apparurent sur ses doigts. Ces points semblaient se mouvoir avec sa main, créant une sensation extrêmement mystérieuse. À cet instant, si l'on regardait de loin, ce n'était pas la main droite de l'homme qui bougeait, mais plutôt les cinq points rouges.
 
@@ -54,7 +54,7 @@ D'un seul mot, une rafale de vent fendit le nuage noir, créant une brèche. Dè
 
 Lorsqu'il réapparut, il redoutait davantage l'homme en robe noire. Ce dernier possédait manifestement une multitude de sorts et de trésors qu'il n'avait pas encore dégainés. S'il était parti, c'était sans doute parce qu'il avait été frappé par la renommée de Wang Lin. Il avait probablement entendu dire que Wang Lin, bien qu'ayant perdu un combat face à un cultivateur Ascendant, possédait encore d'innombrables trésors pour se défendre.
 
-« Bien que j'ignore de quelle secte il est issu, sa présence ici signifie qu'il vient de la planète Tian Yun et qu'il sait que tous les disciples de l'Omniscient possèdent un trésor de survie. Ce n'est pas un secret, et avec son intelligence, il a dû y réfléchir longuement. Il a sans doute réalisé que me tuer ne serait pas aisé, et a donc décidé de battre en retraite! »
+« Bien que j'ignore de quelle secte il est issu, sa présence ici signifie qu'il vient de la planète Tian Yun et qu'il sait que les disciples directs de l'Omniscient possèdent un trésor de survie. Ce n'est pas un secret, et avec son intelligence, il a dû y réfléchir longuement. Il a sans doute réalisé que me tuer ne serait pas aisé, et a donc décidé de battre en retraite! »
 
 « Je ne peux pas le laisser vivre! » Les yeux de Wang Lin devinrent froids et il se lança à la poursuite de l'homme en robe noire.
 

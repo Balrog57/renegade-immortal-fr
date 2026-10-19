@@ -20,11 +20,11 @@ Si quitter ce monde signifiait devenir un être céleste, alors les paroles de W
 
 Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper un soupir.
 
-« Peut-être as-tu raison... Peu importe, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
+« Peut-être as-tu raison... Peu importe, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée des Terres Déchues pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
 
-« Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se laisser quelques mesures de sécurité pour se protéger.
+« Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se ménager une issue de secours.
 
-« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système Stellaire Antique. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan des Moineaux de Feu, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de mon propre Feu Éternel de Oiseau Vermillon. Avec cela, même si tu rencontres le troisième Oiseau Vermillon, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
+« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système Stellaire Antique. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan des Moineaux de Feu, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de ma propre Flamme Infinie de l'Oiseau Vermillon. Avec cela, même si tu rencontres le troisième Oiseau Vermillon, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
 
 Alors que le premier Oiseau Vermillon parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
 
@@ -86,7 +86,7 @@ Une ombre noire sortit progressivement du bâton d'encens calciné et apparut de
 
 Wang Lin sortit, l'expression sombre. Au moment où l'encens céleste s'éteignit, son âme réintégra son corps. Une fois revenu en lui, ce feu n'était plus rien pour lui. Sous les regards stupéfaits de la foule, Wang Lin agita sa main droite et le feu derrière lui se déplaça avec lui. Il se transforma en un fleuve de flammes qui enveloppa sa main. Wang Lin serra le poing et le fleuve s'effondra, projetant des étincelles dans toutes les directions.
 
-Ces éclats de feu ressemblaient à des lucioles autour de Wang Lin, qui en était le centre. Le feu aux neuf couleurs tournait rapidement dans l'œil gauche de Wang Lin pour devenir le Feu Éthéré. Dans son œil droit, le tatouage du tonnerre était accompagné de neuf éclairs gravitant autour de lui.
+Ces éclats de feu ressemblaient à des lucioles autour de Wang Lin, qui en était le centre. Le feu aux neuf couleurs tournait rapidement dans l'œil gauche de Wang Lin pour devenir le Feu Éthéré. Dans son œil droit, le tatouage du tonnerre était accompagné de neuf éclairs gravitant autour de lui, et des éclairs scintillaient sans cesse au fond de sa pupille.
 
 Ses vêtements flottaient et ses cheveux bougeaient sans qu'aucun vent ne soufflât. Son regard balaya tous les cultivateurs environnants!
 
@@ -98,7 +98,7 @@ Plus choquant encore, une fois balayé par le regard de Wang Lin, on avait l'imp
 
 Pour la plupart des cultivateurs, cette sensation ne dura qu'un instant lors du passage du regard de Wang Lin. Cependant, elle fut inoubliable; ce sentiment de terreur resterait gravé en eux à jamais!
 
-Wang Lin s'apprêtait à déployer sa puissance!
+L'autorité de Wang Lin commençait à s'imposer!
 
 Un simple coup d'œil avait suffi à faire trembler le cœur des dizaines de milliers de cultivateurs alentour. La panique se lut dans leurs yeux et ils baissèrent tous la tête, n'osant plus regarder Wang Lin.
 

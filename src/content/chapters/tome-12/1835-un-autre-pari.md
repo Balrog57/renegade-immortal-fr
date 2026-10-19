@@ -14,19 +14,19 @@ Le monde trembla et les innombrables cultivateurs de la Secte de la Grande Âme 
 
 C'était la 16e marche!
 
-« Plus que trois... Ma volonté ne cédera même pas devant les cieux, pourquoi devrais-je reculer?! » L'essence de vie et de mort de Wang Lin jaillit de son corps.
+« Plus que trois... Ma volonté ne cédera même pas devant les cieux, pourquoi devrais-je reculer?! » L'essence de vie et de mort de Wang Lin, logée dans les essences éthérées au milieu de son front, jaillit de son corps.
 
 Les essences éthérées n'étaient pas affectées par le Continent Astral Immortel. Dès qu'elles jaillirent, Wang Lin posa le pied sur la 17e marche!
 
 « Ma volonté a percé le monde des grottes et le Continent Astral Immortel. Je suis le premier à quitter le monde des grottes! Même s'il s'agit de la volonté d'un cultivateur au milieu du stade de la Tribulation du Vide, quelles sont vos qualifications pour me forcer à reculer?! » L'essence véritable et fausse de Wang Lin explosa devant lui. Son corps n'était plus qu'une illusion et, alors qu'il changeait rapidement, il atteignit la 18e marche!
 
-Cette scène fut vue par tous les disciples de la Secte de la Grande Âme et fit trembler leurs cœurs. En voyant cela, le visage de Yan Lu devint instantanément livide.
+Cette scène fut vue par tous les disciples de la Secte de la Grande Âme et fit trembler leurs cœurs. En voyant cela, le visage de Yan Luan devint instantanément livide.
 
 Même les vieux monstres de la Secte de la Grande Âme, d'ordinaire en culture retirée, sortirent pour observer la scène de leurs propres yeux.
 
 « Ma volonté ne peut être détruite par la rétribution divine. J'ai repris mon propre destin des mains de la rétribution divine. Je suis venu sur le Continent Astral Immortel non pas pour me soumettre, mais pour me maîtriser moi-même! Je suis venu sur le Continent Astral Immortel non pas pour obéir, mais pour marcher au-dessus des cieux! » Les yeux de Wang Lin brillèrent tandis que son essence karmique jaillissait. Son pied se posa sur la 19e marche et il pénétra au septième étage!
 
-Au moment où son pied toucha le sol, l'illusion surplombant la Secte de la Grande Âme brilla intensément. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
+Au moment où son pied toucha le sol, l'illusion surplombant la Secte de la Grande Âme brilla intensément. Autour d'eux, tout était silencieux. Tous les disciples de la secte levèrent les yeux vers l'illusion avec respect.
 
 Les forts sont respectés, peu importe où ils se trouvent. Wang Lin avait utilisé sa propre puissance pour signifier à tous les membres de la Secte de la Grande Âme qu'il pouvait accéder au septième étage!
 
@@ -40,13 +40,13 @@ Au même instant, au Pic du Ciel Vert, l'Estimé Taureau Vert réfléchissait. I
 
 « Maintenant... tout a changé... »
 
-Lorsque Wang Lin pénétra dans le septième étage du Pavillon des Écritures de l'Âme, il se retourna pour regarder Yan Lu, dont le visage était pâle. D'un revers de manche, il fit voler vers lui l'épée de sang et le parapluie bleu.
+Lorsque Wang Lin pénétra dans le septième étage du Pavillon des Écritures de l'Âme, il se retourna pour regarder Yan Luan, dont le visage était pâle. D'un revers de manche, il fit voler vers lui l'épée de sang et le parapluie bleu.
 
-« Yan Lu, je prends le parapluie! »
+« Yan Luan, je prends le parapluie! »
 
-Yan Lu leva instinctivement la main pour saisir l'objet, mais son orgueil l'en empêcha. Ce moment d'hésitation permit au parapluie et à l'épée de sang d'arriver aux côtés de Wang Lin.
+Yan Luan leva instinctivement la main pour saisir l'objet, mais son orgueil l'en empêcha. Ce moment d'hésitation permit au parapluie et à l'épée de sang d'arriver aux côtés de Wang Lin.
 
-Wang Lin rangea l'épée de sang et saisit le parapluie bleu. Juste au moment où il s'apprêtait à effacer le Sens Divin de Yan Lu pour se l'approprier, sa voix froide résonna depuis le sixième étage.
+Wang Lin rangea l'épée de sang et saisit le parapluie bleu. Juste au moment où il s'apprêtait à effacer le Sens Divin de Yan Luan pour se l'approprier, sa voix froide résonna depuis le sixième étage.
 
 « Wang Lin, es-tu toujours prêt à parier?! »
 
@@ -54,15 +54,15 @@ Les yeux de Wang Lin s'illuminèrent. Il eut un sourire méprisant et interrompi
 
 « Sur quoi veux-tu parier? »
 
-« Je parie que tu ne pourras pas entrer au huitième étage! Oses-tu accepter ce pari? » Yan Lu s'était déplacée au bas de l'escalier mais n'osait pas y poser le pied. Elle leva les yeux vers Wang Lin.
+« Je parie que tu ne pourras pas entrer au huitième étage! Oses-tu accepter ce pari? » Yan Luan s'était déplacée au bas de l'escalier mais n'osait pas y poser le pied. Elle leva les yeux vers Wang Lin.
 
 Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
-« Si tu perds, tu n'auras qu'à me rendre le trésor! Mais si tu gagnes, je... » Avant que Yan Lu ne puisse terminer sa phrase, Wang Lin l'interrompit.
+« Si tu perds, tu n'auras qu'à me rendre le trésor! Mais si tu gagnes, je... » Avant que Yan Luan ne puisse terminer sa phrase, Wang Lin l'interrompit.
 
 « Pourquoi devrais-je continuer à parier avec toi? » Les paroles de Wang Lin étaient calmes alors qu'il agitait sa manche et s'enfonçait dans le septième étage, où se trouvaient moins de 30 corps d'âmes.
 
-« Wang Lin!! Si tu gagnes, je te donnerai ce trésor!! » Yan Lu agita la main et une petite calebasse violette apparut.
+« Wang Lin!! Si tu gagnes, je te donnerai ce trésor!! » Yan Luan agita la main et une petite calebasse violette apparut.
 
 À l'instant où la calebasse se manifesta, des fluctuations d'âme en émanèrent.
 
@@ -70,7 +70,7 @@ Wang Lin ne répondit pas immédiatement et prit un instant pour réfléchir.
 
 « Cet objet est la raison pour laquelle je peux invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme. Avec cela, tu pourras également invoquer le neuvième Ancêtre avec l'Origine de la Fantaisie de l'Âme! »
 
-« Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Lu était perçante et résonna dans tout le Pavillon des Écritures de l'Âme.
+« Tant que tu parviens à entrer au huitième étage, tu peux le prendre! Es-tu prêt à parier?! » La voix de Yan Luan était perçante et résonna dans tout le Pavillon des Écritures de l'Âme.
 
 Les pas de Wang Lin s'arrêtèrent alors qu'il ressentait les fluctuations d'âme provenant du sixième étage. Il manquait actuellement de trésors. S'il voulait asseoir sa position sur le Continent Astral Immortel, outre sa propre force, les trésors étaient essentiels.
 
@@ -82,29 +82,29 @@ Le Sens Divin de Wang Lin avait balayé les corps d'âmes du septième étage. L
 
 « Si je n'utilise pas le pouvoir de mon avatar dans le vide, il sera très difficile d'atteindre le huitième étage... » Wang Lin fronça les sourcils et commença à évaluer les risques et les bénéfices tout en percevant lentement son avatar dans le vide.
 
-Yan Lu se trouvait au sixième étage, attendant la réponse de Wang Lin. Elle était légèrement anxieuse, craignant soit que Wang Lin ne refuse, soit qu'une fois d'accord, il possède réellement un moyen d'atteindre le huitième étage.
+Yan Luan se trouvait au sixième étage, attendant la réponse de Wang Lin. Elle était légèrement anxieuse, craignant soit que Wang Lin ne refuse, soit qu'une fois d'accord, il possède réellement un moyen d'atteindre le huitième étage.
 
 « Ce n'est pas possible... Ce parapluie m'est d'une grande utilité. Je ne suis pas prête à le lui laisser si facilement! Le huitième étage... contient la volonté d'un cultivateur au stade tardif de la Tribulation du Vide. Avec le niveau de culture de Wang Lin, il a dû être blessé en atteignant le septième étage. Il ne pourra jamais atteindre le huitième! »
 
-Alors que Yan Lu réfléchissait avec anxiété, les paroles de Wang Lin résonnèrent depuis le septième étage.
+Alors que Yan Luan réfléchissait avec anxiété, les paroles de Wang Lin résonnèrent depuis le septième étage.
 
 « Puisque tu veux parier, alors parions! » Les mots de Wang Lin étaient décisifs. Cette gourde remplie de 30 millions d'âmes Dao était un objet qu'il devait obtenir. En vérifiant son avatar, il constata que sa croissance avait été plus rapide que prévu; ainsi, même s'il lui fallait transmettre une partie de sa puissance à son corps principal, cela n'affecterait pas trop l'avatar.
 
 Après avoir pesé le pour et le contre, Wang Lin prit sa décision.
 
-En entendant les paroles de Wang Lin, Yan Lu commença à ressentir un regret diffus. Elle ne savait pas pourquoi, mais la détermination dans la voix de Wang Lin l'alarmait.
+En entendant les paroles de Wang Lin, Yan Luan commença à ressentir un regret diffus. Elle ne savait pas pourquoi, mais la détermination dans la voix de Wang Lin l'alarmait.
 
-« Cela... » Une hésitation passa dans les yeux de Yan Lu.
+« Cela... » Une hésitation passa dans les yeux de Yan Luan.
 
 « Quoi, tu n'oses pas? Si tu n'oses pas, alors oublie. Mais ne me blâme pas si j'efface le Sens Divin de ce parapluie bleu! » Wang Lin sourit et serra le parapluie bleu dans sa main droite. Il leva la main gauche pour effacer la conscience divine qui y était déposée.
 
-« D'accord, je parie avec toi! Je ne crois pas que tu puisses monter au huitième étage! » Yan Lu serra les dents.
+« D'accord, je parie avec toi! Je ne crois pas que tu puisses franchir le septième et le huitième étage d'affilée! » Yan Luan serra les dents.
 
 Wang Lin rit et, d'un revers de manche, se dirigea vers l'escalier menant au huitième étage. L'esprit de Wang Lin et l'avatar dans le vide formèrent une connexion. Cette liaison ignorait toutes les restrictions de la Secte de la Grande Âme et même les innombrables barrières du Pavillon des Écritures de l'Âme. Même les lois du Continent Astral Immortel ne pouvaient entraver la puissance qui affluait vers lui.
 
 Les yeux de Wang Lin brillèrent et, en sept pas, il atteignit l'escalier du huitième étage. D'un seul mouvement, il avança.
 
-« Yan Lu, regarde bien! »
+« Yan Luan, regarde bien! »
 
 Au moment où le pied de Wang Lin toucha les marches, les nombreux cultivateurs à l'extérieur s'apprêtaient à se disperser. Mais leurs cœurs tremblèrent et ils levèrent tous les yeux. Même les expressions des vieux monstres changèrent!
 
@@ -122,6 +122,6 @@ Un tumulte éclata alors que les anciens en culture retirée tournaient tous leu
 
 « Il va au huitième étage!! Atteindre le septième étage avec trois ans d'avance est une chose, mais entrer au huitième étage 30 ans prématurément est... » L'Ancien ne savait pas si cela serait bénéfique ou néfaste pour la Secte de la Grande Âme. Cependant, ce décalage par rapport à la divination de l'Ancêtre originel lui causait un profond malaise.
 
-Au sixième étage, Yan Lu ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de culture, elle possédait ses propres méthodes.
+Au sixième étage, Yan Luan ne pouvait ni entrer dans le septième, ni voir les changements qui s'y produisaient. Même son Sens Divin ne pouvait y pénétrer, mais avec son niveau de culture, elle possédait ses propres méthodes.
 
-Dans le nouveau pic qui avait été attribué à Yan Lu, l'une de ses disciples contemplait le ciel, stupéfaite. Elle trembla, son regard perdit soudainement sa focalisation pour être remplacé par une intention meurtrière. À cet instant, l'âme de la disciple fut supprimée et le Sens Divin que Yan Lu avait laissé sur le pic prit le contrôle, faisant de ses yeux les yeux de Yan Lu.
+Dans le nouveau pic qui avait été attribué à Yan Luan, l'une de ses disciples contemplait le ciel, stupéfaite. Elle trembla, son regard perdit soudainement sa focalisation pour être remplacé par une intention meurtrière. À cet instant, l'âme de la disciple fut supprimée et le Sens Divin que Yan Luan avait laissé sur le pic prit le contrôle, faisant de ses yeux les yeux de Yan Luan.

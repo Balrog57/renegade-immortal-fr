@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 682 - Duty
 slug: devoir
 ---
-L'esprit tourmenté pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de chagrin. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente ces centaines d'années de ressentiment d'un seul coup.
+L'esprit tourmenté pouvait clairement entendre les paroles de Wang Lin, mais ses yeux étaient empreints de froideur et de ressentiment. Il continuait de mordre le doigt de Wang Lin, comme s'il voulait que celui-ci ressente ces centaines d'années de ressentiment d'un seul coup.
 
 Wang Lin observa l'enfant un long moment avant de laisser échapper un soupir. Le ressentiment qui pénétrait son corps ne pouvait l'affecter; il lui suffisait de laisser le tonnerre en lui balayer le corps pour que tout soit dissipé.
 
@@ -44,23 +44,23 @@ Il ne faisait pas preuve d'arrogance ou de présomption; une idée folle venait 
 
 Le corps de Sun Xi trembla; il sentait une intention meurtrière bouillonner en Wang Lin. Cette intention était si puissante que, si elle explosait, les cieux et la terre seraient inondés de sang. La culture de Sun Xi ayant trop diminué, son cœur vacilla et il baissa immédiatement la tête, n'osant plus croiser le regard de Wang Lin.
 
-Wang Lin baissa les yeux vers Sun Xi et dit lentement: « Cultiver en dessous du stade de la Formation de l'Âme ne requiert aucune compréhension; une énergie spirituelle suffisante suffit à élever votre niveau de culture. Vous possédez l'expérience de vos innombrables années de culture grâce à votre corps original, vous avez donc votre propre compréhension. Je peux vous aider à atteindre le sommet du stade avancé de l'Âme Naissante. Quant à la Formation de l'Âme et au-delà, cela dépendra de votre capacité à percer. De cette façon, vous aurez encore une chance d'atteindre le stade Ascendant, et il pourrait même être possible d'aller au-delà. »
+Wang Lin baissa les yeux vers Sun Xi et dit lentement: « Cultiver en dessous du stade de la Formation de l'Âme ne requiert aucune compréhension; une énergie spirituelle suffisante suffit à élever votre niveau de culture. Vous possédez l'expérience de vos innombrables années de culture grâce à votre corps original, vous avez donc votre propre compréhension. Je peux vous aider à atteindre le stade tardif de l'Âme Naissante. Quant à la Formation de l'Âme et au-delà, cela dépendra de votre capacité à percer. De cette façon, vous aurez encore une chance d'atteindre le stade Ascendant, et il pourrait même être possible d'aller au-delà. »
 
 Sun Xi réfléchit en silence et eut un sourire amer: « Lorsque j'ai atteint le stade Ascendant, je n'y suis arrivé que par pure chance. Je n'ai vraiment pas le courage de traverser à nouveau une telle épreuve de vie ou de mort... »
 
 En pensant à l'épreuve de la vie ou de la mort pour atteindre le stade Ascendant, Wang Lin soupira: « Je ne peux pas vous aider à atteindre le stade Ascendant. Au mieux, puisque votre compréhension demeure, je peux vous aider à atteindre le stade de la Transformation de l'Âme. Cependant, cela nécessitera une pilule de culture de rang huit, et votre culture s'arrêtera alors définitivement, sans aucune possibilité de progression. »
 
-Autrefois sur la planète Suzaku, Papillon Rouge avait attiré l'attention du pays de Suzaku, ce qui permit à Xue Yue d'être promu au rang de pays de culture de cinquième niveau. Le maître de secte avait été directement élevé de la Formation de l'Âme à la Transformation de l'Âme par une méthode similaire, mais il n'avait plus jamais progressé de sa vie.
+Autrefois sur la planète Suzaku, Papillon Rouge avait attiré l'attention du pays de Suzaku, ce qui permit au pays de Xue Yu d'être promu au rang de pays de culture de cinquième niveau. Le maître de secte avait été directement élevé de la Formation de l'Âme à la Transformation de l'Âme par une méthode similaire, mais il n'avait plus jamais progressé de sa vie.
 
 À cet instant, Wang Lin possédait une pilule de rang huit. Sous son contrôle, il pourrait faire en sorte que Sun Xi supporte les effets du remède.
 
 Sun Xi serra les dents et dit avec détermination: « Frère Xu, je choisis la seconde option! »
 
-Wang Lin ne dit rien de plus. Il leva la main et pointa le ciel. Celui-ci s'obscurcit soudainement tandis que la Rivière des Enfers apparaissait, enveloppant le monde.
+Wang Lin ne dit rien de plus. Il leva la main et pointa le ciel. Celui-ci s'obscurcit soudainement tandis que la Rivière des Enfers apparaissait, telle un fleuve Jaune courbant le monde.
 
 Pour augmenter le niveau de culture de Sun Xi, une immense quantité d'énergie spirituelle était requise. Wang Lin ne pouvait y parvenir seul; il devait utiliser son propre Dao pour contrôler l'énergie spirituelle des cieux et de la terre.
 
-La Rivière des Enfers s'étendit et, dès que l'intention du Dao de Wang Lin y pénétra, la planète entière sembla trembler. Les veines spirituelles brisées sous la terre commencèrent toutes à converger.
+La Rivière des Enfers s'étendit et, dès que l'intention du Dao de Wang Lin y pénétra, une force immense s'en dégagea et la planète entière sembla trembler. Les veines spirituelles brisées sous la terre commencèrent toutes à converger.
 
 Wang Lin murmura doucement: « Troisième capacité de la Rivière des Enfers: la Puissance des Enfers! » Un grondement sourd émana de la rivière et, simultanément, une puissante force d'aspiration s'en dégagea.
 
@@ -72,7 +72,7 @@ Les yeux de Wang Lin s'illuminèrent lorsqu'il saisit Sun Xi. Il le projeta dans
 
 Peu après, Wang Lin frappa son sac de rangement et en sortit une pilule de rang huit. Il brisa l'enveloppe de cire et une riche odeur médicinale s'en dégagea immédiatement. Il jeta la pilule dans la Rivière des Enfers qui, à mi-chemin, se transforma en un gaz vert fusionnant avec les eaux.
 
-Trois jours plus tard, un rire retentit de l'intérieur de la Rivière des Enfers de Wang Lin. Sun Xi ouvrit les yeux dans un éclat de lumière. Son corps vacilla alors qu'il s'extrayait des eaux. Il fixa ses mains et son Sens Divin scruta son corps. L'excitation illumina instantanément son visage. Il prit une grande inspiration, envahi par une joie profonde.
+Trois jours plus tard, un long cri retentit de l'intérieur de la Rivière des Enfers de Wang Lin. Sun Xi ouvrit les yeux dans un éclat de lumière. Son corps vacilla alors qu'il s'extrayait des eaux. Il fixa ses mains et son Sens Divin scruta son corps. L'excitation illumina instantanément son visage. Il prit une grande inspiration, envahi par une joie profonde.
 
 Il s'inclina profondément devant Wang Lin: « Je vous serai éternellement reconnaissant pour votre aide, Frère Xu! »
 
@@ -96,7 +96,7 @@ Il existait trois grandes familles de culture sur la planète Mille Illusions: Q
 
 La famille Qian comptait trois cultivateurs au second stade. Grâce à cette puissance immense, ils étaient les suzerains de la planète Mille Illusions, contrôlant les régions nord et est. Quant à la famille Huan, elle ne comptait que deux cultivateurs au second stade. L'un d'eux était mort il y a des millénaires lors de l'ouverture du Royaume Céleste du Tonnerre; l'autre était l'ancêtre actuel.
 
-En termes de force pure, la famille Huan n'était plus assez puissante pour occuper la deuxième place. Cependant, sa lignée remontait à un être céleste du Royaume Céleste du Tonnerre. La rumeur voulait qu'avant l'effondrement de ce royaume, cet être céleste ait laissé un trésor d'héritage et un jade de protection familiale au siège de la famille. Ce jade contenait un sortilège divin, permettant à la lignée Huan de maintenir son rang malgré la disparition de ses ancêtres.
+En termes de force pure, la famille Huan n'était plus assez puissante pour occuper la deuxième place. Cependant, sa lignée remontait à un être céleste du Royaume Céleste du Tonnerre. La rumeur voulait qu'avant l'effondrement de ce royaume, cet être céleste ait laissé un trésor d'héritage et un jade de protection familiale au siège de la famille. Ce jade contenait un sortilège divin, permettant à la lignée Huan de maintenir son rang malgré les longues absences de ses ancêtres.
 
 Quant à la famille Xu, leur nature mystérieuse inspirait la crainte aux deux autres familles. Tous les indices suggéraient que la famille Xu entretenait des liens avec la célèbre planète Dong Lin du Système Stellaire de Luotian. Le prestige de cette dernière étant immense, la famille Xu s'était imposée comme une troisième force légitime sur Mille Illusions. Fort heureusement, elle restait très discrète et ne s'immisçait jamais dans les affaires planétaires, permettant aux trois forces de coexister en harmonie sans conflit majeur.
 

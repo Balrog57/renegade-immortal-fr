@@ -18,7 +18,7 @@ Bien que Xu Liguo ait réussi à résister à la restriction par quelque moyen i
 
 Xu Liguo s'enfuyait à toute allure. Autrefois simple âme, il était désormais un esprit d'épée, et sa vitesse surpassait de loin celle qu'il possédait autrefois. En cet instant, mû par la terreur, il déployait toute sa puissance, fuyant tel un fantôme désespéré.
 
-« Diable! J'ai tant contribué et pourtant tu as essayé de me tuer. N'avais-je pas simplement trouvé une petite beauté que j'aimais? N'avais-je pas simplement caché un petit secret? N'avais-je pas seulement décidé de trouver une occasion d'emporter l'épée céleste et la petite lame noire pour m'enfuir? Euh... » Xu Liguo laissa échapper un soupir en comprenant enfin pourquoi ce démon voulait sa peau.
+« Fléau! J'ai tant contribué et pourtant tu as essayé de me tuer. N'avais-je pas simplement trouvé une petite beauté que j'aimais? N'avais-je pas simplement caché un petit secret? N'avais-je pas seulement décidé de trouver une occasion d'emporter l'épée céleste et la petite lame noire pour m'enfuir? Euh... » Xu Liguo laissa échapper un soupir en comprenant enfin pourquoi ce démon voulait sa peau.
 
 Après sa rencontre avec la petite lame noire, les deux âmes avaient conversé à longueur de journée et il avait appris de nombreux sorts propres aux esprits d'épée. De plus, avec l'aide de ce dernier, ils avaient déployé d'immenses efforts pour réussir à assouplir la restriction que Wang Lin avait placée en lui.
 
@@ -26,7 +26,7 @@ Xu Liguo étant d'un naturel craintif, il s'était montré extrêmement prudent.
 
 Initialement, il faisait preuve d'une immense fierté, mais il avait sous-estimé la suspicion et l'esprit calculateur de Wang Lin, permettant à ce dernier de percer ses mensonges.
 
-« Hélas, si j'avais su que cela finirait ainsi... » Xu Liguo secoua la tête et s'enfuit de plus belle. Sa vitesse était telle qu'il était sur le point de s'échapper de la Cité du Démon Céleste. Il se retourna pour regarder le palais impérial, une lueur de solennité dans les yeux.
+« Hélas, si j'avais su que cela finirait ainsi... » Xu Liguo secoua la tête et s'enfuit de plus belle. Sa vitesse était telle qu'il était sur le point de s'échapper de la Cité du Démon Céleste. Il se retourna pour regarder en direction de la capitale impériale, une lueur de solennité dans les yeux.
 
 « Adieu, ma bien-aimée petite beauté! Un jour, je reviendrai te retrouver! » Ce type, même à cet instant, ne pensait qu'à sa petite beauté, oubliant totalement son petit frère, la lame noire...
 
@@ -60,7 +60,7 @@ Xu Liguo semblait porter un immense regret pour ses actes, mais intérieurement,
 
 Simultanément, la main de Wang Lin traça des sceaux, créant des restrictions qui flottèrent dans l'air. Ces dernières formèrent une restriction plus vaste, bien qu'incomplète.
 
-Cet ensemble de restrictions manquait d'une pièce, et la pièce manquante se trouvait précisément dans le corps de Xu Liguo!
+Cet ensemble de restrictions manquait d'une pièce, et la pièce manquante se trouvait précisément dans l'esprit de Xu Liguo!
 
 Bien que Wang Lin ait déployé d'immenses efforts pour mettre en place cette restriction à l'époque, elle était bien moins puissante que ce qu'il pouvait accomplir aujourd'hui. Une fois les restrictions activées, le corps de Xu Liguo fut immédiatement attiré et projeté involontairement vers elles.
 

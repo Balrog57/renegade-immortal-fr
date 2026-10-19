@@ -54,7 +54,7 @@ Les yeux de Wang Lin furent envahis par une intention meurtrière: « Dégage! B
 
 Le but des paroles de Liu Mei était de briser le cœur Dao de Wang Lin, mais elle ignorait que Li Muwan était un sujet tabou pour lui. Il tuerait quiconque mentionnerait son nom. S'il n'avait pas été dans un lieu aussi périlleux, il aurait déjà sorti l'étendard de l'âme pour l'exterminer.
 
-Wang Lin tenait énormément à ses rares attaches, mais il restait impitoyable envers les étrangers.
+Wang Lin accordait une immense importance aux bienfaits reçus, mais restait impitoyable envers les étrangers.
 
 Il était un homme de fer et de pierre; ce n'était pas un mensonge!
 
@@ -120,7 +120,7 @@ Wang Lin leva la tête et scruta l'homme âgé avec désinvolture. Cette fois, s
 
 Grâce à cette intuition, Wang Lin put immédiatement voir clair en eux. La lumière rouge qui brillait dans les yeux du petit singe était l'aura unique des êtres résidant dans la mer de sang.
 
-Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démoniaque des Six Désirs, à Bossu Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
+Wang Lin ressentit une amertume profonde. Il pensa au Seigneur Démon des Six Désirs, à Bossu Meng, à l'Ancien Empereur et aux autres. Tous étaient soit morts, soit devenus des cultivateurs dans la mer de sang.
 
 Il y avait aussi ces anciens cultivateurs, qui existaient déjà avant qu'il y ait le moindre cultivateur sur la planète Suzaku et qui y étaient prisonniers. Leurs niveaux de culture étaient également très élevés.
 

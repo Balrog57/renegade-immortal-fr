@@ -10,7 +10,7 @@ slug: boussole
 
 Wang Lin laissa échapper un rire et continua d'avancer. « Vous finirez par découvrir ce sens caché par vous-même. Si, à la fin, vous ne le comprenez toujours pas, alors ce sera la fin de votre vie! »
 
-Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à traiter avec un junior comme vous. Si vous voulez détruire ma troisième âme, ne vous gênez pas, et voyez comment je résisterai! »
+Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à me mesurer à un junior comme vous. Si vous voulez détruire ma troisième âme, ne vous gênez pas, et voyez comment je résisterai! »
 
 Sur ce, il s'envola rapidement au loin et cessa de parler de piéger Wang Lin.
 

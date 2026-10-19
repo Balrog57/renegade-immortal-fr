@@ -32,7 +32,7 @@ Ces cultivateurs en mouvement remarquèrent également Wang Lin et Li Yuan. Lors
 
 C'était un phénomène très inhabituel dans le vide!
 
-De plus, alors que les deux continuaient leur route vers le centre, ils virent encore davantage de cultivateurs. C'était comme si tous les êtres du Royaume Céleste du Tonnerre convergeaient vers un seul et même fragment.
+De plus, alors que les deux continuaient leur route vers le centre, ils virent encore davantage de cultivateurs. C'était comme si tous les êtres du Royaume Céleste du Tonnerre convergeaient vers un seul et même endroit.
 
 « Ils ne se dirigent pas vers le même endroit! » Les yeux de Wang Lin s'illuminèrent et il déclara lentement: « Ils partent dans quatre directions différentes! »
 
@@ -40,7 +40,7 @@ De plus, alors que les deux continuaient leur route vers le centre, ils virent e
 
 Wang Lin réfléchit un instant. Sans ajouter un mot, il prit Li Yuan sous son aile et accéléra sa course.
 
-À ce moment précis, plus de dix rayons d'énergie d'épée traversèrent le vide lointain. Une riche énergie originelle émanait de ces éclairs, faisant en sorte que les cultivateurs environnants n'osassent bloquer leur passage.
+À ce moment précis, plus de dix rayons d'énergie d'épée, dans un grondement de tonnerre, traversèrent le vide lointain. Une riche énergie originelle émanait de ces éclairs, faisant en sorte que les cultivateurs environnants n'osassent bloquer leur passage.
 
 Ces dix rayons d'énergie d'épée dégageaient une pression dominante en balayant la zone. Même les clans regroupant un grand nombre de cultivateurs reculèrent immédiatement lorsqu'ils virent ces traînées fulgurantes.
 
@@ -70,7 +70,7 @@ Dès qu'il eut parlé, tous ceux qui l'entendirent furent stupéfaits et leurs r
 
 À cet instant, bien que le nombre de cultivateurs ne fût pas immense, la scène n'était pas moins impressionnante que si des dizaines de milliers de personnes avaient observé. Malgré cette convergence de regards, l'expression de Wang Lin ne changea aucunement; il demeurait aussi serein qu'une eau dormante.
 
-Zhan Konglie était très célèbre, et certains cultivants environnants le reconnurent naturellement, même ceux qui ne percevaient pas la puissante énergie originelle émanant de lui. Puis, en entendant ses paroles, ils l'identifièrent aussitôt comme étant Zhan Konglie, venu du domaine Sud.
+Zhan Konglie était très célèbre, et certains cultivateurs environnants le reconnurent naturellement, même ceux qui ne percevaient pas la puissante énergie originelle émanant de lui. Puis, en entendant ses paroles, ils l'identifièrent aussitôt comme étant Zhan Konglie, venu du domaine Sud.
 
 « Qui est cet homme? Son niveau de culture semble similaire à celui de Zhan Konglie. Comment le célèbre Zhan Konglie du domaine Sud peut-il l'appeler "Senior"?! »
 
@@ -86,7 +86,7 @@ Même les Anciens de sa propre lignée ne recevaient souvent pas son respect. Il
 
 Le respect de Zhan Konglie était sincère et venait du plus profond de son être. En voyant Wang Lin, il perçut naturellement sa culture au stade Corporel Yang et ressentit une pointe de mélancolie.
 
-« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait réduit sa puissance au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
+« Il est véritablement digne d'être appelé Senior. À l'époque où il avait réprimé sa culture au stade Ascendant, je n'avais absolument pas décelé qu'il cachait son véritable niveau. Aujourd'hui, bien qu'il ait porté sa culture au stade Corporel Yang, je ne parviens toujours pas à percevoir la moindre trace de sa force réelle. » Le respect dans les yeux de Zhan Konglie s'intensifia.
 
 Lorsqu'il était reparti autrefois, il était resté mélancolique et éprouvait une immense envie envers Shengong Hu. Après son retour chez lui, il avait hésité, se demandant s'il n'aurait pas dû faire comme Shengong Hu et saisir cette chance inouïe.
 

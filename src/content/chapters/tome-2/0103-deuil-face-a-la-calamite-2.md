@@ -10,7 +10,7 @@ Teng Huayuan afficha un sourire sinistre alors qu'il dégageait une immense aura
 
 Après la mort de Teng Li, Teng Huayuan avait mené l'enquête pour découvrir la vérité. Outre Wang Lin, tous ceux qui avaient été impliqués furent inscrits sur sa liste noire.
 
-L'autre cultivateur soupira et dit: « Camarade cultivateur Teng, d'après mes calculs, cet individu se trouve dans la Vallée Jue Ming. Pourquoi vouloir s'en prendre à sa famille? Laissez tomber. Toute dette finit par être recouvrée. Si la rumeur se répand que vous réglez vos comptes avec des mortels, cela ne fera pas bonne figure. »
+L'autre cultivateur soupira et dit: « Camarade cultivateur Teng, d'après mes calculs, cet individu se trouve dans la Vallée Jue Ming. Pourquoi vouloir s'en prendre à sa famille? Laissez tomber. Chaque rancune a son responsable. Si la rumeur se répand que vous réglez vos comptes avec des mortels, cela ne fera pas bonne figure. »
 
 Le visage de Teng Huayuan s'assombrit tandis qu'il fixait l'autre cultivateur sans dire un mot.
 

@@ -50,7 +50,7 @@ Une fois le vortex effondré, les âmes originelles ayant survécu retournèrent
 
 Ce n'était pas seulement leur cas; les dizaines de milliers d'autres cultivateurs ouvrirent les yeux et recrachèrent également du sang.
 
-Wang Lin se tenait au centre de la formation circulaire. Bien qu'il fût au stade intermédiaire du Vide Spirituel, l'usage combiné de la Lance aux Sept Couleurs et de l'Ombrelle Brûlante du Royaume lui imposait un stress immense. Malgré son apparence calme, une douleur lancinante torturait son âme originelle.
+Wang Lin se tenait au centre de la formation circulaire. Bien qu'il fût au stade intermédiaire du Vide Spirituel, l'usage combiné de la Lance aux Sept Couleurs et de l'Ombrelle Brûlante du Royaume lui imposait un stress immense. Malgré son apparence calme, son sang et son qi bouillonnaient, et une douleur lancinante torturait son âme originelle.
 
 Wang Lin agita sa manche et lança froidement aux cultivateurs du Royaume Extérieur: « Recommencez donc! »
 
@@ -72,7 +72,7 @@ Bien que ces bêtes aient été nées dans cette grotte, leurs ancêtres avaient
 
 Bien qu'elles ne fussent pas originaires du Continent Astral Immortel, elles en portaient l'aura. Il s'agissait de diverses races de bêtes célestes issues de ce continent!
 
-Leurs âmes contenaient les souvenirs de leurs ancêtres. Parmi les dizaines de bêtes féroces surgissant des chars, on voyait des dragons de cent mille pieds, des créatures étranges et même une bête que Wang Lin avait déjà rencontrée: le Ji Qiong!
+Leurs âmes contenaient les souvenirs de leurs ancêtres. Parmi les dizaines de bêtes féroces surgissant des chars, on voyait des dragons de dix mille pieds, des créatures étranges et même une bête que Wang Lin avait déjà rencontrée: le Ji Qiong!
 
 Des rugissements tonitruants jaillirent des chars, tandis que les cultivateurs prêts à mourir s'installaient dans les bras de lancement.
 
@@ -92,7 +92,7 @@ Les grondements résonnaient à ses oreilles. Les cultivateurs du Royaume Extér
 
 Cette aura contenait la force d'âme de chaque char. À mesure que les morts s'accumulaient, cette essence funeste dessinait une étrange rune.
 
-C'est alors qu'au moment où un cultivateur fut expulsé d'un char, le dragon de cent mille pieds qui y siégeait poussa un rugissement. Ses yeux, jusque-là clos, s'ouvrirent soudainement, révélant un regard féroce avant qu'il ne dévore le cultivateur. Puis, il s'élança hors du char et chargea la formation!
+C'est alors qu'au moment où un cultivateur fut expulsé d'un char, le dragon de dix mille pieds qui y siégeait poussa un rugissement. Ses yeux, jusque-là clos, s'ouvrirent soudainement, révélant un regard féroce avant qu'il ne dévore le cultivateur. Puis, il s'élança hors du char et chargea la formation!
 
 C'était comme si la rune apparue sur la formation agissait comme une attraction mortelle. Le dragon se précipita avec désespoir.
 
@@ -110,6 +110,6 @@ Peu après, alors que les dizaines d'âmes de bêtes féroces approchaient, la f
 
 Wang Lin ressentit les fluctuations de la formation. Il fixa les bêtes féroces, un regard glacial dans les yeux.
 
-« Des bêtes féroces ancestrales? J'en ai moi aussi! Et ce n'est pas seulement une âme, mais une véritable bête féroce ancestrale survivante! » Wang Lin pointa l'espace entre ses sourcils.
+« Des bêtes féroces ancestrales? J'en ai moi aussi! Et ce n'est pas seulement une âme, mais une véritable bête féroce ancestrale survivante, dotée d'un corps! » Wang Lin pointa l'espace entre ses sourcils.
 
 Sur ce, un vortex apparut entre ses deux yeux et une aura antique se propagea. Peu après, une lueur fantomatique jaillit.

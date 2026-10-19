@@ -14,17 +14,17 @@ Cette puissance dévastatrice s'engouffra dans le corps de Tuo Sen avec une viol
 
 Grâce à l'intervention de Tuo Sen, Wang Lin avait utilisé son bras droit comme tribut pour franchir la dix-septième respiration. La septième étoile entre ses sourcils avait désormais pris forme et atteignait le point de perfection!!
 
-La terrifiante dix-neuvième respiration descendit!
+La terrifiante dix-huitième respiration descendit!
 
 Au même instant, Tuo Sen vit distinctement la septième étoile qui se forgeait entre les sourcils de Wang Lin!
 
 Personne ne connaissait mieux le corps de dieu ancien de Wang Lin que Tuo Sen. En voyant cela, il comprit instantanément la situation. Il réalisa que Wang Lin était en train de recevoir l'héritage qui lui appartenait originellement!!
 
-« Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage d'Ordre Ancien!! » Les yeux de Tuo Sen étaient injectés de sang; malgré ses blessures, il chargea comme un fou alors que la dix-neuvième respiration s'abattait.
+« Tu as pris mon héritage de mémoire et maintenant tu vas voler mon héritage d'Ordre Ancien!! » Les yeux de Tuo Sen étaient injectés de sang; malgré ses blessures, il chargea comme un fou alors que la dix-huitième respiration s'abattait.
 
 Il se déplaçait avec une rapidité extrême et allait immédiatement franchir le filet qu'il avait brisé. Il était sur le point d'entrer!
 
-Lorsque la dix-neuvième respiration frappa, la force de rejet fut impossible à calculer. La taille de Wang Lin s'effondra et la décomposition se propagea rapidement à travers son corps. En un instant, sa poitrine explosa.
+Lorsque la dix-huitième respiration frappa, la force de rejet fut impossible à calculer. La taille de Wang Lin s'effondra et la décomposition se propagea rapidement à travers son corps. En un instant, sa poitrine explosa.
 
 Son bras gauche restant émit des craquements sinistres. Juste avant qu'il ne s'effondre, Wang Lin afficha un regard de démence et pointa l'espace entre ses sourcils, faisant apparaître 20 Feuilles Anciennes. D'un revers de la main gauche, il projeta les 20 Feuilles Anciennes en avant.
 
@@ -60,7 +60,7 @@ Le rugissement du dieu ancien!
 
 Son cri était comme le tonnerre et se propagea dans tout le palais. Ce rugissement assourdissant, chargé de la puissance d'un dieu ancien, créa une tempête dévastatrice qui balaya le lieu avec une aura tyrannique. Ling Dong cracha du sang et sa mer pourpre s'effondra; il tomba au sol, vidé de toute force!
 
-La lune de sang de Zhou Jin se distordit sous des cris misérables. Les loups absorbés disparurent un à un, et bientôt la lune elle-même se désintégra!
+La lune de sang de Zhou Jin se distordit sous des cris déchirants. Les loups absorbés disparurent un à un, et bientôt la lune elle-même se désintégra!
 
 Le visage de Zhou Jin était livide et sa poitrine s'affaissa. Il cracha du sang alors qu'il était projeté en arrière, s'écrasant violemment au sol.
 
@@ -76,9 +76,9 @@ Maintenant que Ling Dong et Zhou Jin ne pouvaient plus l'entraver, son bras s'en
 
 Tout cela se passa à une vitesse prodigieuse!
 
-Le corps de Wang Lin continuait de se désagréger sous la force de rejet de la dix-neuvième respiration qui s'engouffrait en lui. Sa poitrine et son bras gauche se dissipèrent dans les airs!
+Le corps de Wang Lin continuait de se désagréger sous la force de rejet de la dix-huitième respiration qui s'engouffrait en lui. Sa poitrine et son bras gauche se dissipèrent dans les airs!
 
-Seule une tête flottait sur le siège, maintenue connectée au trône par une volonté résiduelle! Cependant, l'effondrement ne faisait que commencer. La dix-neuvième respiration devint extrêmement lente, comme si elle ne devait jamais finir.
+Seule une tête flottait sur le siège, maintenue connectée au trône par une volonté résiduelle! Cependant, l'effondrement ne faisait que commencer. La dix-huitième respiration devint extrêmement lente, comme si elle ne devait jamais finir.
 
 Des fissures apparurent sur le menton de Wang Lin avant qu'il ne se dissipe dans le néant. Ses lèvres, son nez et ses yeux disparurent également dans le vide.
 
@@ -110,7 +110,7 @@ Les yeux de Wang Lin s'ouvrirent brusquement. Son corps resta assis sur le trôn
 
 Les sept étoiles tournèrent lentement avant d'accélérer brutalement tandis que la puissance du dieu ancien remplissait son être. Wang Lin sentit qu'il pourrait pulvériser une planète d'un seul coup de poing!
 
-De plus, à cet instant précis, le coup le plus puissant du Clan de la Tortue Noire, enseigné par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
+De plus, à cet instant précis, le coup le plus puissant du Clan de la Tortue Noire, enseigné sur la Planète du Grand Empereur par la deuxième génération de l'Oiseau Vermillon, surgit dans son esprit. La compréhension de la maîtrise de la force inonda sa conscience!
 
 Des scènes de pouvoirs divins issus de l'héritage jaillirent du trône!! Ces sorts étaient tels des fragments de Sens Divin, et ils devinrent ses propres souvenirs!
 

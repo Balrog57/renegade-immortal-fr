@@ -32,7 +32,7 @@ Yao Xixue joua avec ses cheveux en regardant Wang Lin. Après un long moment, el
 
 L'expression de Wang Lin demeura sereine tandis qu'il la fixait froidement.
 
-Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, Ling Tianhou, l'Omniscient et leurs compagnons sont venus au Domaine des Esprits Démoniaques, ils ont découvert un... secret! »
+Yao Xixue soupira et reprit: « C'est mon père qui m'a dit qu'il y avait au total quatre grottes ici. À l'époque, lorsque mon père, l'Omniscient, Ling Tianhou et leurs compagnons sont venus au Domaine des Esprits Démoniaques, ils ont découvert un... secret! »
 
 Les yeux de Wang Lin se plissèrent et il demanda calmement: « Quel secret? »
 
@@ -58,19 +58,19 @@ Les yeux de Wang Lin se plissèrent davantage. « Le secret que ton père et les
 
 « L'Empereur Céleste Qing Lin était l'être le plus puissant du Royaume Céleste. La rumeur prétend que lorsque le Royaume Céleste s'est effondré, l'Empereur Céleste Qing Lin n'est pas mort. Après son combat, il s'est enfui, bien que blessé! »
 
-« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin est en culture secrète à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
+« Le secret découvert par mon père et les autres est que l'aura de l'Empereur Céleste Qing Lin est en retraite de culture à l'intérieur de la grotte finale. J'ignore comment ils l'ont appris, alors inutile de m'interroger à ce sujet. » Après avoir fini de parler, elle fixa Wang Lin. Lorsqu'elle avait entendu cela pour la première fois, son choc avait été presque inimaginable. Le simple fait d'y repenser faisait encore trembler son cœur sans fin.
 
-Compte tenu de la force mentale de Wang Lin, elle voulait voir quelle expression il prendrait en entendant cette nouvelle explosive. Malheureusement, elle ne vit que son visage immuable. L'expression de Wang Lin n'avait pas changé d'un iota, mais ses pupilles se rétractèrent imperceptiblement.
+Connaissant la ruse de Wang Lin, elle voulait voir quelle expression il prendrait en entendant cette nouvelle explosive. Malheureusement, elle ne vit que son visage immuable. L'expression de Wang Lin n'avait pas changé d'un iota, mais ses pupilles se rétractèrent imperceptiblement.
 
 Ces paroles déclenchèrent une tempête dans le cœur de Wang Lin!
 
 Il croyait à 70 % ce que Yao Xixue racontait. Ce n'était pas grâce à la beauté de son récit, mais parce qu'elle venait de prononcer ces deux mots: « Qing Lin! »
 
-Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entré dans la grotte avec Yao Xixue. Au moment où il assemblait les sceaux vitaux, il avait entendu la voix émanant du vide.
+Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entré dans la grotte avec Yao Xixue. Au moment où il lançait des runes superposées, il avait entendu la voix émanant du vide.
 
 « Je suis Qing Lin... »
 
-« Quel genre de grotte est-ce là... Elle contient des démons anciens et un démon errant... L'ancien démon a été divisé en neuf parties par quelqu'un, il ne peut donc pas se reformer. J'en sais peu sur les démons errants, mais d'après ce qu'il disait, c'était un démon subordonné à un ancien démon. Ce Domaine des Esprits Démoniaques pourrait-il lui aussi abriter un ancien démon... »
+« Quel genre de grotte est-ce là... Elle contient des démons anciens et un démon errant... L'ancien démon a été divisé en neuf parties par quelqu'un, il ne peut donc pas se reformer. J'en sais peu sur les démons errants, mais d'après ce qu'il disait, c'était un démon subordonné à un Diable Ancien. Ce Domaine des Esprits Démoniaques pourrait-il lui aussi abriter un Diable Ancien... »
 
 Plus Wang Lin obtenait d'informations, plus il avait l'impression qu'un voile de brume se dressait devant lui, une brume qu'il ne parvenait pas à déchirer. Il regarda calmement Yao Xixue et demanda: « Comment les quatre grottes factices étaient-elles réparties entre eux à l'époque? »
 
@@ -84,7 +84,7 @@ Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent soudainement alor
 
 À ces mots, le cœur de Yao Xixue trembla violemment. Cependant, son visage afficha une surprise feinte et elle répondit: « Je n'ai aucune idée de ce que tu veux dire! » Son expression était parfaitement naturelle, ne laissant paraître aucun indice.
 
-« Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités du Patriarche Sanglant, prolonger sa vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
+« Au cours de ces dizaines de milliers d'années, le Domaine des Esprits Démoniaques a été ouvert d'innombrables fois. J'ignore combien de fois tu es venue ici, mais avec les capacités du Patriarche Sanglant, prolonger ta vie ne devrait pas être difficile. Dans cette optique, il se trouve que c'est précisément le moment où tu dois entrer dans la grotte, même au risque qu'un étranger s'en aperçoive. S'il n'y avait pas un secret derrière tout cela, je crains que tu ne sois pas aussi anxieuse! »
 
 « Je soupçonne que durant ces dizaines de milliers d'années, ton père, le Patriarche Sanglant, n'a toujours pas pu entrer pour certaines raisons. C'est pourquoi tu es venue. Tu étais très impatiente d'obtenir le droit d'entrer dans la grotte. Je crois que tu te préparais pour l'arrivée de ton père! »
 

@@ -48,7 +48,7 @@ Dans le Domaine Nord, à l'opposé du Serpent aux yeux de lune, presque à l'aut
 
 Wang Lin fronça les sourcils mais se détendit aussitôt. Ces Sens Divins se verrouillèrent immédiatement sur lui, mais après l'avoir reconnu, ils se dissipèrent instantanément. Puis, plus de dix silhouettes s'élancèrent comme des météores vers lui.
 
-À l'instant presque même où Wang Lin posa le pied sur la planète Qing Ling, plus de dix membres du Clan des Immortels Délaissés apparurent. L'Ancien ancêtre s'avança immédiatement. En voyant Wang Lin, il fut transporté par l'excitation et s'exclama: « Bénéficiaire! »
+À l'instant presque même où Wang Lin posa le pied sur la planète Qing Ling, plus de dix membres du Clan des Immortels Élus apparurent. L'Ancien ancêtre s'avança immédiatement. En voyant Wang Lin, il fut transporté par l'excitation et s'exclama: « Bénéficiaire! »
 
 Wang Lin regarda le vieil homme et les membres du Clan des Immortels Délaissés et demanda: « Le voyage jusqu'ici a-t-il été sans encombre? »
 
@@ -76,7 +76,7 @@ L'ombre derrière lui vacilla et Ta Shan en sortit. Ta Shan était gravement ble
 
 Après un moment de réflexion, Wang Lin frappa de nouveau son sac de rangement et Yao Bingyun, qu'il avait scellée, apparut devant lui.
 
-Le Fouet d'Âme s'enroulait autour de son âme originelle et le drapeau de l'âme enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
+Le Fouet de l'Âme s'enroulait autour de son âme originelle et le Drapeau des Âmes enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
 
 Sous les symboles runiques se trouvait le drapeau de l'âme. La main droite de Wang Lin s'étira et le brouillard noir qui entourait le corps de Yao Bingyun se dissipa, exposant totalement son corps.
 
@@ -86,13 +86,13 @@ Cependant, une immense quantité d'énergie originelle résidait encore dans son
 
 Wang Lin fixa Yao Bingyun et réfléchit.
 
-« Transformer cette femme en gardienne céleste est une option, mais avant cela, je dois emprunter sa puissance! » Le regard de Wang Lin devint glacial alors qu'il levait la main droite pour pointer le milieu de ses sourcils.
+« Transformer cette femme en garde céleste est une option, mais avant cela, je dois emprunter sa puissance! » Le regard de Wang Lin devint glacial alors qu'il levait la main droite, deux doigts joints en lame d'épée, pour pointer le milieu de ses sourcils.
 
 L'énergie originelle à l'intérieur du corps de Wang Lin s'activa rapidement et pénétra le corps de la jeune femme par son doigt. L'énergie de Wang Lin forma un vortex à l'intérieur d'elle. Ce vortex absorba immédiatement une partie de son énergie originelle, s'agrandissant au passage.
 
 Wang Lin fit preuve d'une prudence extrême tandis que le vortex dévorait davantage d'énergie. Juste au moment où il craignit de perdre le contrôle, il la retira brusquement!
 
-Le corps de Yao Bingyun fut secoué par un violent spasme et ses vêtements en lambeaux furent instantanément balayés. Simultanément, le vortex sortit de son corps, libérant une riche énergie originelle qui emplit l'espace.
+Le corps de Yao Bingyun fut secoué par un violent spasme et ses vêtements en lambeaux furent instantanément balayés. Simultanément, le vortex sortit de son corps par ses sept orifices, libérant une riche énergie originelle qui emplit l'espace.
 
 Wang Lin ouvrit aussitôt la bouche pour l'engloutir. L'énergie originelle émanant du corps de Yao Bingyun se mua en fumée et fut inhalée par Wang Lin.
 

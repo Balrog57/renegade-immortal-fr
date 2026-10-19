@@ -60,7 +60,7 @@ La troisième sphère contenait une perle brune. Cette perle était de la même 
 
 « C'est donc... » Wang Lin fut stupéfait un instant en la fixant. Il découvrait de plus en plus d'aspects identiques à sa propre perle, sans pour autant qu'elle soit identique en tout point.
 
-Bien que très semblable, cette perle était comme une luciole comparée à la lune éclatante. L'une pouvait devenir le soleil, tandis que l'autre ne resterait qu'une faible lueur stellaire.
+Bien que très semblable, cette perle était comme une luciole comparée à la lune éclatante. Comme deux astres que l'on contemple, l'une pouvait devenir le soleil, tandis que l'autre ne resterait qu'une faible lueur stellaire.
 
 Wang Lin ressentit l'aura du Taureau Céleste émanant de cet objet. Bien qu'il n'en connût pas la nature exacte, il avait ses intuitions: elle possédait un lien profond avec le Taureau Céleste.
 
@@ -76,7 +76,7 @@ Mais cette carte était d'une importance vitale pour Wang Lin en cet instant!
 
 En plus de la carte, la carapace offrait une description détaillée de la perle du Taureau Céleste, ce qui éclaira grandement l'esprit de Wang Lin.
 
-L'Ancien Taureau Vert n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
+L'Ancêtre Taureau Vert n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
 
 « Bon voyage... Dans trois cents ans, reviens voir la Secte de la Grande Âme... » Il n'y avait aucune explication, ni mention des trois conditions. Cette unique phrase suffisait à clore le karma liant Wang Lin au Continent du Taureau Céleste.
 
@@ -106,19 +106,19 @@ Cependant, Wang Lin n'avait aucune envie de massacrer les cultivateurs de son pr
 
 Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie du Ciel Extrême et qu'il ne lui restait plus qu'une seule Distorsion Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
 
-Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et une tempête s'étendait sur des dizaines de milliers de kilomètres.
+Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et, sur des dizaines de milliers de kilomètres, tout n'était que glace.
 
-Il lui faudrait encore la majeure partie d'un mois avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Durant ces mois de retraite, ses blessures s'étaient entièrement rétablies. Il marchait dans la neige, affrontant le vent glacial pour avancer.
+Il lui faudrait encore plus de la moitié d'un mois avant de pouvoir utiliser à nouveau la Distorsion Spatiale. Durant ces mois de retraite, ses blessures s'étaient entièrement rétablies. Il marchait dans la neige, affrontant le vent glacial pour avancer.
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 
 C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer des Pilules, il était considéré comme un voisin immédiat, mais n'avait pas été détruit lors de l'effondrement de la Mer des Pilules.
 
-Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer des Pilules. Après tout, la légende de cet endroit existait depuis des éons. Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
+Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer des Pilules. Après tout, la légende de cet endroit circulait depuis très longtemps. Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
 
 Toutefois, si l'explosion de la Pilule Céleste avait eu lieu plus près du Continent du Taureau Céleste, la ville devant Wang Lin aurait été instantanément rayée de la carte.
 
-La tempête de neige redoubla d'intensité.
+La neige redoubla d'intensité.
 
 Le vent hurlait comme un esprit maléfique rugissant dans les cieux. Les volutes de fumée étaient immédiatement balayées avant même de pouvoir s'élever. Les habitants de la ville, vêtus de coton épais, pressaient le pas vers leurs foyers, la tête baissée.
 

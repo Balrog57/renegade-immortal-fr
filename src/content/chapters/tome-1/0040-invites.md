@@ -50,11 +50,11 @@ Alors que les deux commençaient à discuter, les deux autres Anciens de la Sect
 
 En évoquant les anecdotes amusantes du monde de la culture dans le pays de Zhao, les yeux des disciples des deux sectes s'écarquillèrent d'intérêt.
 
-Des récits tels que: un disciple de la Vallée Wu Feng avait séduit la disciple du chef de la Secte Brumeuse au point de la rendre enceinte; le chef de la Secte Brumeuse s'était rué sur la Vallée Wu Feng pour réclamer justice, mais était revenu avec un nouveau-né.
+Des récits tels que: un disciple de la Vallée Wu Feng avait séduit la disciple du chef de la Secte Piao Miao au point de la rendre enceinte; le chef de la Secte Piao Miao s'était rué sur la Vallée Wu Feng pour réclamer justice, mais était revenu avec un nouveau-né.
 
 Ou encore la Secte du Ciel, où un disciple avait trahi sa secte pour rejoindre la Secte He Huan. Ses amis proches, ayant eux aussi secrètement goûté à ces avantages, avaient trahi à leur tour la secte les uns après les autres. Cela avait tellement exaspéré les Anciens de la Secte du Ciel qu'ils avaient émis un ordre de poursuite et de mort contre eux.
 
-On parla aussi de l'apparition de trésors du ciel et de la terre, et enfin de l'anniversaire de l'Ancien Suprême de la Secte Brumeuse, Wu Wei, expert en Formation du Noyau, qui aurait lieu dans quelques mois, toutes les sectes amies devant envoyer des représentants pour le célébrer.
+On parla aussi de l'apparition de trésors du ciel et de la terre, et enfin de l'anniversaire de l'Ancien Suprême de la Secte Piao Miao, Wu Wei, expert en Formation du Noyau, qui aurait lieu dans quelques mois, toutes les sectes amies devant envoyer des représentants pour le célébrer.
 
 Wang Lin écouta longuement, commençant à se forger une impression encore floue du monde de la culture dans le pays de Zhao. À un moment donné, il sentit soudain qu'un regard pesait sur lui. Il tourna la tête et vit la disciple de la Secte Xuan Dao qui l'observait avec un léger sourire.
 

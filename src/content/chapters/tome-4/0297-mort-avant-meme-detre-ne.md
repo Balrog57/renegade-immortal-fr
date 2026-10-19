@@ -70,7 +70,7 @@ La grotte n'était pas vaste, comptant seulement sept ou huit pièces. Wang Lin 
 
 Avant d'entrer, Wang Lin était déjà préparé. Bien qu'il n'ait rien trouvé, il n'était pas découragé. Son but était de déceler des vestiges de restrictions. Il voulait comprendre la nature des restrictions utilisées par les êtres célestes; s'il pouvait en étudier certaines, cela l'aiderait grandement à atteindre le stade de complétion intermédiaire des 999 groupes de restrictions de son drapeau.
 
-Après une inspection minutieuse, il constata que la plupart des protections avaient disparu, mais ce n'était pas le cas pour toutes. Il fut ravi de découvrir, dans l'une des pièces, les restes d'une restriction.
+Après une inspection minutieuse, il constata que la plupart des protections avaient disparu, mais ce n'était pas le cas pour toutes. Il fut ravi de découvrir, devant l'une des pièces, les restes d'une restriction.
 
 Celle-ci ne devait pas être très puissante, car elle ne servait qu'à sceller une porte. Bien qu'elle fût brisée, un fragment subsistait sur le côté de l'entrée. Les yeux de Wang Lin s'illuminèrent et il se mit à l'étudier.
 

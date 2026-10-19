@@ -14,7 +14,7 @@ Les silhouettes de Wang Lin et de ses compagnons apparurent à la surface. C'ét
 
 Par conséquent, Wang Lin fut contraint au combat!
 
-Toutefois, Wang Lin disposait d'un avantage de taille. Yun Yifeng, Tang Shan et Tuo Sen l'avaient aidé à blesser le Souverain. Conjugué aux déductions et aux tests précédents de Wang Lin, ainsi qu'à l'obtention du sceau d'or, il était en mesure de porter un coup dévastateur à l'esprit du Souverain.
+Toutefois, Wang Lin disposait d'un avantage de taille. Yun Yifeng, Tang Shan et Tuo Sen l'avaient aidé à blesser le Souverain. Conjugué aux déductions et aux tests précédents de Wang Lin, ainsi qu'à l'obtention de l'empreinte dorée, il était en mesure de porter un coup dévastateur à l'esprit du Souverain.
 
 Selon diverses conditions, la situation parfaite pour éliminer le Souverain venait de se présenter. Le plus crucial était cette troisième personne que Wang Lin avait perçue après Tuo Sen et le Souverain!
 
@@ -58,7 +58,7 @@ Alors que la voix de Wang Lin résonnait, la seconde respiration arriva!
 
 Le Dao du Rêve et le visage spectral fusionnèrent pour s'engouffrer dans le Souverain. Ils ne blessèrent pas son corps, mais fusionnèrent directement avec son âme!
 
-Empruntant le Dao du Rêve, Wang Lin pénétra dans les souvenirs du Souverain et établit une connexion. Il ne chercha pas à altérer la mémoire du Souverain, mais pointa la montagne entourée de brume noire.
+Empruntant le Dao du Rêve, Wang Lin pénétra dans les souvenirs du Souverain et établit une connexion. Il ne chercha pas à altérer la mémoire du Souverain, mais, de la main gauche, pointa la montagne entourée de brume noire.
 
 « Je sacrifie cette âme, qu'elle fusionne avec le corps de Yi Si! » Wang Lin savait qu'il n'était pas de taille face au Souverain, mais il pouvait utiliser un couteau pour tuer, et ce couteau était Yi Si!
 
@@ -78,7 +78,7 @@ Wang Lin cracha un jet de sang et recula de plus de mille pieds. Il fixa le Souv
 
 « C'est toi qui m'infliges une telle souffrance! Je vais te tuer, je vais te tuer... » rugissait le Souverain en chargeant. Sa conscience était embrumée, et son unique pensée était de massacrer Wang Lin.
 
-« Marionnette de Yi Si, j'ai sacrifié assez d'âmes. Je t'invoque! » Wang Lin recula sans même essuyer le sang au coin de ses lèvres. Alors que le Souverain approchait, les mains de Wang Lin formèrent un sceau et il poussa un rugissement.
+« Marionnette de Yi Si, j'ai sacrifié assez d'âmes. Je t'invoque! » Wang Lin recula sans même essuyer le sang au coin de ses lèvres. Alors que le Souverain approchait, les mains de Wang Lin formèrent un sceau et il parla à voix basse.
 
 Dès que ses paroles retentirent, la montagne au loin s'effondra et la brume se précipita vers Wang Lin. Elle fut si rapide qu'elle enveloppa instantanément Wang Lin, ainsi que le Souverain qui chargeait.
 
@@ -98,11 +98,11 @@ Le Maître du Dao Rêve Bleu et Tuo Sen étaient plus stoïques, mais leurs cœu
 
 C'était un nain à la peau d'un pourpre noirâtre. Il se tenait nu, accroupi là. Son crâne était chauve et son corps d'une maigreur extrême.
 
-Sa langue, longue de sept pieds, pendait et oscillait lamentablement. Ses yeux étaient si sombres qu'ils semblaient absorber la lumière environnante, déformant légèrement sa silhouette.
+Sa langue, longue de sept pieds, pendait et oscillait librement. Ses yeux étaient si sombres qu'ils semblaient absorber la lumière environnante, déformant légèrement sa silhouette.
 
 Une férocité indescriptible émanait de lui!
 
-Cette marionnette ressemblait à un spectre maléfique surgi des tréfonds de l'enfer. Bien qu'elle ne fût que là, immobile, elle exerçait une pression écrasante sur le cœur de chacun.
+Cette marionnette ressemblait à un spectre maléfique surgi des Sources Jaunes. Bien qu'elle ne fût que là, immobile, elle exerçait une pression écrasante sur le cœur de chacun.
 
 Un silence de mort régna. Seul le souffle du nain démoniaque était audible.
 

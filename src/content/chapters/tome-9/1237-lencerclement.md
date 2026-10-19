@@ -34,7 +34,7 @@ Trois mois auparavant, Song Luohai avait repéré cet essaim et était convaincu
 
 Toutefois, il faisait face à un dilemme. Tout cela était dû aux deux bêtes moustiques blanches qui étaient arrivées il y a quinze jours. Song Luohai ne les avait vues qu'une seule fois, mais il percevait clairement l'aura et la pression émanant de cultivateurs au stade Briseur du Nirvana.
 
-Song Luohai avait méticuleusement préparé ce voyage. Il avait estimé ses chances de réussite à 30 %. Une fois ses spéculations confirmées, son nom résonnerait dans toute la région de rang 8, et même les vieux monstres devraient tenir compte de lui.
+Song Luohai avait méticuleusement préparé ce voyage. Il avait estimé ses chances de réussite à 30 %. Une fois ses spéculations confirmées, son nom résonnerait dans toute la région de rang 8, et même les vieux monstres s'écarteraient précipitamment devant lui.
 
 Même la région de rang 9 lui accorderait des faveurs. Tous ces avantages étaient ce qui avait poussé Song Luohai à prendre ce risque. Mais l'arrivée de ces deux bêtes blanches avait tout compromis.
 
@@ -84,14 +84,14 @@ La bête blanche reculait avec angoisse, mais à cet instant précis, une aura d
 
 Dès l'apparition de cette aura, l'autre bête blanche s'envola et poussa un rugissement. Une immense fissure apparut au sommet de la montagne, s'étendant jusqu'à sa base, comme si une main invisible venait de déchirer la roche.
 
-Un rayon de lumière pourpre jaillit de cette faille. Simultanément, une aura antique se propagea et une brume pourpre s'en échappa.
+Un rayon de lumière violette jaillit de cette faille. Simultanément, une aura antique se propagea et une brume violette s'en échappa.
 
 Cette brume était dense et se retira rapidement. De l'intérieur du brouillard, une bête moustique d'apparence féroce, mesurant mille pieds, s'élança dans les airs!
 
-Cette créature était couverte de poils pourpres. Bien qu'ils fussent tombants et d'apparence désordonnée, dès son apparition, toutes les autres bêtes moustiques, rouges comme bleues, se turent instantanément.
+Cette créature était couverte de poils violets. Bien qu'ils fussent tombants et d'apparence désordonnée, dès son apparition, toutes les autres bêtes moustiques, rouges comme bleues, se turent instantanément.
 
 Les pupilles de Song Luohai se rétractèrent alors qu'il fixait la bête pourpre aux poils ébouriffés. Une lueur d'avidité brilla dans ses yeux.
 
 « Un roi moustique! »
 
-Le regard indifférent de ce roi moustique pourpre se posa nonchalamment sur la cachette de Song Luohai, avant de se fixer sur le moustique de Wang Lin. Après un long silence, il laissa échapper un faible sifflement!
+Le regard indifférent de ce roi moustique violet se posa nonchalamment sur la cachette de Song Luohai, avant de se fixer sur le moustique de Wang Lin. Après un long silence, il laissa échapper un faible sifflement!

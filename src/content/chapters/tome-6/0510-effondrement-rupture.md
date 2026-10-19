@@ -88,7 +88,7 @@ Une masse épaisse de gaz gris s'avança vers la vallée. Ce brouillard était s
 
 Dès l'apparition de ce gaz, le visage de Shi Fang devint extrêmement livide.
 
-Le petit ancien, le visage sombre, demanda mot à mot: « Monsieur, qui êtes-vous? »
+Le petit ancien, le visage sombre, demanda en détachant chaque mot: « Monsieur, qui êtes-vous? »
 
 Sans attendre de réponse, il poussa un rugissement, sa main droite toucha son sac de rangement et un miroir de bronze apparut dans sa paume. Il lança le miroir en l'air, lequel grandit soudainement jusqu'à atteindre un mètre de large, libérant une lumière verte qui enveloppa le gaz gris.
 

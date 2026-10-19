@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1369 - Thunder Tattoo Shakes The Heavens
 slug: le-tatouage-de-tonnerre-ebranle-les-cieux
 ---
-À cet instant, Wang Lin ne se cachait plus; il leva la main et l'abattit brusquement. La restriction qui le dissimulait fut déchirée, révélant sa présence au monde entier!
+À cet instant, Wang Lin ne se cachait plus; il leva la main et la fendit brusquement vers l'avant. La restriction qui le dissimulait fut déchirée, révélant sa présence au monde entier!
 
 L'essence du tonnerre brillait intensément dans son œil droit tandis que neuf éclairs d'accompagnement tournoyaient autour de lui, formant le tatouage de tonnerre, et Wang Lin poussa un rugissement vers le ciel!
 
@@ -28,7 +28,7 @@ Une fois cette porte ouverte, Wang Lin pourrait atteindre le troisième niveau. 
 
 Un grondement assourdissant résonna à travers le monde. Même l'espace lui-même trembla et ondula au loin.
 
-Le tonnerre de Wang Lin frappa soudainement la porte et provoqua un effondrement indescriptible. Cette force était capable de déchirer le monde; elle contenait l'essence du tonnerre de Wang Lin ainsi que le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre du Dao et le Tonnerre Spirituel!
+Le tonnerre de Wang Lin frappa soudainement la porte et provoqua un effondrement indescriptible. Cette force était capable de déchirer le monde; elle contenait l'essence du tonnerre de Wang Lin ainsi que le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre Dao et le Tonnerre Spirituel!
 
 Il y avait aussi le Tonnerre Ji, le Tonnerre de Lignée et le Tonnerre Défiant, créés par Wang Lin!
 
@@ -104,7 +104,7 @@ Ces personnes appartenaient à divers niveaux de culture; Wang Lin ne pouvait é
 
 Les montagnes de tonnerre tremblaient violemment et d'énormes pans de roche se détachaient. Il semblait qu'elles puissent s'effondrer à tout moment, libérant ainsi les dizaines de milliers de prisonniers!
 
-Wang Lin ricana, un éclair jaillissant de son œil droit alors que le tatouage de tonnerre réapparaissait. À l'instant où il se manifesta, le tonnerre céleste surgit et Wang Lin abattit sa main! Le tatouage se divisa en cent mille fragments qui s'imprimèrent sur les montagnes de tonnerre!
+Wang Lin ricana, un éclair jaillissant de son œil droit alors que le tatouage de tonnerre réapparaissait. À l'instant où il se manifesta, le tonnerre du ciel et de la terre surgit et Wang Lin abattit sa main! Le tatouage se divisa en cent mille fragments qui s'imprimèrent sur les montagnes de tonnerre!
 
 C'était comme si une rune avait été tracée pour activer le véritable sceau!
 

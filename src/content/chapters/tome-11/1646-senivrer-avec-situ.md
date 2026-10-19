@@ -70,9 +70,9 @@ Wang Lin secoua la tête avec un sourire amer. Il saisit le vin et prit une long
 
 « Ce jour-là, je t'ai dit que je ne comprenais pas le sens de la culture. Pour la longévité? Mais quel est l'intérêt de vivre longtemps? Tout ce que cela vous apporte, c'est de voir ceux qui vous entourent vieillir, de voir les amants mourir, les proches se disperser et les amis fermer les yeux pour toujours. Au final, la seule chose qui subsiste est un cœur de pierre! »
 
-« Avec un corps épuisé, même si une telle vie dure des millénaires, à quoi bon? Est-ce cela, la longévité? Situ, c'est toi qui m'as introduit dans le monde de la culture. Dis-moi, est-ce vraiment cela, vivre longtemps? » Wang Lin vida sa coupe et projeta la cruche sur le côté.
+« Avec un corps épuisé, même si une telle vie dure des millénaires, à quoi bon? Est-ce cela, la longévité? Situ, c'est toi qui m'as introduit dans le monde de la culture. Dis-moi, est-ce vraiment cela, vivre longtemps? » Wang Lin vida la cruche d'un trait et la projeta sur le côté.
 
-« Les cultivateurs n'ont pas besoin de trancher leurs émotions... Quand nous étions sur la planète Suzaku et que tu débutais ta culture, tu hésitais à quitter tes parents, tu refusais de rompre tes attachements terrestres. Tu ne voulais pas les couper... C'est ainsi que je t'avais répondu. »
+« Les cultivateurs n'ont pas besoin de trancher leurs émotions... Quand nous étions sur la planète Suzaku et que tu n'étais encore qu'à la Condensation de Qi, tu hésitais à quitter tes parents, tu refusais de rompre tes attachements terrestres. Tu ne voulais pas les couper... C'est ainsi que je t'avais répondu. »
 
 « Puisque tu ne peux pas et ne veux pas les trancher, tu ressentiras naturellement la douleur. Si tu étais mort, cela n'aurait plus d'importance, mais tu n'es pas mort. Tu as cultivé pendant plus de 2 000 ans pour atteindre ce niveau, jusqu'au sommet. Voilà pourquoi tu es confus, voilà pourquoi tu me demandes ce qu'est la longévité! »
 
@@ -94,7 +94,7 @@ Situ Nan vida une cruche entière avant de la jeter brusquement et de hurler à 
 
 « Je n'ai rien voulu de tout cela, ce n'est pas ce que je désire! Je ne voulais pas être le Seigneur du Royaume Scellé, et la culture me lasse toujours! » Wang Lin regarda Situ et saisit une cruche. Il en but la moitié, laissant le vin couler au coin de sa bouche.
 
-« Espèce d'idiot! » Situ Nan vit la confusion dans les yeux de Wang Lin et resta sans voix. Il poussa un soupir et commença à boire avec colère. « Puisque tu ne veux pas dire à ce vieil homme ce que tu as vu dans cette faille, alors je ne demanderai plus rien, d'accord? »
+« Toi!... » Situ Nan vit la confusion dans les yeux de Wang Lin et resta sans voix. Il poussa un soupir et commença à boire, l'humeur sombre. « Puisque tu ne veux pas dire à ce vieil homme ce que tu as vu dans cette faille, alors je ne demanderai plus rien, d'accord? »
 
 Un silence s'installa entre eux. Ils continuèrent de boire jusqu'à ce qu'une lueur apparaisse à l'horizon, annonçant l'aube.
 

@@ -25,7 +25,7 @@ Wang Lin leva la tête et fit un pas en avant tout en agitant la main. « Invoqu
 
 Wang Lin se déplaça comme l'éclair et arriva immédiatement près du cultivateur au stade du Scruteur du Nirvana. Il était bien plus rapide que ce dernier. Les pupilles du cultivateur se rétractèrent; il voulut esquiver, mais sa vision fut aussitôt obscurcie par un doigt. Ce doigt percuta rapidement le cultivateur entre les sourcils avant de se retirer, laissant derrière lui un trou sanglant. La puissance d'un cultivateur au stade de Purificateur du Nirvana pénétra dans son corps et écrasa son âme originelle.
 
-Wang Lin ne marqua aucune pause et se mouva avec la fluidité de l'eau. Après en avoir tué un, il chargea un autre et pointa le corps du cultivateur à plusieurs reprises. Des bruits de déchirement résonnèrent et le sang jaillit de toutes parts.
+Wang Lin ne marqua aucune pause et se mouva avec la fluidité de l'eau. Après en avoir tué un, il chargea un autre et pointa le corps du cultivateur à plusieurs reprises. Des bruits sourds résonnèrent et le sang jaillit de toutes parts.
 
 À cet instant, les dragons noirs d'« Invoquer le Vent » atteignirent les cinq autres personnes. Ces cinq-là n'étaient qu'au stade de Yang Corporel et ne faisaient pas le poids face au sort de Bai Fan. Ils furent incapables de résister alors que les dragons noirs pénétraient leurs corps, provoquant leur explosion immédiate!
 
@@ -39,7 +39,7 @@ Cependant, les neuf survivants, ainsi que le Briseur du Nirvana, réalisèrent i
 
 Une lueur glaciale brilla dans les yeux de Wang Lin tandis que sa main droite traçait un sceau; des filaments d'énergie de massacre jaillirent de son corps, se condensant en plusieurs couches de défense, avant que Wang Lin ne fonce!
 
-En s'élançant, il eut l'impression de percuter l'univers lui-même, et les filaments d'énergie de massacre autour de lui s'effondrèrent tous. Les sorts d'un Briseur du Nirvana ne pouvaient être sous-estimés. Toute l'énergie de massacre se dissipa instantanément et une force puissante s'engouffra dans le corps de Wang Lin, le faisant cracher une bouchée de sang.
+En s'élançant, il eut l'impression de se jeter contre la lumière noire de Noble Argent, et les filaments d'énergie de massacre autour de lui s'effondrèrent tous. Les sorts d'un Briseur du Nirvana ne pouvaient être sous-estimés. Toute l'énergie de massacre se dissipa instantanément et une force puissante s'engouffra dans le corps de Wang Lin, le faisant cracher une bouchée de sang.
 
 Néanmoins, il parvint à sortir de la lumière noire. Alors que Noble Argent se rapprochait, il chargea vers les neuf personnes qui fuyaient. Des flammes jaillirent de son œil gauche et, d'un revers de main, il fit apparaître une mer de feu. Trois personnes furent piégées dans cet océan de flammes; elles hurlèrent instantanément avant d'être réduites en cendres. Les six autres pâlirent et battirent en retraite précipitamment. Le visage de Wang Lin était livide, mais il s'apprêtait déjà à les poursuivre.
 
@@ -53,7 +53,7 @@ Les pupilles du cultivateur se rétractèrent; il leva les mains pour former un 
 
 À ce moment précis, Noble Argent se rapprocha brusquement. Sa main droite plongea dans le vide et un espace de stockage s'ouvrit. Un plumeau blanc en sortit; Noble Argent s'en saisit et l'agita. Une forme de Loi apparut soudainement, se transformant en rayons de lumière blanche au-dessus de Wang Lin. Ces lueurs tombèrent comme une pluie d'épées, d'une rapidité fulgurante. Wang Lin leva brusquement la tête, des flammes brillant dans son œil gauche, et une armure cramoisie apparut autour de lui.
 
-Des bruits de craquements retentirent lorsque les lumières blanches frappèrent le corps de Wang Lin. Son corps trembla et il cracha encore plus de sang. Son visage devint livide et son âme originelle vacilla. Un rayon de lumière blanche perça sa jambe droite, la transformant en un amas sanglant. Sans son armure, il serait déjà mort.
+Des bruits sourds retentirent lorsque les lumières blanches frappèrent le corps de Wang Lin. Son corps trembla et il cracha encore plus de sang. Son visage devint livide et son âme originelle vacilla. Un rayon de lumière blanche perça sa jambe droite, la transformant en un amas sanglant. Sans son armure, il serait déjà mort.
 
 Au même instant, les épées formées par « Invoquer la Pluie » transpercèrent les corps des cinq disciples en fuite. Tandis que leurs cris misérables résonnaient, quatre de leurs corps s'effondrèrent et leurs âmes originelles périrent. Cependant, l'un d'eux sortit un jade et le brisa au moment critique. Il parvint ainsi à protéger son âme originelle et s'échappa rapidement.
 
@@ -61,7 +61,7 @@ Comment Wang Lin pouvait-il laisser cet homme s'enfuir? Sa main droite plongea d
 
 « Si tu ne le tues pas, tu peux crever! » Ce fut le premier message que Xu Liguo reçut à son apparition. Après avoir entendu cela, comment ne pas poursuivre sa proie avec acharnement?
 
-Une lueur argentée émana de l'espace de stockage et le cadavre féminin argenté apparut. Elle n'aida pas à attaquer Noble Argent, mais se dirigea vers les esprits des bêtes sauvages qui venaient de perdre leurs maîtres.
+Une lueur argentée émana de l'espace de stockage et le cadavre féminin argenté apparut. Elle n'aida pas à attaquer Noble Argent, mais se dirigea vers les bêtes spirituelles qui venaient de perdre leurs maîtres.
 
 Tout cela se produisit en quelques respirations. Tuer tous les cultivateurs présents, hormis Noble Argent, était une tâche ardue, même pour Wang Lin. Pourtant, il ne pouvait se relâcher, car le Briseur du Nirvana qui se tenait devant lui représentait le péril le plus grand! La raison pour laquelle il voulait éliminer les autres cultivateurs d'abord, outre le risque qu'ils s'échappent, était de s'assurer qu'ils n'interféreraient pas dans ce duel. Pour vaincre ce Briseur du Nirvana, il devait être totalement concentré, sans la moindre perturbation. Ce serait sa seule chance!
 

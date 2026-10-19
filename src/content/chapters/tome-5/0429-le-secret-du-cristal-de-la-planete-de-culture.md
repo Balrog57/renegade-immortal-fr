@@ -29,7 +29,7 @@ Même avec la force mentale de Wang Lin, l'entendre lui infligea un choc: son ex
 
 Wang Lin demanda d'un ton grave: « Ainsi, si Zhu Quezi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer? »
 
-Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en a la possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
+Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seuls les Suzaku peuvent le posséder. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
 
 « Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Royaume Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
 
@@ -79,7 +79,7 @@ De moins en moins de cultivateurs apparaissaient dans le ciel de la planète Suz
 
 L'attaque que le Clan des Immortels Délaissés préparait depuis des dizaines de milliers d'années venait enfin de se déchaîner avec toute sa fureur sur la planète Suzaku.
 
-Le pays de Suzaku entama immédiatement une contre-attaque acharnée dès le début du second affrontement. Qian Feng fut nommé commandant de cette bataille, et tous les cultivateurs devaient se soumettre à ses ordres.
+Le pays de Suzaku entama immédiatement une contre-attaque acharnée dès le début du second affrontement. Qian Feng fut nommé commandant de cette bataille, et tous les cultivateurs locaux devaient se soumettre à ses ordres.
 
 De vastes contingents de cultivateurs furent déployés en divers points pour combattre le Clan des Immortels Délaissés.
 
@@ -97,7 +97,7 @@ Le pays de culture de rang 5 de la Pivoine avait changé de camp!
 
 Le pays de culture de rang 5 de Qin avait changé de camp!
 
-La trahison de ces trois pays de rang 5 fut comme trois coups de poing au plexus du pays de Suzaku, déjà en pleine retraite.
+La trahison de ces trois pays de rang 5 fut comme trois coups de poing assénés de front au pays de Suzaku, déjà en pleine retraite.
 
 Finalement, le pays de Suzaku fut contraint de replier sa ligne de défense sur le continent Suzaku.
 

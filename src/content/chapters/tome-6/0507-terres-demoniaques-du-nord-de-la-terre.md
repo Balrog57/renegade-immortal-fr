@@ -48,7 +48,7 @@ Les yeux du vieux Tian Tai devinrent sérieux et il se mit à réfléchir. Peu a
 
 Après avoir récupéré le jade, Wang Lin l'examina d'un revers de son Sens Divin. Il adressa un signe de tête au vieil homme avant de disparaître sans laisser de trace.
 
-Le vieux Tian Tai regarda l'endroit où Wang Lin avait disparu, puis ferma lentement les yeux en murmurant pour lui-même: « Cet enfant est empreint d'une intention meurtrière bouillonnante; son voyage cette fois a pour but le massacre. J'espère que personne ne s'offensera de lui en chemin. »
+Le vieux Tian Tai regarda l'endroit où Wang Lin avait disparu, puis ferma lentement les yeux en murmurant pour lui-même: « Cet enfant est empreint d'une intention meurtrière bouillonnante; son voyage cette fois a pour but le massacre. J'espère que personne ne cherchera querelle à lui en chemin. »
 
 « À l'extrémité nord de la planète Terre, il existe des chaînes de montagnes denses qui couvrent 500 000 kilomètres. Cet endroit est un lieu de rassemblement pour les bêtes démoniaques; on y trouve même des bêtes désolées aussi puissantes que des cultivateurs Ascendants. C'est aussi là que tous les disciples de la planète viennent se tester! Cependant, la zone de 150 000 kilomètres au centre est considérée comme une terre interdite où l'on ne doit pas s'aventurer sans précaution. »
 
@@ -106,7 +106,7 @@ Parmi les deux femmes, l'une portait une robe rouge et avait un grain de beauté
 
 Cette jeune fille ne semblait pas très âgée, mais son niveau de culture était au stade avancé de la Formation du Noyau.
 
-Parmi les trois hommes, l'un était d'une grande beauté et d'âge moyen. Il portait une robe verte et blanche, ses cheveux étaient attachés par une simple ceinture noire et il portait une épée ordinaire dans le dos.
+Parmi les trois hommes, l'un était d'une grande beauté et d'âge moyen. Il portait une robe verte et blanche, ses cheveux étaient attachés par un simple ruban noir et il portait une épée ordinaire dans le dos.
 
 Après avoir entendu la jeune fille, il sourit légèrement et dit: « Ce n'est pas un lieu interdit, et de nombreuses personnes de diverses sectes viennent s'y entraîner; voir d'autres individus ici n'a donc rien d'anormal. Une fois que l'Oncle-Maître et les autres seront arrivés, nous entrerons ensemble. À ce moment-là, tous les cultivateurs que nous croiserons nous éviteront, ne t'en fais pas. »
 
@@ -120,7 +120,7 @@ L'homme nommé Guo eut un léger sourire. Il ne semblait nullement affecté par 
 
 Le visage de la femme nommée Qian Qin se crispa d'une intention meurtrière alors qu'elle fixait l'homme nommé Guo et lança froidement: « Même avec la renommée de la Secte de l'Épée Da Luo, je ne peux croire que vous utilisiez des méthodes aussi méprisables. Je suis vraiment aveugle d'avoir pu croire en vous! »
 
-L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'importe qui peut obtenir ces trésors célestes. Le Fruit d'Or Brillant est d'une utilité immense pour mon Oncle-Maître. Puisque vous m'avez sollicité, je me dois d'en informer ma secte. »
+L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'importe qui peut apprendre l'existence de ces trésors célestes. Le Fruit d'Or Brillant est d'une utilité immense pour mon Oncle-Maître. Puisque vous m'avez sollicité, je me dois d'en informer ma secte. »
 
 La silhouette de Wang Lin progressait dans la chaîne de montagnes avec la rapidité de l'éclair, et son regard devint glacial.
 

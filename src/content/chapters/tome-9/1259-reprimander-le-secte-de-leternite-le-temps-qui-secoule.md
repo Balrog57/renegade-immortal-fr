@@ -8,9 +8,9 @@ slug: reprimander-le-secte-de-leternite-le-temps-qui-secoule
 ---
 Le vieil homme aux cheveux blancs continuait de reculer, mais ses yeux étaient empreints d'une intention de combat monstrueuse. Ses mains formèrent un sceau et il pointa l'avant. À chaque geste, un grondement tonitruant émanait de son corps alors qu'il commençait à résister au pouvoir de la Nuit Brisée.
 
-La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Brisée de Wang Lin n'était pas parfaite. Les grondements résonnèrent et, après que le vieil homme eut reculé de 10 000 pieds, la force de la Nuit Brisée fut neutralisée.
+La puissance de ce vieil homme était extrêmement stupéfiante, et la Nuit Brisée de Wang Lin n'était pas parfaite. Les grondements résonnèrent et, après que le vieil homme eut reculé de plusieurs dizaines de milliers de pieds, la force de la Nuit Brisée fut neutralisée.
 
-Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparut derrière lui et devint gigantesque, diffusant une lumière écarlate qui enveloppa toute la zone.
+Un halo rouge, semblable à du sang, l'entourait. Un halo rouge illusoire apparut derrière lui et devint gigantesque, large de cent mille pieds, diffusant une lumière écarlate qui enveloppa toute la zone.
 
 « Tu as encaissé l'un de mes sorts, j'encaisserai donc l'un des tiens! » L'expression du vieil homme aux cheveux blancs était d'une gravité extrême. Il ne dégageait plus aucune aura de vieillesse, mais libérait désormais sa culture terrifiante. Son halo était plus rouge que le sang alors qu'il chargeait en avant; il parcourut 10 000 pieds en un instant pour se précipiter sur Wang Lin.
 
@@ -50,7 +50,7 @@ La silhouette du vieil homme aux cheveux blancs se rapprocha et la lumière roug
 
 Alors que le vieil homme avançait, la mer rugissait et les vagues déferlaient. La plateforme commença à se fragmenter et à s'effondrer.
 
-Cette plateforme, qui occupait une petite partie de la planète, s'écroula et se changea en gravats. Même le ciel se couvrit de fissures, comme s'il allait être déchiré sous la charge du vieil homme!
+Cette plateforme, qui occupait presque la moitié de la planète, s'écroula et se changea en gravats. Même le ciel se couvrit de fissures, comme s'il allait être déchiré sous la charge du vieil homme!
 
 Plus stupéfiant encore, à cet instant précis, un point rouge éclatant apparut entre les sourcils de presque tous les spectateurs. Ces points étaient d'un rouge sanglant, comme s'ils contenaient l'essence même du sang de leurs corps.
 
@@ -58,7 +58,7 @@ Seuls quelques cultivateurs activèrent de force leur énergie originelle pour e
 
 Ce point sanguin était la loi du vieil homme aux cheveux blancs. À cet instant, sa culture explosa avec frénésie. Tout en bouleversant le monde, elle affecta également les cultivateurs environnants!
 
-Le vieil homme poussa un rugissement et chargea Wang Lin. Cependant, lorsqu'il fut proche, les yeux de Wang Lin s'ouvrirent comme s'il s'était réveillé d'un sommeil millénaire. Son regard se posa sur le vieil homme.
+Le vieil homme poussa un rugissement et chargea Wang Lin. Cependant, lorsqu'il ne fut plus qu'à mille pieds, les yeux de Wang Lin s'ouvrirent comme s'il s'était réveillé d'un sommeil millénaire. Son regard se posa sur le vieil homme.
 
 Dès que le regard de Wang Lin l'atteignit, l'esprit du vieil homme trembla. Il le ressentit avec une clarté nouvelle: le léger changement dans le monde était, contre toute attente, le temps!
 
@@ -82,7 +82,7 @@ Un souffle de temps passait après l'autre. En un clin d'œil, dix autres souffl
 
 Deux mille ans de souvenirs furent inconsciemment parcourus. Le vieil homme aux cheveux blancs luttait tandis qu'il se remémorait deux mille ans de passé en seulement vingt souffles.
 
-Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Il combattait la marée des bêtes à la Secte Démoniaque. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
+Sa culture fut progressivement réprimée et perdit de sa vigueur en s'évanouissant lentement. Le vieil homme vit son disciple préféré mourir dans la faille spatiale il y a trois mille ans. Aucun reste n'avait été retrouvé, seule une épée brisée avait été rapportée.
 
 En voyant cette épée brisée, la tristesse d'autrefois envahit de nouveau son cœur. Il se remémora l'époque d'il y a quatre mille ans, puis cinq mille ans, avant d'atteindre le sommet du premier Fléau Céleste. Il luttait en méditation fermée pour résister à la décomposition que le premier Fléau Céleste infligeait à son corps.
 

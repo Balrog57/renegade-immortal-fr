@@ -20,7 +20,7 @@ Ses cheveux étaient mi-noirs, mi-blancs. Il fixait Wang Lin avec un mélange de
 
 « Toi qui ne t'es toujours pas montré, pourquoi ne sors-tu pas? » Wang Lin leva soudainement la tête. Les témoins ne pouvaient percevoir son apparence, seulement la lumière dorée et monstrueuse émanant de ses yeux.
 
-Cette lueur dorée contenait une pression colossale, plus puissante encore que celle de la cité ancestrale. Tous, qu'il s'agisse de l'Ascendant Empyréen ou des membres ordinaires de la famille, sentirent leur cœur trembler.
+Cette lueur dorée contenait une pression colossale, plus puissante encore que celle de la partie orientale de la cité ancestrale. Tous, qu'il s'agisse de l'Ascendant Empyréen ou des membres ordinaires de la famille, sentirent leur cœur trembler.
 
 Lorsque la pression atteint un certain seuil, elle se transforme en suppression. La lumière dorée du regard de Wang Lin était une véritable suppression. Il utilisait le pouvoir de l'épée de l'Ancêtre Céleste pour tout subjuguer!
 
@@ -58,7 +58,7 @@ Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tent
 
 « Le Manoir Li compte deux Ascendants Empyréens et onze Exaltés Empyréens... Et il existe trois manoirs de cette envergure dans la cité ancestrale. » Après avoir observé le Manoir Li, Wang Lin avait une compréhension claire de la hiérarchie des quatre rois de la cité.
 
-« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Exaltés Dorés pour vérifier, mais leur comportement fut quelque peu excessif. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
+« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Exaltés Dorés pour vérifier, mais leur comportement fut quelque peu excessif. Je vous prie de bien vouloir ne pas leur en tenir rigueur. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
 
 Wang Lin resta silencieux, les yeux fixés sur le vieillard.
 
@@ -120,6 +120,6 @@ Wang Lin avait appris à la Secte Yang Pourpre que chaque Ascendant Empyréen re
 
 Lors de la cérémonie, il existait une possibilité d'être défié, mais par le passé, cela était généralement ignoré. Après tout, les Ascendants Empyréens recevaient la reconnaissance de l'ombre de l'Ancêtre Céleste, et peu de gens se sentaient assez oisifs pour s'y risquer.
 
-Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroissait sa frustration. Il laissa l'édit derrière lui et reprit sa route.
+Une fois la lecture terminée, l'homme en robe verte constata que Wang Lin ne sortait pas, ce qui accroissait sa frustration. Il laissa l'édit derrière lui et s'en alla en agitant rageusement ses manches.
 
 « Je me demande ce que Lian Daozhen fera lors de cette cérémonie... Je devrais pouvoir croiser le regard de ce fou... » Songea Wang Lin. Il avait étendu son Sens Divin à travers toute la ville est, mais il n'avait pas trouvé trace de Lian Daofei.

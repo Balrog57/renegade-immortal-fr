@@ -14,7 +14,7 @@ Dès leur apparition, les cercles noirs commencèrent à s'infecter. Le corps de
 
 Les nombreux cercles noirs qui recouvraient le corps de Wang Lin pénétrèrent profondément en lui, jusqu'à ce que ses os soient visibles. Même ses os devinrent noirs et commencèrent à se briser.
 
-La musique de la harpe devint encore plus pressante et fusionna avec les paroles douces de la femme. Elle s'engouffra dans les cercles noirs infectés et déchira son corps.
+La musique de la cithare devint encore plus pressante et fusionna avec les paroles douces de la femme. Elle s'engouffra dans les cercles noirs infectés et déchira son corps.
 
 « Je prédis que tes os s'effondreront au deuxième souffle! »
 
@@ -34,7 +34,7 @@ Il ne pourrait sortir l'arc qu'à l'ultime instant!
 
 La femme regarda Wang Lin avec douceur, de la même manière qu'elle regarderait un amant. Sa main de jade pointa vers lui tandis qu'elle prononçait les derniers mots: « Je prédis le troisième souffle... La mort de l'âme. »
 
-Sa voix était suave et fusionnait avec la musique de la harpe! Les deux concubines impériales célestes utilisaient des méthodes différentes simultanément pour tuer Wang Lin!
+Sa voix était suave et fusionnait avec la musique de la cithare! Les deux concubines impériales célestes utilisaient des méthodes différentes simultanément pour tuer Wang Lin!
 
 Leurs pouvoirs étaient entrelacés; une partie perturbait l'esprit de Wang Lin tandis que l'autre utilisait le sort de divination pour le supprimer. Les deux se complétaient, rendant évident qu'il s'agissait d'un plan orchestré.
 
@@ -44,7 +44,7 @@ La chair de Wang Lin s'infecta et ses os se brisèrent. Une douleur intense l'en
 
 À ce contact, son corps gronda. Son être était une fusion de l'ancien et du céleste, après s'être effondré et reformé maintes fois au sein de la Bête des Limbes.
 
-Grâce au travail acharné du fou, son corps céleste représentait désormais 50 % du Corps Céleste Immortel! Bien qu'imparfait, il contenait déjà le pouvoir de l'immortalité!
+Grâce au travail acharné du fou, son corps céleste était désormais à moitié achevé en Corps Céleste Immortel! Bien qu'imparfait, il contenait déjà le pouvoir de l'immortalité!
 
 Sans cette crise, Wang Lin n'aurait pas changé. Mais une fois la transformation amorcée, la force de rejet à l'intérieur de son corps allait éclater et devenir incontrôlable.
 
@@ -58,7 +58,7 @@ Cette lueur était éclatante et se propagea dans toutes les directions. Même l
 
 L'homme à l'intérieur de la glace avait fait fondre sa prison et sortait à peine, le visage pâle. Il vit immédiatement cette lumière dorée aveuglante et son expression changea de nouveau.
 
-Tandis que la lumière se répandait, le corps divin ancien de Wang Lin se dissipa pour se nicher au cœur de ses étoiles divines anciennes. Son être émit une lumière dorée infinie et devint le Corps Céleste Immortel!
+Tandis que la lumière se répandait, le corps divin ancien de Wang Lin se dissipa pour se nicher au cœur de ses sept étoiles divines anciennes. Son être émit une lumière dorée infinie et devint le Corps Céleste Immortel!
 
 À l'apparition du Corps Céleste Immortel, l'expression de la femme aux paroles douces changea radicalement. Ses yeux étaient empreints d'incrédulité. Elle venait du même monde que le Souverain Céleste. En voyant la transformation de Wang Lin, elle pensa à une légende!
 
@@ -76,15 +76,15 @@ Elle avait pressenti que l'apparence originale de Wang Lin lui semblait familiè
 
 « Je ne peux pas... je ne peux pas le tuer!! » Ce changement lui inspirait une peur extrême, bien plus intense que lorsqu'elle avait affronté le Souverain Céleste.
 
-Non seulement elle, mais la femme jouant de la harpe trembla également, et son jeu s'interrompit. Elle fixait, stupéfaite, Wang Lin enveloppé dans cette lumière dorée.
+Non seulement elle, mais la femme jouant de la cithare trembla également, et son jeu s'interrompit. Elle fixait, stupéfaite, Wang Lin enveloppé dans cette lumière dorée.
 
 Au cœur de cet éclat, une tempête faisait rage dans le corps de Wang Lin. Cette tempête était la force de rejet qui avait pleinement éclaté. Son corps s'effondra soudainement sous les yeux des deux concubines impériales célestes!
 
 Après l'effondrement, il se reforma.
 
-Une fois que cela se répéta plusieurs fois, la femme qui avait cessé de jouer serra les dents. À ce moment-là, la lune noire s'étendait davantage. Si elle ne tuait pas Wang Lin, non seulement sa projection serait détruite, mais son corps original en subirait les conséquences.
+Une fois que cela se répéta plusieurs fois, la femme qui avait cessé de jouer serra les dents. À ce moment-là, la lune sombre s'étendait davantage. Si elle ne tuait pas Wang Lin, non seulement sa projection serait détruite, mais son corps original en subirait les conséquences.
 
-« Ce Corps Céleste Immortel n'est pas complet, il a manifestement été volé. Tuez-le! » La femme grimaça et saisit la harpe. Elle tira sur les cordes et le monde trembla tandis qu'une musique de harpe fracassante résonnait.
+« Ce Corps Céleste Immortel n'est pas complet, il a manifestement été volé. Tuez-le! » La femme grimaça et saisit la cithare. Elle tira sur les cordes et le monde trembla tandis qu'une musique de cithare fracassante résonnait.
 
 Alors que la musique s'élevait, des lames floues apparurent devant l'instrument. Elle cracha du sang pour imprégner ces lames avant de les projeter vers Wang Lin.
 

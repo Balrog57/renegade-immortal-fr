@@ -6,19 +6,19 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1424 - Dream Dao Plants Inner Demon
 slug: le-dao-des-reves-seme-un-demon-interieur
 ---
-Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Brisée était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait utiliser ce sort sans consumer sa propre énergie d'origine.
+Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Brisée était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait en libérer toute la puissance, sans consumer sa propre énergie originelle.
 
-Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit Brisée par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
+Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit Brisée par la force, il devrait altérer l'espace, les astres et la planète autour de lui, transformer le jour en nuit et la nuit en aube, pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
 
-Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps existe en toute chose et il est invisible; il est comparable aux cieux.
+Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps existe en toute chose et il est invisible; il est comparable au Dao céleste.
 
 Briser la nuit du ciel et de la terre, faire couler la lumière des années, revenir en rêve au Dao antique...
 
-Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
+Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré, avec l'aide du Seigneur du Royaume Scellé, dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
 
 À l'intérieur du Domaine du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
-Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
+Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme du Clan de l'Extermination Scellée dans le Royaume aux Sept Couleurs!
 
 Ces deux sorts étaient extrêmement puissants et s'étaient profondément gravés dans la mémoire de Wang Lin!
 
@@ -26,17 +26,17 @@ Durant les dix années passées dans le Domaine du Dao, Wang Lin avait appréhen
 
 Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas être utilisé comme un sort de cultivateur ordinaire, même si Wang Lin était lui-même un Dieu Ancien. Cependant, dans la vie de Wang Lin, le danger et la fortune coexistaient toujours. Le sort Dao Dispersé utilisé par le vieil homme dans le Royaume aux Sept Couleurs avait ouvert la voie des sorts de Dao pour Wang Lin.
 
-Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao des Rêves!
+Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao du Rêve!
 
 De retour dans la Mer des Nuages, à l'extérieur de la Secte Démon, Wang Lin ne l'avait testé que sur l'Ancien Fléau Céleste. Si Wang Lin ne l'avait pas prévenu, le cœur de Dao de cet Ancien se serait effondré, entraînant sa mort!
 
-Le Dao des Rêves, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
+Le Dao du Rêve, bien que son nom paraisse complexe, était en réalité une forme de démon intérieur!
 
-Il transformait l'intention de Dao de l'adversaire en un démon intérieur pour détruire son cœur de Dao! Même les cultivateurs qui ne pratiquaient pas le Dao possédaient un démon intérieur. Et ce démon intérieur, c'était Wang Lin!
+Il transformait l'intention de Dao de l'adversaire en un démon intérieur pour détruire son cœur de Dao et l'anéantir de lui-même! Même les cultivateurs qui ne pratiquaient pas le Dao possédaient un démon intérieur. Et ce démon intérieur, c'était Wang Lin!
 
 Les sorts de Dao étaient des techniques extrêmement mystérieuses. Même les cultivateurs de la troisième étape n'en possédaient que peu; en détenir un seul était déjà une grande chance. Même quelqu'un d'aussi puissant que le Maître du Dao Rêve Bleu n'en possédait que quelques-uns.
 
-Le Dao des Rêves pouvait ramener une personne à son passé! Bien qu'il ne puisse pas disperser le Dao comme le sort du vieil homme dans le Royaume aux Sept Couleurs, Wang Lin pouvait implanter un faux souvenir!
+Le Dao du Rêve pouvait ramener une personne à son passé! Bien qu'il ne puisse pas disperser le Dao comme le sort du vieil homme dans le Royaume aux Sept Couleurs, Wang Lin pouvait implanter un faux souvenir!
 
 Ce faux souvenir existerait éternellement dans l'esprit de la victime et deviendrait réel! C'était cela, implanter un démon intérieur!
 
@@ -52,9 +52,9 @@ La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence ac
 
 « Grand Frère, ne dors pas tout le temps, tu avais promis de jouer avec moi aujourd'hui... » « Grand Frère, Grand Frère... »
 
-Dans le Système Stellaire de la Mer des Nuages, dans un village mortel sur un continent, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
+Dans le Système Stellaire de la Mer des Nuages, dans un village mortel sur un continent flottant, une fillette de sept ou huit ans boudait en poussant un garçon endormi à côté d'elle.
 
-« Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs, je suis épuisé... »
+« Petite Lan, laisse-moi dormir encore un peu. Hier soir, je suis allé avec Petit Tiger et les autres voler des œufs chez les Xu, je suis épuisé... »
 
 Le garçon était un peu plus âgé. Après avoir ouvert les yeux pour marmonner quelques mots, il se rendormit.
 
@@ -92,7 +92,7 @@ La jeune fille regarda le jeune homme devant elle. Depuis la mort de leurs paren
 
 « D'accord. Quand tu te marieras, je préparerai une dot magnifique pour que ton mariage soit grandiose. » Le regard du jeune homme vers sa sœur était empreint de tendresse.
 
-Quelques jours plus tard, des musiques festives résonnèrent dans ce village ordinaire. La jeune fille, vêtue de sa robe de mariée, souleva le rideau du palanquin. Elle scruta l'horizon avec une pointe d'inquiétude dans les yeux.
+Quelques jours plus tard, des musiques festives résonnèrent dans ce village ordinaire. La jeune fille, vêtue de sa robe de mariée, souleva un coin de son voile au moment de monter dans le palanquin. Elle scruta l'horizon avec une pointe d'inquiétude dans les yeux.
 
 « Où est passé Grand Frère... Pourquoi n'est-il pas encore revenu... »
 
@@ -100,7 +100,7 @@ Tous les voisins s'étaient rassemblés pour célébrer le mariage, créant une 
 
 Personne ne remarqua l'approche de plus de dix chevaux. Une dizaine d'hommes robustes aux expressions belliqueuses montaient les montures, discutant entre eux.
 
-Le martèlement des sabots résonnait comme le grondement d'un dragon de terre, et les vibrations se propagèrent jusqu'au village lointain... Non loin de là s'élevait une montagne perpétuellement enveloppée de nuages. La rumeur disait que des immortels y résidaient. À cet instant, un jeune homme au sourire suffisant descendait rapidement du sentier montagneux.
+Le martèlement des sabots résonnait comme le grondement d'un dragon de terre, et les vibrations se propagèrent jusque dans le village... Non loin de là s'élevait une montagne perpétuellement enveloppée de nuages. La rumeur disait que des immortels y résidaient. À cet instant, un jeune homme au sourire suffisant descendait rapidement du sentier montagneux.
 
 Il portait un panier de plantes médicinales contenant de nombreuses herbes, et même un ginseng! Ce ginseng était aussi gros que le bras d'un nourrisson. Ses racines étaient extrêmement longues et dégageaient une légère énergie spirituelle.
 

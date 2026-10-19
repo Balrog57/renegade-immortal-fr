@@ -20,7 +20,7 @@ Lorsque les bêtes féroces aperçurent la puissance de Wang Lin, toute cupidit�
 
 Wang Lin ne se souciait guère des pensées des cultivateurs environnants. Il continua d'absorber la vitalité de la bête de rang 8 afin de résister à la calamité charnelle.
 
-Après quelques respirations, les yeux de Wang Lin s'illuminèrent alors qu'il observait les bêtes en déroute. Il s'élança tel un moissonneur de vies et rattrapa instantanément l'une des créatures en fuite. D'un coup de poing direct, il la pulvérisa, provoquant une pluie de sang et de vitalité.
+Après quelques respirations, les yeux de Wang Lin s'illuminèrent alors qu'il observait les bêtes en déroute. Il s'élança tel un moissonneur de vies et rattrapa instantanément l'une des créatures en fuite. Il la traversa de part en part, provoquant une pluie de sang et de vitalité.
 
 Des éclairs de lumière déchirèrent le ciel tandis que Wang Lin se déplaçait avec la rapidité de l'éclair. À chaque flash, une bête féroce s'effondrait.
 
@@ -74,7 +74,7 @@ Après une brève conversation, chacun repartit. Xu Yun ne pouvait plus résider
 
 Simultanément, sur ordre de Wang Lin, d'importantes quantités de pilules de haute qualité et de recettes leur furent envoyées. Cependant, aucune de ces pilules ne retint l'attention de Wang Lin. Après examen, il ne conserva que les recettes et fit débarrasser les pilules.
 
-Alors que Wang Lin étudiait l'alchimie, une traque effrénée déclenchée par la mort de Shi Luoxing commença loin du continent de Mo Luo. Les cultivateurs des diverses sectes de rang 6 dépêchèrent des experts pour inspecter les continents. Certains descendirent même dans les régions inférieures au rang 5.
+Alors que Wang Lin étudiait l'alchimie, une traque effrénée déclenchée par la mort de Shi Luoxing commença loin du continent de Mo Luo. Les cultivateurs des diverses sectes de rang 6 dépêchèrent des experts dans toute la région de rang 5 pour inspecter les continents. Certains descendirent même dans les régions inférieures au rang 5.
 
 Tandis que la région de rang 6 s'agitait, la nouvelle concernant le jade et la recette commença à se répandre. Cela alarma la région de rang 7 et attira même l'attention de la région de rang 8.
 

@@ -11,7 +11,7 @@ Une nébuleuse éclatante trônait au milieu de l'immensité spatiale. Cette né
 
 Ce jour-là, un rayon de lumière traversa la nébuleuse. Sa progression n'était pas rapide, mais lorsqu'il la franchit, il donna l'impression que la nébuleuse bouillonnait et se retirait sur son passage. Ce qui était plus stupéfiant encore, c'est que la personne au sein de ce rayon de lumière n'utilisait aucun trésor tel que la Boussole des Étoiles; elle se déplaçait par sa seule force physique.
 
-Cet individu portait une robe verte et semblait âgé d'une trentaine d'années. Son apparence était ordinaire, sans rien d'inhabituel. S'il y avait un trait remarquable, c'était ce tempérament antique qu'il dégageait. C'était comme si cet homme avait vécu pendant des dizaines de milliers d'années.
+Cet individu portait une robe verte et semblait âgé d'une trentaine d'années. Son apparence était ordinaire, sans rien d'inhabituel. S'il y avait un trait remarquable, c'était ce tempérament antique qu'il dégageait. C'était comme si cet homme avait vécu pendant des milliers d'années.
 
 Wang Lin parcourut toute la distance ainsi. Il ne fusionna pas avec le monde, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
 
@@ -31,7 +31,7 @@ En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit une profo
 
 Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
 
-« La grande guerre entre les quatre Royaumes Célestes fut certainement plus féroce que la bataille entre Luotian et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
+« La grande guerre entre les quatre Royaumes Célestes fut certainement infiniment plus féroce que la bataille entre Luotian et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
 
 Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait le vide, et Qing Shui en sortit. Il regarda Wang Lin avec admiration dans les yeux. L'expression de Wang Lin était sereine lorsqu'il sourit: « Frère aîné est arrivé. »
 
@@ -41,9 +41,9 @@ Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps d
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
-La réalité était conforme à ses explications. Le Royaume de la Massacre de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes près des cultivateurs de Luotian.
+La réalité était conforme à ses explications. Le Royaume de la Boucherie de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes près des cultivateurs de Luotian.
 
-Hélas, ce Royaume de la Massacre avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
+Hélas, ce Royaume de la Boucherie avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 
 Wang Lin frappa son sac de rangement, et l'âme originelle de l'Illustre Xuan Bao s'en échappa. Il la lança vers Qing Shui. Ce dernier l'attrapa et plaça sa main droite entre les sourcils de l'Illustre Xuan Bao. L'énergie d'origine céleste afflua dans sa main, et l'âme de l'illustre s'éveilla. Des hurlements de détresse résonnèrent tandis que son âme originelle se convulsait.
 
@@ -53,7 +53,7 @@ Sans mot dire, Wang Lin réceptionna l'âme. Celle-ci avait perdu toute conscien
 
 Wang Lin rangea cette âme dans son sac de rangement et regarda Qing Shui. L'expression de ce dernier était revenue à la normale, mais une lueur de férocité y persistait. Il avait trouvé un indice ténu dans l'âme originelle de l'Illustre Xuan Bao!
 
-Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume de la Massacre de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
+Qing Shui fixa Wang Lin et dit lentement: « Xu Mu, je dois me rendre au Royaume de la Boucherie de l'Alliance pour récupérer un objet. Es-tu prêt à m'accompagner? »
 
 Wang Lin réfléchit un instant avant de répondre: « Le Frère aîné peut-il m'attendre dix jours? »
 
@@ -73,9 +73,9 @@ Chaque matin, le son des cloches résonnait depuis la cime. Quelques oiseaux mag
 
 Dong... Dong... Dong... Le son de la cloche semblait percer les nuages en se propageant depuis le sommet, apportant une paix profonde au cœur de quiconque l'entendait.
 
-Au pied de la montagne se trouvait un village mortel. Il n'y vivait pas grand monde, moins d'une centaine de familles. Le village était parsemé d'abricotiers en pleine floraison. Une simple brise suffisait à répandre le parfum des fleurs. Respirer cette fragrance procurait un sentiment de calme absolu.
+Au pied de la montagne se trouvait un village mortel. Il n'y vivait pas grand monde, moins d'une centaine de familles. Le village était parsemé d'abricotiers en pleine floraison. Une simple brise suffisait à répandre le parfum des fleurs. Respirer cette fragrance procurait une légèreté apaisante.
 
-Le son des cloches semblait chasser la fraîcheur nocturne du petit matin. Des volutes de fumée s'élevèrent, accompagnées par les aboiements des chiens. Alors que la fumée flottait dans l'air, elle semblait dissiper les derniers vestiges de la nuit. Vu de loin, cela ressemblait à une image animée dotée de son propre domaine.
+Le son des cloches semblait chasser la fraîcheur nocturne du petit matin. Des volutes de fumée s'élevèrent, accompagnées par les aboiements des chiens. Alors que la fumée flottait dans l'air, elle semblait dissiper les derniers vestiges de la nuit. Vu de loin, cette scène dégageait une atmosphère singulière.
 
 Wang Lin se tenait silencieusement au loin, contemplant le village devant lui. La fumée et les arbres à abricots qui oscillaient apportaient du mouvement, tandis que les vieilles maisons centenaires restaient immobiles. Ce contraste entre le dynamique et le statique, comme l'entrecroisement des vies paisibles et laborieuses, conférait à la scène un caractère à la fois familier et étranger pour Wang Lin.
 
@@ -83,7 +83,7 @@ Ce qu'il revoyait n'était pas le village qui s'offrait à lui, mais son enfance
 
 « L'arbre à abricot fleurit de blanc. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était qu'un sac d'os. Les cris de la fille accompagnent les morts, mais elle prend le cercueil pour famille... L'arbre à abricot fleurit de blanc et les enfants ne doivent pas être pris par les taoïstes. Si l'on demande mon âge, je n'ai pas encore trouvé mon Dao. Le chien aboie, le chat griffe, faisant fuir le taoïste vers sa demeure. »
 
-La voix d'un enfant tendre atteignit les oreilles de Wang Lin, mêlée au tintement cristallin d'une cloche. C'était un enfant vêtu d'habits ajustés qui montait sur un bœuf en direction du village. Un anneau de fer traversait le nez de l'animal, auquel étaient attachées deux cloches qui tintaient sans cesse à chaque pas. Plusieurs veaux suivaient le bœuf.
+La voix d'un enfant tendre atteignit les oreilles de Wang Lin, mêlée au tintement cristallin d'une cloche. C'était un enfant vêtu d'une modeste tunique de toile qui montait sur un bœuf en direction du village. Un anneau de fer traversait le nez de l'animal, auquel étaient attachées deux cloches qui tintaient sans cesse à chaque pas. Plusieurs veaux suivaient le bœuf.
 
 L'enfant aperçut Wang Lin mais ne fut point effrayé; il continua de chanter sa comptine en s'approchant. Il inclina la tête et ses grands yeux clignotèrent lorsqu'il demanda: « Oncle, pourquoi es-tu ici? Es-tu perdu? »
 

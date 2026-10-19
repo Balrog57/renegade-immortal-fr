@@ -72,7 +72,7 @@ Seul cet instrument pouvait garantir qu'il resterait indétectable dans la mer. 
 
 Cependant, la situation était périlleuse. Pour s'emparer de l'objet, il devrait sortir de sa dissimulation, révélant ainsi sa présence à tous ceux qui se trouvaient en bas.
 
-« Tout doit être rapide. Je ne peux laisser aucun d'entre eux s'échapper, ni permettre à cette femme de transmettre l'information... » Wang Lin fronça les sourcils en observant les cent cultivateurs et les trois grandes bannières.
+« Tout doit être rapide. Je ne peux laisser aucun d'entre eux s'échapper, ni permettre à cette femme de transmettre l'information... » Wang Lin fronça les sourcils en observant les centaines de cultivateurs et les trois grandes bannières.
 
 « Ces trois drapeaux doivent servir de dispositif protecteur... Cela va être complexe. » Restant immobile dans la brume, il observa la scène tout en méditant.
 
@@ -80,7 +80,7 @@ Sous les bannières, la femme consulta à nouveau la boussole et fronça les sou
 
 « Étrange. Il n'y a plus de cultivateurs étrangers, et pourtant des ondulations continuent d'apparaître. C'est manifestement une réaction de la restriction lorsqu'elle détecte une anomalie. »
 
-La boussole ne présentait que des points verts, sans le moindre point blanc, mais une fluctuation constante se propageait à la surface de l'eau.
+La boussole ne présentait que des points verts, sans le moindre point blanc, mais une fluctuation constante se propageait à sa surface, comme des rides sur l'eau.
 
 Les yeux de la femme s'animèrent d'une lueur vive. Sa main gauche continuait de tracer des sceaux sur la boussole, mais elle ne trouvait aucune explication.
 

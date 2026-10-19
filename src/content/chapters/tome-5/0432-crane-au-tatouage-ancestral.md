@@ -46,7 +46,7 @@ Il n'avait que deux choix: agir ou ne pas agir, et s'il agissait, il ne ferait p
 
 À l'intérieur de la lumière blanche, le chaman à huit feuilles ouvrit les yeux, lesquels étaient empreints de terreur.
 
-La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les chamans à six feuilles environnants à plusieurs centaines de mètres. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
+La paume de Wang Lin percuta la lumière blanche et un bruit assourdissant fit vibrer le quatrième étage. L'impact puissant propagea des ondes de choc qui projetèrent les chamans à six feuilles environnants à plus d'un millier de mètres. Chacun d'eux cracha du sang, et les tatouages sur leurs corps devinrent instables; le moindre faux pas signifierait leur mort.
 
 L'un des chamans à six feuilles hurla, après avoir craché un jet de sang: « Un cultivateur de la Transformation de l'Âme!!! »
 
@@ -116,7 +116,7 @@ Des craquements sinistres émanèrent du tatouage avant qu'il ne se brise. Les y
 
 Une quantité massive de sang jaillit de la blessure sur la poitrine du vieillard. Bien que son regard s'affaiblissait, il fixa Wang Lin d'un air venimeux et demanda: « Qui es-tu?! »
 
-« Je ne te dirai pas qui je suis! » Wang Lin avança et apparut aux côtés de l'homme. Sa main traça un sceau pour placer une restriction sur lui. Puis, d'un geste de l'épée céleste, il détacha la tête du vieillard de son corps.
+« Je ne te dirai pas qui je suis! » Wang Lin avança et apparut aux côtés de l'homme. Sa main traça un sceau et y imprima une marque qui se fondit dans son corps. Puis, d'un geste de l'épée céleste, il détacha la tête du vieillard de son corps.
 
 Le cadavre s'effondra au sol.
 

@@ -76,7 +76,7 @@ Cependant, la brume noire ne se dissipait pas, elle continuait de s'accumuler. U
 
 Un cycle s'installa, mais lorsque l'eau de l'océan se changeait en pluie, la quantité diminuait. Ce n'était pas que le poison s'évaporait, c'est qu'il devenait plus concentré!
 
-Peu après, de plus en plus de nuages noirs apparurent dans le Fourneau Impérial et la pluie continua de tomber. Les vagues rugissaient et, à mesure que Wang Lin poursuivait son œuvre, le niveau de l'océan baissait. Après trois jours de pluie incessante, il ne restait plus que la moitié de la mer.
+Peu après, de plus en plus de nuages noirs apparurent dans le Fourneau Impérial et la pluie continua de tomber. Les vagues rugissaient et, à mesure que Wang Lin poursuivait son œuvre, le niveau de l'océan baissait. Après trois jours de pluie incessante, le niveau de la mer avait baissé de près de moitié.
 
 La couleur de l'océan était désormais d'un noir profond, si dense que même le Sens Divin ne pouvait le pénétrer. Le poison à l'intérieur était devenu encore plus terrifiant.
 
@@ -116,4 +116,4 @@ Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l
 
 Au même moment, à l'extérieur, l'homme corpulent du Clan du Loup Céleste progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
 
-« Ce n'est plus loin, il ne me reste que trois jours pour arriver! Si je peux obtenir neuf de ces feuilles, je pourrai utiliser mon Dao du Loup Céleste et le sceller pour qu'il m'accompagne à jamais! Même si je reste au début du Nirvana Vide, je serai le cultivateur le plus puissant de ce stade! » Les yeux de l'homme brillaient d'excitation tandis qu'il commandait à sa plateforme de voler de plus en plus vite.
+« Ce n'est plus loin, il ne me reste que trois jours pour arriver! Si je peux obtenir neuf de ces feuilles, je pourrai, avec le pouvoir de mon clan, utiliser mon Dao du Loup Céleste et le sceller pour qu'il m'accompagne à jamais! Même si je reste au début du Nirvana Vide, je serai le cultivateur le plus puissant de ce stade! » Les yeux de l'homme brillaient d'excitation tandis qu'il commandait à sa plateforme de voler de plus en plus vite.

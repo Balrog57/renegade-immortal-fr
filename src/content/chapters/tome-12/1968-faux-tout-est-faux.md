@@ -14,7 +14,7 @@ Jiu Di eut un sourire amer en regardant les deux fillettes. Il décida de les ig
 
 « Ah, vieux fou pourri, tu oses être désobéissant?! »
 
-« Vieux fou pourri, je me souviens de toi. Tu ne peux pas nous battre! » Les yeux des deux fillettes s'écarquillèrent après avoir entendu ce que le Grand Empyréen Jiu Di venait de dire.
+« Vieux fou pourri, je me souviens de toi. À l'époque, tu n'as pas pu nous battre! » Les yeux des deux fillettes s'écarquillèrent après avoir entendu ce que le Grand Empyréen Jiu Di venait de dire.
 
 « Gémeaux, après votre réincarnation, votre âme s'est divisée... comment votre personnalité peut-elle être encore ainsi?! Cette personne a passé le 17e palais et nous sommes tous ici; nous allons donc exposer nos conditions une à une pour qu'il puisse décider. Toi... » Jiu Di fronça les sourcils, mais avant qu'il ne puisse terminer sa phrase, les deux fillettes bondirent en avant.
 
@@ -44,7 +44,7 @@ La lumière dorée se dissipa et les deux fillettes flottaient fièrement dans l
 
 Gu Ya s'approcha rapidement et commença à les encenser.
 
-« Le Grand Empyréen Gémeaux est vraiment puissant. Gu Ya admire, admire, ah! » Il n'avait vraiment rien d'autre à dire. Il comprenait enfin ce que les deux petites ancêtres avaient en tête lorsqu'elles lui avaient dit qu'elles possédaient une méthode, alors qu'il s'inquiétait de recruter Wang Lin.
+« Le Grand Empyréen Gémeaux a un génie stratégique incomparable. Gu Ya admire, admire, ah! » Il n'avait vraiment rien d'autre à dire. Il comprenait enfin ce que les deux petites ancêtres avaient en tête lorsqu'elles lui avaient dit qu'elles possédaient une méthode, alors qu'il s'inquiétait de recruter Wang Lin.
 
 Désormais, il savait que leur "méthode" consistait simplement à faire un caprice pour effrayer tout le monde.
 
@@ -52,7 +52,7 @@ Tout en parlant, Gu Ya regarda Wang Lin avec embarras et joignit les mains.
 
 « Gu Ya salue l'Ascendant Empyréen aux cheveux blancs. Concernant cette affaire... je suis impuissant. Le Senior est très célèbre et vous avez de nombreux choix, mais le Grand Empyréen Gémeaux est pure et aussi innocente qu'un enfant. Si le Senior accepte de la suivre, elles seront certainement généreuses envers vous. »
 
-« Nous essaierons de satisfaire toutes vos exigences au mieux de nos capacités. » Gu Ya s'inclina profondément et resta ainsi.
+« Toutes vos exigences, pour autant qu'elles soient réalisables, seront certainement satisfaites. » Gu Ya s'inclina profondément et resta ainsi.
 
 Wang Lin réfléchit silencieusement et observa Cupidité, qui affichait un visage amer.
 
@@ -66,7 +66,7 @@ Wang Lin sourit amèrement. Devant lui, l'expression de Gu Ya trahissait son emb
 
 « Cela... Senior Wang... » Gu Ya s'apprêtait à parler pour détendre l'atmosphère.
 
-À ce moment, la petite fille nommée Han Han poussa un reniflement et descendit vers Wang Lin. Cependant, étant trop petite, elle devait lever les yeux vers lui. Sentant que cela ne lui convenait pas, elle s'envola immédiatement pour dépasser sa taille. Elle affichait un air fier, ses yeux innocents clignant avec assurance, tandis qu'elle commençait à menacer Wang Lin:
+À ce moment, la petite fille nommée Han Han poussa un reniflement et descendit vers Wang Lin. Cependant, étant trop petite, elle devait lever les yeux vers lui. Sentant que cela ne lui convenait pas, elle s'envola immédiatement pour dépasser sa taille. Elle affichait un air fier, ses yeux innocents clignant avec assurance, tandis qu'elle commençait à menacer Wang Lin à voix basse:
 
 « Petit Wang Lin, si tu n'es pas d'accord, je te frapperai! Je demanderai à mon père de te frapper! Gu Ya a dit que mon père est très fort. Peu importe les Ancêtres Célestes ou les Ancêtres Anciens... il suffit d'écrire le mot "mort" et ils seront tous morts! »
 
@@ -114,7 +114,7 @@ Gu Ya ignora les deux ancêtres qui maltraitaient Cupidité et les sons de détr
 
 Bien qu'il soit arrivé tardivement, il imaginait aisément que les propositions de Dao Yi, Wu Feng et Jiu Di devaient être extraordinaires et capables de tenter n'importe quel cultivateur.
 
-« Senior, vous... » Gu Ya eut soudain l'impression d'être dans un rêve.
+« Senior, vous... » Gu Ya se mit soudain à s'inquiéter, tiraillé entre l'espoir et la crainte.
 
 Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Cupidité. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyréen Gémeaux très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
 

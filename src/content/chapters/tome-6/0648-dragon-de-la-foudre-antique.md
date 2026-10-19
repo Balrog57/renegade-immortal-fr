@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 648 - Ancient Thunder Dragon
 slug: dragon-de-la-foudre-antique
 ---
-Grâce à l'énergie de l'épée qui lui ouvrait une voie, Wang Lin utilisa toute sa vitesse et plongea vers les profondeurs tel une météorite. Il ne s'enquit pas de Zhou Yi pour le moment; car bien que Cupidité possédât de nombreux trésors, il ne serait pas vaincu facilement.
+Grâce à l'énergie de l'épée qui lui ouvrait une voie, Wang Lin utilisa toute sa vitesse et plongea vers les profondeurs tel une météorite. Il n'avait pas le loisir de se soucier de Zhou Yi pour le moment; car bien que Cupidité possédât de nombreux trésors, il ne serait pas vaincu facilement.
 
 Ce qu'il devait faire maintenant était d'augmenter la distance au maximum afin de gagner du temps jusqu'à l'arrivée de Zhou Yi.
 
@@ -88,7 +88,7 @@ Enveloppé par sa lumière sanguine, Wang Lin sentait la puissance de la résist
 
 La majeure partie de sa lumière sanguine s'était déjà dissipée, l'obligeant à écraser sans cesse des jades sanguins pour maintenir sa protection. Sans ce bouclier, il ferait face à une épreuve mortelle au sein de ce filet de foudre, même avec un million de sceaux de vie.
 
-« Autrefois, le Voyant aux Robes Grises disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Massacre Céleste est imparfait, soit le Voyant aux Robes Grises m'a trompé! »
+« Autrefois, l'Omniscient en robe grise disait que la défense des sceaux de vie était extrêmement puissante, et c'est vrai face à des sorts ordinaires. Mais face à quelqu'un de plus fort que moi, ce n'est tout simplement pas suffisant! Soit l'Art du Massacre Céleste est imparfait, soit l'Omniscient en robe grise m'a trompé! »
 
 Il aperçut immédiatement la marque entre les sourcils de la seconde âme originelle de Cupidité!
 
@@ -112,7 +112,7 @@ L'énergie de l'épée de Ling Tianhou chargea sans hésitation dans la seconde 
 
 Le corps de la seconde âme originelle trembla violemment, et le sceau entre ses sourcils se mit à clignoter frénétiquement. Le sceau s'étendit sur tout son corps, tentant de résister à cette force destructrice.
 
-À cet instant, le filet de foudre qui se contractait vers Wang Lin s'effondra brusquement. Wang Lin s'en échappa et frappa son sac de rangement; l'armure démoniaque apparut aussitôt sur son corps. L'énergie démoniaque se propagea et il leva soudainement le doigt. Le Doigt Démonique fut lancé, l'énergie démoniaque se condensant avant de s'élancer en sifflant.
+À cet instant, le filet de foudre qui se contractait vers Wang Lin s'effondra brusquement. Wang Lin s'en échappa et frappa son sac de rangement; l'armure démoniaque apparut aussitôt sur son corps. L'énergie démoniaque se propagea et il leva soudainement le doigt. Le Doigt Démoniaque fut lancé, l'énergie démoniaque se condensant avant de s'élancer en sifflant.
 
 Simultanément, Wang Lin pointa à nouveau le doigt, utilisant le Doigt des Enfers. À l'instant où ce dernier apparut, la rivière des enfers surgit également et chargea avec lui.
 
@@ -134,7 +134,7 @@ Les trois esprits maléfiques sur les épées tremblèrent de terreur!
 
 « Ceci est... »
 
-La seconde âme originelle de Cupidité explosa dans un fracas retentissant, mais au moment de son effondrement, une lumière verte jaillit entre ses sourcils. Une aura primordiale épaisse s'en dégagea.
+La seconde âme originelle de Cupidité explosa dans un fracas retentissant, mais au moment de son effondrement, une lumière verte jaillit de son front. Une aura primordiale épaisse s'en dégagea.
 
 Dès que la lumière apparut, elle se transforma en un dragon vert!
 
@@ -154,7 +154,7 @@ Wang Lin esquissa un sourire amer. Sans hésiter, il utilisa la force de résist
 
 Alors que le dragon vert rugissait, ses yeux froids balayèrent la zone et se fixèrent sur Wang Lin. La haine passée était toujours là. Bien qu'il vienne de s'éveiller, il se souvenait de ce qui lui était arrivé. Son corps se transforma en un rayon de lumière verte et chargea directement vers Wang Lin.
 
-Après avoir plongé au fond de l'Abîme des Marées, Wang Lin vit le gouffre sans fond qui trônait au centre. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
+Après avoir plongé au fond de l'Abîme des Marées, Wang Lin vit le gouffre sans fond qui s'ouvrait devant lui. Une force d'aspiration émanait du trou, lequel était noyé dans la brume.
 
 Le rugissement du dragon et l'odeur fétide de sa gueule approchaient par derrière. Wang Lin eut un sourire amer en fixant le gouffre sans fond. Il serra les dents et sauta soudainement dans le précipice.
 

@@ -50,23 +50,23 @@ Chacun de ces sens portait la pression d'un Exalté Empyréen, et ils étaient p
 
 L'expression de Wang Lin resta imperturbable. En examinant les alentours, il constata qu'il se trouvait près d'une ancienne matrice de transfert. Cette matrice était extrêmement complexe et, à première vue, Wang Lin sentit que son Sens Divin risquait d'être aspiré par elle.
 
-Après un long moment, Wang Lin retira son attention et sortit de la matrice. Il observa attentivement son corps, ayant l'impression d'être dans sa forme physique. S'il n'avait pas su qu'il ne s'agissait que de son âme originelle, il aurait eu du mal à percevoir la différence.
+Après un long moment, Wang Lin retira son attention et sortit de la matrice. Il observa attentivement son corps, ayant l'impression d'être dans sa forme physique. S'il n'avait pas su qu'il ne s'agissait que de son Sens Divin, il aurait eu du mal à percevoir la différence.
 
 « L'Épreuve Céleste a été créée par l'Ancêtre Céleste. Elle est véritablement mystérieuse! » Wang Lin vola vers le palais d'où émanaient tous ces Sens Divins.
 
 Plus il s'approchait, plus son choc grandissait. Le palais antique paraissait immense de loin, mais de près, il était encore plus prodigieux. Plus incroyable encore, Wang Lin découvrit qu'un enchaînement de palais colossaux surplombait celui-ci!
 
-Au total, dix-neuf palais flottaient dans les airs, reliés entre eux comme un dragon de pierre. Les palais supérieurs s'étendaient vers les cieux, dont on ne percevait plus que les contours vagues.
+Au total, dix-neuf palais flottaient dans les airs, reliés entre eux comme un long dragon. Les palais supérieurs s'étendaient vers les cieux, dont on ne percevait plus que les contours vagues.
 
 « D'après mes cinquante années de recherches, les rumeurs disent que l'Épreuve Céleste est en fait le trésor le plus puissant de l'Ancêtre Céleste. Elle existe dans le vide et veille sur le clan céleste. » Wang Lin contempla les palais suspendus. Certains étaient si loin qu'il n'en voyait que l'ombre, mais il pouvait pourtant ressentir distinctement leur pression.
 
-En s'approchant davantage, il aperçut près de deux cents cultivateurs gravitant autour du premier palais antique. Ils restaient tous à distance les uns des autres, comme s'ils refusaient toute proximité.
+En s'approchant davantage, il aperçut près de deux cents cultivateurs assis en tailleur autour du premier palais antique. Ils restaient tous à distance les uns des autres, comme s'ils refusaient toute proximité.
 
 À l'arrivée de Wang Lin, de nombreux regards se tournèrent vers lui. Certains le reconnurent et lui adressèrent un sourire en joignant les mains en signe de salut.
 
 Wang Lin répondit par le même geste. Il se tint devant le palais et contempla ce colosse, avec l'illusion d'être minuscule face à lui.
 
-« L'Épreuve Céleste est un lieu très singulier. Peu importe où vous vous trouvez, vous pouvez vous y rendre avec votre âme originelle. Cet endroit est privilégié par les Exaltés Empyréens car, même séparées par de vastes distances, deux personnes peuvent s'y retrouver. »
+« L'Épreuve Céleste est un lieu très singulier. Peu importe où vous vous trouvez, vous pouvez vous y rendre avec votre Sens Divin. Cet endroit est privilégié par les Exaltés Empyréens car, même séparées par de vastes distances, deux personnes peuvent s'y retrouver. »
 
 « Et grâce à cette particularité, l'Épreuve Céleste est le lieu de rencontre idéal pour eux. » Les informations recueillies par Wang Lin au cours des cinquante dernières années défilèrent dans son esprit.
 

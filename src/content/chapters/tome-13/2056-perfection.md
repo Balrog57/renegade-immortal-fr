@@ -84,7 +84,7 @@ Une fois la tête de l'ombre brisée, il ne sembla plus y avoir d'ombre au-dessu
 
 Sa seule existence résidait dans une volonté: la volonté d'endurer jusqu'au bout pour fusionner à nouveau. S'il réussissait, il renaîtrait; s'il échouait, il disparaîtrait à jamais.
 
-« Vais-je échouer? Non! Je n'échouerai jamais! » Dans son esprit, le rugissement de l'Ancêtre Ancien résonnait encore.
+« Vais-je échouer? Non! Je n'échouerai jamais! » Dans son esprit, le rugissement de l'Ancêtre Ancien, qui défiait les Célestes, résonnait encore.
 
 Ces fragments invisibles se brisaient lentement tandis que quatre mois supplémentaires s'écoulaient. Wang Lin avait enduré la première division de son âme pendant un total de dix-huit mois.
 

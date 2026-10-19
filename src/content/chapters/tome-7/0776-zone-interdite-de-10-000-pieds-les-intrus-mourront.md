@@ -60,7 +60,7 @@ Alors qu'il reprenait son souffle, une sueur froide perlant sur son front, la co
 
 Cependant, avant qu'il n'ait pu questionner son adversaire, le regard de Wang Lin devint glacial. Il leva la main droite et le Tatouage d'Os de Bête sur le dos de sa main commença à bouger. Il glissa le long du doigt de Wang Lin avant de s'élancer.
 
-En un instant, un gigantesque Tatouage d'Os de Bête apparut devant Wang Lin, ses quatre pointes acérées dégageant une aura glaciale. Dès son apparition, il fonça vers Tang Yanyun.
+En un instant, un gigantesque os de bête apparut devant Wang Lin, ses quatre pointes acérées dégageant une aura glaciale. Dès son apparition, il fonça vers Tang Yanyun.
 
 Tang Yanyun recula avec une expression sombre tandis qu'un dragon noir scintillait à nouveau entre ses sourcils, libérant une brume noire. Cette fois, une quantité encore plus grande d'énergie originelle jaillit, et l'intégralité de la marque noire s'envola de son front. Elle se mua en un dragon noir qui ouvrit la gueule pour tenter impitoyablement de dévorer l'os de la bête.
 
@@ -86,7 +86,7 @@ Cette scène sembla suspendre le temps. Tous les spectateurs environnants ne pur
 
 Le cœur des cultivateurs situés à 3,3 kilomètres battait la chamade; ils ne pouvaient croire ce qu'ils venaient de voir. La peur les balaya comme une tempête. Cette zone de 3,3 kilomètres ressemblait désormais à une bête primale qui les empêchait de faire le moindre pas en avant.
 
-Tous ces cultivateurs de premier rang ne purent s'empêcher de reculer. C'était comme si la distance de 3,3 kilomètres n'était plus suffisante, et ils craignaient d'être touchés par ce phénomène.
+Tous ces cultivateurs du premier stade ne purent s'empêcher de reculer. C'était comme si la distance de 3,3 kilomètres n'était plus suffisante, et ils craignaient d'être touchés par ce phénomène.
 
 Ceux qui espéraient profiter des blessures de leurs adversaires furent couverts de sueur froide et abandonnèrent toute idée de profit.
 
@@ -100,7 +100,7 @@ Le corps de Tang Yanyun trembla, ses yeux empreints d'effroi. Il tenta de s'enfu
 
 Ce sortilège était une invention de Wang Lin. En utilisant la pression de l'énergie originelle, il pouvait rendre inutiles tous les sorts de déplacement instantané.
 
-Ses doigts s'abattirent directement entre les sourcils de Tang Yanyun. À ce moment précis, plusieurs rayons de lumière jaillirent du lointain et un rugissement retentit à l'intérieur de l'un d'eux.
+Ses doigts s'abattirent directement entre les sourcils de Tang Yanyun. À ce moment précis, plusieurs rayons de lumière jaillirent du lointain et un cri sinistre retentit devant eux.
 
 « Tue-le et tu seras enterré avec lui! »
 
@@ -116,6 +116,6 @@ Les rayons de lumière tombèrent du ciel, révélant quatre silhouettes, hommes
 
 Si Shengong Hu avait été présent, il aurait immédiatement reconnu Tang Yanfeng, celui qui s'était moqué de lui aux portes du Royaume Céleste!
 
-« Une zone interdite de 3,3 kilomètres? Pour qui te prends-tu? » ricana l'un des hommes d'âge moyen aux côtés de Tang Yanfeng en faisant un pas dans la zone interdite. Un jeune homme derrière lui, à l'expression arrogante, fit également le pas vers cette limite.
+« Une zone interdite de 3,3 kilomètres? Pour qui te prends-tu? » ricana l'un des hommes d'âge moyen aux côtés de Tang Yanfeng en faisant un pas dans la zone interdite. Un jeune homme derrière lui, à l'expression arrogante, entra lui aussi dans la zone interdite.
 
 Le regard de Wang Lin resta calme alors qu'il se retournait pour faire face à l'homme d'âge moyen.

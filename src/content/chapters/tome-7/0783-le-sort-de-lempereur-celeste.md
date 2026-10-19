@@ -46,13 +46,13 @@ Si cinq rayons étaient apparus, ils auraient pu comprendre, supposant que Xu Mu
 
 Le neuvième rayon ne pouvait s'expliquer que par une chance prodigieuse; il n'y avait aucune autre issue.
 
-L'impact de ces neuf lueurs fut dévastateur pour leur esprit. Il fallait savoir que lorsque les ancêtres de leurs familles respectives étaient venus lors de l'ouverture du Royaume Céleste, ils n'avaient réussi qu'à atteindre le huitième étage.
+L'impact de ces neuf lueurs fut dévastateur pour leur esprit. Il fallait savoir que lorsque les ancêtres de leurs familles respectives étaient venus lors de la première ouverture du Royaume Céleste et lors du scellement de ce fragment, ils n'avaient réussi qu'à atteindre le huitième étage.
 
 Personne n'avait jamais atteint le neuvième.
 
 Après avoir marché un certain temps, Wang Lin atteignit enfin le sommet des marches. La dernière marche brilla intensément et un pavillon apparut devant lui.
 
-Ce pavillon n'était pas vaste; il présentait plus de dix cadres en bois sur chaque côté. Chaque cadre abritait un jade céleste qui diffusait une lueur douce.
+Ce pavillon n'était pas vaste; il présentait plus de dix cadres en bois répartis sur ses murs latéraux. Chaque cadre abritait un jade céleste qui diffusait une lueur douce.
 
 Sur le mur, juste devant lui, était suspendue une peinture. Elle représentait un arbre dont la moitié des feuilles étaient jaunies. Sous l'arbre, un jeune garçon semblait être en pleine culture.
 
@@ -72,13 +72,13 @@ Il fronça les sourcils et observa les cadres en bois environnants. Un instant p
 
 Bien que des jades célestes ornaient ces cadres, tout comme le tapis, ils n'étaient que des illusions; ils n'existaient pas réellement.
 
-En observant l'ensemble, il laissa échapper un sourire amer. Il ne pouvait voir les choses, mais jamais les toucher. Tout n'était qu'un mirage.
+En observant l'ensemble, il laissa échapper un sourire amer. Il ne pouvait que voir les choses, sans jamais pouvoir les toucher. Tout n'était qu'un mirage.
 
 « Si j'avais su cela, je serais allé au quatrième étage. Au moins, ce ne serait pas ainsi. » Wang Lin fronça les sourcils en balayant la pièce du regard avant que son attention ne se porte de nouveau sur la peinture.
 
 Après une longue réflexion, ses yeux s'illuminèrent et il s'assit par terre. Il fixa l'œuvre en silence.
 
-« Le neuvième étage, là où un seigneur céleste pourrait apparaître, ne peut être aussi simple. Peut-être que cette scène n'est qu'une illusion pour mes yeux, et qu'un seigneur céleste peut tout percevoir aisément. Si tel est le cas, alors ce tableau est étrange. »
+« Le neuvième étage, où un seigneur céleste pourrait se rendre, ne peut être aussi simple. Peut-être que cette scène n'est qu'une illusion pour mes yeux, alors qu'aux yeux d'un seigneur céleste, il suffit de lever la main pour tout obtenir. Si tel est le cas, alors ce tableau est étrange. »
 
 Wang Lin scruta la peinture avec une attention méticuleuse.
 
@@ -108,7 +108,7 @@ Lorsqu'il accomplit le dernier sceau, un choc retentit dans sa tête et son corp
 
 Lorsque sa vision se clarifia, son esprit vacilla en découvrant son environnement.
 
-Il n'y avait que le vide autour de lui, et derrière lui se dressait un arbre immense. La moitié de l'arbre était jaune et, au gré d'une brise, le bruissement des feuilles résonnait dans l'espace.
+Il n'y avait que le vide autour de lui, et derrière lui se dressait un arbre immense. La moitié de ses feuilles était jaunie et, au gré d'une brise, le bruissement des feuilles résonnait dans l'espace.
 
 Wang Lin baissa les yeux et constata qu'il portait une robe de daoïste. Il était entré dans la peinture; il était devenu ce garçon.
 

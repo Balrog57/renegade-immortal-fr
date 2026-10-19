@@ -34,13 +34,13 @@ Lorsqu'elle avait aperçu ces tentacules auparavant, elle n'avait ressenti qu'un
 
 Les pupilles de Yao Bingyun se rétractèrent brusquement. Un frisson lui glaça le cœur et se propagea rapidement dans tout son corps, engourdissant son cuir chevelu. En fixant ces innombrables tentacules, son expression devint extrêmement affreuse, ses yeux trahissant une peur et une incrédulité extrêmes.
 
-« Ces... ces tentacules... Les cultivateurs du Domaine Nord avaient raison. Cette planète de culture était la bête que j'ai rencontrée auparavant, mais multipliée par des milliers de fois! »
+« Ces... ces tentacules... Les cultivateurs du Domaine Nord avaient raison. Cette planète de culture était la bête que j'ai rencontrée auparavant, mais multipliée d'innombrables fois! »
 
 Les vibrations violentes persistèrent. Finalement, la terre commença à s'effondrer et les débris volèrent dans tous les sens. Un instant plus tard, un rugissement encore plus intense jaillit de l'intérieur de la planète.
 
 À ce moment précis, Wang Lin coupait sans relâche ces fils rouges. Chaque fois qu'un fil était sectionné, le Serpent aux yeux de lune tremblait violemment.
 
-Dans sa progression, Wang Lin s'enfonçait progressivement dans la faille. Plus il avançait, plus les fils rouges devenaient denses. Le regard de Wang Lin se fit glacial alors qu'il utilisait continuellement le Coup Céleste, faisant s'effondrer les fils rouges un à un.
+Dans sa progression, Wang Lin s'enfonçait progressivement dans la zone saturée de fils rouges. Plus il avançait, plus les fils rouges devenaient denses. Le regard de Wang Lin se fit glacial alors qu'il utilisait continuellement le Coup Céleste, faisant s'effondrer les fils rouges un à un.
 
 Peu de temps après, il s'arrêta soudainement. Un fil rouge, plus épais qu'un homme et s'entrecroisant en s'étendant, apparut devant lui. Ce fil était plus massif que tous ceux qu'il avait vus jusqu'alors. Ses yeux brillèrent alors qu'il se précipitait pour le déchirer sans la moindre hésitation.
 

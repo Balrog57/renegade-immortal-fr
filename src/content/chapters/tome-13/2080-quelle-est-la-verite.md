@@ -76,7 +76,7 @@ Cet homme chauve était celui qui avait dit à Wang Lin: « Cœur mort, déjà o
 
 « Mo Zhi... c'est toujours mon nom. » L'homme chauve soupira.
 
-« Wang Lin, tu aurais dû deviner toutes les réponses. Je peux te dire que... Toi... » Mo Zhi s'apprêtait à parler.
+« Wang Lin, tu dois déjà avoir quelques soupçons sur toutes ces réponses. Je peux te dire que... Toi... » Mo Zhi s'apprêtait à parler.
 
 « Ne dis rien, laisse-moi méditer sur ces choses par moi-même. » Wang Lin secoua la tête. Il saisit la cruche et but une longue gorgée.
 
@@ -100,7 +100,7 @@ Ressusciter Li Muwan était sa propre décision, et non le fruit de l'influence 
 
 « Je suis moi... » Il n'y avait aucune confusion dans le regard de Wang Lin; ses yeux étaient d'une clarté absolue.
 
-« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Royaume Céleste, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
+« Que ce soit Mo Zhi ou Papillon Rouge, même le maître de Mo Zhi et l'Omniscient... Ils pensent tous que ce monde, le monde des grottes, le Continent Astral Immortel, n'ont été formés que par mon Dao onirique et ne sont pas réels... » murmura Wang Lin. Il avait depuis longtemps tiré des conclusions sur ces questions.
 
 « Cependant, est-ce vraiment ainsi? » Wang Lin esquissa un léger sourire. Il se leva, leva les yeux vers le ciel, et son regard brilla d'un éclat intense.
 
@@ -116,7 +116,7 @@ Le crâne scintilla et une courte ligne de mots s'y afficha avant de disparaîtr
 
 « Vous avez tous tort... » Wang Lin détourna le regard et sourit en regagnant la maison en bois. Il regarda Li Muwan qui dormait et s'assit à ses côtés. Son regard était empreint d'une infinie tendresse alors qu'il la contemplait.
 
-« Wan Er, tu te réveilleras... Car je connais enfin la véritable méthode... Et j'ai déjà commencé les préparatifs dans l'Ancien Temple Ancestral Shi. »
+« Wan Er, tu te réveilleras... Car je connais enfin la véritable méthode... Et j'ai déjà commencé les préparatifs dans le temple ancestral de Shi Antique. »
 
 Une trace de folie dansait dans les yeux de Wang Lin. Cette méthode était, en vérité, totalement insensée!
 
@@ -132,11 +132,11 @@ Leurs corps s'étant réincarnés et ayant grandi sur le Continent Astral Immort
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 
-Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer, ils étaient convaincus de pouvoir tromper n'importe qui sur le Continent Astral Immortel!
+Avec Wang Lin comme bouclier et la puissance de combat du dragon de mer d'Exalté Doré, ils étaient convaincus de pouvoir tromper n'importe qui sur le Continent Astral Immortel!
 
 Soixante ans après le départ de Xu Liguo et de sa troupe, Wang Lin sortit Li Muwan de la vallée et quitta la planète Suzaku. Ils abandonnèrent le monde des grottes pour se diriger vers le Continent Astral Immortel.
 
-Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultivateurs pratiquant le Dao qu'il avait laissé derrière lui. Il aperçut Treize et de nombreux anciens amis.
+Avant de partir, son Sens Divin balaya le Royaume Céleste; il y vit les cultivateurs qui assimilaient l'héritage du Dao qu'il avait laissé derrière lui. Il aperçut Treize et de nombreux anciens amis.
 
 Il rétracta son Sens Divin et jeta un dernier regard sur le monde des grottes.
 

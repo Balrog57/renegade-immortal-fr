@@ -16,13 +16,13 @@ Cependant, l'Omniscient était très discret et peu d'étrangers connaissaient s
 
 Bien que son mouvement parût lent, il était en réalité d'une rapidité extrême. Une pression capable de faire trembler les cieux rugit à travers l'éther. Les cultivateurs de la planète Tian Yun ressentirent une majesté terrifiante descendre sur le monde.
 
-En raison de l'immense quantité d'énergie originelle accumulée devant le doigt, un arc de lumière apparut devant lui et toucha la planète Tian Yun en premier.
+En raison de l'immense quantité d'énergie originelle accumulée devant le doigt, un immense arc de lumière, long de plus d'un kilomètre, apparut devant lui et toucha la planète Tian Yun en premier.
 
 La planète entière sembla vaciller et une onde gigantesque se propagea dans l'atmosphère, comme si une force colossale s'y déplaçait. Cette énergie originelle précéda le doigt, provoquant même l'effondrement de certaines parties du ciel étoilé et une distorsion totale de l'espace.
 
-Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l'atmosphère. Celle-ci s'effondra instantanément, laissant une lumière aux sept couleurs se répandre sur toute la zone.
+Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l'atmosphère. Celle-ci s'effondra instantanément et se replia en tous sens, laissant une lumière aux sept couleurs se répandre sur toute la zone.
 
-Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendre, provoquant un changement soudain et radical du climat.
+Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendre, faisant tourner les courants d'air et provoquant un changement soudain et radical du climat.
 
 En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à cinq cents kilomètres de la Cité aux Yeux Fantômes!
 
@@ -56,7 +56,7 @@ Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement a
 
 À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Luo! Il n'y avait qu'une seule secte sur cette planète: la Secte de l'Épée Da Luo!
 
-La Secte de l'Épée Da Luo occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
+La Secte de l'Épée Da Luo occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou, qui avait toujours voulu l'emporter, avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
 
 Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Luo. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
 

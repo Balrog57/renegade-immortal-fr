@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 433 - The third ancestor is her
 slug: la-troisieme-ancetre-est-elle
 ---
-La cinquième couche était plus vaste que la quatrième et bien moins aride. On y trouvait des plantes semblables à des algues, comme celles qu'il avait vues à Chu. Vue d'en haut, on pouvait distinguer de vastes étendues de cette végétation verdoyante.
+La cinquième couche était plus vaste que la quatrième et bien moins aride. On y trouvait des plantes semblables à des algues, comme celles qu'il avait vues à Chu. Vue de loin, on pouvait distinguer de vastes étendues de cette végétation verdoyante.
 
 Les feuilles de ces plantes s'agitaient selon un motif mystérieux. Si l'on les observait trop longtemps, le corps finissait par suivre le mouvement des feuilles.
 
@@ -66,7 +66,7 @@ Wang Lin rangea l'Étendard de l'Âme au Milliard d'Âmes. En chemin, il avait p
 
 De plus, chaque utilisation endommageait considérablement les fragments d'âmes, qui avaient besoin de beaucoup de temps pour se rétablir. C'était la raison pour laquelle Du Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
 
-Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éliminé 19 chamans à huit feuilles. Tous étaient déjà gravement blessés et périrent sans même comprendre ce qui leur arrivait. Toutes les couches suivantes possédaient des plantes mystérieuses agissant comme gardiennes, tout comme la sixième couche.
+Au total, en comptant celui qu'il avait tué précédemment, Wang Lin avait éliminé 19 chamans à huit feuilles. Tous étaient déjà gravement blessés et périrent les yeux grands ouverts, sans même comprendre ce qui leur arrivait. Toutes les couches suivantes possédaient des plantes mystérieuses agissant comme gardiennes, tout comme la sixième couche.
 
 Sans cette âme Ascendante, Wang Lin aurait été stoppé à la sixième couche.
 
@@ -122,7 +122,7 @@ Elle était d'une beauté saisissante; outre la dépouille céleste, la seule pe
 
 Un parchemin ouvert flottait au-dessus de la femme, et neuf lueurs dorées s'y déplaçaient en formant un cercle.
 
-Des volutes de gaz noir s'échappaient du parchemin pour pénétrer dans le front de la femme.
+Des volutes de gaz noir s'échappaient du parchemin pour pénétrer entre les sourcils de la femme.
 
 En voyant ce parchemin, son cœur vacilla. Il lui semblait extrêmement familier; il ressemblait trait pour trait au parchemin qu'il portait dans sa sacoche et dont il n'avait toujours pas compris l'usage.
 

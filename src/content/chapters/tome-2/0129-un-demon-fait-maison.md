@@ -106,7 +106,7 @@ L'Âme Naissante fut lentement contrainte par le Royaume Ji de s'approcher du mo
 
 Le Royaume Ji de Wang Lin s'anima, formant des éclairs rouges pour pressurer l'Âme Naissante. Cette dernière finit par pénétrer dans la bête. L'animal trembla longuement.
 
-Une demi-heure plus tard, la bête explosa; une silhouette rouge illusoire en jaillit, marqua une brève pause en l'air, puis poussa plusieurs cris stridents.
+Une heure plus tard, la bête explosa; une silhouette rouge illusoire en jaillit, marqua une brève pause en l'air, puis poussa plusieurs cris stridents.
 
 La forme de l'Âme Naissante avait totalement changé et brillait d'un rouge sombre. Elle dégageait une aura de férocité si dense que Wang Lin la percevait nettement, même depuis l'extérieur de la pièce de pierre. Aux yeux de Wang Lin, ce n'était désormais plus une âme, mais un démon.
 

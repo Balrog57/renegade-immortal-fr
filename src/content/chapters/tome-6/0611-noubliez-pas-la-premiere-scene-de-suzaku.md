@@ -71,7 +71,7 @@ Le jeune homme parut surpris avant de cligner des yeux et de sourire: « C'est �
 
 Le vieil homme soupira: « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer des Démons. Il sauva une femme magnifique au sein de la Secte du Ciel Nuageux et terrifia tous les puissants. Il se fraya un chemin à travers Zhao, créant des fleuves de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière! »
 
-« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a tranché le bras de Papillon Rouge. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte de l'Affinement de l'Âme comme maître. Il détruisit Xue Yue, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Délaissés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
+« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a abattit Papillon Rouge. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte de l'Affinement de l'Âme comme maître. Il chassa Xue Yu, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Délaissés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
 
 « Il aurait pu revendiquer le titre de Suzaku, mais il le refusa pour le céder à l'actuel Suzaku, Zhou Wutai! »
 
@@ -87,7 +87,7 @@ Alors que le jeune garçon s'apprêtait à répondre avec enthousiasme, un rugis
 
 Au même instant, un immense tigre aux rayures noires bondit du bas de la montagne vers le sommet. Une femme était assise sur son dos. Elle paraissait avoir une vingtaine d'années et était vêtue de blanc. Ses vêtements flottaient au vent, lui donnant l'allure d'une immortelle.
 
-Bien que sa beauté ne fût pas la plus éclatante, elle possédait une délicatesse remarquable et un teint de porcelaine. Ses yeux clairs témoignaient de sa grande intelligence.
+Bien que sa beauté ne fût pas la plus éclatante, elle possédait une délicatesse remarquable et un teint de porcelaine. Ses yeux clairs débordaient de vivacité.
 
 « Petit Blanc, plus vite! » La voix de la femme était aussi mélodieuse qu'un chant d'oiseau.
 
@@ -111,7 +111,7 @@ Tie Yan comprit que le statut de Zhou Ru sur la planète Suzaku était unique. O
 
 Même le Clan des Immortels Délaissés traitait Zhou Ru avec une politesse extrême. Normalement, ce clan n'autorisait aucun cultivateur à pénétrer sur son territoire, mais Zhou Ru faisait exception.
 
-On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yun Quezi du Clan des Immortels Délaissés et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils n'auraient aucune chance de l'emporter.
+On pouvait affirmer que Zhou Ru ne courrait aucun danger sur la planète Suzaku. De plus, Zhou Wutai, Yun Quezi du Clan des Immortels Délaissés et de nombreux autres experts de haut niveau lui avaient offert des trésors de survie. Si des cultivateurs ordinaires tentaient de l'affronter, ils ne seraient pas sûrs de l'emporter.
 
 En outre, des experts envoyés par le Mont Suzaku et le patriarche du Clan des Démons Géants, Chi Hu, veillaient sur elle. Ils étaient prêts à intervenir à tout instant pour la protéger. Parmi ses gardiens figuraient également des membres de la Secte du Ciel Nuageux.
 

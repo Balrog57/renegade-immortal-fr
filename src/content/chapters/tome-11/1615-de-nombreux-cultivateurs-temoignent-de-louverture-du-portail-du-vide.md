@@ -10,9 +10,9 @@ L'Empreinte du Karma. Avec la main ouverte de Wang Lin comme cause du ciel et de
 
 Bien que Wang Lin ne fasse qu'en comprendre les principes, sa puissance était extrêmement terrifiante.
 
-Dans ce monde, personne ne comprenait mieux le karma que lui. Cette manière de penser mystérieuse, plus de 70 ans de rêves, plus de 2 000 ans d'expérience et bien d'autres éléments lui avaient permis de comprendre ce quatrième sortilège prodigieux à son réveil.
+Dans ce monde, personne ne comprenait mieux le karma que lui. Cette manière de penser mystérieuse, plus de 70 ans de rêves, plus de 2 000 ans de réflexion et bien d'autres éléments lui avaient permis de comprendre ce quatrième sortilège prodigieux à son réveil.
 
-Dès l'apparition de cette empreinte, elle serait assez puissante pour précipiter quiconque dans le cycle du karma. Ce n'était pas comme le Dao des rêves qui les changeait lentement; au contraire, cela imposerait leur karma par la force d'une manière extrêmement dominante!
+Dès l'apparition de cette empreinte, elle serait assez puissante pour précipiter quiconque dans le cycle du karma. Ce n'était pas comme le Dao du Rêve qui les changeait lentement; au contraire, cela imposerait leur karma par la force d'une manière extrêmement dominante!
 
 C'était un sortilège Dao!
 
@@ -24,7 +24,7 @@ D'un geste de la main droite, les yeux de Wang Lin révélèrent une lueur étra
 
 Cette empreinte n'était pas seulement le quatrième sortilège original de Wang Lin, mais aussi le signe que son essence karmique était complète.
 
-L'Empreinte du Karma intersecta ses essences de tonnerre et de feu, formant un anneau. L'aura d'un cultivateur de la troisième étape éclata soudainement avec une intensité décuplée.
+L'Empreinte du Karma intersecta ses essences de tonnerre et de feu, formant une succession d'anneaux. L'aura d'un cultivateur de la troisième étape éclata soudainement avec une intensité multipliée plusieurs fois.
 
 Les trois essences étaient complètes. Même si un cultivateur au sommet du Vide du Nirvana se trouvait ici, il lui serait difficile de bloquer une attaque à pleine puissance de Wang Lin! Bien qu'il soit ardu de compléter les essences, une fois accomplies, elles deviennent d'une puissance phénoménale!
 
@@ -58,7 +58,7 @@ Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin 
 
 Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Zhong Xuan. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku.
 
-Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté silencieusement pour combattre!
+Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté en silence pour livrer un combat acharné!
 
 « Ce vieil homme combattra jusqu'à la mort... » Les yeux du Maître Lu Fu étaient injectés de folie.
 
@@ -76,7 +76,7 @@ Des grondements continuaient de résonner à travers les étoiles et l'espace au
 
 L'un d'eux était un jeune homme en vert à l'expression glaciale. À chaque attaque, la glace envahissait la zone. Si Wang Lin avait été là, il l'aurait reconnu comme l'un de ceux qui l'avaient attaqué.
 
-Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wang Lin, il était retourné dans le Royaume Extérieur. Il avait ensuite ramené son clan dans le Royaume Intérieur et avait déclenché un bain de sang, comme s'il tentait d'effacer l'infamie d'avoir été l'esclave de Wang Lin.
+Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wang Lin, il l'avait trahi en secret. Il avait ensuite conduit son clan dans le Royaume Intérieur et avait déclenché un bain de sang, comme s'il tentait d'effacer l'infamie d'avoir été l'esclave de Wang Lin.
 
 Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
 
@@ -90,7 +90,7 @@ C'était la bataille ultime du Vide Brillant. Tout le Vide Brillant était tomb�
 
 « Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » De plus en plus de voix hurlaient la même chose dans le désespoir. Les cris se chevauchaient et fusionnaient; c'étaient les derniers souffles de ces vies.
 
-« Le Seigneur du Royaume Scellé a déjà été tué par nos soins. Quelle gloire peut bien rester à un mort? » lança froidement le jeune homme en vert. D'un revers de main, il fit rugir la glace, gelant une vaste zone et forçant le Maître Long Pan et Situ Nan à reculer.
+« Le Seigneur du Royaume Scellé a déjà été tué par nos soins. Quelle gloire peut bien rester à un mort? » lança froidement le jeune homme en vert. D'un revers de main, il fit rugir la glace, gelant sur plus de mille pieds devant lui et forçant le Maître Long Pan et Situ Nan à reculer.
 
 En entendant les mots « Seigneur du Royaume Scellé », une pointe d'humiliation traversa le regard de Zhou Jin. Une lueur de froideur jaillit dans ses yeux et son intention meurtrière s'intensifia.
 
@@ -126,4 +126,4 @@ Le jeune homme en robe verte plissa les yeux dès l'apparition de la Porte du Vi
 
 Si de tels cultivateurs de la troisième étape étaient ainsi affectés, qu'en était-il des autres? Tous fixaient la Porte du Vide avec effroi.
 
-Ils ne pouvaient imaginer comment quelqu'un pouvait déclencher la Porte du Vide dans une telle situation. Que ce soit dans le Royaume Intérieur ou Extérieur, l'apparition de la Porte du Vide était un événement sacré. Cela signifiait que quelqu'un s'apprêtait à devenir un cultivateur de la troisième étape.
+Ils ne pouvaient imaginer comment quelqu'un pouvait déclencher la Porte du Vide dans une telle situation. Que ce soit dans le Royaume Intérieur ou Extérieur, l'apparition de la Porte du Vide était un événement sacré. Cela signifiait que quelqu'un pourrait devenir un cultivateur de la troisième étape.

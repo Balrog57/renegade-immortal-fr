@@ -32,7 +32,7 @@ Dès qu'il apparut, il prit forme et se mit à examiner l'Empereur Démon de man
 
 Il était rare que Xu Liguo s'exprime avec tant d'élégance, mais aux oreilles de Wang Lin, cela restait embarrassant. Il joignit les mains devant l'Empereur Démon et dit: « Frère Gu, voici mon esprit d'épée. Il a eu des... quelques malentendus avec votre esprit d'épée... »
 
-L'Empereur Démon regarda Xu Liguo et dit: « Ce n'est pas un problème. Je sais déjà de quel esprit d'épée ma nièce se fait une rage depuis dix ans. »
+L'Empereur Démon regarda Xu Liguo et dit: « Ce n'est pas un problème. Je connais déjà l'esprit d'épée qui fait enrager ma nièce depuis dix ans. »
 
 Tout en parlant, il tendit la main vers le vide, provoquant une série de craquements dans l'espace devant lui. L'espace se déchira et l'épée de l'Empereur Démon en jaillit.
 
@@ -46,7 +46,7 @@ Le regard de Wang Lin se glaça. Bien que Xu Liguo ne soit qu'un esprit d'épée
 
 Voyant que l'épée de l'Empereur s'apprêtait à attaquer de nouveau sans que l'Empereur Démon n'intervienne, le visage de Wang Lin s'assombrit. D'un revers de main, il fit jaillir une rafale de vent étrange vers l'épée, ce qui fit vaciller l'énergie de l'arme.
 
-« Cette aura... C'est toi! Tu es cette nourriture méprisable! Bien, on dirait que vous êtes ensemble! » La silhouette d'une jeune fille apparut au-dessus de l'épée. Elle lança un regard venimeux à Wang Lin et Xu Liguo avant d'activer l'épée de l'Empereur sans la moindre hésitation. En un instant, les environs furent saturés de rayons d'énergie d'épée qui chargèrent vers Wang Lin.
+« Cette aura... C'est toi! Tu es cette nourriture méprisable! Bien, à ce que je vois vous êtes de mèche! » La silhouette d'une jeune fille apparut au-dessus de l'épée. Elle lança un regard venimeux à Wang Lin et Xu Liguo avant d'activer l'épée de l'Empereur sans la moindre hésitation. En un instant, les environs furent saturés de rayons d'énergie d'épée qui chargèrent vers Wang Lin.
 
 Wang Lin fronça légèrement les sourcils et laissa échapper un reniflement froid. Désormais au stade Ascendant, il était bien plus puissant qu'à l'époque de sa phase avancée de Transformation de l'Âme. À cette époque, il craignait véritablement l'épée de l'Empereur, mais pourquoi aurait-il peur d'une simple épée aujourd'hui!
 
@@ -60,7 +60,7 @@ L'expression de Wang Lin devint sombre; il saisit Xu Liguo et le renvoya dans so
 
 L'Empereur Démon poussa un soupir intérieur. À l'origine, il n'avait pas souhaité s'engager dans une relation aussi délicate avec Wang Lin, mais il ne pouvait supporter de voir Shuang Er être malmenée.
 
-Bien que l'esprit d'épée de Wang Lin le cachât très bien, il percevait aisément la convoitise dans ses yeux. L'Empereur Démon soupira secrètement et dit: « Frère Wang, Mo Fei est déjà devenu vice-commandant en chef. Il se trouve auprès du Commandant en Chef Céleste. Ensemble, ils dirigent l'armée de gauche et devraient être arrivés à Songtao, dans le Pays Démon de Feu. »
+Bien que l'esprit d'épée de Wang Lin le cachât très bien, il percevait aisément la lubricité dans ses yeux. L'Empereur Démon soupira secrètement et dit: « Frère Wang, Mo Fei est déjà devenu vice-commandant en chef. Il se trouve auprès du Commandant en Chef Céleste. Ensemble, ils dirigent l'armée de gauche et devraient être arrivés à Songtao, dans le Pays Démon de Feu. »
 
 Après une courte pause, il ajouta: « J'ai déjà annoncé que le Frère Wang est le messager de l'Ancêtre. Cela facilitera vos démarches. De plus, comme vous détenez mon jade, c'est comme si j'étais présent personnellement. Si quelqu'un vous manque de respect, vous n'aurez qu'à ordonner au Commandant en Chef Céleste de le tuer! » Sur ces mots, il lança un jade blanc vers Wang Lin.
 
@@ -78,9 +78,9 @@ L'armée de gauche du Pays Démon Céleste comptait dix millions de soldats dém
 
 À cet instant, les trois Commandants en Chef montaient chacun des bêtes démoniaques différentes. Aucun ne parlait à l'autre. Une puissante aura meurtrière saturait l'air tandis que l'armée du Pays Démon Céleste approchait de Songtao.
 
-Sur le flanc droit de la grande armée, le Vice-Commandant Mo Fei montait une bête démoniaque semblable à une licorne femelle. Son regard était d'un calme absolu. Un homme se tenait sur la queue de la créature; c'était un quadragénaire aux yeux clos, portant une épée géante dans le dos et dégageant l'aura d'un être céleste.
+Sur le flanc droit de la grande armée, le Vice-Commandant Mo Fei montait une bête démoniaque semblable à une licorne. Son regard était d'un calme absolu. Un homme se tenait sur la queue de la créature; c'était un homme d'âge moyen aux yeux clos, portant une épée géante dans le dos et dégageant l'aura d'un être céleste.
 
-Soudain, une explosion tonitruante retentit à l'horizon. Cette série de grondements semblait vouloir écraser les dix millions de soldats démons. Au cœur du fracas, une silhouette apparut brusquement.
+Soudain, une explosion tonitruante retentit à l'horizon. Cette série de grondements semblait vouloir étouffer l'intention meurtrière des dix millions de soldats démons. Au cœur du fracas, une silhouette apparut brusquement.
 
 Cet homme portait une armure noire et ressemblait à un dieu démon descendant des cieux, enveloppé d'une énergie maléfique. Son apparition capta l'attention de tous.
 
@@ -90,7 +90,7 @@ Il ne prononça aucun mot. Tandis qu'il fonçait, son sens divin s'étendit et v
 
 L'homme d'âge moyen, dont les yeux étaient restés clos jusqu'alors, les ouvrit lentement, libérant une lumière profonde.
 
-Avant que quiconque ne puisse réagir, Wang Lin s'approcha dans un rugissement de tonnerre, survolant d'innombrables soldats démons. À côté du Commandant en Chef Céleste, les yeux des deux autres commandants s'illuminèrent.
+Avant que quiconque ne puisse réagir, Wang Lin s'approcha dans un rugissement de tonnerre, survolant d'innombrables soldats démons. Hormis le Commandant en Chef Céleste, les yeux des deux autres commandants s'illuminèrent.
 
 L'intention meurtrière des dix millions de démons hurlait dans le ciel, mais Wang Lin l'ignorait totalement. Pour tuer, il fallait le bon élan et agir avant que l'adversaire ne puisse réagir. S'il avait commencé par annoncer son identité ou sortir le jade de l'Empereur Démon, il aurait perdu l'avantage de la surprise, laissant au disciple de la Secte de l'Épée Da Luo l'opportunité d'utiliser l'énergie de l'épée de Ling Tianhou.
 
@@ -100,7 +100,7 @@ Tout cela se produisit en un éclair. La rivière des enfers balaya le sol et Wa
 
 Le Doigt de la Mort!
 
-Le Doigt de la Mort jaillit comme un éclair vers Mo Fei. Ce dernier, imperturbable, leva la main droite. L'expression de l'homme d'âge moyen derrière lui devint sérieuse. D'un mouvement, il fit voler sa grande épée sur laquelle apparut l'image d'un sanglier féroce.
+Le Doigt de la Mort jaillit comme un éclair vers Mo Fei. Ce dernier, imperturbable, leva la main droite. L'expression de l'homme d'âge moyen derrière lui devint sérieuse. Il forma des sceaux de ses deux mains et fit voler sa grande épée, sur laquelle apparut l'image d'un sanglier noir et féroce.
 
 Le Doigt de la Mort était d'une rapidité extrême, mais alors qu'il atteignait Mo Fei, il s'effondra soudainement et disparut sans laisser de trace. Mo Fei fut stupéfait, mais son visage changea instantanément tandis que l'énergie spirituelle démoniaque jaillissait de son corps pour le protéger.
 
@@ -110,7 +110,7 @@ Et ce seul instant d'hésitation signifiait la mort!
 
 La silhouette de Wang Lin apparut soudainement aux côtés de l'homme d'âge moyen. Son doigt pointait vers lui. Toute l'énergie maléfique de son armure convergea pour former une flamme démoniaque.
 
-Ce coup était l'apogée de la puissance de Wang Lin; il était impossible d'y résister! L'expression de l'homme changea radicalement. Face à cette question de vie ou de mort, il s'apprêtait à utiliser l'énergie de l'épée de Ling Tianhou sans hésiter. Cependant, à cet instant précis, la rivière des enfers jaillit du sol. Elle s'éleva vers le ciel, se transformant en un cycle de réincarnation, puis une force invisible descendit. C'était comme si cette rivière des enfers était la seule chose existant au monde; tout sembla suspendu par son influence.
+Ce coup était l'apogée de la puissance de Wang Lin; il était impossible d'y résister! L'expression de l'homme changea radicalement. Face à cette question de vie ou de mort, il se téléporta aussitôt et s'apprêtait à utiliser l'énergie de l'épée de Ling Tianhou sans hésiter. Cependant, à cet instant précis, la rivière des enfers jaillit du sol. Elle s'éleva vers le ciel, se transformant en un cycle de réincarnation, puis une force invisible descendit. C'était comme si cette rivière des enfers était la seule chose existant au monde; tout sembla suspendu par son influence.
 
 Pendant cette suspension, juste au moment où la lumière dorée entre les sourcils de l'homme commençait à scintiller, le doigt de Wang Lin frappa.
 

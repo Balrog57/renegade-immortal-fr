@@ -78,7 +78,7 @@ Simultanément, l'âme originelle de Wang Lin aspira tout le feu et la foudre, l
 
 Une fois que l'âme originelle de Du Jian ne fut plus en danger, Wang Lin retira immédiatement sa main. Il recula de quelques pas et commença à diriger son âme originelle pour absorber les flammes résiduelles.
 
-L'âme originelle de Du Jian paraissait affaiblie alors qu'elle achevait lentement la fusion finale avec le peu d'énergie restante. Il avait perdu trop d'énergie originelle; même s'il réussissait à atteindre le stade Ascendant, il resterait pour toujours bloqué à ce niveau. La seule façon pour lui de progresser serait de faire une rencontre fortuite afin de récupérer cette ultime parcelle d'énergie.
+L'âme originelle de Du Jian paraissait affaiblie alors qu'elle achevait lentement la fusion finale avec le peu d'énergie restante. Il avait perdu trop d'énergie originelle; même s'il réussissait à atteindre le stade Ascendant, il resterait à jamais bloqué au stade initial de l'Ascendant. La seule façon pour lui de progresser serait de faire une rencontre fortuite afin de récupérer cette ultime parcelle d'énergie.
 
 Le temps vola et plus de dix jours passèrent. L'âme originelle de Du Jian et son énergie originelle ne firent plus qu'un. Son âme se réintégra progressivement dans son corps, et l'aura d'un cultivateur Ascendant apparut soudainement. Il ouvrit les yeux, révélant un regard d'une complexité extrême!
 
@@ -88,7 +88,7 @@ Il savait qu'il avait failli échouer au moment de sa percée et que c'était Wa
 
 La voix de Wang Lin resta calme lorsqu'il déclara lentement: « Le rituel consiste à raffiner le corps et à transformer l'âme originelle par un rite secret. Cela vous donnera l'opportunité d'atteindre la grande perfection du stade Ascendant, à un demi-pas du stade Yin et Yang! »
 
-Le cœur de Du Jian bondit et il demanda amèrement: « Si ce rituel est si défiant, cela signifie que le taux d'échec est extrêmement élevé. Laissez tomber. Je ne veux poser qu'une question: puis-je conserver ma conscience? »
+Le cœur de Du Jian bondit et il demanda amèrement: « Si ce rituel est si contraire au ciel, cela signifie que le taux d'échec est extrêmement élevé. Laissez tomber. Je ne veux poser qu'une question: puis-je conserver ma conscience? »
 
 Les yeux de Wang Lin se firent mystérieux: « Si vous êtes encore en vie après mille ans, je vous accorderai la liberté! » Il y avait une condition cruciale pour raffiner un Gardien Céleste. La moindre résistance de la part du sujet entraînerait l'échec immédiat du processus.
 

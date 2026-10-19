@@ -78,11 +78,11 @@ Soudain, un pied gigantesque descendit des cieux pour frapper le sol. À son con
 
 Le pied s'écrasa sur un bâtiment, le réduisant instantanément en poussière. Au même moment, un rugissement apocalyptique traversa le vide.
 
-Au sein de cette vision hyperréaliste à l'intérieur du vortex, le propriétaire de ce pied était un géant colossal! C'était un dieu ancien! Un dieu ancien 8 étoiles!
+Au sein de cette vision hyperréaliste à l'intérieur du vortex, le propriétaire de ce pied était un géant colossal d'environ 100 000 pieds de haut! C'était un dieu ancien! Un dieu ancien 8 étoiles!
 
 Si cela seul n'aurait pas été assez choquant, près de cent autres géants de taille équivalente se tenaient aux côtés du dieu ancien 8 étoiles! Ces cent colosses étaient tous des dieux anciens 8 étoiles!!
 
-Plus loin se dressait une figure encore plus immense. Les dieux anciens 8 étoiles ne faisaient pas le poids face à elle; ils n'étaient que des fourmis comparés à un éléphant, et même cette comparaison restait dérisoire pour décrire sa taille!
+Plus loin se dressait une figure encore plus immense. Les dieux anciens 8 étoiles ne faisaient pas le poids face à elle; ils n'étaient que des fourmis face à une statue colossale, et même cette comparaison restait dérisoire pour décrire sa taille!
 
 Plus loin encore, une vague monstrueuse d'énergie démoniaque déferla, et des démons anciens émergèrent de ce tumulte. L'énergie démoniaque infinie inonda le monde tandis que leurs rugissements et leurs cris de guerre résonnaient.
 

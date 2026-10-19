@@ -17,7 +17,7 @@ Selon les anciens registres de la Secte Ciel Nuageux, ces neuf fours étaient to
 
 Ainsi furent créés les neuf Fours à Pilules « Vol de Ciel ».
 
-Il existait un autre aspect mystérieux concernant ces objets: ils ne pouvaient quitter la chaîne de montagnes de la Secte Ciel Nuageux. Dès qu'ils franchissaient les limites de la montagne, ils se transformaient en simple ferraille. Ce phénomène avait incité certains pays de culture de rang supérieur à mener des investigations, mais sans succès. En conséquence, ils abandonnèrent l'idée de les voler et choisirent plutôt de soutenir la Secte Ciel Nuageux.
+Il existait un autre aspect mystérieux concernant ces objets: ils ne pouvaient quitter la chaîne de montagnes de la Secte Ciel Nuageux. Dès qu'ils franchissaient les limites de la montagne, ils se transformaient en simple ferraille. Ce phénomène avait incité certains pays de culture de rang supérieur à mener des investigations, mais sans succès. En conséquence, ils abandonnèrent l'idée de se les approprier et choisirent plutôt de soutenir la Secte Ciel Nuageux.
 
 Grâce à cela, la Secte Ciel Nuageux put se développer rapidement pour devenir la première secte du pays de Chu.
 
@@ -43,7 +43,7 @@ Les yeux de Li Muwan s'écarquillèrent en comprenant l'intention de Wang Lin. E
 
 Wang Lin se retourna et lui adressa un sourire: « Oui. Si je cultivais dans ce four, ce serait extrêmement efficace. Cependant, ce ne serait pas avec cet avatar, mais avec mon corps principal. »
 
-L'expression de Li Muwan devint étrange. Juste au moment où elle allait parler, la quantité de gaz violet émanant des têtes de dragon augmenta brusquement. Une masse de vapeur s'éleva, formant un nuage sombre au-dessus du fourneau. À l'intérieur de ce nuage se trouvait le fourneau portant le sceau de la pilule. L'objet rougeoyait et le sceau se mit à onduler lentement de haut en bas, comme poussé par un vent invisible.
+L'expression de Li Muwan devint étrange. Juste au moment où elle allait parler, la quantité de fumée noire émanant des têtes de dragon augmenta brusquement. Une masse de vapeur s'éleva, formant un nuage sombre au-dessus du fourneau. À l'intérieur de ce nuage se trouvait le fourneau portant le sceau de la pilule. L'objet rougeoyait et le sceau se mit à onduler lentement de haut en bas, comme poussé par un vent invisible.
 
 À cet instant précis, sur le sol, au-dessus de cette chambre, les Anciens de la Secte Ciel Nuageux scrutaient le ciel, calculant l'heure exacte. Ces hommes étaient tous des maîtres alchimistes de la secte, dont l'un des trois alchimistes de rang 5, Ouyang Zi.
 
@@ -61,7 +61,7 @@ Il avait acquis cette capacité en consommant une Pilule de Vision Fantôme, un 
 
 Vêtu d'une large robe grise, Ouyang Zi fixait le ciel. Après un moment, il fronça les sourcils: « Quand je raffine une pilule, je déteste être observé. Jeune frère Chef de Secte, ne le sais-tu pas? »
 
-Trois personnes sortirent du hall principal. L'une d'elles était le chef de la secte intérieure. Il afficha un sourire amer et dit: « Ne vous l'ai-je pas déjà dit? Lorsque l'Aîné raffine une pilule, il n'autorise personne à regarder. » Puis, s'inclinant devant Ouyang Zi, il ajouta: « Aîné, ces deux personnes sont des invités du pays de culture de Tianwu. Ils souhaitent vous voir raffiner une pilule, qu'en dites-vous...? »
+Trois personnes sortirent du hall principal. L'une d'elles était le chef de la secte intérieure. Il afficha un sourire amer et dit: « Ne vous l'ai-je pas déjà dit? Lorsque l'Aîné raffine une pilule, il n'autorise personne à regarder. » Puis, s'inclinant devant Ouyang Zi, il ajouta: « Aîné, ces deux personnes sont des invités du pays de culture de rang 3, Tianwu. Ils souhaitent vous voir raffiner une pilule, qu'en dites-vous...? »
 
 Les deux individus derrière lui étaient grands et fins, mais dégageaient tous deux une aura puissante. Il était évident que leur niveau de culture était très élevé. Ouyang Zi fronça les sourcils et lança froidement: « Fichez le camp! »
 
@@ -103,7 +103,7 @@ Ses yeux brillaient d'un éclat inédit. Après une inspiration profonde, il ord
 
 L'excitation se lut sur les visages des six alchimistes. Participer à la création d'une pilule de rang 5 était le rêve de tout alchimiste. Ils s'élancèrent dans les airs pour flotter au-dessus de leurs fours respectifs, s'assirent en tailleur dans les piliers de lumière et mobilisèrent l'énergie spirituelle de leurs corps. Ouyang Zi n'hésita pas: son corps se posa sur le dernier fourneau et il ferma les yeux.
 
-Dans la chambre souterraine, les six fours illusoires émettent également leurs propres piliers de lumière. Au centre de ces colonnes se trouvait le fourneau portant le sceau, et juste en dessous, le fourneau de Li Muwan contenant le corps principal de Wang Lin. Bien qu'il fût à l'intérieur, le corps principal ne puisait aucune énergie pour le moment, tout étant préparé pour l'ouverture du sceau.
+Dans la chambre souterraine, les six fours illusoires émettaient également leurs propres piliers de lumière. Au centre de ces colonnes se trouvait le fourneau portant le sceau, et juste en dessous, le fourneau de Li Muwan contenant le corps principal de Wang Lin. Bien qu'il fût à l'intérieur, le corps principal ne puisait aucune énergie pour le moment, tout étant préparé pour l'ouverture du sceau.
 
 Li Muwan était d'une concentration absolue. Ses mains formaient sans relâche des sceaux qu'elle projetait vers les fours. Bientôt, d'innombrables éclats de lumière provenant des six piliers convergèrent vers le sceau central. Li Muwan détournait l'énergie spirituelle issue du sacrifice des pilules de rang 4 pour l'injecter au centre. C'était ainsi qu'elle résolvait le problème du manque d'énergie nécessaire à l'ouverture du sceau.
 
@@ -121,4 +121,4 @@ C'était le moment de vérité. Dans la chambre, Li Muwan toucha son front entre
 
 Une pression inimaginable jaillit du cœur du fourneau, provoquant son explosion. Une pilule cyan, de la taille d'un longane, apparut. Mais un craquement sec retentit: des fissures se formèrent sur la surface de l'objet.
 
-« Une pilule d'esprit de rang 7! » s'exclama Li Muwan, les yeux écarquillés par la surprise malgré sa préparation.
+« Une pilule spirituelle de rang 7! » s'exclama Li Muwan, les yeux écarquillés par la surprise malgré sa préparation.

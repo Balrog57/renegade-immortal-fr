@@ -104,7 +104,7 @@ Ce n'était pas seulement le feu du voisinage; toutes les flammes du ciel et de 
 
 De loin, la planète semblait devenir un océan à mesure que les flammes convergeaient de toutes parts.
 
-À cet instant, le ciel changea de couleur et le monde bascula!
+À cet instant, le ciel changea de couleur, et les vents et les nuages se déchaînèrent!
 
 Tandis que la Statue Sacrée absorbait les flammes, elle ressemblait à un volcan en éruption. Un pilier de feu jaillit de l'effigie pour percer directement le firmament!
 

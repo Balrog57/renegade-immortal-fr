@@ -74,7 +74,7 @@ Wang Lin était resté sur ses gardes durant tout l'échange. Lorsque le vieil h
 
 Une série de craquements stridents retentit alors que les talismans se brisaient les uns après les autres.
 
-Simultanément, Duanmu Ji fit un pas en avant pour s'interposer entre Wang Lin et le vieil homme. Un écran de lumière noire en demi-cercle apparut, neutralisant l'attaque du fouet. L'écran vacilla tandis que Duanmu Ji fixait le vieillard avec une gravité inédite. Il déclara fermement: « Empereur Antique, ce jeune homme est crucial pour franchir le troisième royaume. Ne jouez pas avec le feu! »
+Simultanément, Duanmu Ji fit un pas en avant pour s'interposer entre Wang Lin et le vieil homme. Un écran de lumière noire en demi-cercle apparut, neutralisant l'attaque du fouet. L'écran vacilla tandis que Duanmu Ji fixait le vieillard avec une gravité inédite. Il déclara fermement: « Empereur Antique, ce jeune homme est crucial pour franchir le troisième essai. Ne jouez pas avec le feu! »
 
 À ces mots, l'Empereur Antique ne bougea pas, mais son sourire s'effaça lentement. Son aura céleste disparut totalement, laissant place à une présence bien plus terrifiante alors qu'il demandait calmement: « En es-tu certain? »
 
@@ -100,7 +100,7 @@ Wang Lin scruta l'homme en rouge. Celui-ci dégageait une aura glaciale, une fro
 
 Une fois au sol, l'homme en rouge inspecta les environs d'un regard froid. Ses yeux se posèrent sur Wang Qingyue, au sein des Étoiles Brisées du Chaos, puis glissèrent sur Wang Lin avant de se tourner vers Duanmu Ji. Sa voix était aussi glaciale que la glace: « Quelle fête! »
 
-Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pas vu depuis mille ans. Il semble que votre culture ait progressé! » Puis, ses lèvres bougèrent discrètement pour envoyer une transmission vocale à l'homme en rouge. Le Seigneur Démon des Six Désirs écouta, fut soudainement surpris et tourna son regard vers Wang Lin. Après l'avoir observé un instant, il dit: « Jeune frère, si tu parviens à nous aider à franchir le troisième royaume, alors moi, Xu Liqing, je te promets la sécurité! »
+Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pas vu depuis mille ans. Il semble que votre culture ait progressé! » Puis, ses lèvres bougèrent discrètement pour envoyer une transmission vocale à l'homme en rouge. Le Seigneur Démon des Six Désirs écouta, fut soudainement surpris et tourna son regard vers Wang Lin. Après l'avoir observé un instant, il dit: « Jeune frère, si tu parviens à nous aider à franchir le troisième essai, alors moi, Xu Liqing, je te promets la sécurité! »
 
 À peine eut-il fini de parler que l'expression du jeune homme derrière lui changea. Son regard envers Wang Lin devint progressivement hostile.
 

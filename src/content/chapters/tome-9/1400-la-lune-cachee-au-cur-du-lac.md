@@ -20,7 +20,7 @@ Cinq essences étaient déjà un choc immense. Cependant, une de plus serait enc
 
 La respiration de Wang Lin devint rauque et il se lécha inconsciemment les lèvres.
 
-« J'ai obtenu la Restriction de l'Annihilation, la Restriction de la Vie et de la Mort, ainsi que la Restriction du Temps. Bien que je n'aie pas eu beaucoup de temps pour les étudier, si je parviens à maîtriser la Restriction de l'Âme Ancienne, j'aurai appris les quatre grandes restrictions... À ce moment-là... »
+« J'ai obtenu la Restriction de l'Annihilation, la Restriction de la Vie et de la Mort, ainsi que la Restriction Temporelle. Bien que je n'aie pas eu beaucoup de temps pour les étudier, si je parviens à maîtriser la Restriction de l'Âme Ancienne, j'aurai appris les quatre grandes restrictions... À ce moment-là... »
 
 Le cœur de Wang Lin battait la chamade. Cette opportunité était totalement imprévue; elle était apparue bien au-delà de toutes ses espérances. Ses yeux s'illuminèrent et, après un long moment, il parvint à contenir totalement son excitation.
 
@@ -34,7 +34,7 @@ Le sol était gris. Après avoir atterri, Wang Lin en saisit une poignée. En l'
 
 À cet instant précis, des grondements résonnèrent dans le ciel: c'était le messager qui acheminait d'autres cultivateurs.
 
-Wang Lin leva les yeux et, d'un seul pas, disparut. Il réapparut sur la partie est de la planète, une zone couverte d'une végétation infinie.
+Wang Lin leva les yeux et, d'un seul pas, disparut. Il réapparut sur la partie est de la planète, une zone couverte d'une végétation infinie, et se posa sur une immense feuille.
 
 Assis là, Wang Lin fixait la terre grise dans sa main en fronçant les sourcils.
 
@@ -86,7 +86,7 @@ L'homme était assis au bord du lac, une canne à pêche à la main. Il pêchait
 
 Les yeux de Wang Lin se rétrécirent. C'était la première personne qu'il voyait en dehors du messager et des voyageurs célestes. Après un court instant de réflexion, il ne partit pas, mais atterrit lentement derrière le vieil homme.
 
-L'homme l'ignora et continua de fixer le lac. Wang Lin s'assit à ses côtés sans dire un mot. Les environs étaient plongés dans un calme absolu, seul le bruit lointain des cultivateurs brisant le mur du son troublait ce silence, mais ce vacarme semblait se fondre dans la quiétude ambiante sans la perturber.
+L'homme l'ignora et continua de fixer le lac. Wang Lin s'assit à ses côtés sans dire un mot. Les environs étaient plongés dans un calme absolu, seul le bruit lointain, venant du nord-ouest, de cultivateurs fendant l'air troublait ce silence, mais ce vacarme semblait se fondre dans la quiétude ambiante sans la perturber.
 
 L'eau était cristalline. Bien qu'on ne puisse pas voir le fond au premier coup d'œil, il était évident qu'aucun poisson n'y nageait.
 

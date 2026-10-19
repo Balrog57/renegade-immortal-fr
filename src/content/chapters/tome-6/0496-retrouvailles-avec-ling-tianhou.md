@@ -16,7 +16,7 @@ L'Omniscient poursuivit son enseignement du Dao, mais presque tous les auditeurs
 
 Wang Lin écoutait en silence et commençait progressivement à saisir certains principes.
 
-« Une fois que ce vieil homme aura enseigné le Dao, comme je le fais tous les 10 000 ans, je ferai un immense cadeau à tous ceux qui sont présents. Je vais effectuer la démonstration d'un sort céleste de qualité moyenne. Quant à votre capacité, vous autres cultivateurs, à en comprendre les subtilités, cela dépendra de votre propre destin. »
+« Une fois que ce vieil homme aura enseigné le Dao, comme je le fais tous les 10 000 ans, je ferai un immense cadeau à tous ceux qui sont présents. Je vais effectuer la démonstration d'un sort céleste de qualité moyenne. Quant à votre capacité, vous autres cultivateurs, à en comprendre les subtilités, chacun en comprendra ce qu'il pourra. »
 
 À ces mots, l'attention de presque tous se porta sur lui; même les puissants cultivateurs devinrent extrêmement concentrés. Certains, dont la puissance n'était guère inférieure à celle de l'Omniscient, étaient tout aussi absorbés.
 
@@ -62,17 +62,17 @@ L'Ancien Sun esquissa un sourire discret et répondit: « Comment pourrais-je ma
 
 Ling Tianhou rit, puis regarda l'Omniscient avec un sourire provocateur. « Vieux Omniscient, qu'en est-il? Ne me souhaites-tu pas la bienvenue? »
 
-L'Omniscient sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utiliser comme cible pour ma démonstration de sort céleste afin que tous les cultivateurs ici puissent en témoigner. Qu'en dis-tu? »
+L'Omniscient sourit. « Peu importe. Tu arrives à point nommé. Je vais t'utiliser comme cible pour ma démonstration de sort céleste afin que tous les cultivateurs ici présents puissent l'observer. Qu'en dis-tu? »
 
 Les yeux de Ling Tianhou devinrent froids et il sourit: « C'est précisément mon intention! »
 
-L'Omniscient sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidage Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, un puissant sort descendra des cieux; je vous prie donc d'être extrêmement attentifs! »
+L'Omniscient sourit à nouveau, leva sa main droite pour former un sceau et déclara: « Chers cultivateurs, le sort céleste que je m'apprête à utiliser est de qualité moyenne. Je l'ai obtenu par hasard sur une planète déserte. Il s'appelle le Sort de Guidance Céleste. Après l'avoir étudié, j'ai découvert qu'il était utilisé par les habitants du Royaume Céleste pour permettre aux cultivateurs d'y accéder. Une fois activé, un puissant sort descendra des cieux; je vous prie donc d'être extrêmement attentifs! »
 
 Le Saint de l'Épée Ling Tianhou laissa échapper un renâclement froid, le regard glacial fixé sur l'Omniscient.
 
 L'Omniscient sourit doucement tandis que sa main droite traçait un autre sceau, créant une lueur rouge. Il leva ensuite sa main gauche pour former un second sceau, et la lumière rouge devint soudainement plus éclatante encore. L'expression de l'Omniscient était sereine lorsqu'il pointa le vide. La lueur rouge s'en échappa brusquement pour foncer vers l'horizon.
 
-« Sort de Guidage Céleste de qualité moyenne! » La voix de l'Omniscient semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge. Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
+« Sort de Guidance Céleste de qualité moyenne! » La voix de l'Omniscient semblait émaner du néant. Soudain, un fracas tonitruant retentit et le ciel vira au rouge. Les nuages tourbillonnaient dans cette voûte écarlate comme si un dragon en colère s'y trouvait. On entendait le grondement du tonnerre tandis que la foudre fendait les nuages tels des serpents d'argent.
 
 Le ciel ressemblait désormais à une mer déchaînée, et une pression céleste descendit silencieusement d'en haut. Sous la force de cette pression, les visages de nombreux cultivateurs environnants pâlirent. Ils se précipitèrent au sol pour s'asseoir en position du lotus afin de cultiver.
 
@@ -88,7 +88,7 @@ L'expression de Wang Lin revint à la normale une fois que l'énergie spirituell
 
 Le regard de l'Omniscient resta impassible, puis son index droit pointa vers Ling Tianhou. Pourtant, son doigt bougea soudainement; lorsqu'il s'immobilisa, il désignait les plus de 10 000 disciples debout sur leurs épées volantes derrière Ling Tianhou.
 
-Le visage de Ling Tianhou se décomposa. Juste au moment où il s'apprêtait à intervenir, l'Omniscient sourit légèrement et prononça: « Passage de guidage! »
+Le visage de Ling Tianhou s'assombrit. Juste au moment où il s'apprêtait à intervenir, l'Omniscient sourit légèrement et prononça: « Passage de guidage! »
 
 À ces mots, des rugissements tonitruants jaillirent des nuages. Le ciel sembla être déchiré par une paire de mains géantes invisibles, révélant un gouffre immense. Une explosion de lumière aux sept couleurs descendit de cette brèche et enveloppa tous les disciples derrière Ling Tianhou.
 

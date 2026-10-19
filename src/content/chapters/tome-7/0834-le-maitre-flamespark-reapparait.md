@@ -78,7 +78,7 @@ L'homme en violet renifla mais ne reprit pas la parole.
 
 L'homme d'âge moyen en violet réfléchit. L'homme en rouge sourit: « Ce Xu Mu est excellent. Il est tout à fait apte à devenir un sujet de ma planète Dong Lin! »
 
-Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 titres célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
+Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 Célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
 
 « De ce point de vue, il semble que le vieux Dieu Sang soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
 

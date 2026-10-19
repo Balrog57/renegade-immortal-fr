@@ -34,7 +34,7 @@ Wang Lin sourit. « Vous le saurez bien en l'essayant! »
 
 Le jeune homme prit une profonde inspiration pour réprimer le choc dans son cœur. Il avait inspecté l'intérieur de l'épée volante avec son Sens Divin et y avait découvert un sort. Il ne parvenait pas à percer ce sort, mais la pression qu'il dégageait faisait trembler son Âme Naissante.
 
-Il fit circuler l'énergie spirituelle dans son corps et l'injecta dans l'épée volante. Dès que l'énergie toucha le sort à l'intérieur de l'arme, une puissante énergie d'épée éclata instantanément. Au même moment, le jeune homme eut la sensation de ne faire qu'un avec l'eau.
+Il fit circuler l'énergie spirituelle dans son corps et l'injecta dans l'épée volante. Dès que l'énergie toucha le sort à l'intérieur de l'arme, une puissante énergie d'épée éclata instantanément. Au même moment, le jeune homme eut la sensation d'une fusion parfaite, comme celle de l'eau et du lait.
 
 Ses yeux brillaient d'une agréable surprise. Bien que le sort de l'épée n'ait pas encore été activé, la simple intégration de l'énergie spirituelle permettait déjà de la classer comme un trésor magique de qualité moyenne.
 

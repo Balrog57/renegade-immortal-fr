@@ -56,7 +56,7 @@ L'homme âgé prit la fiole et jeta un œil à l'intérieur; son expression chan
 
 La jeune fille se sentait frustrée. Ce n'est que lorsqu'ils furent à plus de 5 kilomètres que la patience de l'homme âgé s'épuisa et qu'il finit par répondre.
 
-Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Qing Shui! »
+Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Shuilu! »
 
 La jeune fille resta bouche bée.
 
@@ -102,7 +102,7 @@ En pensant à Tuo Sen, Wang Lin ne put s'empêcher de songer à l'Omniscient.
 
 Wang Lin prit une profonde inspiration avant de s'arrêter pour descendre au sol. En dessous de lui se trouvait un ancien tableau de transfert. Le cœur serré, il sortit une pierre spirituelle de qualité supérieure et la plaça dans le dispositif. Le tableau s'ouvrit et il disparut.
 
-À cinq cent mille kilomètres de là, Wang Lin réapparut. Il toucha son sac de rangement et pensa: « Il ne me reste plus beaucoup de pierres spirituelles de qualité supérieure. Heureusement, il y en avait dans les sacs que nous avons trouvés, mais après les avoir partagées avec Chi Hu, il n'en reste qu'une vingtaine. Il vaut mieux les utiliser avec parcimonie désormais; elles me seront sûrement utiles à l'avenir. »
+À cinq cent mille kilomètres de là, Wang Lin réapparut. Il toucha son sac de rangement et pensa: « Il ne me reste plus beaucoup de pierres spirituelles de qualité supérieure. Heureusement, il y en avait dans les sacs que nous avons trouvés, mais après les avoir partagées avec Chi Hu, il n'en reste moins d'une vingtaine. Il vaut mieux les utiliser avec parcimonie désormais; elles me seront sûrement utiles à l'avenir. »
 
 Sans faire de pause, il continua ses téléportations successives pour presser le pas vers sa patrie.
 

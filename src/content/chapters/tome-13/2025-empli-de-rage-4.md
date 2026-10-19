@@ -96,7 +96,7 @@ Son geste apaisa les foules sur la place et les plateformes. Ils ne s'inquiétai
 
 La place reprit vie et les félicitations retentirent à nouveau.
 
-Pourtant, alors que les grondements extérieurs devenaient plus sourds et violents, le silence retomba sur l'assemblée. Personne ne remarqua que la main de l'Empereur de l'Ancien Dao trembla légèrement lorsqu'il reposa sa coupe.
+Pourtant, alors que les grondements extérieurs se rapprochaient et devenaient plus violents, le silence retomba sur l'assemblée. Personne ne remarqua que la main de l'Empereur de l'Ancien Dao trembla légèrement lorsqu'il reposa sa coupe.
 
 Il fronça les sourcils et scruta l'horizon.
 

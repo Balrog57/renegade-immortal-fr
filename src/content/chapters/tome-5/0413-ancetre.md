@@ -30,7 +30,7 @@ Mais la lumière de la sculpture devint soudainement si aveuglante qu'elle illum
 
 « Même si votre propriétaire venait en personne, je m'en saisirais quand bon me semblerait! » L'homme ramassa la sculpture, l'examina et sourit. « C'est véritablement un trésor. Si l'occasion se présente à l'avenir, je voudrais voir le junior qui a laissé cette œuvre. »
 
-Tout le Mont Heng Yue fut plongé dans le silence. Les cultivateurs restèrent pensifs. Leur symbole d'espoir venait d'être si facilement dérobé. Il semblait que la destruction de Zhao était inévitable.
+Toute la Secte Tian Dao du Mont Heng Yue fut plongée dans le silence. Les cultivateurs restèrent pensifs. Leur symbole d'espoir venait d'être si facilement dérobé. Il semblait que la destruction de Zhao était inévitable.
 
 Le mépris dans les yeux du vieil homme du Clan des Immortels Délaissés s'intensifia alors qu'il disait lentement: « Étant donné que j'ai obtenu ce trésor, je ne serai pas trop dur avec vous. Renoncez et devenez des subordonnés de mon Clan des Immortels Délaissés. Je peux vous promettre que c'est bien mieux que de servir le pays de Suzaku. »
 
@@ -94,7 +94,7 @@ Boum!
 
 Le vieil homme fut repoussé violemment et cracha du sang. Non seulement la plante surgissant de son front n'était pas endommagée, mais elle brillait de plus belle. Cependant, il ne voulait pas combattre. En reculant, il sortit un bâton pourpre. Il utilisa cet objet pour créer des ondulations dans l'espace devant lui et s'apprêta à s'engouffrer dans l'une d'elles.
 
-Le bâton pourpre qu'il utilisait était une branche de l'Arbre de la Réincarnation. Le Clan des Immortels Délaissés possédait une méthode spéciale permettant d'utiliser ces branches pour se téléporter vers l'arbre principal.
+Le bâton pourpre qu'il utilisait était une branche de l'Arbre de la Réincarnation. Le Clan des Immortels Délaissés possédait une méthode spéciale permettant d'utiliser ces branches pour se téléporter sur de grandes distances à travers la planète Suzaku, en communiquant avec l'arbre ancestral de la Réincarnation.
 
 Les yeux de Wang Lin restaient calmes. Il leva tranquillement sa main droite et ordonna: « Absorbe! »
 

@@ -102,7 +102,7 @@ L'Empereur Dao Antique ricana d'un ton lugubre: « Une illusion si réaliste, qu
 
 Wang Lin resta silencieux, mais son intention meurtrière bouillonnait comme une folie. Elle était sur le point d'éclater pour la troisième fois et ses yeux devinrent rouges. Mais il réprima encore sa rage, si intensément que du sang s'écoula du coin de sa bouche.
 
-Tandis que l'Empereur Dao Antique ricanait, Xuan Luo fronça les sourcils. Il leva la main droite vers Song Zhi.
+Tandis que l'Empereur Dao Antique ricanait, Xuan Luo fronça les sourcils. Il leva la main droite vers Song Zhi, prêt à la saisir.
 
 Cependant, un éclat de lumière violette enveloppa Song Zhi, repoussant l'approche de Xuan Luo. L'expression de ce dernier changea instantanément.
 

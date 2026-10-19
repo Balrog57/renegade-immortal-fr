@@ -98,7 +98,7 @@ Un sentiment d'un confort absolu envahit l'âme de Wang Lin. Il sentait l'énerg
 
 Le processus pour rendre une âme originelle corporelle est extrêmement long.
 
-À l'extérieur de la grotte, les yeux de Du Tian brillèrent alors qu'il agissait de sa main gauche. Une âme primaire dorée et pourpre s'élança, captura une âme noire errante et la traîna dans le drapeau d'âmes.
+À l'extérieur de la grotte, les yeux de Du Tian brillèrent alors qu'il agissait de sa main droite. Une âme primaire dorée et pourpre s'élança, captura une âme noire errante et la traîna dans le drapeau d'âmes.
 
 Du Tian grommela: « C'est déjà la dix-neuvième. Malheureusement, ce ne sont que des fragments d'âmes de Formation de l'Âme. S'il y en avait une de Transformation de l'Âme, le drapeau gagnerait une nouvelle âme primaire. »
 

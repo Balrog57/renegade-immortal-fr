@@ -32,7 +32,7 @@ Wang Lin analysa rapidement la situation et se retira sans hésiter.
 
 Une fois hors de la brume, deux choix s'offraient au Vieux Fantôme Zhan. Il pouvait soit tuer Wang Lin pour s'emparer de la troisième âme, soit poursuivre le Daoïste aux Sept Couleurs pour profiter de cette occasion unique — alors que ce dernier était gravement blessé — afin de fusionner leurs âmes!
 
-Certes, sans la troisième âme, cette fusion ne serait pas totale; il ne s'agirait que d'une contrainte et non d'une véritable fusion, mais il n'aurait aucun regret. Bien que son niveau de culture resterait inchangé, personne ne pourrait plus contester sa possession de la troisième âme!
+Certes, sans la troisième âme, cette fusion ne serait pas totale; il ne s'agirait que d'une assimilation et non d'une véritable fusion, mais il n'aurait aucun regret. Bien que son niveau de culture resterait inchangé, personne ne pourrait plus contester sa possession de la troisième âme!
 
 Ces deux options étaient d'une tentation immense pour le Vieux Fantôme Zhan. S'il tentait d'abord de tuer Wang Lin, il craignait l'arc Li Guang. Il ignorait combien de flèches Wang Lin pouvait encore décocher et, s'il perdait trop de temps, le Daoïste aux Sept Couleurs se rétablirait, ce qui ne vaudrait plus la peine!
 
@@ -102,7 +102,7 @@ Les cils de la femme frémirent et elle ouvrit lentement les yeux. Elle fixa cal
 
 « Bienvenue dans la Secte Dong Lin », dit doucement la femme. Sa voix, d'une grande beauté, résonna à travers le monde gelé.
 
-À 100 000 kilomètres de là, Wang Lin réfléchissait en silence. Il comprit soudain pourquoi cette aura d'Ancien Dieu lui était si familière: c'était celle qu'il avait ressentie lorsqu'il avait tué l'ancêtre de la famille Xiang sur la planète Dong Lin.
+À 100 000 kilomètres de là, Wang Lin réfléchissait en silence. Il comprit soudain pourquoi cette aura d'Ancien Dieu lui était si familière: c'était celle qu'il avait ressentie lorsqu'il avait tué, dans le système stellaire de Luotian, l'ancêtre de la famille Xiang sur la planète Dong Lin.
 
 « Cet endroit est-il la planète Dong Lin? » Wang Lin fit un pas, provoquant des ondulations sous ses pieds. Il parcourut les 100 000 kilomètres en une seule enjambée et se retrouva à mille pieds de la femelle Ancien Dieu.
 
@@ -128,6 +128,6 @@ Les yeux de Wang Lin s'illuminèrent et il demanda lentement: « Que cet endroit
 
 « Tout ici est nourri par la force vitale de Maître. Lorsqu'il mourra, tout perdra sa vie et sera figé à jamais.
 
-« Vous êtes le premier à entrer ici, et puisque vous portez l'âme de Maître, vous êtes le maître de ce lieu », dit doucement Yun Na en regardant Wang Lin.
+« Vous êtes le premier à entrer ici, et puisque vous portez un fragment de l'âme de Maître, vous êtes le maître de ce lieu », dit doucement Yun Na en regardant Wang Lin.
 
 « Vous êtes blessé... Je possède la dernière goutte du sang du cœur de Ye Mo. Une fois que vous l'aurez fusionnée, vous serez complet et pourrez l'utiliser pour guérir... »

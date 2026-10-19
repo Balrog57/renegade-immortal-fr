@@ -28,7 +28,7 @@ Leur retraite fit pousser des cris de joie chez les cultivateurs de la Mer des N
 
 Alors qu'il émergeait des tourbillons, ses yeux étaient habités par une intention meurtrière monstrueuse. D'un revers de la main droite, il fit s'effondrer la tempête, la dispersant dans toutes les directions!
 
-Sur ces mots, Wang Lin fit un pas en avant. Le Feu Éthéré et des éclairs jaillirent pour frapper les cultivateurs environnants!
+Au même instant, Wang Lin fit un pas en avant. Le Feu Éthéré et des éclairs jaillirent pour frapper les cultivateurs environnants!
 
 De nouveaux cris de détresse retentirent et la guerre reprit de plus belle!
 
@@ -118,11 +118,11 @@ Ce fut la parole suivante de la femme en rouge qui acheva de briser ce moral fra
 
 Ces mots plongèrent les derniers cultivateurs de la Mer des Nuages dans le désespoir. Tout n'était qu'un rouage du plan ennemi. Que valait leur gloire désormais?
 
-Même le Maître Hong Shan était tombé dans leur piège. Que restait-il pour maintenir leur dignité? Que restait-il de force pour poursuivre le combat?
+Même le Maître Hong Shan était tombé dans leur piège. Que restait-il pour maintenir leur gloire? Que restait-il de force pour poursuivre le combat?
 
-Au moment où leur espoir s'effondra, le mépris dans les yeux de la Grande Maîtresse Yun Luo s'intensifia. Elle leva sa main de jade et lança l'assaut final!
+Au moment où leur espoir s'effondra, la moquerie dans les yeux de la Grande Maîtresse Yun Luo s'intensifia. Elle leva sa main de jade et lança la bataille décisive!
 
-Les innombrables cultivateurs se précipitèrent vers les rangs de la Mer des Nuages, désormais dépourvus de toute volonté!
+Les innombrables cultivateurs, un rictus féroce aux lèvres, se précipitèrent vers les rangs de la Mer des Nuages qui avaient perdu leur gloire!
 
 Le carnage fut effroyable!
 

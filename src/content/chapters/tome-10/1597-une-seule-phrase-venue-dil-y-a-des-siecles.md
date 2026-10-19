@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1597 - The One Line From Hundreds of Years Ago
 slug: une-seule-phrase-venue-dil-y-a-des-siecles
 ---
-À l'époque où Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consacra alors une grande quantité de sa force vitale pour procéder à neuf divinations.
+Quelques jours plus tôt, alors que Wang Lin repoussait inconsciemment la tempête, le frère aîné de Dun Tian ressentit quelque chose. Il consacra alors une grande quantité de sa force vitale pour procéder à neuf divinations.
 
 Il cherchait à découvrir l'avenir de la Secte de l'Affinement de l'Âme. Il voulait trouver à la Secte de l'Affinement de l'Âme un chemin vers la survie!
 
@@ -26,7 +26,7 @@ Cette personne était un immortel, Wang Lin le comprenait, mais il n'avait aucun
 
 Wang Lin ne comprenait pas pourquoi. Il semblait que depuis que cette voix avait résonné dans son esprit lors de cette nuit pluvieuse, un étrange changement s'était produit dans son corps.
 
-Ce changement se manifestait par une sensation inexplicable, et elle devint encore plus évidente juste après qu'il eut fini d'écrire la réponse à l'examen!
+Ce changement se manifestait par une pensée, une sensation inexplicable, et elle devint encore plus évidente juste après qu'il eut fini d'écrire la réponse à l'examen!
 
 Il regarda calmement l'homme d'âge moyen qui s'approchait et dit lentement:
 
@@ -44,7 +44,7 @@ Il faut dire qu'avec son niveau de culture, même des empereurs mortels auraient
 
 Cet homme d'âge moyen n'avait rencontré une telle présence que deux fois dans sa vie. Les deux mortels qu'il avait croisés et qui faisaient preuve d'une telle sérénité étaient les plus grands érudits de la planète Suzaku.
 
-Ces grands érudits avaient compris les lois du ciel et pouvaient voir à travers le monde. Ils possédaient des auras puissantes et ne craignaient ni les fantômes ni le surnaturel. Bien qu'un cultivateur de Condensation de Qi puisse les tuer, plus le niveau de culture de ce dernier était élevé, plus il ressentirait une aura similaire à celle d'un cultivateur chez ces érudits.
+Ces grands érudits avaient compris les lois du ciel et pouvaient voir à travers le monde. Leur savoir était stupéfiant. Ils possédaient des auras puissantes et ne craignaient ni les fantômes ni le surnaturel. Bien qu'un cultivateur de Condensation de Qi puisse les tuer, plus le niveau de culture de ce dernier était élevé, plus il ressentirait une aura similaire à celle d'un cultivateur chez ces érudits.
 
 Si l'un d'eux se mettait à cultiver, il serait un prodige naturel.
 

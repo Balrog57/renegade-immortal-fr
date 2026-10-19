@@ -26,9 +26,9 @@ Une douleur inimaginable s'échappa du corps de l'Omniscient à la robe violette
 
 Dans sa chute, d'innombrables ombres jaillirent de son corps. Ces ombres sifflèrent et se précipitèrent vers Wang Lin, tapi au cœur du soleil. Cependant, elles n'étaient que des flocons de neige sous un soleil de plomb; elles fondirent toutes sans laisser la moindre trace!
 
-La paume géante formée par l'Omniscient à la robe jaune s'abattit. Même le soleil ne put percer cette paume, qui tendait sa masse vers Wang Lin. Ce dernier restait calme et ricana, bien que la paume saisisse le soleil qui enveloppait son corps.
+La paume géante formée par l'Omniscient à la robe jaune s'abattit. Même la lumière du soleil ne put percer cette paume, qui fonçait vers l'astre. Ce dernier restait calme et ricana, bien que la paume saisisse le soleil qui enveloppait son corps.
 
-Cependant, au moment où la paume empoigna l'astre, un cri misérable s'en échappa. Le feu Yang, capable de tout consumer, balaya la paume, la faisant trembler, et celle-ci se transforma immédiatement en retour en Omniscient à la robe jaune!
+Cependant, au moment où la paume empoigna l'astre, un cri misérable s'en échappa. Le feu du Yang originel, capable de tout consumer, balaya la paume, la faisant trembler, et celle-ci se transforma immédiatement en retour en Omniscient à la robe jaune!
 
 L'Omniscient à la robe jaune semblait étreindre le soleil, mais en quelques respirations seulement, il fut pris des flammes, et il ne resta de lui que des cendres...
 
@@ -44,7 +44,7 @@ Sous l'attaque désespérée de l'Omniscient à la robe grise, la nuit qui avait
 
 L'épée de sang traversa l'astre et perça directement la poitrine de Wang Lin. Cependant, alors qu'elle atteignait la moitié de son torse, Wang Lin saisit l'épée de ses deux mains. Repoussé de plusieurs pas, il cracha une bouchée de sang. Puis, il redressa brusquement la tête, affichant une expression féroce.
 
-« Vieux renard, tu as failli me tuer en me faisant cultiver l'énergie de massacre. Aujourd'hui, meurs! » Alors que Wang Lin rugissait, le soleil autour de son corps explosa de manière inattendue, se propageant rapidement avec lui pour centre.
+« Vieille ordure, tu as failli me tuer en me faisant cultiver l'énergie de massacre. Aujourd'hui, meurs! » Alors que Wang Lin rugissait, le soleil autour de son corps explosa de manière inattendue, se propageant rapidement avec lui pour centre.
 
 C'était l'auto-destruction du soleil, et la puissance contenue en était inimaginable. C'était comme si le ciel lui-même s'était déchiré!
 
@@ -84,7 +84,7 @@ L'Omniscient vit immédiatement qu'il s'agissait de la loi d'origine, l'essence 
 
 Il n'était pas le seul. Situ Nan, Da Tou, Maître Fu Fengzi et tous les autres étaient stupéfaits. Maître Fu Fengzi était légèrement moins choqué car il avait déjà fait l'expérience de la Nuit Brisée par le passé. Son cuir chevelu lui semblait engourdi et une peur persistante s'installait dans son cœur.
 
-Même Wang Wei et Hu Juan étaient essoufflés. Ils se regardèrent, voyant la terreur reflétée dans les yeux de l'autre. À l'instant même, ils avaient été entraînés dans cette illusion, comme s'ils avaient été placés dans un espace distinct. Ils ne pouvaient que regarder, impuissants.
+Même Wang Wei et Hu Juan eurent le souffle coupé. Ils se regardèrent, voyant la terreur reflétée dans les yeux de l'autre. À l'instant même, ils avaient été entraînés dans cette illusion, comme s'ils avaient été placés dans un espace distinct. Ils ne pouvaient que regarder, impuissants.
 
 Pourtant, ils n'étaient pas les plus choqués. C'étaient l'Ancien Démon Ta Jia, qui chargeait vers le ciel avec sa lame, et la Concubine Impériale des Fleurs!
 
@@ -94,7 +94,7 @@ Personne ne comprenait mieux la loi d'origine qu'elle. À l'époque, l'Empereur 
 
 Le calme olympien de l'Ancien Démon Ta Jia fut ébranlé pour la première fois. Il sentit une puissance terrifiante dans ce sortilège. Bien qu'elle fût encore faible, une fois parvenue à maturité, ce serait une force devant laquelle même lui devrait battre en retraite de peur!
 
-« Ceci... ceci est le pouvoir du Suprême! »
+« Ceci... ceci est le pouvoir du Souverain! »
 
 Le regard de Ta Jia se verrouilla sur Wang Lin, ses pupilles se contractant. Il avait le sentiment que cet homme était le dernier atout que Qing Lin avait préparé pour son éveil avant que son corps ne soit pris!
 
@@ -104,7 +104,7 @@ Simultanément, le son d'une cloche résonna dans tout le siège de l'Alliance. 
 
 Depuis le début de la guerre contre Luotian, des morts s'enchaînaient chaque jour, mais ils n'étaient pas assez éminents pour que leurs jetons soient conservés au siège. La cloche signalant un décès n'avait retenti que quelques fois; au maximum cinq fois d'affilée.
 
-Avec l'arrogance de l'Alliance de Culture, ils ne se souciaient guère de la morale; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation!
+Avec l'arrogance de l'Alliance de Culture, ils ne se souciaient guère du moral; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation!
 
 La cloche sonna une fois, deux fois, trois fois... Lorsqu'elle atteignit la cinquième sonnerie, une autre partie des membres releva la tête vers les jetons.
 

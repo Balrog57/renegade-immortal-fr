@@ -14,7 +14,7 @@ Par conséquent, personne ne pourrait rien dire et il pourrait repartir en toute
 
 La puissance de l'adoration des innombrables âmes se transforma en un vent violet qui chargea Wang Lin de toutes les directions. À première vue, on aurait dit que le monde entier avait été teinté de pourpre!
 
-Ce sort de la Flamme Joss faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du Fléau Céleste du cinquième ciel. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
+Ce sort de la Flamme Joss faisait trembler les cieux et était suffisamment puissant pour détruire un cultivateur du cinquième Fléau Céleste. Cependant, l'essence de tonnerre de Wang Lin était complète et son essence de feu avait atteint le Feu Éthéré. Il avait également combattu Shui Daozi; ainsi, bien qu'il soit confronté à cette crise, il ne ressentait aucune peur. Au contraire, une intention de combat embrasait ses yeux.
 
 Pour être plus précis, c'était la première fois que Wang Lin affrontait un cultivateur du troisième pas. Lorsqu'il avait combattu Shui Daozi, il ne pouvait que se défendre sans pouvoir attaquer. Cependant, son niveau de culture avait augmenté rapidement durant son séjour dans le Système Stellaire Antique.
 
@@ -38,7 +38,7 @@ En un éclair, l'ancien dragon de tonnerre fusionna avec l'un des éclairs accom
 
 Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et fusionnèrent rapidement avec les éclairs accompagnateurs avant que le vent violet n'atteigne sa cible!
 
-« Le Royaume du Tonnerre Ancien sera la source de mon essence de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
+« Le Royaume du Tonnerre Ancien sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
 
 Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré l'éclair éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 

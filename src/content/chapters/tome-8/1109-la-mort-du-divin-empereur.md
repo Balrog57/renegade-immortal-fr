@@ -46,7 +46,7 @@ Privé de son âme originelle, le corps commença à brûler jusqu'à se transfo
 
 Sa main droite pointait toujours vers l'espace entre ses sourcils.
 
-Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Wang Lin ne se prosternait de toute sa vie ni devant les cieux ni devant la terre, mais l'ancien Empereur Divin de l'Oiseau Vermillon reçut là trois kowtows de la part de Wang Lin!
+Wang Lin recula de quelques pas, s'agenouilla sur la pierre et effectua trois prosternations. Wang Lin ne se prosternait de toute sa vie ni devant les cieux ni devant la terre, mais l'ancien Empereur Divin de l'Oiseau Vermillon reçut là trois prosternations de la part de Wang Lin!
 
 Au moment où le vieil Empereur Divin mourut, presque tous les Anciens de la Secte Divine de l'Oiseau Vermillon ressentirent une immense tristesse. Ils s'envolèrent silencieusement depuis les planètes qu'ils occupaient pour s'agenouiller face au corps de l'ancien Divin Empereur. Des larmes coulèrent de leurs yeux.
 
@@ -100,7 +100,7 @@ En entendant la voix de Wang Lin, Xu Liguo eut un réflexe de flatterie qu'il r�
 
 « Espèce de démon assassin, tu te souviens enfin de ton Grand-père Xu! Aujourd'hui, je n'en ai pas fini avec toi! » Xu Liguo avait été confronté à d'innombrables situations de vie ou de mort qui l'avaient forcé à comprendre l'intention d'épée antique. Son niveau de culture avait progressé par bonds prodigieux, au point qu'il osait désormais défier des cultivateurs ordinaires du niveau Scruteur du Nirvana.
 
-Rempli de colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de Richesse.
+Rempli de colère, il chargea et se transforma en une épée géante. Il ressemblait trait pour trait à une épée céleste et dégageait une aura de richesse.
 
 En s'élançant, les flammes autour de lui furent repoussées. L'épée colossale formée par Xu Liguo fonça sur Wang Lin.
 

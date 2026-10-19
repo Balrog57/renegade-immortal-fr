@@ -30,7 +30,7 @@ La femme en blanc devint livide et cracha du sang. Elle recula précipitamment e
 
 « Tu ne peux pas t'échapper! » La poitrine de Wang Lin était un carnage de sang pur. Bien que le doigt ait été bloqué par le Bouclier de Lumière et d'Ombre, le Monde du Vent et de la Pluie et l'os de doigt de l'Ancien Dieu, une trace de l'attaque avait tout de même transpercé son torse. S'il s'était agi d'un cultivateur ordinaire, il aurait été soit tué, soit gravement blessé.
 
-Toutefois, Wang Lin était un Ancien Dieu et possédait donc un puissant facteur de régénération. En un instant, sa blessure montra des signes de guérison. Tandis que la femme en blanc fuyait, Wang Lin rassembla tous ses trésors et se lança à sa poursuite.
+Toutefois, Wang Lin était un Ancien Dieu et possédait donc un puissant facteur de régénération. En un instant, sa blessure montra des signes de guérison. Tandis que la femme en blanc fuyait, Wang Lin rangea tous ses trésors et se lança à sa poursuite.
 
 Traquant les ondulations laissées par l'évasion de la femme, Wang Lin fusionna avec le monde pour la poursuivre sur ses traces!
 

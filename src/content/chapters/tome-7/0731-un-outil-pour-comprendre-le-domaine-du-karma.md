@@ -18,7 +18,7 @@ Lui-même était sorti pour collecter cette énergie auprès du monde mortel. To
 
 Pendant ces cinq années, Wang Lin resta assis au sommet de la montagne à affiner ses trésors.
 
-Il affinait l'Écran des Montagnes et des Rivières logé dans son âme originelle, laquelle était gravement endommagée. Pour aider à sa réparation, il y avait fusionné la puissance du tonnerre.
+Il affinait l'Écran des Montagnes et des Rivières logé dans son âme originelle, et qui était gravement endommagé. Pour aider à sa réparation, il y avait fusionné la puissance du tonnerre.
 
 De plus, il y avait la Montagne Céleste. En raison d'une fissure, l'extraction d'âmes était devenue instable. Wang Lin utilisait l'énergie de son âme originelle pour la raffiner et la réparer lentement.
 
@@ -32,9 +32,9 @@ Ce fouet l'avait suivi pendant longtemps; sa puissance présentait des avantages
 
 Wang Lin observa le Fouet des Âmes dans sa main et murmura: « Parmi tous mes trésors, en termes de tranchant, il ne peut égaler l'épée céleste ou la lame Demi-Lune. En termes de défense, il n'égale ni l'Étendard des Mille Millions d'Âmes, ni l'Écran des Montagnes et des Rivières. En termes de capacités, il ne vaut pas la Montagne Céleste ou le Char de Guerre Divin. Pourtant, c'est le seul trésor qui contient l'aura de la troisième étape que j'ai aperçue. Cet objet est véritablement étrange! »
 
-Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait presque perdu la raison en le voyant, comme s'il le reconnaissait.
+Ce fouet semblait tout à fait ordinaire, mais le fantôme céleste avait failli se disperser corps et âme en le voyant, comme s'il le reconnaissait.
 
-« L'extraction des âmes originelles est conforme à la source du Dao. On peut aussi y voir une forme de karma, où le corps est la cause karmique et l'âme originelle l'effet karmique. C'est un trésor qui a été raffiné selon la phase finale du Dao du Karma! » Les yeux de Wang Lin brillèrent tandis qu'il méditait.
+« L'extraction des âmes originelles est conforme à la source du Dao. On peut aussi y voir une forme de karma, où le corps est la cause karmique et l'âme originelle l'effet karmique. C'est un trésor raffiné à partir du côté « effet » du Dao du Karma! » Les yeux de Wang Lin brillèrent tandis qu'il méditait.
 
 Son domaine avait progressivement évolué du domaine de la vie et de la mort vers le domaine du karma. Ce domaine était d'une immensité telle que Wang Lin n'en avait touché que la pointe de l'iceberg, mais il pouvait déjà en ressentir toute la majesté.
 
@@ -44,11 +44,11 @@ Alors que sa main droite caressait le Fouet des Âmes, son regard s'illumina de 
 
 Il conçut un moyen d'utiliser la puissance d'un domaine du karma matérialisé avant même de pouvoir réellement le manifester. C'était pour s'assurer d'être parfaitement préparé pour son voyage vers le Royaume Céleste du Tonnerre.
 
-« Utiliser le Fouet des Âmes pour aider à condenser le domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec la compréhension de son propre être.
+« Utiliser le Fouet des Âmes pour remplacer la condensation du domaine du karma devrait fonctionner! » Après réflexion, Wang Lin prit sa décision. Si cela avait été un autre, il aurait hésité par crainte, incapable de trancher, ne sachant pas si ce choix était correct ou s'il interférerait avec la compréhension de son propre être.
 
 Mais Wang Lin était différent; il avait clairement entrevu le chemin à suivre. Il savait que cela n'affecterait son domaine qu'au plus légèrement, sans conséquence majeure.
 
-Après avoir mûri sa réflexion, les yeux de Wang Lin s'animèrent et il saisit le Fouet des Âmes.
+Après avoir mûri sa réflexion, les yeux de Wang Lin s'animèrent et il saisit le Fouet des Âmes, qu'il fit claquer dans un bruit net et clair qui semblait ébranler l'esprit.
 
 « Je ferai de toi l'instrument de mon domaine! » Une lueur étrange émana du regard de Wang Lin alors qu'il posait le fouet sur ses genoux. Il ferma les yeux et commença à le raffiner avec soin.
 
@@ -66,7 +66,7 @@ Tous furent instantanément dévorés par le brouillard noir dès qu'ils s'y pr�
 
 Quant aux mortels, ils étaient moins problématiques. En voyant ce brouillard noir, ils comprirent qu'il était empreint de danger et s'en détournèrent.
 
-Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. Le drapeau des âmes contenait sa volonté: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région.
+Si certains s'y perdaient par mégarde, Wang Lin ne commettait pas de meurtres inutiles. Le drapeau des âmes contenait sa volonté: ces mortels tombaient simplement dans le coma avant d'être déposés à la lisière de la région, à 5 000 kilomètres de la montagne.
 
 Pendant ces trois années, Wang Lin se concentra sur l'affinage de ses trésors. La seule source de nuisance était Xu Liguo. Il avait réussi, d'une manière ou d'une autre, à briser le sceau que Wang Lin avait placé sur la sacoche de stockage. Bien qu'il ne puisse toujours pas en sortir, il n'arrêtait pas de clamer sans cesse.
 

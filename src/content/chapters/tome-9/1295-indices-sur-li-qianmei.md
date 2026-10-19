@@ -28,6 +28,8 @@ Le Sens Divin de Wang Lin se retira de la pierre de jade qu'il tenait, et il con
 
 Wang Lin se tenait sur le dos du Dragon des Neuf Abîmes. Celui-ci se déplaçait à une vitesse fulgurante, son corps de dix mille pieds fendant l'obscurité tel un éclair étrange. Sa particularité résidait dans son silence absolu: malgré sa célérité, aucun grondement tonitruant ni aucune onde de choc ne troublaient son vol.
 
+Il n'osait pas la moindre rébellion face aux ordres de Wang Lin ni à la direction qu'il lui indiquait. Il avait vu de ses propres yeux, à l'entrée de la faille, la puissance de l'Ancien de la Secte Démon, face à laquelle le Dragon ne pouvait rien. Or c'était précisément l'homme perché sur sa tête qui avait fait plier cet Ancien; cela ne faisait qu'accroître sa crainte envers Wang Lin.
+
 Assis sur la tête du Dragon des Neuf Abîmes, Wang Lin observait les environs en silence. Il semblait s'acclimater parfaitement à ce monde d'ombre sans le moindre inconfort.
 
 Après avoir progressé durant une durée indéterminée, le silence fut rompu par des rugissements lointains.
@@ -44,7 +46,7 @@ C'est grâce à cette lumière sanguine qu'il avait pu trouver le Seigneur du Ro
 
 « Dao des Rêves... C'est ce que j'ai compris dans le domaine du Dao. C'est mon troisième sort, après Nuit Brisée et Temps Fluide. C'est un véritable sort de Dao... »
 
-Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Défiant le Ciel. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de l'en remercier.
+Wang Lin laissa échapper un soupir. Plus il repensait aux paroles de la vieille femme, plus il songeait à cette lumière sanguine au sein de la Perle Défiant le Ciel. Il avait le sentiment d'être encore plus redevable envers Li Qianmei, et se sentait incapable de s'acquitter de cette dette.
 
 Le temps s'écoulait lentement tandis que Wang Lin plongeait dans ses souvenirs. Le monde au sein de la faille spatiale semblait immuable; tout n'était qu'obscurité constante.
 
@@ -62,7 +64,7 @@ Le Dragon des Neuf Abîmes était l'une des bêtes royales de la faille spatiale
 
 En temps normal, toutes les bêtes féroces auraient dû fuir face au Dragon des Neuf Abîmes, mais la présence de Wang Lin créait une confusion en elles. C'est pourquoi tant d'entre elles s'étaient rassemblées sans toutefois oser s'approcher davantage.
 
-La lumière avait permis à Wang Lin d'observer les environs. Bien qu'elles fussent nombreuses, la plupart étaient de rang 10. Il y en avait peu au-delà.
+La lumière avait permis à Wang Lin d'observer les environs. Bien qu'elles fussent nombreuses, la plupart étaient de rang 8 ou 9. Il y en avait peu de rang supérieur à 10.
 
 La lueur se dissipa. Wang Lin était toujours assis sereinement sur la tête du Dragon des Neuf Abîmes lorsqu'il déploya son Sens Divin. Le Dragon sembla stimulé par cette onde et poussa un rugissement. Ce cri fit trembler les cieux et résonna violemment dans ce monde obscur.
 

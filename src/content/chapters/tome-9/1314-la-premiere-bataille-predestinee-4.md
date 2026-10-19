@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1314 - The First Predestined Battle (4)
 slug: la-première-bataille-predestinee-4
 ---
-Sort de l'Extermination du Grand Dieu Lunaire, Ailes de la Lune Sanglante, Neuf Crânes d'Anciens Dieux, Liquide de Décomposition Divine!
+Sort d'Extermination Divine de la Grande Lune, Ailes de la Lune Sanglante, Neuf Crânes d'Anciens Dieux, Liquide de Décomposition Divine!
 
 Chacun de ces trésors était d'une puissance extrême. Ils avaient été préparés par le Clan de la Lune au fil d'innombrables années pour capturer un Ancien Dieu vivant!
 
@@ -30,7 +30,7 @@ Le Clan de la Lune utilisait tout ce qu'il avait accumulé au fil des âges pour
 
 Les neuf crânes d'Anciens Dieux étaient le trésor salvateur du Clan de la Lune. Chacun d'eux équivalait à l'explosion d'un cultivateur de la troisième étape. La puissance de neuf d'entre eux s'effondrant simultanément était inimaginable!
 
-Cependant, comparés à eux, le Liquide de Décomposition Divine était encore plus précieux! Ce liquide était injecté dans chaque membre du Clan de la Lune dès sa naissance, et il provenait d'une source inconnue. Même le Clan de la Lune ignorait son origine. Ils savaient seulement qu'il y a des éons, lors de leur trahison envers les anciens dieux, il avait réussi à tuer un Ancien Dieu!
+Cependant, comparé à eux, le Liquide de Décomposition Divine, qui venait d'entrer dans la formation, était encore plus précieux! Ce liquide était injecté dans chaque membre du Clan de la Lune dès sa naissance, et il provenait d'une source inconnue. Même le Clan de la Lune ignorait son origine. Ils savaient seulement qu'il y a des éons, lors de leur trahison envers les anciens dieux, il avait réussi à tuer un Ancien Dieu!
 
 Après avoir été nourri par le Clan de la Lune pendant d'innombrables années, la puissance du Liquide de Décomposition Divine était terrifiante!
 
@@ -68,7 +68,7 @@ S'ajoutaient à cela les innombrables fils de soie lunaire qui encerclaient la z
 
 « Nous sommes tous deux des anciens dieux; comment pouvons-nous laisser ces esclaves nous sceller? Si tu me crois, nous pouvons d'abord nous débarrasser d'eux, et je te donnerai naturellement une réponse! » Wang Lin ne daigna même pas regarder les trésors qui fonçaient sur lui, attendant la réaction de Tuo Sen!
 
-Tuo Sen craignait de jouer sa dernière carte. Il n'était pas sûr que les souvenirs de Wang Lin contiennent réellement une telle chose. Cependant, même si c'était faux 9 999 fois sur 10 000, tant qu'une chance infime de vérité subsistait, il n'oserait pas prendre le risque!
+Tuo Sen n'osait pas tenter ce pari. Il n'était pas sûr que les souvenirs de Wang Lin contiennent réellement une telle chose. Cependant, même si c'était faux 9 999 fois sur 10 000, tant qu'une chance infime de vérité subsistait, il n'oserait pas prendre le risque!
 
 S'il perdait, Tu Si renaîtrait. Il n'avait aucune confiance pour affronter Tu Si; il en mourrait sans aucun doute!
 
@@ -78,9 +78,9 @@ Tuo Sen serra les dents et grogna: « Très bien!!! » De son point de vue, une 
 
 Dès que Tuo Sen accepta, les mains de Wang Lin formèrent des sceaux qu'il agita. Simultanément, il entonna une incantation dans la langue des anciens dieux.
 
-« À la naissance du monde, l'Ordre Ancien se divisa en trois. Le premier fut celui des anciens dieux. Ils s'opposèrent aux cieux et combattirent le monde. Ils ravageraient tout, détruiraient les cieux et briseraient le monde! Sortilège d'Ancien Dieu à 8 étoiles: le Vide! » Les yeux de Wang Lin brillèrent d'une lueur étrange et les six étoiles d'Ancien Dieu entre ses sourcils tournèrent frénétiquement. La puissance divine remplit ses mains.
+« À la naissance du monde, l'Ordre Ancien se divisa en trois. Le premier fut celui des anciens dieux. Ils s'opposèrent aux cieux, comprirent le chaos primordial de l'univers et combattirent le monde. Ils ravageraient tout, détruiraient les cieux et briseraient le monde! Sortilège d'Ancien Dieu à 8 étoiles: le Vide! » Les yeux de Wang Lin brillèrent d'une lueur étrange et les six étoiles d'Ancien Dieu entre ses sourcils tournèrent frénétiquement. La puissance divine remplit ses mains.
 
-En un instant, alors que les divers trésors du Clan de la Lune convergeaient, une rune déformée apparut devant lui!
+En un instant, alors que les divers trésors du Clan de la Lune convergeaient, une rune fragmentaire apparut devant lui!
 
 Bien que cette rune fût incomplète, elle dégageait une aura capable de faire trembler les cieux et d'en provoquer l'effondrement. C'était une puissance destructrice capable de désintégrer tous les sorts, et même le ciel lui-même!
 
@@ -98,7 +98,7 @@ L'expression du vieil homme à l'extérieur de la formation changea radicalement
 
 La rune émit soudain une lumière éclatante. Cette lumière, située entre le noir et le blanc, était totalement grise. Elle se propagea avec une fureur folle, prenant Wang Lin et Tuo Sen comme centre!
 
-Le Sang Décomposant Dieu fut repoussé, les Yeux de l'Ancien Dieu explosèrent instantanément, les ondulations intenses se dissipèrent d'un coup, et même l'ombre verte lutta un bref instant avant de s'évanouir, car elle manquait de pureté.
+Le Sang de Décomposition Divine fut repoussé, les Yeux de l'Ancien Dieu explosèrent instantanément, les ondulations intenses se dissipèrent d'un coup, et même l'ombre verte lutta un bref instant avant de s'évanouir, car elle manquait de pureté.
 
 Les fils de soie lunaire environnants se brisèrent soudainement. Tout fut repoussé par la lumière grise! Des fissures invisibles se formèrent dans le monde lunaire constituant la Formation de Scellement Divin.
 
@@ -118,11 +118,11 @@ Le rugissement de 100 000 voix fut assourdissant. Il se propagea comme une puiss
 
 « C'est... c'est... le doigt d'un Ancien Dieu à 9 étoiles!! » À cet instant, l'expression de Tuo Sen changea radicalement!
 
-Au moment où l'os du doigt ancien apparut, la Formation de Scellement Divin s'effondra et percuta l'os fragmentaire.
+Au moment où l'os du doigt ancien s'abattit, la Formation de Scellement Divin s'effondra et percuta l'os fragmentaire.
 
 Des grondements de tonnerre résonnèrent. Tuo Sen cracha du sang et fut projeté au loin!
 
-Des craquements sinistres retentirent dans le corps de Wang Lin alors que tous ses os se brisaient, le projetant dans deux directions opposées. Le doigt géant, quant à lui, ne subit aucun dommage en atterrissant.
+Des craquements sinistres retentirent dans le corps de Wang Lin alors que tous ses os se brisaient, le projetant dans des directions différentes. Le doigt géant, quant à lui, ne subit aucun dommage en atterrissant.
 
 Au moment où il fut projeté, Wang Lin n'hésita pas et utilisa son sort d'engloutissement. Un brouillard noir enveloppa son corps. Profitant de l'impact puissant, il se précipita vers la masse de cultivateurs, et le brouillard noir se dispersa. Des cris de douleur résonnèrent alors qu'il commençait à absorber les énergies frénétiquement.
 

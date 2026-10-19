@@ -76,7 +76,7 @@ Wang Lin leva la tête vers la vallée. Soudain, des ombres de symboles apparure
 
 Ses yeux brillaient d'un feu fantomatique semblable aux flammes des enfers, capable de faire trembler quiconque croiserait son regard. Il fixa la vallée et déclara froidement: « Impudent, tu oses proférer des paroles aussi arrogantes! »
 
-Le rire dément d'Ouyang Hua s'éleva de la vallée. « Ah vraiment? Alors laisse ce vieil homme te montrer qui est le véritable impudent ici! Figure verte, tue et collecte! »
+Le rire dément d'Ouyang Hua s'éleva de la vallée. « Ah vraiment? Alors laisse ce vieil homme te montrer qui est le véritable impudent ici! Figure verte, collecte et tue! »
 
 Aussitôt dit, la cage verte entourant la vallée commença à se contracter à une vitesse inimaginable. En un clin d'œil, elle n'était plus qu'à une centaine de mètres de Wang Lin.
 
@@ -112,7 +112,7 @@ Cette fois, plus de quarante symboles de restriction complets apparurent l'un ap
 
 Wang Lin pointa la vallée d'un geste, le regard glacial. Tous les ensembles de symboles tremblèrent avant de charger vers la vallée.
 
-Ces symboles de restriction complets fusionnèrent un à un dans le vide pour se transformer en ondes de choc.
+Ces symboles de restriction complets fusionnèrent un à un dans le vide pour se transformer en ondulations.
 
 Au total, ce fut une série de 83 symboles de restriction qui furent déployés du début à la fin. C'était un ensemble de symboles que Wang Lin avait conçu exclusivement pour briser cette formation.
 

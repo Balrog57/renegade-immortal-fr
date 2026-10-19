@@ -18,7 +18,7 @@ Le disciple tourna les yeux vers Wang Lin et s'exclama: « Jeune frère, tu n'es
 
 Wang Lin resta silencieux. Il sortit le jeton que Sun Dazhu lui avait confié et le lui lança.
 
-Lorsque le disciple corpulent réceptionna le jeton, son expression devint étrange, comme s'il tentait de réprimer un sourire. Bientôt, il ne put plus se contenir et éclata de rire. « Il semble que ce soit une tradition de la lignée de l'Ancien Sun. J'avais oublié cela. La lignée de l'Ancien Sun a cette habitude: lors de chaque compétition avec une autre secte, il s'obstine à exhiber une épée volante. »
+Lorsque le disciple corpulent réceptionna le jeton, son expression devint étrange, comme s'il tentait de réprimer un sourire. Bientôt, il ne put plus se contenir et éclata de rire. « Il semble que ce soit une tradition de la lignée de l'Ancien Sun. J'avais oublié cela. La lignée de l'Ancien Sun a cette habitude: lors de chaque compétition avec une autre secte, ils tiennent à exhiber une épée volante pour faire bonne figure. »
 
 Wang Lin se sentit embarrassé, surtout en repensant à l'expression solennelle de Sun Dazhu plus tôt. Il esquissa un sourire amer.
 

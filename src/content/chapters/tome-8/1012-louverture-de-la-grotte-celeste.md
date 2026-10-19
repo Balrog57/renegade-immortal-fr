@@ -22,21 +22,21 @@ Le corps de Yao Xixue vacilla et disparut. Lorsqu'elle réapparut, elle flottait
 
 Après un bref instant de pause, elle se transforma en un rayon de lumière démoniaque et fonça en avant.
 
-Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays Démon du Feu, là où se trouvait la Secte de l'Affinement des Âmes!
+Un autre endroit fut épargné par l'énergie spirituelle céleste: le Pays des Démons de Feu, là où se trouvait la Secte de l'Affinement de l'Âme!
 
-L'énergie spirituelle céleste passa devant la statue de Wang Lin, nichée dans les profondeurs de la Secte de l'Affinement des Âmes. Elle tenta de dissiper l'énergie démoniaque à l'intérieur, mais un cri aigu retentit de la statue.
+L'énergie spirituelle céleste passa devant la statue de Wang Lin, nichée dans les profondeurs de la Secte de l'Affinement de l'Âme. Elle tenta de dissiper l'énergie démoniaque à l'intérieur, mais un cri aigu retentit de la statue.
 
-Dès que l'énergie spirituelle céleste arriva, les millions de disciples de la Secte de l'Affinement des Âmes ressentirent l'angoisse contenue dans ce cri. Sans qu'aucun ordre ne soit donné, presque tous les disciples sortirent leurs bannières d'âmes. D'innombrables fragments d'âme apparurent et formèrent une couche protectrice autour de la statue de pierre.
+Dès que l'énergie spirituelle céleste arriva, les millions de disciples de la Secte de l'Affinement de l'Âme ressentirent l'angoisse contenue dans ce cri. Sans qu'aucun ordre ne soit donné, tous les disciples sortirent leurs drapeaux d'âmes. D'innombrables fragments d'âme apparurent et formèrent une couche protectrice autour de la statue de pierre.
 
-Toute la capitale de la Secte de l'Affinement des Âmes fut entourée par ces innombrables fragments d'âme qui sifflaient pour faire face à l'énergie spirituelle céleste. Cependant, cette dernière était trop puissante; la Secte de l'Affinement des Âmes n'était plus qu'un frêle esquif flottant parmi des vagues déchaînées.
+Toute la capitale de la Secte de l'Affinement de l'Âme fut entourée par ces innombrables fragments d'âme qui sifflaient pour faire face à l'énergie spirituelle céleste. Cependant, cette dernière était trop puissante; la Secte de l'Affinement de l'Âme n'était plus qu'un frêle esquif flottant parmi des vagues déchaînées.
 
 Les millions de disciples de la secte étaient pétris de peur, mais ils serrèrent les dents et tinrent bon!
 
-À cet instant précis, une partie de l'énergie spirituelle céleste changea, comme si elle possédait sa propre volonté. Loin de les attaquer, elle forma un vortex pour aider la Secte de l'Affinement des Âmes à résister aux trois autres portions d'énergie.
+À cet instant précis, une partie de l'énergie spirituelle céleste changea, comme si elle possédait sa propre volonté. Loin de les attaquer, elle forma un vortex pour aider la Secte de l'Affinement de l'Âme à résister aux trois autres portions d'énergie.
 
 Les trois autres flux d'énergie spirituelle céleste ne tentèrent pas de forcer le passage et contournèrent plutôt la secte.
 
-Le vortex entourant la Secte de l'Affinement des Âmes se contracta rapidement et rattrapa les trois autres pour fusionner avec elles et balayer le monde.
+Le vortex entourant la Secte de l'Affinement de l'Âme se contracta rapidement et rattrapa les trois autres pour fusionner avec elles et balayer le monde.
 
 Alors que l'énergie spirituelle céleste remplissait le Royaume Céleste des Esprits, les quatre piliers brillèrent intensément, enveloppant la terre d'une lumière éclatante.
 
@@ -44,7 +44,7 @@ Les quatre piliers étaient reliés par cette clarté, comme si une couche de pr
 
 Le Royaume Céleste des Esprits d'autrefois réactivait une fois de plus sa propre formation de protection!
 
-À cet instant, alors que la lumière emplissait le ciel et que la formation protectrice se réactivait, un changement colossal survint au centre du Royaume Céleste des Esprits. Une chaîne de montagnes infinie se dressait entre les quatre piliers.
+À cet instant, alors que la lumière emplissait le ciel et que la formation protectrice se réactivait, un changement colossal survint au centre du Royaume Céleste des Esprits. Un réseau de montagnes se dressait entre les quatre piliers.
 
 La terre trembla, d'immenses pans de montagnes s'effondrèrent et une poussière épaisse s'éleva dans les airs, recouvrant tout à perte de vue.
 
@@ -58,7 +58,7 @@ Ces neuf dragons se croisèrent et, dans un éclat de lumière violette, formèr
 
 La Formation des Neuf Dragons flottait dans les airs, brillant d'un éclat violet si intense qu'elle était visible de très loin.
 
-Le ciel à l'extérieur de la formation se tordit, et trois personnes en sortirent: Ling Tianhou, un homme d'âge mûr vêtu de pourpre, et entre eux, le Maître du Vide. Ce dernier ouvrit les yeux, qui brillèrent intensément.
+Le ciel à l'extérieur de la formation se tordit, et trois personnes en sortirent: Ling Tianhou, un homme vêtu de pourpre, et entre eux, le Maître du Vide. Ce dernier ouvrit les yeux, qui brillèrent intensément.
 
 Peu après leur apparition, l'espace devant eux se distordit et une autre personne en émergea.
 
@@ -88,7 +88,7 @@ Wang Lin répondit calmement: « C'est bien moi. »
 
 Hu Juan, aux côtés de Wang Wei, lui adressa un sourire. « Tu as perdu notre pari de l'époque. »
 
-Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée du Gouffre des Marées, dans le Pays Démon du Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
+Wang Wei sourit et hocha la tête, avant de se tourner vers Wang Lin. « L'interdiction à l'entrée du Abîme des Marées, dans le Pays des Démons de Feu, a-t-elle été placée par toi? » En parlant, il agita la main et une simple lame d'herbe apparut.
 
 Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même posée autrefois. Son expression ne changea pas et il acquiesça.
 
@@ -108,7 +108,7 @@ Deux silhouettes suivirent la femme: un vieillard assis sur une gourde et un hom
 
 Quant à l'homme en noir, il resta silencieux aux côtés de Wang Lin et de son groupe.
 
-Les yeux de Wang Lin s'illuminèrent en observant l'homme en noir. Bien qu'il n'eût jamais échangé un mot avec lui, il percevait une personnalité froide et arrogante, quelqu'un qui n'aimait guère la compagnie d'autrui.
+Wang Lin posa son regard sur l'homme en noir. Bien qu'il n'eût jamais échangé un mot avec lui, il percevait une personnalité froide et arrogante, quelqu'un qui n'aimait guère la compagnie d'autrui.
 
 L'homme en noir regarda Wang Lin et prononça ses premiers mots: « Emmène-moi à l'intérieur. »
 

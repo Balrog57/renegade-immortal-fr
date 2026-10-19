@@ -54,7 +54,7 @@ La grande majorité d'entre elles étaient directement scellées ici, en attenda
 
 Le soir du cinquième jour, le ciel était brumeux et l'atmosphère oppressante lorsque Wang Lin atteignit les abords du Pic Fantôme. La montagne, drapée de brouillard, était extrêmement lugubre. Des rafales de vent glacial soufflaient, donnant au lieu des airs d'outre-tombe.
 
-Pourtant, Wang Lin ne ressentit aucun inconfort. C'était peut-être dû à sa culture, ou au fait qu'il avait déjà transformé son domaine en une rivière des enfers par le passé.
+Pourtant, Wang Lin ne ressentit aucun inconfort, comme s'il marchait sur un sol plat. C'était peut-être dû à sa culture, ou au fait qu'il avait déjà transformé son domaine en une rivière des enfers par le passé.
 
 Le cycle de la vie et de la mort, les flux de la rivière des enfers... Wang Lin n'était pas étranger à ces phénomènes. Il ne marqua aucune pause et s'avança vers le Pic Fantôme.
 
@@ -102,7 +102,7 @@ C'étaient les âmes de la meilleure qualité sur le Pic Fantôme.
 
 « Je ne peux pas trouver mon corps, je ne trouve que cette pierre tombale... » Après avoir parlé, la femme recommença à pleurer.
 
-Wang Lin réfléchit un instant et s'apprêta à poursuivre son ascension vers ces âmes de haute qualité. Cependant, après quelques pas, les sanglots de la femme devinrent plus intenses.
+Wang Lin réfléchit un instant et s'apprêta à poursuivre son ascension vers ces âmes de haute qualité. Cependant, après quelques pas, les sanglots de la femme devinrent plus stridents.
 
 « Où est mon corps, où est ma demeure... Où est ma demeure... » La voix de la femme résonna dans le cœur de Wang Lin, et il s'arrêta.
 
@@ -120,7 +120,7 @@ Le processus de fusion de l'âme morte dans la Voile Fantôme ne fut pas long; u
 
 Un son de pleurs s'échappait désormais de la voile blanche et pénétrait le cœur de celui qui l'écoutait, évoquant irrésistiblement la silhouette, vue de dos, d'une femme aux cheveux blancs en train de pleurer.
 
-Le septième jour, un jade perça plusieurs couches de protection pour arriver devant Wang Lin, alors qu'il se trouvait dans sa grotte.
+Le septième jour, au crépuscule, un jade perça plusieurs couches de protection pour arriver devant Wang Lin, alors qu'il se trouvait dans sa grotte.
 
 « Wang Lin, écoute cet ordre: rends-toi au troisième Méridien du Taureau Céleste et garde-le! » La voix de l'Illustre Taureau Vert résonna dans la grotte tandis que le jade flottait, immobile, devant lui.
 

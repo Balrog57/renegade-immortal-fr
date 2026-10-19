@@ -34,7 +34,7 @@ Wang Lin fut soudainement éclairé! Il le soupçonnait depuis longtemps, et la 
 
 « Un démon dispersé... Je ne sais pas si je peux combattre un démon dispersé avec mon niveau de culture actuel! » L'énergie d'origine à l'intérieur de son corps s'agita pour apaiser les blessures causées par l'Évasion Sanguine.
 
-Une hostilité profonde apparut sur son visage. Six mois d'attente et l'influence de l'énergie démoniaque avaient fait naître en lui une intention meurtrière implacable. Son apparence, en cet instant, était particulièrement féroce.
+Une hostilité profonde apparut sur son visage. Plus de six mois de retenue et l'influence de l'énergie démoniaque avaient fait naître en lui une intention meurtrière implacable. Son apparence, en cet instant, était particulièrement féroce.
 
 Wang Lin fit un pas vers la tour!
 
@@ -60,7 +60,7 @@ Tous les projectiles furent stoppés à dix pieds de lui; aucun ne parvint à fr
 
 Boum, boum, boum. Tandis que Wang Lin progressait, les explosions ne s'interrompaient jamais. Chaque déflagration signifiait qu'un pantin s'effondrait.
 
-L'hostilité sur le visage de Wang Lin redoubla d'intensité lorsqu'il bascula et apparut derrière le dernier colosse de sable. Sa main saisit la tête du pantin et la broya sans pitié. Après un craquement sinistre, la tête s'envola dans les airs, mais ne dépassa pas la limite des deux cents pieds.
+L'hostilité sur le visage de Wang Lin redoubla d'intensité lorsqu'il bascula et apparut derrière le dernier colosse de sable. Sa main saisit la tête du pantin et la broya sans pitié. Dans un fracas assourdissant, il s'éleva dans les airs, sans dépasser la limite des deux cents pieds.
 
 « Invoque le Vent! » Au moment où Wang Lin s'élança, sa main droite traça un sceau et il pointa le vieil homme formé par l'énergie démoniaque libérée par les pantins.
 
@@ -86,7 +86,7 @@ Non seulement le vieil homme, mais Wang Lin lui-même fut surpris; toutefois, il
 
 Wang Lin pointa le doigt et les dragons démoniaques chargèrent le vieil homme. L'expression de ce dernier changea radicalement et ses mains formèrent un sceau pour lancer un sort de défense.
 
-Mais à cet instant précis, les quatre dragons poussèrent un rugissement unifié qui fit trembler le monde. Le sable noir commença à s'élever dans les airs!
+Mais à cet instant précis, les quatre dragons poussèrent un rugissement unifié qui fit trembler le monde. Cette clameur s'éleva dans le monde de sable noir!
 
 L'onde sonore produite par ce cri contenait une intention démoniaque qui interrompit le sort du vieil homme. Ce dernier recula précipitamment, tentant de fuir vers la tour noire au loin!
 
@@ -128,4 +128,4 @@ Tandis qu'ils tombaient, Wang Lin fit une enjambée et arriva prestement devant 
 
 « Vos têtes me seront d'une grande utilité! » Wang Lin fixa la tour noire de cent pieds de haut et leva les yeux vers son sommet. Il pouvait y voir une silhouette debout, immobile.
 
-« Je suis le Chef des Démons Dispersés de l'Eau des Cinq Éléments, Ming Hai. Si tu parviens à me tuer, tu auras alors la chance d'obtenir le Tableau Montagne et Rivière de l'Empereur Céleste Qing Lin: La Fumée du Désert Solitaire! »
+« Je suis le Chef-Serviteur des Démons Dispersés de l'Eau des Cinq Éléments, Ming Hai. Si tu parviens à me tuer, tu auras alors la chance d'obtenir le Tableau Montagne et Rivière de l'Empereur Céleste Qing Lin: La Fumée du Désert Solitaire! »

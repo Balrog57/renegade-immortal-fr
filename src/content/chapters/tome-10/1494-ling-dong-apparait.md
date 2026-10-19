@@ -12,7 +12,7 @@ slug: ling-dong-apparait
 
 Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire de rage face à l'action de Wang Lin. Il agita la main et sa pleine puissance de culture éclata. Il se tenait là comme s'il trônait au-dessus des étoiles!
 
-Cet élan était semblable à une tempête et secoua le domaine stellaire grâce à son essence du vent. À cet instant, neuf dragons de vent de cent mille pieds apparurent et rugirent!
+Cet élan était semblable à une tempête et secoua le domaine stellaire grâce à son essence du vent. À cet instant, neuf dragons de vent de plusieurs centaines de milliers de pieds apparurent et rugirent!
 
 Leurs rugissements faisaient trembler les cieux, comme si une tempête d'une puissance extrême balayait tout Luotian!
 
@@ -52,7 +52,7 @@ Les yeux de Wang Lin restaient aussi calmes qu'une eau dormante alors qu'il obse
 
 À ses yeux, le Maître Lu Fu manquait de quelque chose.
 
-Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Ses yeux s'illuminèrent; il ne parvenait pas à comprendre comment Wang Lin pouvait rester aussi serein!
+Ce calme insuffla au Maître Lu Fu un sentiment de mystère. Son regard eut un éclair; il ne parvenait pas à comprendre comment Wang Lin pouvait rester aussi serein!
 
 « Peu importe sa force, il est impossible qu'il ait supprimé sa culture pour que je ne puisse pas le percer à jour. Ce calme est étrange!! Je veux voir jusqu'où il peut rester ainsi! »
 
@@ -102,7 +102,7 @@ Il comprit enfin pourquoi Wang Lin était si calme face à ses sorts, pourquoi i
 
 Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui émanaient de la faille spatiale au-dessus de l'Estimé Ling Dong. Une telle quantité de Flammes Joss dépassait tout ce qu'il pouvait imaginer!
 
-« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Lui-même était dans cet état, alors que dire des autres.
+« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais presque tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Lui-même était dans cet état, alors que dire des autres.
 
 Le Maître Yan Leizi fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave!
 

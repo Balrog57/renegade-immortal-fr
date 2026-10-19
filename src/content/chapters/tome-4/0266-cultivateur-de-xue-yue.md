@@ -8,7 +8,7 @@ slug: cultivateur-de-xue-yue
 ---
 Wang Lin agita la main et la porte s'ouvrit silencieusement. Une haute silhouette enveloppée d'une cape de pluie entra. L'homme était recouvert d'une fine couche de neige. Il ne prononça pas un mot en pénétrant dans la pièce.
 
-Wang Lin jeta un regard à l'inconnu et dit: « Nous ne nous sommes pas vus depuis plus de dix ans. Cher compagnon cultivateur semble n'avoir pas changé. »
+Wang Lin jeta un regard à l'inconnu et dit: « Nous ne nous sommes pas vus depuis plus de dix ans. Cher compagnon cultivateur, je suis ravi de te voir en bonne santé. »
 
 L'homme laissa échapper un rire. Il retira sa cape, révélant un visage empreint de dignité. Ses oreilles étaient son trait le plus remarquable. C'était le cultivateur aux grandes oreilles, Zhou Wutai.
 
@@ -22,7 +22,7 @@ Wang Lin observa Zhou Wutai. Comparé à dix ans auparavant, quelques rides supp
 
 Après tout, le Domaine de la Vie et de la Mort que Wang Lin avait expérimenté lui avait conféré une compréhension bien plus profonde.
 
-Une fois que le cultivateur aux grandes oreilles eut fini de boire, ses yeux se fixèrent sur les trois sculptures en bois posées sur l'étagère. Elles représentaient les trois membres de la Secte des Nuages Blancs. Lorsque Zhou Wutai était venu il y a dix ans, il n'y en avait que deux; désormais, une troisième figurait parmi elles.
+Une fois que le cultivateur aux grandes oreilles eut fini de boire, ses yeux se fixèrent sur les trois sculptures en bois posées sur l'étagère. Elles représentaient les trois membres de la Secte Nuage Blanc. Lorsque Zhou Wutai était venu il y a dix ans, il n'y en avait que deux; désormais, une troisième figurait parmi elles.
 
 En fixant cette sculpture supplémentaire, une pointe de surprise apparut sur son visage. Il agita la main et l'objet vola vers lui. Après l'avoir examiné avec soin, il le reposa, puis regarda Wang Lin d'un air complexe.
 
@@ -40,11 +40,11 @@ Son hostilité envers Wang Lin s'atténua sensiblement. Être capable d'offrir u
 
 Toutefois, son plus grand dilemme résidait dans le choix. Après tout, le domaine qu'il tentait actuellement de comprendre était très éloigné de celui-ci; un conflit intérieur s'était donc installé.
 
-Après un long moment, il trembla légèrement avant de lever les yeux vers Wang Lin. Il laissa échapper un nouveau sourire amer: « Frère Wang, j'admets ma défaite! Alors, je t'en prie, cesse de me donner d'autres obsessions. Je ne veux plus de cette sculpture, et tu peux garder ce jade. Il contient une technique de Formation de l'Âme. »
+Après un long moment, il s'immobilisa un instant avant de lever les yeux vers Wang Lin. Il laissa échapper un nouveau sourire amer: « Frère Wang, j'admets ma défaite! Alors, je t'en prie, cesse de me donner d'autres obsessions. Je ne veux plus de cette sculpture, et tu peux garder ce jade. Il contient une technique de Formation de l'Âme. »
 
 Une lueur étrange passa dans les yeux de Wang Lin tandis qu'il observait attentivement Zhou Wutai. Lorsqu'il lui avait offert la sculpture, il nourrissait bel et bien une intention cachée, mais Zhou Wutai l'avait immédiatement décelée et avait choisi de renoncer à l'expérience du Domaine du Temps qui Passe pour préserver son propre domaine actuel. Wang Lin rencontrait rarement des individus de cette trempe.
 
-Il sourit et hocha la tête: « Si tel est le cas, je ne tenterai plus de te séduire. » Sur ces mots, il ramassa le jade, l'examina de son Sens Divin, puis le posa calmement sur le côté.
+Il sourit et hocha la tête: « Dans ce cas, je ne saurais refuser. » Sur ces mots, il ramassa le jade, l'examina de son Sens Divin, puis le posa calmement sur le côté.
 
 Zhou Wutai força ses yeux à quitter la sculpture malgré lui. Son visage s'assombrit: « Frère Wang, as-tu remarqué quelque chose d'étrange avec cette neige? »
 

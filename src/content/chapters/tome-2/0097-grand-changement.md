@@ -84,6 +84,10 @@ Wang Lin afficha une expression singulière. Ses deux mains formèrent un sceau 
 
 Sans même sourciller, Wang Lin observa la sphère devenir bleu clair, puis scintiller une fois. Son regard brilla alors qu'il murmurait: « Terre Yin, qualité ordinaire, rang 1... »
 
+Il n'avait pas encore fini de parler que Wang Lin changea brusquement d'expression. Une pression écrasante s'abattit sur lui de toutes parts, et son énergie spirituelle sembla lui échapper.
+
+Le visage grave, il s'assit aussitôt en tailleur, les yeux clos. De grosses gouttes de sueur perlèrent sur son front, et bientôt tout son corps fut trempé.
+
 En cet instant précis, un immense nuage de sept couleurs, sans limites, apparut soudain dans le ciel de tout Zhao; dire qu'il cachait le ciel et le soleil n'était pas exagéré.
 
 À l'instant où cette couche de nuages apparut, une pression semblable à la puissance céleste s'abattit du ciel. Tous les cultivateurs de Zhao en dessous du stade de l'Âme Naissante, peu importe où ils se trouvaient, leur secte ou ce qu'ils étaient en train de faire, changèrent tous radicalement d'expression.

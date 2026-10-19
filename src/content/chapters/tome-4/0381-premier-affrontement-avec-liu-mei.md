@@ -66,7 +66,7 @@ Le petit morceau de jade céleste avait été entièrement absorbé par Wang Lin
 
 Wang Lin murmura: « Sommet du stade avancé de l'Âme Naissante. » Il se leva lentement, prit une profonde inspiration et sortit de la grotte.
 
-« Ce que je comprends est le domaine de la vie et de la mort céleste. Plus je perce les cycles de la vie et de la mort du monde, moins je parviens à m'en détacher. Auparavant, je pensais que la vie était la vie et la mort était la mort, mais désormais, la vie peut être la mort et la mort peut être la vie. »
+« Ce que je comprends est le domaine de la vie et de la mort du cycle céleste. Plus je perce les cycles de la vie et de la mort du monde, moins je parviens à m'en détacher. Auparavant, je pensais que la vie était la vie et la mort était la mort, mais désormais, la vie peut être la mort et la mort peut être la vie. »
 
 « Moi, Wang Lin, j'ai passé la majeure partie de mon existence à tuer, j'ai donc fait l'expérience de la mort. En comparaison avec la mort, je n'ai pas vécu grand-chose de la vie. La nouvelle vie de Li Muwan est une forme de vie, et ma propre renaissance en est une autre, mais cela ne suffit toujours pas! » Wang Lin sortit de la grotte. Il regarda les montagnes lointaines et secoua doucement la tête.
 
@@ -74,7 +74,7 @@ Wang Lin murmura: « Sommet du stade avancé de l'Âme Naissante. » Il se leva 
 
 « Cette expérience m'a apporté une certaine illumination. Si je parvenais à trouver ce point d'unité et à revenir à la perception où la vie est la vie et la mort est la mort, alors mon domaine atteindrait le stade avancé de la Formation de l'Âme. »
 
-« Cependant, j'aurai besoin d'une autre percée pour atteindre le sommet du stade avancé de la Formation de l'Âme. Pour y parvenir, mon domaine devra également atteindre sa complétion. »
+« Cependant, la complétion ultime du stade avancé de la Formation de l'Âme reste difficile à atteindre. Pour y parvenir, mon domaine devra également atteindre sa complétion. »
 
 « Le domaine achevé d'un cultivateur au sommet de la Formation de l'Âme reste différent de celui d'un cultivateur de la Transformation de l'Âme. Le domaine de Li Yuanfeng avait pu prendre une forme physique et laisser la marque du thé sur mon corps. Ce genre de puissance est incomparable à celle d'un simple domaine de stade avancé de la Formation de l'Âme. Cela signifie que la complétion d'un domaine au stade de la Formation de l'Âme n'est qu'une étape. Atteindre le stade de la Transformation de l'Âme exige une compréhension bien plus profonde de son propre domaine. »
 
@@ -82,7 +82,7 @@ Wang Lin commença à réfléchir. Dans son état actuel, il ne remarqua pas qu'
 
 Le regard de cette femme était complexe; il était empreint de confusion, de doute et d'impuissance.
 
-« De retour dans le Royaume Céleste, le senior Zhou Yi m'avait donné le cristal Ascendant qui peut m'aider à atteindre le stade Ascendant. Ce cristal doit être formé par la compréhension du domaine du cultivateur. »
+« Autrefois, dans le Royaume Céleste, le senior Zhou Yi m'avait donné le cristal Ascendant qui peut m'aider à atteindre le stade Ascendant. Ce cristal doit être formé par la compréhension du domaine du cultivateur. »
 
 « Ascendant... Je me demande quand j'atteindrai ce stade! Pour l'instant, le sceau n'est pas levé, je n'ai donc même aucun espoir d'atteindre la Transformation de l'Âme... » Wang Lin soupira doucement.
 

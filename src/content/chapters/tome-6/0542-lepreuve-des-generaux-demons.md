@@ -56,7 +56,7 @@ Les yeux de Wang Lin s'illuminèrent légèrement alors qu'il l'étudiait avec a
 
 D'un seul pas, une aura féroce surgit soudainement derrière lui et se propagea avec frénésie.
 
-La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays des Démons Célestes. Tu es sans doute venu à la Grande Muraille Antique pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
+La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays du Démon Céleste. Tu es sans doute venu à la Grande Muraille Antique pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
 
 Tout en parlant, elle se détourna et pénétra dans la ville.
 
@@ -118,12 +118,12 @@ L'homme afficha un soupçon d'admiration. Sans perdre de temps, il lança un cou
 
 Sa vitesse était fulgurante; en un instant presque imperceptible, il porta dix coups. L'espace environnant commença à montrer des signes d'effondrement, mais la structure spatiale ici était si robuste qu'elle ne céda pas après seulement dix impacts.
 
-« Si tu peux résister à mon Intention de Bataille aux Dix Effondrements, tu pourras devenir un commandant en chef! » Le colosse poussa un rugissement puissant en tendant la main. C'était comme s'il avait plongé dans le néant pour saisir l'espace en train de s'effondrer et pour le projeter sur Wang Lin.
+« Si tu peux résister à mon Intention de Combat des Dix Effondrements, tu pourras devenir un commandant en chef! » Le colosse poussa un rugissement puissant en tendant la main. C'était comme s'il avait plongé dans le néant pour saisir l'espace en train de s'effondrer et pour le projeter sur Wang Lin.
 
-Cette Intention de Bataille aux Dix Effondrements n'était pas matérielle, elle faisait partie du vide même. Elle concentrait toute l'aura démoniaque des dix coups du général et était saturée de son intense intention meurtrière.
+Cette Intention de Combat des Dix Effondrements n'était pas matérielle, elle faisait partie du vide même. Elle concentrait toute l'aura démoniaque des dix coups du général et était saturée de son intense intention meurtrière.
 
 Les dix coups provoquaient un effondrement spatial successif, un à chaque impact. Au dixième effondrement, le sort devenait d'une puissance inimaginable. Une telle technique était extrêmement rare, même dans l'ensemble du monde de la culture. C'était la première fois que Wang Lin affrontait une telle chose.
 
-Dès l'instant où l'Intention de Bataille aux Dix Effondrements vola vers lui, il parvint à en percer le secret. Ses yeux s'illuminèrent brusquement et, d'un pas assuré, il se tint droit comme un pin millénaire. Il n'utilisa aucun trésor magique, mais une vapeur grise commença à circuler sur son bras droit: l'Art du Massacre Céleste était activé.
+Dès l'instant où l'Intention de Combat des Dix Effondrements vola vers lui, il parvint à en percer le secret. Ses yeux s'illuminèrent brusquement et, d'un pas assuré, il se tint droit comme un pin millénaire. Il n'utilisa aucun trésor magique, mais une vapeur grise commença à circuler sur son bras droit: l'Art du Massacre Céleste était activé.
 
-Simultanément, il pointa son index et utilisa le sort démoniaque du doigt. L'énergie spirituelle céleste en lui se transmuta rapidement en énergie spirituelle démoniaque pour se condenser sur la pointe de son doigt.
+Simultanément, il pointa son index et utilisa le Doigt Démoniaque. L'énergie spirituelle céleste en lui se transmuta rapidement en énergie spirituelle démoniaque pour se condenser sur la pointe de son doigt.

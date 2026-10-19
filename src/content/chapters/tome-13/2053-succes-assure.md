@@ -40,7 +40,7 @@ Ce geste était le doigt de l'Ancêtre Ancien.
 
 D'un seul mouvement, les couleurs du monde changèrent et les nuages se dispersèrent. L'espace délimité par la montagne trembla et une multitude de fissures apparurent autour de Wang Lin. Ces brèches s'étirèrent, donnant l'impression que l'espace environnant allait s'effondrer, incapable de supporter une telle force.
 
-Après le geste de Wang Lin, un grondement retentit et la montagne s'immobilisa. Bien qu'elle continuât de vibrer, elle ne put plus descendre.
+Après le geste de Wang Lin, un grondement retentit et la montagne s'immobilisa à quelques centaines de pieds de Wang Lin. Bien qu'elle continuât de vibrer, elle ne put plus descendre.
 
 À cet instant précis, l'espace isolé dans lequel Wang Lin était piégé s'effondra. Il en sortit calmement et fixa Song Tian.
 

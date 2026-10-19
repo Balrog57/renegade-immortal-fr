@@ -10,7 +10,7 @@ Il n'était pas faux de dire que cent mille soldats démons pouvaient détruire 
 
 Mais à cet instant, Wang Lin était d'une telle folie qu'il n'avait même pas peur de la mort; comment pourrait-il se soucier de ces soldats démons?
 
-Son Art du Massacre Céleste exigeait des massacres pour engendrer davantage d'énergie de massacre. En ce moment précis, l'âme originelle de Wang Lin était stimulée par le Fruit de l'Ascension Céleste et une immense quantité d'énergie spirituelle céleste circulait dans son corps; comment cent mille soldats démons pourraient-ils l'arrêter?!
+Son Art du Massacre Céleste grandissait dans le massacre et y puisait sa vitalité. En ce moment précis, l'âme originelle de Wang Lin était stimulée par le Fruit de l'Ascension Céleste et une immense quantité d'énergie spirituelle céleste circulait dans son corps; comment cent mille soldats démons pourraient-ils l'arrêter?!
 
 S'il y avait eu cinq fois plus de soldats, Wang Lin aurait certainement été vaincu, mais il ne perdrait pas face à seulement cent mille d'entre eux!
 
@@ -22,7 +22,7 @@ L'homme d'âge mûr sur le mur affichait une expression sombre et ordonna: « Al
 
 Les généraux démons à ses côtés s'élancèrent tous vers Wang Lin.
 
-Wang Lin remarqua immédiatement plus de dix intentions meurtrières foncer sur lui. Il bougea rapidement et pointa son petit doigt droit vers l'avant.
+Wang Lin remarqua immédiatement plus de dix intentions meurtrières foncer sur lui. Ses yeux rouges étincelèrent et il bondit en avant, pointant son petit doigt droit.
 
 Doigt des Enfers!
 
@@ -34,7 +34,7 @@ D'un mouvement du petit doigt de Wang Lin, de grandes vagues furent créées au 
 
 Alors que les eaux du monde des morts tombaient du ciel, l'azur devint nuageux et le domaine de la vie et de la mort fut activé!
 
-Cette rivière des enfers était une entité qu'il avait comprise durant les dix années nécessaires à la fusion de son âme originelle et de son domaine. Cette rivière n'appartenait pas aux cieux; elle avait été formée par Wang Lin, et lui seul en avait le contrôle. Il avait saisi le cycle de la réincarnation céleste et, au cours de ces dix années d'éveil, il avait utilisé le Doigt des Enfers pour créer cette rivière éternelle!
+Cette rivière des enfers était une entité qu'il avait comprise durant les dix années nécessaires à la fusion de son âme originelle et de son domaine. Cette rivière n'appartenait pas aux cieux; elle était issue du Dao de Wang Lin, et lui seul en avait le contrôle. Il avait saisi le cycle de réincarnation du ciel et de la terre et, au cours de ces dix années d'éveil, il avait utilisé le Doigt des Enfers pour créer cette rivière sans fin!
 
 Dès que les généraux démons s'élancèrent, ils furent balayés par la rivière des enfers qui descendait du ciel et se retrouvèrent prisonniers.
 
@@ -72,7 +72,7 @@ Le visage de l'homme d'âge mûr sur le mur devint livide et sa gorge se desséc
 
 L'homme serra les dents et commença à battre en retraite frénétiquement. Sans aucune hésitation, il sortit un os de bête noir de la taille d'un poing et le broya. À l'instant où l'os se brisa, un filet de gaz noir s'en échappa. Ce gaz enveloppa rapidement l'homme et le téléporta instantanément.
 
-Cet os noir était un objet extrêmement précieux capable de téléporter quelqu'un directement à la capitale. Seuls les commandants en chef et leurs lieutenants en possédaient!
+Cet os noir était un objet extrêmement précieux capable de téléporter quelqu'un directement à la capitale. Seuls les commandants en chef et les vice-commandants en chef en possédaient!
 
 Les yeux de Wang Lin étaient d'un rouge éclatant. D'un geste de la main, il transforma les cent mille soldats démons en cent mille filaments d'énergie de massacre. En y ajoutant les trente mille précédents, cent trente mille filaments d'énergie de massacre jaillirent!
 
@@ -80,7 +80,7 @@ Au moment précis où l'homme d'âge mûr disparut, les cent trente mille filame
 
 Il existait une formation de transfert très luxueuse dans la capitale du Pays du Démon de Feu, réservée aux hauts commandants. Le grand intendant du pays cultivait silencieusement près de l'autel de transfert.
 
-Il ouvrit soudainement les yeux et esquissa un sourire lors de l'activation de la formation. Il savait qu'un commandant ou un lieutenant revenait.
+Il ouvrit soudainement les yeux et esquissa un sourire lors de l'activation de la formation. Il savait qu'un commandant ou un vice-commandant en chef revenait.
 
 « Je me demande qui c'est... » Il se leva et se tourna vers la formation. Cependant, son expression changea instantanément. Fixant l'autel, il resta totalement stupéfait.
 
@@ -96,7 +96,7 @@ La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi inten
 
 Il se transforma en un météore féroce, franchit la Montagne des Millions de Démons et fonça vers le lieu qu'il percevait!
 
-Au cours des jours suivants, ce grognement glacial ne fut plus entendu. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps atteignait son apogée grâce à cette immense énergie de massacre.
+Ces derniers jours, ce grognement glacial ne se fit plus entendre. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps atteignait son apogée grâce à cette immense énergie de massacre.
 
 Dans la tour noire du champ de bataille antique, une lueur fantomatique scintillait à l'intérieur d'une armure dont il manquait un protège-poignet, et un vieil homme était agenouillé devant elle!
 
@@ -106,9 +106,9 @@ Cet homme était vêtu de noir; c'était celui qui avait sauvé Hu Pao!
 
 Dès qu'ils furent libérés, les trois pièces se transformèrent en fils noirs qui s'infiltrèrent dans les vêtements du vieil homme. Ces fils traversèrent sa peau pour recouvrir rapidement tout son corps. Ils bougèrent sans cesse et, lorsqu'ils finirent par se stabiliser, une armure noire apparut sur lui!
 
-Cette armure était simple, mais elle dégageait une énergie démoniaque monstrueuse. Une illusion de la taille d'un bras émergea de cette énergie. Cette ombre possédait une corne unique, identique à la créature que Wang Lin avait détruite.
+Cette armure était simple, mais elle était envahie de flammes démoniaques monstrueuses. Une illusion de la taille d'un bras émergea de cette énergie. Cette ombre possédait une corne unique, identique à la créature que Wang Lin avait détruite.
 
-À l'instant où elle apparut, elle pénétra le front du vieil homme. Ce dernier semblait endurer une douleur indicible. Les veines de tout son corps se gonflèrent et ses cris de souffrance s'évanouirent au loin.
+À l'instant où elle apparut, elle pénétra le front du vieil homme. Ce dernier semblait endurer une douleur indicible. Les veines de tout son corps se gonflèrent et ses cris de souffrance se répandirent au loin.
 
 Après un long moment, le corps du vieil homme trembla. Puis, ses yeux brillèrent d'une lueur maléfique et il déclara respectueusement: « Ce serviteur démoniaque obéit! »
 

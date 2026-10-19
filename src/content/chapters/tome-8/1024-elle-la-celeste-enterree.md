@@ -82,7 +82,7 @@ Le calme du Maître du Vide s'était totalement évaporé. Après avoir identifi
 
 Au moment où la silhouette apparut, l'Ancien Sun luttait contre la force d'aspiration. Mais face à cette aura maléfique, même avec son niveau de culture, il fut impuissant. Son énergie originelle se figea et il fut aspiré par le vortex.
 
-Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, la Zibeline Marquée d'Étoiles sortit la tête de ses vêtements. Le regard froid, elle bondit hors de lui en s'appuyant sur son corps. Cette zibeline était extraordinaire, capable de fouler l'air pour s'appuyer sur la force ambiante. Elle lutta pour remonter et fixa Wang Lin de ses yeux brillants d'un éclat vif.
+Ses yeux étaient empreints de terreur et, au moment où il allait être englouti, le Blaireau Marqué d'Étoiles sortit la tête de ses vêtements. Le regard froid, elle bondit hors de lui en s'appuyant sur son corps. Cette zibeline était extraordinaire, capable de fouler l'air pour s'appuyer sur la force ambiante. Elle lutta pour remonter et fixa Wang Lin de ses yeux brillants d'un éclat vif.
 
 À cet instant, Bei Luo observa la silhouette qui émergeait lentement; son œil droit brilla et il murmura: « Vieux ami... Je pensais qu'elle avait simplement disparu pour se cacher quelque part et guérir. Je n'aurais jamais cru que Qing Lin l'avait scellée ici... Qing Lin... Il était extrêmement puissant, si puissant! S'il n'avait pas été gravement blessé lors de l'effondrement du Royaume Céleste, Ta Jia et moi n'aurions jamais osé convoiter sa puissance! »
 
@@ -90,17 +90,17 @@ En fixant la silhouette vague, une pointe d'hésitation passa dans les yeux de B
 
 « Devrais-je la sauver...? » Ses yeux s'illuminèrent alors qu'il scrutait attentivement l'arrière de la silhouette, et il fut frappé de stupeur.
 
-« Qing Lin était trop cruel! Il a utilisé cette chose comme sceau. Même si ma puissance était à son apogée, comme autrefois, je ne serais peut-être pas capable de la sauver. Je pourrais même y rester moi aussi. Laisse tomber! »
+« Qing Lin était trop cruel! Il a utilisé cette chose comme sceau. Même si ma puissance était à son apogée, comme autrefois, je ne pourrais absolument pas la sauver. Je risquerais même d'être entraîné avec elle. Laisse tomber! »
 
 Après avoir renoncé à l'idée de sauver qui que ce soit, le corps de Bei Luo vacilla et disparut lentement, utilisant sa propre méthode unique pour quitter les lieux.
 
 Au moment précis où la silhouette vague s'élança dans les airs, une aura maléfique enveloppa tout le monde. Situ Nan traça de nombreux sceaux et lança des sorts. Cependant, à cet instant, la silhouette vague leva sa main droite et fit un geste léger.
 
-L'intention malveillante atteignit son paroxysme, formant un nouveau vortex. Le corps de Ling Tianhou trembla et fut entraîné vers le bas.
+L'intention malveillante atteignit son paroxysme, et le vortex balaya tout dans une tempête meurtrière. Le corps de Ling Tianhou trembla et fut entraîné vers le bas.
 
 Et Situ Nan fut emporté avec lui!
 
-Wang Lin, qui volait vers le haut, s'arrêta brusquement et déploya sans hésiter son énergie originelle, faisant jaillir une mer de flammes autour de lui. Alors qu'une douzaine d'épées tournoyaient autour de lui, il chargea vers Situ Nan.
+Wang Lin, qui volait vers le haut, s'arrêta brusquement et déploya sans hésiter son énergie originelle, faisant jaillir une mer de flammes autour de lui. Alors que plus de dix épées tournoyaient autour de lui, il chargea vers Situ Nan.
 
 Tandis que la terrifiante succion persistait et que l'horrible figure s'élevait, tous ceux qui n'étaient pas encore aspirés luttaient pour s'envoler. Seule la silhouette de Wang Lin plongeait vers le bas en direction de Situ Nan.
 

@@ -20,7 +20,7 @@ Ta Shan était agenouillé au sol, les genoux broyés. Il lutta pour relever la 
 
 L'homme aux robes bleues observait tout cela avec une expression calme et un regard glacial.
 
-Le corps de l'ancêtre du Clan des Immortels Élus trembla. Une bourrasque de vent souffla alors que le jeune homme derrière lui était projeté dans les airs par un monstre de brume et dévoré.
+Le corps de l'ancêtre du Clan des Immortels Élus trembla. Une bourrasque de vent souffla alors que le jeune homme à ses côtés était projeté dans les airs par un monstre de brume et dévoré.
 
 Le vieil homme leva inconsciemment la tête lorsqu'une goutte de sang chaud tomba sur son visage et glissa le long de sa joue. Ses yeux reflétaient une puissante indignation.
 
@@ -36,9 +36,9 @@ Ces regards étaient empreints d'une tristesse et d'une colère infinies!
 
 Soudain, l'un des monstres de brume fondit au loin. Sa cible: les enfants cachés à l'intérieur des bâtiments!
 
-L'homme aux robes bleues fronça légèrement les sourcils, mais il ne les interrogea pas.
+L'homme aux robes bleues fronça légèrement les sourcils, mais il ne s'y opposa pas.
 
-Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu'il était sur le point de s'effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s'effondra soudainement. L'homme fixa la créature qui fonçait vers les bâtiments; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...
+Le vieil homme laissa échapper un sourire misérable alors que le monstre de brume se précipitait vers lui et qu'il était sur le point de s'effondrer. À ce moment précis, Wang Lin poussa un soupir et pointa le vide. Le monstre de brume qui allait dévorer le vieil homme s'effondra soudainement. Le vieil homme fixa la créature qui fonçait vers les bâtiments; il pouvait même entendre les enfants appeler dans la panique, criant après leurs parents...
 
 Les membres du Clan des Immortels Élus luttèrent pour se redresser. Des rugissements semblables à des grognements s'échappèrent de leurs bouches comme des possédés.
 
@@ -54,7 +54,7 @@ Non seulement lui, mais tous les membres du Clan des Immortels Élus poussèrent
 
 L'expression de l'homme aux robes bleues resta froide et il déclara avec un soupçon de mépris: « Autrefois, votre clan a perdu et est devenu esclave. C'est votre destin! Vous ne pouvez pas le changer! »
 
-Tout en parlant, il leva sa main droite et pressa le bas, provoquant une série d'explosions. Le sang jaillit du corps des membres du Clan des Immortels Élus, les empêchant de se relever.
+Tout en parlant, il leva sa main droite et la pressa vers l'avant, provoquant une série d'explosions. Le sang jaillit du corps des membres du Clan des Immortels Élus, les empêchant de se relever.
 
 Seul Ta Shan chargea dans un rugissement. Au moment où il s'élança, des explosions résonnèrent dans son propre corps alors que ses os se brisaient, mais il continua sa course!
 
@@ -108,7 +108,7 @@ Ses yeux étaient emplis d'horreur et même d'une trace de terreur. Il ne pouvai
 
 Le papillon réapparut une fois de plus et l'homme fut de nouveau projeté en arrière. Cela continua jusqu'à ce qu'il soit repoussé à plus de 3 000 mètres. La peur dans ses yeux avait atteint son paroxysme.
 
-Dans un ultime effort, l'homme aux robes bleues siffla: « Foudre, explose! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
+Dans un ultime effort, l'homme aux robes bleues hurla: « Foudre, explose! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
 
 En utilisant cette explosion, il parvint à reprendre temporairement le contrôle de son corps, mais son visage était d'une pâleur cadavérique. Il était terrifié, et cette peur occupait presque tout son être.
 

@@ -78,7 +78,7 @@ En raison de ce brouillard présent depuis une éternité, le Système Stellaire
 
 À cause de cette brume unique, même les puissants cultivateurs pouvaient s'égarer sans carte stellaire. Sans elle, ils resteraient à jamais piégés dans ce voile.
 
-Même la manipulation spatiale était sévèrement affectée. Bien qu'elle fût utilisable, ses applications restaient limitées.
+Même la Déformation Spatiale était sévèrement affectée. Bien qu'elle fût utilisable, son efficacité restait faible.
 
 Nul ne connaissait l'origine de cette brume. Ce voile qui emplissait la Mer des Nuages semblait exister depuis l'époque précédant la disparition du Royaume Céleste Antique...
 
@@ -108,6 +108,6 @@ Il n'y avait aucun cultivateur dans les environs. Le dernier groupe chargé de l
 
 Les éclairs zébrèrent la nuit. Lorsqu'ils illuminèrent à nouveau le monde, des craquements se firent entendre provenant de la formation. Pourtant, le rugissement du tonnerre étouffait complètement ce bruit.
 
-Une lumière bleue émana de la formation et commença progressivement à l'envelopper. La pluie semblait tomber avec encore plus de fureur, comme si elle savait qu'un cultivateur n'appartenant pas à la Mer des Nuages — un être capable de bouleverser les quatre Royaumes Célestes — était sur le point d'apparaître.
+Une lumière bleue émana de la formation et commença progressivement à l'envelopper. La pluie semblait tomber avec encore plus de fureur, comme si elle savait qu'un cultivateur n'appartenant pas à la Mer des Nuages — un être qui allait s'y élever et bouleverser les quatre Royaumes Célestes — était sur le point d'apparaître.
 
 La pluie redoubla d'intensité... et la fréquence des éclairs augmenta.

@@ -52,7 +52,7 @@ Xuan Luo rit, transporté par la joie. Il regarda Wang Lin et l'aida à se relev
 
 « Tu es mon disciple, alors je t'offrirai un présent en célébration! » Xuan Luo frappa son front de sa main droite et mordit le bout de sa langue pour cracher une bouchée de sang. Le sang émit une lueur rouge et se métamorphosa en un dragon sanguin. Ce dernier rugit, enveloppa Wang Lin et l'entraîna vers la brèche dans la glace.
 
-« L'Enseignant est l'un des neuf soleils; une gorgée de mon sang essentiel te protégera quelque temps. Je vais maintenant lancer le sort pour t'aider à résister à la loi du Continent Astral Immortel! » Wang Lin s'élança vers l'ouverture, porté par le dragon de sang. Sa main droite plongea dans le vide et des rayons de lumière fantomatique en jaillirent.
+« L'Enseignant est l'un des neuf soleils; une gorgée de mon sang essentiel te protégera sur un bout de chemin. Je vais maintenant lancer le sort pour t'aider à résister à la loi du Continent Astral Immortel! » Wang Lin s'élança vers l'ouverture, porté par le dragon de sang. Sa main droite plongea dans le vide et des rayons de lumière fantomatique en jaillirent.
 
 Ces rayons étaient constitués de toutes les créatures vivantes et des âmes présentes dans l'espace de stockage de Wang Lin. Hormis le fou, presque tout le monde était là!
 
@@ -98,6 +98,6 @@ Alors que les bêtes s'effondraient, la reine des moustiques surgit enfin. Elle 
 
 Derrière elle, neuf bêtes moustiques dorées firent leur apparition. Chacune d'elles était aussi immense que la reine que Wang Lin avait connue dans le Royaume Céleste du Vent. Elles dégageaient toutes une aura féroce, et en voyant cela, les yeux de Xuan Luo s'illuminèrent!
 
-« La rumeur prétend que le Continent Astral Immortel n'était qu'un désert à l'origine. Puis le Royaume Divin apparut et créa la vie. Ensuite, les étoiles surgirent, mais elles se trouvaient sous le continent!
+« La rumeur prétend que le Continent Astral Immortel n'était qu'une terre sauvage à l'origine. Puis le Royaume Divin apparut et créa la vie. Ensuite, les étoiles surgirent, mais elles se trouvaient sous le continent!
 
 « Puis la loi du Continent Astral Immortel descendit telle l'eau de la mer. Neuf bêtes distinctes apparurent simultanément avec l'Ancêtre Antique et l'Ancêtre Céleste. Ceci... cette bête peut fusionner avec le chaos du Continent Astral Immortel. Se pourrait-il que... elles... » Les yeux de Xuan Luo s'écarquillèrent, pétrifiés par l'incrédulité.

@@ -10,17 +10,17 @@ Liu Wen n'était à l'origine qu'un cultivateur sans renom. Bien que talentueux,
 
 Nul ne savait comment il avait atteint cet état de Sens Divin Shi, ni combien de temps celui-ci avait duré. Était-ce un simple instant ou une éternité?
 
-Cependant, Wang Lin savait que Liu Wen n'était auparavant qu'un cultivateur sans aucun renom dans le monde de la culture. Après s'être retiré en méditation solitaire et en en ressortant, il était devenu une existence terrifiante. Ce qui le rendait si redoutable, c’est que personne n'avait jamais vu l'un de ses sorts auparavant.
+Cependant, on savait que Liu Wen n'était auparavant qu'un cultivateur sans aucun renom dans le monde de la culture. Après s'être retiré pendant plusieurs années en méditation solitaire, il était devenu une existence terrifiante. Ce qui le rendait si redoutable, c’est que personne n'avait jamais vu l'un de ses sorts auparavant.
 
 Si cela avait été son seul trait, cela n'aurait pas été surprenant, mais tous les sorts de Liu Wen étaient d'une puissance extrême et contenaient le Dao des Cieux. Il avait déclenché une véritable tempête à l'époque ancienne.
 
-Trop de gens voulaient percer son secret, déclenchant ainsi un bain de sang. Peu importait le nombre d'assaillants, et même lorsque certains vieux monstres qui ne s'impliquaient d'ordinaire jamais dans de telles affaires se mirent en mouvement, aucun ne parvint à capturer Liu Wen. C'était comme s'il pouvait prédire tous les dangers et les éviter!
+Trop de gens voulaient percer son secret, déclenchant ainsi un bain de sang. Peu importait le nombre d'assaillants, et même lorsque certains vieux monstres qui ne s'impliquaient d'ordinaire jamais dans de telles affaires se mirent en mouvement, aucun ne parvint à trouver la moindre trace de Liu Wen. C'était comme s'il pouvait prédire tous les dangers et les éviter!
 
 Plus tard, réalisant qu'il ne pourrait résister à tous par sa seule puissance, il disparut. Il devint une légende étrange dans l'ancien monde de la culture. Ce n'est que bien plus tard que les gens comprirent qu'il avait dû pénétrer dans l'un des trois grands royaumes. Cela ne pouvait être le Royaume Ji; il devait s'agir du Royaume Dao ou du Royaume Shi.
 
 Quant à savoir lequel, après avoir recoupé tous les événements, ils déterminèrent que c'était le Royaume Shi!
 
-En réfléchissant à la manière dont Liu Wen avait pu utiliser tous ces sorts inédits, une rumeur se répandit, affirmant que le Royaume Shi permettrait à quiconque de créer son propre monde... Et désormais, ces rumeurs qui ne pouvaient être confirmées s'étaient propagées aux quatre coins du monde.
+En réfléchissant à la manière dont Liu Wen avait pu utiliser tous ces sorts inédits, une rumeur se répandit, affirmant que dans le Royaume Shi, où la vie se perpétue sans fin, quiconque pourrait créer son propre monde... Et désormais, ces rumeurs qui ne pouvaient être confirmées s'étaient propagées aux quatre coins du monde.
 
 Le Royaume Ji est la mort, et le Royaume Shi est la vie!
 
@@ -34,23 +34,23 @@ Wang Lin ne se montrait pas anxieux; il avait toujours fait preuve de persévér
 
 Il contempla calmement le ciel. Puisqu'il ne pouvait saisir cette chance pour l'instant, il allait simplement attendre. Attendre le lever et le coucher du soleil, attendre que cette opportunité devienne plus limpide, jusqu'au moment où il pourrait enfin s'en emparer!
 
-Ling Er s'éveilla tard dans la nuit. Ses cils tremblèrent alors qu'elle ouvrait lentement les yeux. Ce qu'elle vit fut le ciel étoilé, et elle se redressa silencieusement. Elle observa Wang Lin au loin. Sous la lumière lunaire, elle pouvait distinguer les traits acérés de son visage.
+Ling Er s'éveilla tard dans la nuit. Ses cils tremblèrent alors qu'elle ouvrait lentement les yeux. Ce qu'elle vit fut le ciel étoilé, et elle se redressa silencieusement. Elle observa Wang Lin au loin. Sous la lumière lunaire, elle pouvait distinguer le profil acéré de son visage.
 
 Dès son réveil, c'était comme si un sceau avait été brisé dans son esprit. Elle fut assaillie par une multitude de souvenirs vagues. Cependant, ces souvenirs étaient bien trop anciens et, en regardant Wang Lin, elle sombra dans la transe.
 
-Son regard perdit tout focus; elle ne regardait pas réellement Wang Lin. Même si celui-ci n'avait pas été là, elle serait restée ainsi.
+Son regard perdit toute netteté; elle ne regardait pas réellement Wang Lin. Même si celui-ci n'avait pas été là, elle serait restée ainsi.
 
 Les souvenirs du passé tourbillonnaient dans l'esprit de Ling Er. Ce n'est qu'à l'aube que son esprit se remémora le moment précédant son évanouissement. Touchant son front, les yeux de Ling Er s'illuminèrent. Le rêve qui l'avait troublée pendant des années était enfin résolu. Elle réfléchit longuement avant de se lever, marcha vers Wang Lin et dit respectueusement: « L'esclave divine Mu Ling salue l'Ancien Dieu. »
 
 Wang Lin hocha légèrement la tête et dit calmement: « Tu peux repartir. Ne me dérange plus. »
 
-Les paroles de Wang Lin étaient un ordre suprême pour Ling Er. Elle s'inclina et fit tinter les cloches à son poignet. La grue approcha et elle sauta sur son dos.
+Les paroles de Wang Lin étaient un ordre suprême pour Ling Er. Elle s'inclina et fit tinter la clochette qu'elle tenait à la main. La grue approcha et elle sauta sur son dos.
 
 Elle se retourna une dernière fois pour observer attentivement Wang Lin. Une trace de confusion passa sur son visage avant qu'elle ne soupire et ne s'éloigne avec la grue.
 
 Wang Lin ne prêta aucune attention à Ling Er; son regard restait verrouillé sur l'horizon marin. Peu après, le soleil apparut au-dessus de l'horizon et la lumière emplit progressivement le monde.
 
-Ce sentiment étrange s'intensifia de nouveau. Cependant, même après que le soleil fut monté dans les airs, Wang Lin n'atteignit pas l'éveil.
+Ce sentiment étrange s'intensifia de nouveau. Cependant, jusqu'à ce que le soleil se lève de nouveau, Wang Lin n'atteignit pas l'éveil.
 
 Le temps passa lentement et les jours défilèrent. Wang Lin avait oublié depuis combien de temps il était assis là. Il ne remarqua même pas que les frères Chen, Maître Fu Fengzi et Da Tou étaient tous venus s'installer à proximité.
 
@@ -76,13 +76,13 @@ Loin d'eux, les yeux de Maître Fu Fengzi brillèrent. Il regarda le sommet et p
 
 Maître Fu Fengzi était tiraillé intérieurement.
 
-Da Tou, Ta Shan et Lei Ji étaient également venus. Après tout, Wang Lin cultivait ici depuis un mois entier, et les trois ne pouvaient s'empêcher d'être préoccupés.
+Da Tou, Ta Shan et Lei Ji étaient également venus. Après tout, Wang Lin cultivait ici depuis près d'un mois, et les trois ne pouvaient s'empêcher d'être préoccupés.
 
 Alors que le soleil se levait et se couchait, le temps s'écoula rapidement. Un autre mois s'était écoulé.
 
 Les yeux de Wang Lin étaient totalement injectés de sang. Il avait tout oublié en fixant la surface de la mer. À chaque lever et coucher du soleil, il sentait que l'opportunité devenait plus tangible.
 
-Ce jour-là, nous étions le neuvième jour du troisième mois.
+Deux mois plus tard, ce fut le neuvième jour.
 
 Des nuages sombres recouvrirent le ciel et des grondements sourds résonnèrent au sein des nuées. Bientôt, de lourdes gouttes de pluie commencèrent à tomber.
 
@@ -90,11 +90,11 @@ Au loin, sous la pluie, des ondulations se formèrent. Les vagues déchaînées 
 
 Dans la pluie, un rideau de brume semblait recouvrir le soleil, le rendant flou. Dès que la lumière perçait, elle paraissait être dévorée par les nuages noirs.
 
-Le soleil semblait peiner à émerger de la pluie. À cet instant, les yeux de Wang Lin se plissèrent. Il avait la conviction profonde qu'après deux mois d'attente, il atteignait le moment le plus critique!
+Le soleil semblait peiner à émerger de la pluie. À cet instant, les yeux de Wang Lin se plissèrent. Il avait la conviction profonde qu'après plus de deux mois d'attente, il atteignait le moment le plus critique!
 
 Il était désormais extrêmement concentré sur le lever du soleil, comme s'il allait fusionner avec lui.
 
-Le tonnerre grondait et la pluie tombait, mais rien ne pouvait détourner le regard de Wang Lin. Rien ne pouvait l'empêcher d'être immergé, ni empêcher l'inevitable lever du jour!
+Le tonnerre grondait et la pluie tombait, mais rien ne pouvait détourner le regard de Wang Lin. Rien ne pouvait l'empêcher d'être immergé, ni empêcher l'inévitable lever du jour!
 
 Alors que le soleil luttait pour s'élever dans le ciel, une partie de lui étant encore sous la mer, quelque chose explosa dans l'esprit de Wang Lin. Il sentit clairement que l'opportunité se condensait rapidement comme des fils devant lui avant de pénétrer finalement dans son corps.
 
@@ -102,15 +102,15 @@ Alors que le soleil luttait pour s'élever dans le ciel, une partie de lui étan
 
 Il vit le soleil lutter pour sortir de l'océan. C'était comme si la mer était le ventre maternel et le soleil le nouveau-né. Au moment de l'aube, la mère donnait naissance au soleil!
 
-Au moment où le soleil naquit, une force inimaginable se propagea. Ce pouvoir était la lumière qui déchire la nuit. Ce pouvoir était assez puissant pour renverser les cieux, pour ébranler l'univers, pour briser la nuit en d'innombrables fragments et la remplacer par la lumière!
+Au moment où le soleil naquit, une force inimaginable se propagea. Ce pouvoir était la lumière qui déchire la nuit. Ce pouvoir était assez puissant pour renverser les cieux, pour ébranler le Dao des Cieux, pour briser la nuit en d'innombrables fragments et la remplacer par la lumière!
 
 La Nuit Brisée était née du soleil s'élevant au-dessus de la mer!
 
 « C'est ce pouvoir! » Les yeux de Wang Lin brillèrent intensément et son esprit entra dans un état mystérieux. Le moment de l'aurore fut gravé dans sa mémoire: le pouvoir de déchirer la nuit!
 
-« Maintenant! » Le regard de Maître Fu Fengzi devint glacial. Il avait attendu deux mois sans trouver comment gérer les conséquences de la rupture du sceau. Cependant, il avait trouvé une autre méthode: tuer Wang Lin!
+« Maintenant! » Le regard de Maître Fu Fengzi devint glacial. Il avait attendu plus de deux mois sans trouver comment gérer les conséquences de la rupture du sceau. Cependant, il avait trouvé une méthode définitive: tuer Wang Lin!
 
-« Tuez-le et le sceau sera brisé! » Les yeux de Maître Fu Fengzi s'illuminèrent; il chargea au moment même où Wang Lin comprenait cette force.
+« Tuez-le et le sceau sera brisé! » Une lueur meurtrière traversa le regard de Maître Fu Fengzi; il chargea au moment même où Wang Lin comprenait cette force.
 
 Cependant, alors qu'il franchissait la limite des cinq kilomètres, l'expression de Maître Fu Fengzi changea radicalement. C'était comme s'il voyait quelque chose qu'il n'osait pas croire. Le choc et la peur envahirent son regard!
 

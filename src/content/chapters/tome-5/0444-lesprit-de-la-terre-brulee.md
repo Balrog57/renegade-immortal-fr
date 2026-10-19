@@ -8,11 +8,11 @@ slug: lesprit-de-la-terre-brulee
 ---
 L'entrée du Tombeau de Suzaku se trouvait sur le mont Suzaku, mais le tombeau lui-même était un autre monde.
 
-Le Tombeau de Suzaku était entouré par le pouvoir mystérieux du Cristal de Planète de Culture. Hormis l'entrée au mont Suzaku, il n'existait aucun moyen d'y pénétrer ou d'en sortir.
+Le Tombeau de Suzaku était entouré par le pouvoir mystérieux du Cristal de la Planète de Culture. Hormis l'entrée au mont Suzaku, il n'existait aucun autre moyen d'y pénétrer ni de briser ce pouvoir.
 
 Au-delà de sa majesté, chaque génération de Suzaku découvrait que ce lieu était empreint de mystère.
 
-Ce domaine n'était pas aussi vaste lorsque le premier Suzaku planta le Cristal de Planète de Culture. Cependant, au fil du temps — ou pour être plus exact, à mesure que de nouveaux fragments d'âme y étaient ajoutés — cet endroit s'était étendu comme s'il était vivant.
+Ce domaine n'était pas aussi vaste lorsque le premier Suzaku planta le Cristal de la Planète de Culture. Cependant, au fil du temps — ou pour être plus exact, à mesure que de nouveaux fragments d'âme y étaient ajoutés — cet endroit s'était étendu comme s'il était vivant.
 
 Il existait au sein de la planète et croissait progressivement. Désormais, il possédait ses propres montagnes et rivières, son propre ciel et sa propre terre. Quiconque pénétrait ici pour la première fois en restait stupéfait.
 
@@ -22,7 +22,7 @@ Ces puissantes fluctuations faisaient alterner l'éclat et l'obscurité du sol e
 
 Wang Lin se tint sur cette terre brûlée où les panaches de fumée noire s'élevaient du sol. Dès qu'il apparut, son sens divin se déploya : à 5 000 kilomètres à la ronde, tout n'était que terre brûlée. Peu après, ses yeux s'illuminèrent alors qu'il scrutait l'horizon.
 
-« Situ Nan a dit que le Tombeau de Suzaku n'était pas vaste et qu'il était divisé en sections intérieure et extérieure. Le centre de la section intérieure abrite le tombeau de la première génération de Suzaku, là où se trouve le Cristal de Planète de Culture. La section extérieure est un peu plus grande que l'intérieure, mais un simple balayage du sens divin permet de tout y voir ; à l'extérieur se dresse un autel, et ce n'est qu'en passant par cet autel que l'on peut pénétrer à l'intérieur. Mais cet endroit est bien trop différent de ce que Situ Nan a décrit. Mon sens divin ne peut même pas couvrir la section extérieure, sans parler de trouver cet autel. » Wang Lin fronça les sourcils en s'accroupissant pour toucher la terre calcinée, sentant la chaleur sous ses mains.
+« Situ Nan a dit que le Tombeau de Suzaku n'était pas vaste et qu'il était divisé en sections intérieure et extérieure. Le centre de la section intérieure abrite le tombeau de la première génération de Suzaku, là où se trouve le Cristal de la Planète de Culture. La section extérieure est un peu plus grande que l'intérieure, mais un simple balayage du sens divin permet de tout y voir ; à l'extérieur se dresse un autel, et ce n'est qu'en passant par cet autel que l'on peut pénétrer à l'intérieur. Mais cet endroit est bien trop différent de ce que Situ Nan a décrit. Mon sens divin ne peut même pas couvrir la section extérieure, sans parler de trouver cet autel. » Wang Lin fronça les sourcils en s'accroupissant pour toucher la terre calcinée, sentant la chaleur sous ses mains.
 
 « Il y a un élément de feu dans cette terre. Cela ne semble pas être le résultat d'un sort ou d'une bataille, mais plutôt l'œuvre d'un esprit élémentaire du feu naturel. » Les yeux de Wang Lin s'animèrent et il prit son envol.
 

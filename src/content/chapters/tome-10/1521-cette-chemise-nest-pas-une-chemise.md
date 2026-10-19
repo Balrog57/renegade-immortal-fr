@@ -84,7 +84,7 @@ La Hache Brise-Ciel était le problème majeur. Désormais sans obstacle, elle f
 
 Le Grand Maître Yun Luo leva la main, pointa la hache et dit doucement: « En si peu de temps, mon Royaume Extérieur a déjà sacrifié près de 20 000 cultivateurs... »
 
-« Palais du Châtiment Céleste, Clan des Épées, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
+« Palais du Châtiment Céleste, Clan de l'Épée, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
 
 Alors que la hache retombait une fois de plus, plusieurs milliers de cultivateurs apparurent silencieusement. Ils exécutèrent tous le même mouvement et une épée fantomatique noire sembla se matérialiser alors qu'ils s'élançaient en avant!
 

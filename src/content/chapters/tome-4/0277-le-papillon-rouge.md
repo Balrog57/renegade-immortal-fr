@@ -34,17 +34,17 @@ Parmi ces huit individus, sept étaient vêtus de la même manière. Il y avait 
 
 Le dernier était un homme d'âge moyen vêtu d'une robe noire. Son visage était d'un jaune pâle, lui donnant une apparence très maladive.
 
-Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis fit un pas en avant pour se placer immédiatement entre le dragon noir et la créature serpentine. Il regarda le dragon noir et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en supprimer la lignée. »
+Il hocha la tête avec nonchalance après avoir entendu la femme parler, puis fit un pas en avant pour se placer immédiatement entre le dragon azur et la créature serpentine. Il regarda le dragon azur et sourit: « Je n'ai pas le droit de tuer ce dragon, mais je peux en supprimer la lignée. »
 
-Sur ces mots, il agita sa main droite, provoquant un spasme dans le corps de Zhou Wutai qui cracha une bouffée de sang. Ce dernier sentit alors la présence d'une force colossale. Cette puissance projeta son corps au loin comme une météorite.
+Sur ces mots, il leva la main droite et la pointa légèrement, provoquant un spasme dans le corps de Zhou Wutai qui cracha une bouffée de sang. Ce dernier sentit alors la présence d'une force colossale. Cette puissance projeta son corps au loin comme une météorite.
 
-Le sang que Zhou Wutai avait recraché se condensa en une goutte de sang pourpre dans la main de l'homme d'âge moyen. Celui-ci fit ensuite jaillir la goutte sur le front du dragon noir.
+Le sang que Zhou Wutai avait recraché se condensa en une goutte de sang pourpre dans la main de l'homme d'âge moyen. Celui-ci fit ensuite jaillir la goutte sur le front du dragon azur.
 
-Le dragon noir poussa un rugissement empreint de tristesse, mais une sensation de libération accompagnait ce cri. Le dragon regarda le sol, puis tout son corps s'immobilisa soudainement tandis que l'âme du dragon s'envolait pour disparaître au loin.
+Le dragon azur poussa un rugissement de colère, empreint de tristesse, mais une sensation de libération accompagnait ce cri. Le dragon regarda le sol, puis tout son corps s'immobilisa soudainement tandis que l'âme du dragon s'envolait pour disparaître au loin.
 
-Privé de son âme, le dragon noir se changea rapidement en montagne et retomba lourdement sur le sol.
+Privé de son âme, le dragon azur se changea rapidement en montagne et retomba lourdement sur le sol.
 
-Le dragon noir ne protégeait plus l'Alliance des Quatre Sectes. Le moment où la montagne s'écrasa fut comme un signal funeste annonçant à l'Alliance que leur destin était scellé.
+Le dragon azur ne protégeait plus l'Alliance des Quatre Sectes. Le moment où la montagne s'écrasa fut comme un signal funeste annonçant à l'Alliance que leur destin était scellé.
 
 L'homme d'âge moyen poussa un soupir. Il retourna aux côtés de la femme, conservant son air délabré.
 
@@ -72,7 +72,7 @@ Presque à l'instant même où il quittait la montagne enneigée, l'aura bleu fo
 
 Tout en volant dans le ciel, Wang Lin utilisa son puissant sens divin pour effacer la trace de celui de Zhou Wutai du sac de rangement. Il esquissa un sourire en découvrant le Chaudron de Pluie à l'intérieur.
 
-Cependant, au moment où il rangeait le sac, son expression changea brusquement. Une tour de glace de plus de quatre-vingts étages apparut devant lui. Une vieille femme en sortit. Elle lança un regard glacial à Wang Lin et leva sa main droite.
+Cependant, au moment où il rangeait le sac, son expression changea brusquement. Une tour de glace de plus de quatre-vingts étages apparut devant lui. Une vieille femme vêtue de blanc en sortit. Elle lança un regard glacial à Wang Lin et leva sa main droite.
 
 Wang Lin recula précipitamment et pointa son front. Plusieurs membres du clan Teng, transformés en démons par lui, s'envolèrent.
 
@@ -90,11 +90,11 @@ Ce n'est qu'après quelques secondes de fuite que Wang Lin sentit que les démon
 
 Wang Lin ne se retourna pas. Il frappa son sac de rangement et un nuage de fumée noire apparut. Cette fumée se condensa pour former une marionnette d'Âme Naissante. Wang Lin se retourna soudainement, formant un sceau de la main tandis que des éclairs rouges jaillissaient de ses yeux. Les éclairs pénétrèrent la marionnette alors qu'il hurlait: « Va! »
 
-Soudain, la marionnette chargea la vieille femme avec une fureur déchaînée. Cette dernière resta immobile au sommet de la tour de glace, le mépris dans ses yeux s'intensifiant. Elle pointa le sol de la main droite, et soudain, la neige et la glace du sol se dressèrent en pointes acérées, couche après couche, pour intercepter la marionnette.
+Soudain, la marionnette chargea la vieille femme avec une fureur déchaînée. Cette dernière resta immobile au sommet de la tour de glace, le mépris dans ses yeux s'intensifiant. Elle pointa le sol de la main droite, et soudain, la neige et la glace du sol se dressèrent en pointes acérées, couche après couche, pour intercepter sans effort la marionnette.
 
 Tout en continuant sa fuite, les yeux de Wang Lin devinrent froids alors qu'il pensait: « Explose! »
 
-Un éclat rouge apparut dans les yeux de la marionnette. Alors que la glace et la neige se refermaient sur elle, elle explosa. L'explosion d'une marionnette d'Âme Naissante à pleine puissance était terrifiante. Sous le contrôle de Wang Lin, l'énergie de cette explosion ne se propagea pas de manière omnidirectionnelle; elle fut dirigée précisément vers la vieille femme.
+Un éclat rouge apparut dans les yeux de la marionnette. Alors que la glace et la neige se refermaient sur elle, elle explosa. L'explosion d'une marionnette d'Âme Naissante à pleine puissance était terrifiante. Sous le contrôle de la marionnette, l'énergie de cette explosion ne se propagea pas de manière omnidirectionnelle; elle fut dirigée précisément vers la vieille femme.
 
 Simultanément, au cœur de l'explosion, un éclair rouge chargea vers la vieille femme.
 

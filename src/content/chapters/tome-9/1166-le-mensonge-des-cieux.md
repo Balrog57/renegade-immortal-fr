@@ -80,7 +80,7 @@ Wang Lin regarda Li Qianmei et, après un long silence, demanda calmement: « Ex
 
 Lu Yuncong laissa échapper un reniflement méprisant. « Quelles absurdités. Le ciel est partout autour de nous. Demander s'il existe un ciel est une pure folie! »
 
-Li Qianmei réfléchit un instant et murmura: « Où n'y a-t-il donc pas de ciel? »
+Li Qianmei réfléchit un instant et murmura: « Pourquoi n'y en aurait-il pas? »
 
 Wang Lin ne répondit pas, mais leva sa main droite et fit un geste ample. Une brise parcourut la cour et un cercle apparut au sol autour de Li Qianmei et de Lu Yuncong, comme si quelqu'un avait tracé une limite avec un bâton.
 

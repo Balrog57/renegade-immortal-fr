@@ -36,13 +36,13 @@ L'apparition de Wang Lin plongea la vallée dans un silence de mort.
 
 Le visage de Guo Xingyi devint livide, totalement dénué de couleur, et son corps tremblait faiblement. Sa main droite serrait son épée si fort que ses doigts en blanchirent.
 
-Sa jeune sœur de discipline affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'agenouilla pour vomir, le visage extrêmement pâle.
+Sa jeune sœur de discipline affichait une expression de terreur pure. Finalement, incapable de contenir son effroi, elle s'accroupit pour vomir, le visage extrêmement pâle.
 
 Quant au jeune homme en robe bleue qui ne semblait pas appartenir à la Secte de l'Épée Da Lou, il paraissait plus extasié que jamais, inspirant profondément cet air chargé d'une odeur de sang.
 
 Hormis ces trois-là, la femme nommée Qian Qin affichait une expression troublante, partagée entre l'angoisse et la lutte intérieure.
 
-La culture et la force mentale de cette jeune femme n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient eu le cœur serré en réalisant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'un léger embarras.
+La culture et la force mentale de ces jeunes disciples n'étaient pas comparables à celles des deux anciens. Bien que ces derniers aient été profondément ébranlés en réalisant que la situation avait dégénéré, leurs expressions restaient calmes, ne laissant paraître qu'un léger embarras.
 
 L'expression de Wang Lin demeurait sereine tandis que son regard les balayait un à un. Puis, d'un geste nonchalant, il pointa le vide; des mèches de gaz gris jaillirent alors des restes de chair éparpillés dans la vallée pour se rassembler promptement.
 
@@ -52,7 +52,7 @@ Une masse considérable de gaz gris s'accumula au bout de son doigt pour former 
 
 Le regard de Wang Lin restait calme alors qu'il exerçait une légère pression sur son doigt. Une fluctuation d'énergie émana de l'intérieur de la sphère, la faisant rétrécir jusqu'à la taille d'un ongle. Wang Lin la saisit entre ses doigts et, lorsqu'il ouvrit la main, la boule de gaz gris avait disparu.
 
-Shi Fang, de la Secte de l'Épée Da Lou, fixa le jeton à la taille de Wang Lin avant de déclamer mot pour mot: « Septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
+Shi Fang, de la Secte de l'Épée Da Lou, fixa le jeton à la taille de Wang Lin avant de déclamer en détachant chaque mot: « Septième disciple de la Division Pourpre de la Secte du Destin Céleste, Wang Lin! »
 
 Wang Lin retira sa main, regarda Shi Fang et dit: « Répondez à l'une de mes questions, et je laisserai l'un d'entre vous partir aujourd'hui! »
 
@@ -94,7 +94,7 @@ Wang Lin restait immobile, l'expression impassible et le regard imperturbable. I
 
 Le Doigt de la Mort!
 
-D'un seul doigt, des dizaines de milliers d'âmes périssent!
+D'un seul doigt, dix mille âmes se fanent ou prospèrent!
 
 D'un seul doigt, toute l'herbe de la vallée devint brune, et même les feuilles déjà flétries commencèrent à s'effondrer. Ce n'était pas seulement leur aspect extérieur qui succombait, mais jusqu'à leurs racines mêmes.
 

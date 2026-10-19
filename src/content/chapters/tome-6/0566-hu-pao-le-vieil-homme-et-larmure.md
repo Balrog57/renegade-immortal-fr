@@ -24,11 +24,11 @@ S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. P
 
 Cependant, ce sortilège d'extraction d'âmes exigeait bien plus d'efforts que l'affinement de l'âme. Bien que Wang Lin l'ait modifié, il ne l'enseignerait pas à la légère.
 
-Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Antique fut immédiatement écartée. La Tactique du Dieu Antique était une chose qu'il ne pourrait jamais enseigner!
+Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Ancien fut immédiatement écartée. La Tactique du Dieu Ancien était une chose qu'il ne pourrait jamais enseigner!
 
 Pourtant, durant cette année, Treize avait passé le test de Wang Lin avec brio. Wang Lin pouvait sentir que Treize lui resterait totalement loyal pendant au moins plusieurs décennies.
 
-Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Antique et un fragment de roue d'esprit primordial de la Voie de la Luxure, il s'y trouvait quelques jades.
+Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Ancien et un fragment de roue d'esprit primordial de la Voie de la Luxure, il s'y trouvait quelques jades.
 
 Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
 
@@ -38,7 +38,7 @@ Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déj�
 
 « Garde bien la Tribu du Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
-Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Drapeau d'un Milliard d'Âmes, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
+Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Drapeau des Un Milliard d'Âmes, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
 « Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 

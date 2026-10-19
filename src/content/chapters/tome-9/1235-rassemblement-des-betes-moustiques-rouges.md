@@ -74,15 +74,15 @@ Sous ce cri, le grand nuage rouge s'immobilisa brusquement avant de se dissiper 
 
 Le regard de Wang Lin balaya l'assemblée. Il y trouva six bêtes rouge foncé parmi elles, ce qui le réjouit. Il sentait que plus le roi rassemblait de sujets, plus sa puissance globale augmentait rapidement.
 
-Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana et de 16 moustiques au stade avancé du Scruteur du Nirvana. Avec une telle force, Wang Lin pourrait anéantir instantanément un cultivateur du stade Purificateur du Nirvana sans même avoir à bouger.
+Il disposait désormais de près de 300 moustiques de niveau Scruteur du Nirvana et de 16 moustiques au stade avancé du Scruteur du Nirvana. Avec une telle force, Wang Lin pourrait facilement piéger et tuer un cultivateur du stade Purificateur du Nirvana sans même avoir à bouger.
 
-« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 10 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 100 000... même les puissants du Briseur du Nirvana à la grande perfection resteraient à distance! »
+« 300, c'est encore bien trop peu. Il m'en faut davantage! Si j'avais 10 000 de ces bêtes rouges de niveau Scruteur du Nirvana, même les cultivateurs du stade Briseur du Nirvana fuiraient devant moi! Et si je pouvais en obtenir 100 000... même les puissants du Briseur du Nirvana à la grande perfection s'enfuiraient loin de moi! »
 
 « Si j'en avais plus de 100 000, peu importe qu'ils soient au stade Fléau Céleste! Si j'en avais un million, dix millions... » Wang Lin attendait ce moment depuis très longtemps.
 
 Il prit une profonde inspiration et s'élança dans les lointains avec ses 300 moustiques. Le battement de leurs ailes provoquait un grondement tonitruant qui résonnait à travers le monde, dégageant une pression colossale.
 
-Le regard de Wang Lin était vif comme l'éclair tandis qu'il parcourait les zones périphériques du Royaume Céleste. Il ne lui fallut pas longtemps pour repérer un autre nuage de brouillard rouge porté par le vent. La pression du roi moustique se propagea et le brouillard s'immobilisa aussitôt. Un instant plus tard, le nuage se fragmenta en une multitude de bêtes, mais cette fois, deux éclats de lumière rouge jaillirent. Elles n'attaquèrent pas Wang Lin, mais tentèrent de fuir précipitamment, la lutte se lisant dans leurs yeux.
+Le regard de Wang Lin était vif comme l'éclair tandis qu'il parcourait les zones périphériques du Royaume Céleste. Il ne lui fallut pas longtemps pour repérer un autre nuage de brouillard rouge porté par le vent. La pression du roi moustique se propagea et le brouillard s'immobilisa aussitôt. Un instant plus tard, le nuage se fragmenta en une multitude de bêtes, mais cette fois, deux éclats de lumière brun rougeâtre jaillirent. Elles n'attaquèrent pas Wang Lin, mais tentèrent de fuir précipitamment, la lutte se lisant dans leurs yeux.
 
 Les yeux de Wang Lin brillèrent et son roi moustique s'élança vers ces deux bêtes aux reflets brun rougeâtre. Il poussa un rugissement et la puissance du roi balaya la zone.
 

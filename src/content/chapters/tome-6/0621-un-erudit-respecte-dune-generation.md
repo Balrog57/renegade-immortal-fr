@@ -6,23 +6,23 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 621 - Respect Scholar of a Generation
 slug: un-erudit-respecte-dune-generation
 ---
-Sun Yunshan répondit rapidement: « L'union de culture se situe à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
+Sun Yunshan répondit rapidement: « L'Union de Culture se situe à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or. Cet endroit est imprégné de miasme toute l'année, ce qui le rend parfaitement dissimulé. » Après avoir parlé, il hésita puis demanda: « Frère Wang, avez-vous l'intention de...? »
 
 Wang Lin sourit. « Je n'ai pas une grande confiance en ma capacité à briser votre restriction. Cependant, je présume que cela ne devrait pas poser de problème à cet Ancêtre! »
 
 Sun Yunshan prit une profonde inspiration, recula de quelques pas et fit un profond salut à Wang Lin. Il leva la tête, les yeux brillants d'excitation, et déclara: « Frère Wang, les mots ne sauraient exprimer ma gratitude pour ce que vous avez fait pour moi. Si un jour je peux retourner sur la planète Tian Yun, je vous rendrai assurément ce bienfait! »
 
-« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta: « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette union de culture de toute façon. Cet Ancêtre m'a déjà provoqué deux fois; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais! »
+« Frère Sun, ne soyez pas ainsi. » Wang Lin secoua la tête et ajouta: « En réalité, même si vous n'étiez pas apparu, j'aurais dû me rendre à cette Union de Culture de toute façon. Cet Ancêtre m'a déjà provoqué deux fois; si je n'agis pas, il y aura une troisième et une quatrième fois. Cela ne s'arrêterait jamais! »
 
 « Frère Wang, quoi qu'il en soit, je m'en souviendrai! » La voix de Sun Yunshan était empreinte d'une sincérité profonde.
 
-Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu des Affineurs d'Âmes, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'union de culture furent saisis par lui et disparurent.
+Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un revers de manches, il disparut de la tour avec Sun Yunshan. Alors qu'il s'apprêtait à quitter la Tribu du Raffinement des Âmes, Wang Lin agita négligemment sa main droite. Les cultivateurs restants de l'Union de Culture furent saisis par lui et disparurent.
 
 La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
 Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays des Démons Célestes n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
 
-À cet instant, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or, une météorite traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
+À cet instant, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 
 Quant à Sun Yunshan, il se tenait aux côtés de Wang Lin. Il était très inquiet tout en étant extrêmement excité. Ces deux émotions complexes s'entremêlaient, le rendant quelque peu distrait.
 
@@ -58,9 +58,9 @@ C'était le disciple de la Division Bleue de la Secte du Destin Céleste qui ét
 
 « Écartez-vous », ordonna Wang Lin d'une voix calme.
 
-Cette simple phrase suffit à provoquer la dispersion instinctive de la foule. Aucun d'eux n'avait atteint le stade de l'Ascendant. Le cultivateur le plus puissant ici n'était qu'au sommet du stade tardif de la Transformation de l'Âme. Face à un Ascendant capable de purifier tout le miasme environnant, ils choisirent tous sagement de reculer.
+Cette simple phrase suffit à provoquer la dispersion instinctive de la foule. Aucun d'eux n'avait atteint le stade de l'Ascendant. Le cultivateur le plus puissant ici n'était qu'au sommet du stade tardif de la Transformation de l'Âme. Face à un Ascendant capable de rassembler tout le miasme environnant, ils choisirent tous sagement de reculer.
 
-Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe taoïste s'écria: « Quel culot! Qui es-tu? Donne ton nom! Mon union de culture... »
+Cependant, quelques individus imprudents, croyant pouvoir compter sur le soutien du soi-disant Ancêtre du Royaume Céleste, persistèrent. Un jeune homme vêtu d'une robe taoïste s'écria: « Quel culot! Qui es-tu? Donne ton nom! Mon Union de Culture... »
 
 Il n'eut pas le temps de finir sa phrase; le regard glacial de Wang Lin perça ses yeux comme une lame acérée. Le sang qu'il cracha força ses mots à retourner dans sa gorge.
 

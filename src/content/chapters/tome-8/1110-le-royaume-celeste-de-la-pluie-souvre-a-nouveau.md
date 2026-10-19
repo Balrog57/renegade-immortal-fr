@@ -8,7 +8,7 @@ slug: le-royaume-celeste-de-la-pluie-souvre-a-nouveau
 ---
 « Tais-toi! » grogna Wang Lin en fronçant les sourcils.
 
-Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis qu'il pensait: « C'est fini, c'est fini. J'ai dû perdre la raison pour oser attaquer ce démon. Xu Liguo, ah, Xu Liguo, quel diable rusé tu es, comment as-tu pu être si impulsif!?! »
+Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis qu'il pensait: « C'est fini, c'est fini. J'ai dû perdre la raison pour oser attaquer ce démon. Xu Liguo, ah, Xu Liguo, quel diable perspicace tu es, comment as-tu pu être si impulsif!?! »
 
 « Cette purification est terminée et je surveillerai tes performances à partir de maintenant. Si tu oses te rebeller à nouveau, j'effacerai ton âme d'épée! » La voix de Wang Lin était glaciale, mais elle fut comme une brise printanière apaisant le cœur de Xu Liguo. Ce dernier s'empressa de dire:
 
@@ -46,9 +46,9 @@ Ce n'est qu'une fois Wang Lin parti que Ta Shan s'agenouilla silencieusement pou
 
 Situ Nan devait naturellement se rendre dans le Royaume Céleste de la Pluie pour sauver l'Empereur Divin du Dragon Azure. Le poison dans son corps n'avait pas été totalement expulsé, et sans antidote, cela causerait des problèmes par la suite.
 
-Situ Nan était déjà arrivé près des 35 Anciens et se tenait aux côtés de l'un d'eux. C'était cet Ancien qui aidait Situ Nan à expulser le poison.
+Situ Nan était déjà arrivé près des 35 Anciens et se tenait derrière l'un d'eux. C'était cet Ancien qui aidait Situ Nan à expulser le poison.
 
-Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger! Il comptait rendre toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan!
+Situ Nan siégeait là, l'expression grave, mais sa décision était prise. S'il parvenait à éliminer ce poison, il traînerait Wang Lin sur la planète Feng Luan pour se venger! Il comptait leur rendre au décuple, voire au centuple, toutes les souffrances qu'il avait dû endurer de la part des cultivatrices de la planète Feng Luan!
 
 Certaines planètes abandonnées de la Secte Divine de l'Oiseau Vermillon n'étaient pas propices à la vie. Elles étaient saturées de gaz toxiques, et les flammes rendaient le poison encore plus intense.
 
@@ -58,7 +58,7 @@ En foulant ce désert noir, on pouvait sentir les traces de poison mêlées à l
 
 Devant Wang Lin se trouvait un ravin. Vu d'en haut, il était d'un noir absolu, et les vagues de chaleur faisaient flotter ses cheveux blancs au gré du vent.
 
-Wang Lin joignit les mains et dit: « Wang Lin salue les Anciens Célestes, le Couple! »
+Wang Lin joignit les mains et dit: « Wang Lin salue les deux Anciens du Couple Céleste Nuageux! »
 
 Dès que sa voix retentit, un rayon d'énergie d'épée jaillit du ravin et fonça vers lui. Wang Lin ne recula pas; il sourit en observant l'énergie s'approcher.
 
@@ -74,7 +74,7 @@ Wang Lin secoua la tête et regarda Zhou Yi avec respect: « En plus de sauver l
 
 En entendant cela, le visage de Zhou Yi s'illumina d'excitation. Il regarda Wang Lin et dit avec gratitude: « Merci! »
 
-L'expression de Wang Lin devint complexe et il secoua la tête. Zhou Yi fut surpris et comprit immédiatement quelque chose. Son visage s'assombrit et, en descendant avec Wang Lin, il dit: « Toi et moi nous sommes très semblables... mais moi, j'ai quelqu'un pour m'aider, tandis que toi, tu n'as personne... Grand Frère Zhou est impuissant à t'aider. »
+L'expression de Wang Lin devint complexe et il secoua la tête. Zhou Yi fut surpris et comprit immédiatement quelque chose. Son visage s'assombrit et, en descendant avec Wang Lin, il dit: « Toi et moi nous sommes très semblables... mais moi, j'ai ton aide, tandis que toi, tu n'as personne... Grand Frère Zhou est impuissant à t'aider. »
 
 Wang Lin réfléchit silencieusement sans rien ajouter.
 

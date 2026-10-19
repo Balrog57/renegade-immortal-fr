@@ -14,7 +14,7 @@ La lance se précipita vers Wang Lin. L'énergie de massacre se condensa au bout
 
 Une force explosive pénétra la main de Wang Lin depuis la lance et consuma l'énergie de massacre en lui avec frénésie. Simultanément, cette énergie de massacre pénétra la lance et commença à la détruire.
 
-Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de massacre étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula de plusieurs mètres. L'énergie de massacre sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui offrant ainsi une immédiate récupération.
+Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin et l'ancien démon. Alors que les un million de fils d'énergie de massacre étaient sur le point de s'effondrer, les yeux de Wang Lin s'illuminèrent. Il retira alors son doigt et recula de plusieurs mètres. L'énergie de massacre sur sa main bénéficia d'un bref répit, permettant à sa puissance infinie de refouler et de gonfler à nouveau, lui permettant de se rétablir aussitôt un peu.
 
 Le doigt de Wang Lin s'avança une fois de plus et frappa la lance alors qu'elle se refermait sur lui.
 
@@ -24,7 +24,7 @@ Le visage de Wang Lin était extrêmement pâle et, en raison de sa perte de san
 
 Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
 
-La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet dans lequel l'âme de ce dernier était piégée!
+La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Luo. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet où était logé le Sens Divin de ce dernier!
 
 Wang Lin n'avait pas le loisir de regarder le combat entre les deux anciens démons dans l'écran démoniaque du ciel. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays des Démons de Feu: la Vallée Démoniaque!
 
@@ -50,11 +50,11 @@ L'avatar de l'ancien démon se fit sérieux. Il mobilisa ses deux mains et traç
 
 Wang Lin prit une profonde inspiration et, sans plus hésiter, projeta l'énergie de l'épée de Ling Tianhou. À cet instant, toute la Vallée Démoniaque fut saturée d'énergie de l'épée, et l'énergie spirituelle démoniaque s'effondra sous cette pression.
 
-L'intention tyrannique de l'énergie de l'épée de Ling Tianhou explosa, se transformant en une tempête qui balaya la Vallée Démoniaque. Des craquements stridents retentirent alors que la tempête ravageait les environs, et d'innombrables fissures apparurent instantanément sur l'énergie de l'épée.
+L'intention tyrannique de l'énergie de l'épée de Ling Tianhou explosa, se transformant en une tempête qui balaya la Vallée Démoniaque. Des craquements stridents retentirent alors que la tempête ravageait les environs, et d'innombrables fissures apparurent instantanément sur le sol.
 
 Le ciel fut recouvert d'énergie de l'épée, déchiquetant l'énergie spirituelle démoniaque.
 
-Les symboles tracés par l'avatar de l'ancien démon brillèrent intensément. De fins éclairs noirs les reliaient pour former un filet, empêchant l'énergie de l'épée de Ling Tianhou de progresser.
+Les symboles tracés par l'avatar de l'ancien démon brillèrent intensément. De fins éclairs les reliaient pour former un filet, empêchant l'énergie de l'épée de Ling Tianhou de progresser.
 
 Cependant, l'ancien démon du Pays des Démons de Feu utilisait la majeure partie de son sens divin dans le combat contre Bei Luo; cet avatar qu'il avait laissé ici n'équivalait qu'à un cultivateur de la fin du stade Ascendant. Sans l'énergie de l'épée de Ling Tianhou, la bataille aurait été sans espoir. Mais avec elle, Wang Lin était invincible!
 
@@ -104,7 +104,7 @@ Il sembla remarquer le regard de Wang Lin et se tourna vers lui. Ses yeux étaie
 
 Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine culture; d'autres manifestaient leurs sorts; l'un d'eux utilisait même le sort céleste "Arrêt"!
 
-Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de l'Omniscient, il avait vu la même chose: chaque Omniscient utilisait un sort différent!
+Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de l'Omniscient, il avait vu la même chose: chaque Omniscient utilisait le même sort!
 
 Cependant, Wang Lin se ressaisit immédiatement et nota la différence!
 

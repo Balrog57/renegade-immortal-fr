@@ -16,7 +16,7 @@ Parmi les bêtes féroces, certaines préféraient vivre en meute, tandis que d'
 
 À cet instant précis, au cœur de l'une des montagnes, le rugissement d'une créature particulière était le plus violent. Ce cri était si intense que même le brouillard ne pouvait en étouffer la puissance.
 
-Cette montagne, entièrement noire, s'élançait vers les cieux telle une épée perçant l'atmosphère. De grands singes de près de cent pieds de haut gravissaient la paroi, se précipitant désespérément vers le sommet.
+Cette montagne, entièrement noire, s'élançait vers les cieux telle une épée perçant l'atmosphère. De grands singes de près de cent pieds de haut gravissaient la paroi, se précipitant désespérément vers le milieu de la montagne.
 
 Un immense singe noir, assis en position de lotus comme un être humain, trônait là. Il mesurait pas moins de mille pieds de haut. Ses bras étaient aussi épais que de vieux pins, dont il faudrait plusieurs hommes pour faire tout le tour.
 
@@ -24,9 +24,9 @@ Un arbre géant aux teintes pourpres, qui n'atteignait pas le mollet de la créa
 
 Étrange était la nature des feuilles: elles étaient d'un blanc immaculé et leurs nervures étaient si visibles qu'elles semblaient faites de cristal. Deux fruits de la taille d'un poing, mêlant le noir et le blanc, ornaient l'arbre. C'était une vision singulière.
 
-Le singe géant ouvrit les yeux, qui s'illuminèrent avec la vivacité de deux flammes ardentes. Son regard dégageait une férocité telle qu'il perçait le brouillard. Cette lueur se posa sur une silhouette aux cheveux blancs, encerclée par une multitude de bêtes féroces entre les pics montagneux!
+Le singe géant ouvrit les yeux, qui s'illuminèrent avec la vivacité de deux flammes ardentes. Son regard dégageait une férocité telle qu'il perçait le brouillard. Cette lueur se posa sur une silhouette aux cheveux blancs, encerclée par une multitude de bêtes féroces à mi-hauteur de la montagne!
 
-Lorsque son regard croisa celui de Wang Lin, ce dernier agita la main droite. Un vent noir surgit et faucha la vie d'une douzaine de singes noirs. Wang Lin leva la tête et soutint ce regard glacial.
+Lorsque son regard croisa celui de Wang Lin, ce dernier agita la main droite. Un vent noir surgit et faucha la vie d'une douzaine de bêtes féroces. Wang Lin leva la tête et soutint ce regard glacial.
 
 Rugissement!
 
@@ -66,9 +66,9 @@ Certaines de ces bêtes pouvaient utiliser des sorts pour combattre les cultivat
 
 Ce singe noir était également une bête de rang 5, mais dotée d'un corps extrêmement robuste. Même après l'attaque de Wang Lin, il n'était que gravement blessé et non mort. Parmi les bêtes de rang 5, il se trouvait au sommet et pouvait atteindre le rang 6 à tout moment. C'est précisément pour cette raison que Wang Lin avait décidé de l'apprivoiser.
 
-En guise de réponse, le singe poussa un rugissement plus violent encore et projeta un coup de poing de son bras gauche. Le coup déclencha une rafale de vent et contenait même une faible aura de la puissance d'un Dieu Ancien. Cela témoignait de l'immense force du singe noir.
+En guise de réponse, le singe poussa un rugissement plus violent encore et projeta un coup de poing de son bras gauche. Le coup déclencha une rafale de vent et donnait même l'illusion d'une faible puissance de Dieu Ancien. Cela témoignait de l'immense force du singe noir.
 
-Wang Lin fronça les sourcils. N'étant pas fusionné avec son corps originel, sa résistance physique n'était pas égale à celle du géant. Il laissa échapper un reniflement froid et s'apprêtait à esquiver, mais soudain, pour une raison inconnue, l'image de ce vieil homme utilisant une paume pour bloquer le bras d'un Dieu Ancien surgit dans son esprit!
+Wang Lin fronça les sourcils. N'étant pas fusionné avec son corps originel, sa résistance physique n'était pas égale à celle du géant. Il laissa échapper un reniflement froid et s'apprêtait à esquiver avant de lancer une nouvelle attaque, mais soudain, pour une raison inconnue, l'image de ce vieil homme utilisant une paume pour bloquer le bras d'un Dieu Ancien surgit dans son esprit!
 
 Wang Lin réfléchit silencieusement face au vent qui approchait. Il était d'un calme absolu. Toute l'énergie originelle de son corps convergea vers sa paume, provoquant un grondement tonnerre. Il ferma simplement les yeux et la scène où le vieil homme stoppait la main de Tuo Sen se rejoua en boucle. Wang Lin ressentit alors une progressive sensation d'illumination.
 
@@ -84,7 +84,7 @@ Le corps du singe géant trembla à son tour. Il eut l'impression que son bras a
 
 Le regard de Wang Lin devint de plus en plus intense alors que l'action du vieil homme se répétait sans fin dans son esprit, jusqu'à devenir presque instinctive. Subconsciemment, il leva la main gauche et pointa rapidement le dos de sa paume droite!
 
-À chaque pression de son doigt, l'énergie originelle du monde s'accumulait pour se condenser dans sa paume. Après trois pressions, le visage de Wang Lin devint légèrement rouge, mais ses yeux brillèrent d'un éclat nouveau et il poussa un rugissement.
+À chaque pression de son doigt, l'énergie originelle du monde s'accumulait pour se condenser dans sa paume. Après trois pressions, le visage de Wang Lin devint légèrement rouge, mais ses yeux brillèrent d'un éclat nouveau et il lança un cri bref.
 
 Grondement, grondement, grondement!
 
@@ -106,7 +106,7 @@ En voyant cela, les yeux de Wang Lin brillèrent.
 
 « L'âme se condense en esprit! » Selon le jade, c'était un sort que seules les bêtes de rang 6 pouvaient utiliser. Il était inattendu que ce singe géant réalise une telle percée en plein moment de vie ou de mort.
 
-Wang Lin fit un pas en avant et apparut instantanément devant la créature. Sa main droite frappa alors violemment, renvoyant l'âme du singe à l'intérieur de son corps.
+Wang Lin fit un pas en avant et apparut instantanément au-dessus de la tête de la créature. Sa main droite frappa alors violemment, renvoyant l'âme du singe à l'intérieur de son corps.
 
 Wang Lin fixa les yeux du géant et dit calmement: « Deviens ma bête spirituelle. »
 

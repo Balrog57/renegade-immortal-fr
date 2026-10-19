@@ -44,7 +44,7 @@ Dans le vide, le visage apparu sur l'arbre dégageait une aura antique. Il conte
 
 Après un long moment, il laissa échapper un soupir et prononça d'une voix ancienne et épuisée:
 
-« Mystérieux Brillant... »
+« Xuan Bing... »
 
 Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. « Votre subordonné est là! » répondit-il sans la moindre hésitation.
 
@@ -52,7 +52,7 @@ Le Grand Ancien de la Secte Démon trembla, comme si le passé l'engloutissait. 
 
 Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lueur de froideur passa dans son regard lorsqu'il s'écria: « À vos ordres! »
 
-« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shan et Maître Céleste de la Guerre. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
+« Sous mes commandements, une fois la Mer des Nuages stabilisée, dirige-toi vers les trois autres grands systèmes stellaires. Va trouver Maître Nan Yunzi, Maître Hong Shan et Maître Zhan Xianzi. Dis-leur qu'ils peuvent enfin honorer l'accord passé...
 
 « Je veux que tu utilises ta vitesse maximale pour organiser les trois autres grands systèmes stellaires. Unissez les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair en un seul pour mener... la grande guerre qui éclatera dans quelques années! »
 
@@ -60,7 +60,7 @@ Le corps du Grand Ancien de la Secte Démon frémit et il leva les yeux. Une lue
 
 Le visage antique sur l'arbre gigantesque regarda au loin et, après un long silence, murmura: « Esclave Dao... si tu peux aider la Secte Démon dans cette affaire, ce vieil homme ne te tuera pas... »
 
-Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna avec ferveur.
+Dans la chambre secrète de la Secte Divine, le Shui Daozi tremblait, le front perlant de sueur. Il s'agenouilla et se prosterna à plusieurs reprises.
 
 « Maître Démon, vous avez fui le Royaume Extérieur et je vous ai offert l'intégralité de la Secte Fantôme comme disciple pour vous aider à guérir. Maintenant que vous êtes rétabli et devenu un démon ancien à neuf étoiles, il est temps d'honorer notre pacte! »
 
@@ -68,7 +68,7 @@ Les yeux de l'ombre démoniaque située à l'extérieur de la Secte Fantôme s'i
 
 Puis, le visage humain sur le grand arbre fixa profondément Wang Lin et dit doucement: « La rétribution divine est une calamité mais aussi une fortune. En raison des lois du Royaume Céleste Antique, je ne peux t'en dire davantage. Prends soin de toi... La rétribution divine n'est pas un phénomène propre au Royaume Céleste Antique. Même l'Empereur Céleste a sa propre rétribution...
 
-« La rétribution divine remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une infime part, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
+« La rétribution divine remonte aux temps primordiaux, à l'aube du monde, issue du Dao céleste mort... La rétribution à laquelle tu fais face n'est qu'une petite calamité, ce n'est ni une grande, ni la Rétribution Ji capable de détruire toute vie... » Tandis qu'il parlait, il ferma lentement les yeux et l'arbre gigantesque s'effondra, se dissipant dans le vide.
 
 Le jade se mua en une lumière cristalline et retomba sur la Formation du Royaume Scellé. Cette dernière brilla intensément et trembla. Les esprits d'artefact apparurent les uns après les autres, comme pour tenter de résister à cette lumière.
 
@@ -96,7 +96,7 @@ Des craquements secouèrent l'intérieur du corps de Wang Lin, et son corps de d
 
 Wang Lin affichait une expression féroce alors qu'il levait les yeux vers le vortex dans le vide et rugissait: « Une simple combinaison des Neuf Palais et des Huit Diagrammes ne me tuera pas! Existe-t-il une rétribution divine plus puissante encore? »
 
-Alors qu'il hurlait, le vortex rugit à son tour et sept rayons de lumière en jaillirent. Ces sept lumières étaient composées de poussière d'étoiles!
+Alors qu'il hurlait, le vortex rugit à son tour et sept rayons de lumière en jaillirent. Ces sept rayons étaient de la lumière stellaire!
 
 La lueur stellaire était éclatante et, au moment où elles s'élancèrent hors du vortex, elles se transformèrent en sept planètes de culture. Il s'agissait de véritables planètes de culture, contrairement aux Neuf Palais qui n'étaient que des météores!
 
@@ -108,7 +108,7 @@ Après les Neuf Palais vinrent les Huit Diagrammes, et après les Huit Diagramme
 
 C'était l'Intention Meurtrière des Sept Étoiles, la Puissance d'Abattage de la Grande Ourse!
 
-Les Sept Étoiles incarnaient l'intention meurtrière et la Grande Ourse, l'abattage. Ce n'était pas un simple sceau, cela portait une volonté d'extermination! En approchant, les sept étoiles laissèrent derrière elles sept traînées de lumière alors qu'elles fonçaient sur Wang Lin. Elles étaient comme sept épées de massacre chargées contre lui!
+Les Sept Étoiles incarnaient l'intention meurtrière et la Grande Ourse, l'abattage. Ce n'était pas un simple sceau, mais une calamité meurtrière! En approchant, les sept étoiles laissèrent derrière elles sept traînées de lumière alors qu'elles fonçaient sur Wang Lin. Elles étaient comme sept épées de massacre chargées contre lui!
 
 À cet instant, la voix indistincte résonna une nouvelle fois!
 

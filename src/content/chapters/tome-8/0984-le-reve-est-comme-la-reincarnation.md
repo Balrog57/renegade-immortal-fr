@@ -44,9 +44,9 @@ Elle était agenouillée sur un genou sur l'autel, les mains jointes en forme de
 
 Une force mystérieuse enveloppa les nuages et se propagea dans toutes les directions. Soudain, une figure colossale apparut derrière cette brume.
 
-C'était un dieu ancien!
+C'était un Ancien Dieu!
 
-Seule la moitié supérieure de son corps était visible, mais elle semblait occuper tout l'espace entre ciel et terre. Huit étoiles tournaient rapidement entre les sourcils du dieu ancien.
+Seule la moitié supérieure de son corps était visible, mais elle semblait occuper tout l'espace entre ciel et terre. Huit étoiles tournaient rapidement entre les sourcils de l'Ancien Dieu.
 
 Dès l'apparition de cette divinité, la foule sous l'autel éclata en acclamations fiévreuses.
 
@@ -76,7 +76,7 @@ Tôt le matin, on frappa doucement à sa porte. Constatant l'absence de réponse
 
 Wang Lin était resté assis dans le palais durant toute la nuit. La lueur bleue dans ses yeux s'était apaisée au point que plus rien d'anormal ne soit perceptible pour un observateur extérieur.
 
-« L'activation du sort de sauvetage du dieu ancien exige trop d'énergie originelle. Se fier uniquement à l'énergie absorbée lors des combats ne suffira pas... » Tandis qu'il réfléchissait, Wang Lin élabora un plan.
+« L'activation du sort de sauvetage de l'Ancien Dieu exige trop d'énergie originelle. Se fier uniquement à l'énergie absorbée lors des combats ne suffira pas... » Tandis qu'il réfléchissait, Wang Lin élabora un plan.
 
 Après avoir cultivé un moment, il frappa son sac de rangement; un rayon de lumière jaillit et vint se poser dans sa main. La clarté se dissipa progressivement pour révéler une magnifique couronne!
 
@@ -98,7 +98,7 @@ La scène qui suivit resta gravée dans sa mémoire: la silhouette rouge qui app
 
 Wang Lin murmura doucement: « Papillon Rouge, est-ce toi...? »
 
-Papillon Rouge fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yue, une femme pour laquelle le pays de Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yue, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme Da Niu!
+Papillon Rouge fut la première personne que Wang Lin admira dans sa vie. Il était difficile d'oublier l'arrogance du génie du pays de Xue Yu, une femme pour laquelle le pays de Suzaku avait brisé ses propres règles. Ils l'avaient acceptée comme disciple et avaient élevé le rang de Xue Yu, lui permettant même de déclencher une guerre entre deux nations qui impliqua des mortels comme le couple Da Niu!
 
 À la suite de ses paroles, l'ombre rouge à l'intérieur de la couronne trembla. Cependant, elle ne répondit pas; elle disparut lentement, comme pour l'éviter.
 
@@ -110,7 +110,7 @@ Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait part
 
 La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et une terrifiante explosion d'énergie Yin émanait de son corps, emplissant la pièce.
 
-Deux chaînes entravaient encore son corps: l'une attachée à sa clavicule, l'autre à son bassin. Ces chaînes, d'un violet noirâtre, dégageaient une odeur fétide si puissante qu'un mortel en mourrait instantanément.
+Deux chaînes entravaient encore son corps: l'une attachée à son omoplate, l'autre à son bassin. Ces chaînes, d'un violet noirâtre, dégageaient une odeur fétide si puissante qu'un mortel en mourrait instantanément.
 
 Même un cultivateur dont le niveau n'était pas assez élevé serait immédiatement empoisonné. Une seule inspiration suffirait à le blesser gravement; plusieurs inspirations, et il rendrait l'âme.
 

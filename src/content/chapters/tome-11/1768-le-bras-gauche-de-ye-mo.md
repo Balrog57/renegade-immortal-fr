@@ -20,11 +20,11 @@ L'effet d'une seule goutte de sang ne suffirait pas à produire un tel résultat
 
 Wang Lin sentit la différence en lui. Bien que ses trois pouvoirs des anciens clans soient toujours au stade de huit étoiles, ils étaient encore plus puissants et l'éclat de ces étoiles était plus intense.
 
-Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gelé. Cet appel était identique à celui qu'il avait ressenti lorsqu'il avait perçu le bras droit de Ye Mo.
+Wang Lin ressentait vaguement un appel provenant des profondeurs de ce monde gelé. Cet appel était identique à celui qu'il avait ressenti lorsqu'il avait perçu le bras droit de Ye Mo dans la Mer des Nuages.
 
 Wang Lin n'avait rien remarqué avant d'avoir absorbé la dernière goutte de sang.
 
-Tandis que Wang Lin calmait sa puissance du Dao Antique pour qu'aucune ne s'en échappe, la femme Ancien Dieu se redressa lentement. Elle regarda Wang Lin avec une admiration profonde dans les yeux.
+Tandis que Wang Lin calmait sa puissance du Dao Antique pour qu'aucune ne s'en échappe, la femme Ancien Dieu, qui s'était prosternée au sol, se redressa lentement. Elle regarda Wang Lin avec une admiration profonde dans les yeux.
 
 À cet instant, Wang Lin lui parut être l'ancêtre des trois anciens clans, ce qui fit trembler son cœur.
 
@@ -60,7 +60,7 @@ C'était un bras gigantesque, un bras gauche!
 
 « Le bras gauche de Ye Mo! » Wang Lin prit une profonde inspiration, les yeux brillants. Lorsqu'il était venu ici auparavant, il avait eu une intuition. Il pensait initialement qu'il s'agissait de l'œil gauche de Ye Mo, mais il ne s'attendait pas à ce que ce soit son bras gauche!
 
-« Après avoir fusionné avec le bras droit de Ye Mo, le Sort de Déchirure du Ciel pouvait déchirer des cultivateurs du troisième niveau... Si je fusionne avec le bras gauche et utilise ce même sort, sa puissance sera... » En pensant à cela, le cœur de Wang Lin se mit à battre la chamade.
+« Après avoir fusionné avec le bras droit de Ye Mo, le Sort de Déchirure du Ciel pouvait déchirer des cultivateurs de la troisième étape... Si je fusionne avec le bras gauche et utilise ce même sort, sa puissance sera... » En pensant à cela, le cœur de Wang Lin se mit à battre la chamade.
 
 Il frappa le sol de son pied droit pour tenter de pénétrer la glace, mais une force de rebond jaillit du bassin. Son corps trembla et il fut incapable de s'enfoncer dans la glace.
 
@@ -94,7 +94,7 @@ Mais il y avait une nuance: c'était comme si, sans ce gel, s'immerger dans le b
 
 Cependant, non seulement cette puissance était faible, mais elle fluctuait de manière irrégulière. Wang Lin réfléchit un instant et une lueur d'illumination traversa son regard.
 
-Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Ling existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences!
+Cet endroit avait été créé par le Souverain Céleste aux Sept Couleurs à partir de ses souvenirs, nourri par sa propre force vitale. Ce Bassin de Dong Lin existait probablement sur le Continent Astral Immortel, et sa fonction était sans doute de nourrir les essences!
 
 La culture du Souverain Céleste aux Sept Couleurs étant limitée, il n'avait pu imiter que l'aura, mais pas l'effet réel.
 
@@ -102,7 +102,7 @@ Après une réflexion, Wang Lin rangea la glace dans son espace de stockage. Ell
 
 Fixant le fragment, Wang Lin prit une profonde inspiration et leva sa main droite. Alors que le Dao Antique Immortel imprégnait sa main, il griffa à nouveau la glace. Des grondements tonitruants se succédèrent. Par cette méthode brute et laborieuse, Wang Lin mit plusieurs heures à creuser une cavité dans la glace.
 
-Au bout d'un demi-bâton d'encens de travail, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
+Un demi-bâton d'encens plus tard, un dernier fracas retentit. Wang Lin arracha un morceau de glace, exposant enfin le bras gauche de Ye Mo!
 
 Seule une petite zone de peau, de la taille d'une paume, était visible. Elle était grise mais dégageait une puissante aura du Dao Antique qui pénétra l'esprit de Wang Lin. Il prit une profonde inspiration et s'assit, pressant sa main gauche contre la peau exposée.
 

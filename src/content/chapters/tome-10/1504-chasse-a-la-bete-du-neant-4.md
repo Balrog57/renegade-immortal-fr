@@ -16,7 +16,7 @@ Lorsque les sept étoiles seraient toutes allumées, le sceau de l'âme serait r
 
 Cependant, à cet instant précis, le temps pressait. Ling Dong et Zhou Jin avaient déjà été dévorés et il n'y avait plus assez de temps. La force d'aspiration réapparut et le corps de Wang Lin commença à montrer des signes d'aspiration!
 
-Face au danger, Wang Lin laissa échapper un rugissement et agita sans pitié sa manche vers le royaume mystérieux à l'intérieur de la Bête des Limbes.
+Face au danger, Wang Lin laissa échapper un rugissement et lança sans pitié sa main droite vers le royaume mystérieux à l'intérieur de la Bête des Limbes.
 
 Alors que les hurlements résonnaient, toutes les Feuilles Anciennes s'envolèrent en direction du trou noir situé dans la gueule!
 
@@ -42,7 +42,7 @@ Le sceau extérieur, le sceau de l'âme et le sceau intérieur; Wang Lin en avai
 
 Cependant, à ce moment précis, un changement stupéfiant se produisit!
 
-Un rayon de lumière aux sept couleurs jaillit de l'âme scellée de la Bête des Limbes. Cette lumière était monstrueuse et enveloppa rapidement les environs!
+Un rayon de lumière aux sept couleurs jaillit de l'âme scellée de la Bête des Limbes. Cette lumière était monstrueuse et enveloppa rapidement les environs, sur plusieurs centaines de milliers de pieds!
 
 En voyant cette lumière aux sept couleurs, Wang Lin fut lui-même stupéfait un instant!
 
@@ -66,7 +66,7 @@ La lumière aux sept couleurs clignota rapidement et devint encore plus puissant
 
 « Éclairé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la culture... »
 
-« Éclairé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête des Limbes, finissant par encercler toute la zone!
+« Éclairé, scelle la volonté des cieux. Grave les jours sombres. Toute vie qui n'atteint pas le véritable Dao sombre dans l'abîme amer et le perd à jamais. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête des Limbes, finissant par encercler toute la zone!
 
 « Les Êtres Éclairés!!! » Les yeux de Wang Lin s'illuminèrent et il comprit vaguement quelque chose.
 

@@ -80,7 +80,7 @@ L'homme en armure dorée fronça les sourcils avant de ricaner: « Essayer de fa
 
 Il n'était pas le seul à penser ainsi; même les commandants fronçaient les sourcils.
 
-Le Commandant Xuan était perplexe: « Que fait cet enfant? »
+Le Vice-Commandant Xuan était perplexe: « Que fait cet enfant? »
 
 L'un des commandants gloussa: « Ce cultivateur peut-il communiquer avec le tambour démoniaque? »
 
@@ -96,7 +96,7 @@ Au moment où Wang Lin ferma les yeux, cette aura inflexible devint limpide.
 
 Elle se rassembla lentement dans son corps et fusionna avec son âme originelle. Totalement immergé dans cette présence, il s'intégra pleinement au tambour démoniaque.
 
-« Je ne dois pas résister à l'aura de défi du tambour, je dois fusionner avec elle. Si je parviens à comprendre cette aura, alors ce rebond ne pourra plus me blesser, mais aidera plutôt à raffiner mon corps! » Wang Lin ouvrit les yeux. Son regard était empreint d'une clarté absolue lorsqu'il leva la main et la laissa retomber avec douceur.
+« Je ne dois pas résister à l'aura de défi du tambour, je dois fusionner avec elle. Si je parviens à comprendre cette aura, alors ce rebond ne pourra plus me blesser, mais me permettra au contraire de purifier ma moelle! » Wang Lin ouvrit les yeux. Son regard était empreint d'une clarté absolue lorsqu'il leva la main et la laissa retomber avec douceur.
 
 *Dong!* La dixième résonance du tambour retentit sur toute la place.
 

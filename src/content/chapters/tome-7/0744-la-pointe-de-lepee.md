@@ -8,7 +8,7 @@ slug: la-pointe-de-lepee
 ---
 Wang Lin regarda Li Yuan avec un sourire qui n'en était pas un. Son regard était semblable à une épée, perçant directement le cœur de Li Yuan.
 
-L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « L'Aîné doit se demander comment Junior connaît un tel endroit, et pourquoi il n'est pas allé sur place briser lui-même les restrictions pour y entrer. »
+L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « Le Senior doit se demander comment Junior connaît un tel endroit, et pourquoi il n'est pas allé sur place briser lui-même les restrictions pour y entrer. »
 
 Wang Lin observa Li Yuan. L'intelligence de cet homme surpassait de loin celle de la femme et n'avait rien d'ordinaire. D'après ce qu'il avait entendu de leur part, cet homme avait été sauvé par la famille de la femme, mais le prix à payer avait été de livrer son âme de vie.
 
@@ -18,21 +18,21 @@ L'expression de Li Yuan resta neutre, puis il afficha un air de sincérité et d
 
 Le visage de Wang Lin ne changea pas et il garda le silence.
 
-« Si Junior ne se trompe pas, des outils d'origine se trouvent dans cette terre interdite. Ce sont des outils parfaitement préservés. Si les restrictions peuvent être levées, l'Aîné pourra s'approprier la moitié de ces outils! »
+« Si Junior ne se trompe pas, des outils d'origine se trouvent dans cette terre interdite. Ce sont des outils parfaitement préservés. Si les restrictions peuvent être levées, le Senior pourra s'approprier la moitié de ces outils! »
 
 La femme à côté de Li Yuan ouvrit la bouche pour parler, mais finit par choisir le silence.
 
-Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique fut arrachée de son corps sur une distance d'environ dix centimètres.
+Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique, semblable à la moitié d'une âme, fut arrachée de son corps sur une distance d'environ dix centimètres.
 
 Tout cela se produisit en un laps de temps extrêmement court. Le visage de la femme devint livide, comme si elle venait de perdre une immense quantité d'énergie.
 
-« Je dois obtenir une âme par mesure de sécurité! » L'ombre se condensa en une sphère de lumière que Wang Lin rangea dans son sac.
+« Je prends une âme en gage! » L'ombre se condensa en une sphère de lumière que Wang Lin rangea dans son sac.
 
 L'expression de Li Yuan resta neutre, mais son cœur était empreint d'une vigilance extrême. Il savait que l'intelligence de cet homme n'était pas inférieure à la sienne. Cet individu avait décidé d'extraire l'âme de cette femme plutôt que la sienne. Cela pouvait-il signifier… qu'il avait déjà tout percé?!
 
 « De plus, je suis très intéressé par la méthode que vous avez utilisée pour dissimuler votre restriction », ajouta Wang Lin en posant son regard sur Li Yuan.
 
-Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque l'Aîné est intéressé, Junior ne sera pas avare. »
+Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque le Senior est intéressé, Junior ne sera pas avare. »
 
 Wang Lin saisit le jade. Après l'avoir scanné avec son sens divin, il fronça immédiatement les sourcils.
 
@@ -40,7 +40,7 @@ Wang Lin saisit le jade. Après l'avoir scanné avec son sens divin, il fronça 
 
 En réfléchissant à l'origine de ses restrictions, Li Yuan ressentit une pointe d'amertume.
 
-Wang Lin ne comprenait effectivement pas cette restriction. Malgré sa maîtrise du sujet, lorsqu'il découvrit les marques sur le jade, il eut l'impression de ne rien pouvoir en déchiffrer. Cette restriction était manifestement différente de tout ce qu'il avait appris; elle n'était peut-être même pas de nature céleste.
+Wang Lin ne comprenait effectivement pas cette restriction. Malgré sa maîtrise du sujet, lorsqu'il découvrit les marques sur le jade, il eut l'impression de ne rien pouvoir en déchiffrer. Cette restriction était manifestement différente de tout ce qu'il avait appris; elle n'était même pas de nature céleste.
 
 Lorsqu'il commença à observer l'intérieur du jade, dix-huit statues apparurent. Lorsqu'il tenta de les appréhender, elles commencèrent à se superposer, provoquant un véritable séisme dans son esprit.
 
@@ -72,7 +72,7 @@ La voix de Li Yuan était prudente, mais elle transmettait sincérité et déter
 
 Quelques jours plus tard, alors qu'ils volaient, la bordure du fragment apparut. Des filaments de tonnerre s'étiraient dans les ténèbres comme des chaînes.
 
-Une fois parvenus au bord du fragment, Li Yuan se retourna et dit respectueusement: « Aîné, ces chaînes de tonnerre possèdent une puissance immense. Même les puissants cultivateurs doivent faire preuve d'une prudence extrême en les traversant. Aîné, soyez vigilant! »
+Une fois parvenus au bord du fragment, Li Yuan se retourna et dit respectueusement: « Senior, ces chaînes de tonnerre possèdent une puissance immense. Même les puissants cultivateurs doivent faire preuve d'une prudence extrême en les traversant. Senior, soyez vigilant! »
 
 En ce lieu, on pouvait ressentir la majesté et la force du Royaume Céleste du Tonnerre. C'était aussi là que l'on percevait à quel point ce royaume était brisé.
 

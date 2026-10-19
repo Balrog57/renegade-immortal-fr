@@ -12,7 +12,7 @@ Toutefois, ses yeux étaient désormais embrasés de puissantes flammes démonia
 
 L'armure dense dissimulait totalement ses traits, seule la lueur rouge des flammes démoniaques dans son regard perçant l'obscurité. Dès l'instant où le palais s'effondra, il s'avança.
 
-À cet instant, au-delà du palais en ruines, le magnifique sort de mer de Wang Wei couvrait le ciel. L'effondrement ayant été trop soudain, Wang Wei n'avait pas eu le temps d'interrompre son incantation. Les vagues déferlantes s'abattaient avec frénésie sur les décombres.
+À cet instant, au-delà du palais en ruines, le magnifique sort de mer de Wang Wei couvrait le ciel. L'effondrement ayant été trop soudain, son sort n'avait pas eu le temps de se dissiper. Les vagues déferlantes s'abattaient avec frénésie sur les décombres.
 
 C’en était comme si le monde entier avait été remplacé par l'océan, et une vapeur d'eau saturait l'atmosphère. Une quantité phénoménale d'énergie spirituelle céleste inonda la zone à cet instant précis; elle semblait presque tangible, capable de faire vaciller l'esprit.
 
@@ -30,9 +30,9 @@ Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt de l'Omn
 
 Des grondements retentirent, comme si le doigt ouvrait une brèche dans le ciel. Même le brouillard noir fut transpercé alors qu'il s'abattait sur l'homme en dessous.
 
-Un étrange sifflement retentit, mais avant qu'il ne puisse l'atteindre, la main droite de l'homme d'âge mûr se tendit. Dans un fracas assourdissant, le doigt commença à se désagréger en son centre!
+Un étrange sifflement retentit, mais avant qu'il ne puisse l'atteindre, la main droite de l'homme d'âge mûr se leva et se referma dans le vide. Dans un fracas assourdissant, le doigt commença à se désagréger en son centre!
 
-C'était comme si une puissance bien supérieure à ce sort l'avait brisé en deux, provoquant la rupture progressive du doigt, centimètre par centimètre.
+C'était comme si une puissance bien supérieure à ce sort l'avait brisé en deux, provoquant la rupture progressive du doigt, morceau par morceau.
 
 Le vacarme était capable de faire trembler les cieux. Le doigt qui avait fait frissonner Wang Lin s'effondra et disparut en un clin d'œil.
 
@@ -60,9 +60,9 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « En reliant tous les indices, le karma de cette situation est sur le point d'être révélé! »
 
-« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de sa culture et de ses souvenirs. »
+« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de son héritage et de ses souvenirs. »
 
-« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon et de l'Ancien Démon, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
+« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon Ta Jia et de l'Ancien Démon Bei Lou, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
 
 « Lors de cette bataille, l'Ancien Démon Bei Lou fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste des Esprits, attendant de pouvoir se reformer. »
 
@@ -70,7 +70,7 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « Cependant, l'Ancien Démon Ta Jia était lui aussi un être puissant. Il parvint inopinément à saturer la grotte d'énergie démoniaque et corrompit même certains des gardes de Qing Lin, les entraînant sur la voie démoniaque. Ils finirent par passer sous son commandement. »
 
-« Quant au démon dispersé qui errait dans la Terre des Esprits Démoniaques et qui partageait le corps de Ling Tianhou... je crains qu'il n'y ait là encore un secret bien plus profond. » Les yeux de Wang Lin s'illuminèrent. Grâce à son intelligence, il avait immédiatement saisi les contours de la situation au sein de la grotte.
+« Quant au démon dispersé qui errait dans la Terre des Esprits Démoniaques et qui avait occupé un corps identique à celui de Ling Tianhou... je crains qu'il n'y ait là encore un secret bien plus profond. » Les yeux de Wang Lin s'illuminèrent. Grâce à son intelligence, il avait immédiatement saisi les contours de la situation au sein de la grotte.
 
 Alors que des centaines de pensées traversaient l'esprit de Wang Lin pendant sa retraite rapide, un bruit assourdissant jaillit du brouillard noir. Dans la foulée, ce dernier s'étendit violemment vers l'extérieur.
 

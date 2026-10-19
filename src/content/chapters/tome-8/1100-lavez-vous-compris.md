@@ -12,7 +12,7 @@ Wang Lin et Maître Yi Chen restaient assis là, buvant silencieusement leurs pr
 
 « Les trois frères Chen, les trois frères Chen. Je suis désormais le seul qui reste... »
 
-Wang Lin méditait en silence tout en prenant une gorgée de vin. Il dit doucement: « À l'époque, je n'aurais pas dû vous demander de m'accompagner tous les trois... »
+Wang Lin, silencieux, prit une gorgée de vin. Il dit doucement: « À l'époque, je n'aurais pas dû vous demander de m'accompagner tous les trois... »
 
 Maître Yi Chen se tourna soudainement vers Wang Lin, le visage déformé par une expression féroce empreinte de haine. Wang Lin soutint silencieusement son regard.
 
@@ -34,7 +34,7 @@ Le corps de Maître Yi Chen trembla, ses yeux brillant d'excitation face à Wang
 
 « Après avoir emprunté cette route anormale, nous devons percer les mystères de la vie et de la mort. Nous devons comprendre notre propre fin, ainsi que celle des autres... Lorsque j'ai ramené les cendres d'un vieil ami dans sa ville natale, j'ai entendu la comptine d'un enfant. »
 
-« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. L'année dernière, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
+« "L'arbre à fleurs blanches fleurit au printemps. La fille ne sera pas prise par une famille de taoïstes. L'année dernière, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à fleurs blanches fleurit au printemps et les enfants ne devraient pas fréquenter les taoïstes. Si l'on m'interroge sur mon âge, je n'ai aucune affinité avec le Dao. Le chien aboie, le chat griffe, effrayant le taoïste jusqu'à sa demeure..." »
 
 « Cette simple comptine a su souligner la tristesse qui nous frappe, nous les cultivateurs. Maître Yi Chen, comprenez-le. Une fois que vous l'aurez compris, votre douleur s'atténuera... »
 
@@ -48,7 +48,7 @@ Le temps passa lentement. Après avoir quitté Maître Yi Chen, Wang Lin s'assit
 
 N'étant pas capable de percer les mystères de la vie et de la mort, il devait endurer plus de mille ans de douleur et de solitude. Et il allait devoir continuer d'endurer...
 
-Il luttait contre cette douleur dans son cœur tout en arpentant le vaste chemin de la culture dont on ne voyait pas la fin.
+Il luttait contre cette douleur, prenant pour âme la volonté de son cœur, tout en arpentant le vaste chemin de la culture dont on ne voyait pas la fin.
 
 Hormis les crépitements de la fumée noire s'élevant du volcan, on entendait seulement le crépitement des flammes. À part cela, tout était plongé dans un silence absolu.
 
@@ -64,7 +64,7 @@ Wang Lin n'était toujours pas parvenu à comprendre la vie et la mort.
 
 Il ressentit une immense solitude en regardant silencieusement celle qui l'avait accompagné pendant plus de mille ans. Puis, Wang Lin trouva progressivement une lueur de chaleur.
 
-Bien que cette chaleur fût infime, elle s'intégra à l'âme originelle de Wang Lin. C'était comme une illusion provenant de l'autre rive d'un fleuve qui pourrait disparaître à tout instant, mais que l'on refusait de quitter du regard, même si ce fleuve était celui de la vie et de la mort.
+Bien que cette chaleur fût infime, elle s'intégra à l'âme de Wang Lin. C'était comme une illusion provenant de l'autre rive d'un fleuve qui pourrait disparaître à tout instant, mais que l'on refusait de quitter du regard, même si ce fleuve était celui de la vie et de la mort.
 
 La femme dans le cercueil avait été le seul espoir de Wang Lin durant ses mille ans de culture. En la fixant, il semblait tout oublier.
 

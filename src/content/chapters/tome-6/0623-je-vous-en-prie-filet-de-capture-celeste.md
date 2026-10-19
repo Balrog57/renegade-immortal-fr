@@ -10,7 +10,7 @@ slug: je-vous-en-prie-filet-de-capture-celeste
 
 Toutes les créatures de nourriture céleste tremblèrent à l'apparition du qilin; c'était comme si elles venaient de rencontrer leur prédateur naturel. Elles poussèrent toutes des cris perçants et, sans la moindre hésitation, firent demi-tour pour s'enfuir.
 
-Non seulement celles dans le ciel, mais même les cultivateurs au sol commencèrent à trembler, comme s'ils enduraient une douleur atroce. Des lignes vertes apparurent sur le front des cultivateurs et se condensèrent en points sur chacune de leurs têtes.
+Non seulement celles dans le ciel, mais même les cultivateurs au sol commencèrent à trembler, comme s'ils enduraient une douleur atroce. Des lignes vertes apparurent sur le front des cultivateurs et se resserrèrent en un point au milieu du front.
 
 Voyant que ces créatures célestes étaient sur le point de s'échapper, le qilin laissa échapper un gaz invisible par ses naseaux. Ce gaz se propagea comme un rugissement et contenait une force mystérieuse. Toutes les créatures environnantes tremblèrent et n'osèrent plus tenter de fuir.
 
@@ -48,17 +48,17 @@ Cependant, à cet instant, il revoyait ce symbole par l'intermédiaire de ce vie
 
 Le regard de Wang Lin fit trembler le cœur du vieil homme. Ce regard ne lui était pas inconnu; le qilin avait eu la même expression en voyant les créatures célestes.
 
-À ce moment précis, Wang Lin libéra l'intention de combat la plus intense depuis son entrée dans la Terre des Esprits Démoniaques. Il pointa le Char de Guerre Divin et hurla: « Bête du tonnerre! »
+À ce moment précis, Wang Lin libéra l'intention de combat la plus intense depuis son entrée dans la Terre des Esprits Démoniaques. Il pointa le Char de Guerre Divin et hurla: « Bête du Tonnerre! »
 
-La foudre et le tonnerre déchirèrent soudainement le ciel pour frapper directement le char. Simultanément, la bête du tonnerre aux cornes argentées apparut sous les assauts de l'électricité.
+La foudre et le tonnerre déchirèrent soudainement le ciel pour frapper directement le char. Simultanément, la Bête du Tonnerre aux cornes argentées apparut sous les assauts de l'électricité.
 
 Dès son apparition, elle poussa un rugissement qui modifia les nuages et fit gronder le firmament. Le ciel fut instantanément envahi par la foudre.
 
-Au même moment, le qilin commença lui aussi à rugir. Bien que son cri ne fût pas aussi puissant que celui de la bête du tonnerre, il n'en demeurait pas moins redoutable. Ce rugissement fit vibrer tous les points verts des corps des cultivateurs environnants, qui furent aussitôt dévorés par le qilin.
+Au même moment, le qilin commença lui aussi à rugir. Bien que son cri ne fût pas aussi puissant que celui de la Bête du Tonnerre, il n'en demeurait pas moins redoutable. Ce rugissement fit vibrer tous les points verts des corps des cultivateurs environnants, qui furent aussitôt dévorés par le qilin.
 
 Sitôt cela fait, le symbole tracé par le pinceau s'élança vers Wang Lin.
 
-Mais à cet instant, la bête du tonnerre poussa un rugissement et fit un pas en avant. Des filaments de foudre descendirent du ciel, créant une scène incroyable de pluie électrique. Une série d'éclairs frappa directement le symbole.
+Mais à cet instant, la Bête du Tonnerre poussa un rugissement et fit un pas en avant. Des filaments de foudre descendirent du ciel, créant une scène incroyable de pluie électrique. Une série d'éclairs frappa directement le symbole.
 
 Bien que la puissance de ce symbole fût immense, il semblait que le vieil homme ne maîtrisait qu'un seul trait, ce qui l'empêchait d'en déployer toute la force. Il ne put que regarder le symbole être affaibli par les éclairs jusqu'à son effondrement!
 

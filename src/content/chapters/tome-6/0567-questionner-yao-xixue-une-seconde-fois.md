@@ -102,7 +102,7 @@ Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement
 
 Le général démon Mo Lihai, vêtu d'une chemise verte, se tenait au sommet de la porte est de la Cité du Démon Antique. Derrière lui se trouvaient le commandant en chef et les autres officiers.
 
-Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient au centre de la cité.
+Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna son regard et se retourna pour observer attentivement la ville. En un instant, il aperçut les décombres qui gisaient sur dix li au centre de la cité.
 
 Mo Lihai pensa: « Après mon départ cette fois, je ne reviendrai pas. Un autre général démon prendra la gestion de la ville; ces ruines n'auront donc plus rien à me voir! »
 

@@ -22,7 +22,7 @@ Le Grand Empyréen Wu Feng laissa poindre un éclair de froideur et déclara len
 
 Le Grand Empyréen Dao Yi sourit et envoya un message par transmission de sens divin: « Wu Feng, même nous ne pouvons forcer les Ascendants Empyréens. Tout dépend de leur propre choix. Ce n'est pas parce que tu lorgnes sur lui qu'il te suivra! »
 
-« De plus, il est sur le point de tenter le douzième palais. Une fois ce palais franchi, il sera comparable à l'Ascendant Empyréen Ming Dao. Oublie nous deux, même ce vieux Jiu Di pourrait être tenté de venir... »
+« De plus, il est sur le point de tenter le douzième palais. Une fois ce palais franchi, il sera comparable à l'Ascendant Empyréen Ming Dao. Sans parler de nous deux, même ce vieux Jiu Di pourrait être tenté de venir... »
 
 « Et il y a aussi cet Empereur Céleste. J'ignore ce qu'il a promis à l'Ascendant Empyréen Ming Dao pour parvenir à le recruter. »
 
@@ -104,9 +104,9 @@ Cette lumière émanait clairement de l'Épreuve Empyrée, mais elle semblait pe
 
 Le jeune homme en noir à ses côtés dégagea soudain une intention meurtrière terrifiante. Fixant l'illusion, ses yeux trahirent un froid monstrueux.
 
-Il comprit que Wang Lin avait franchi le douzième palais et qu'il suivrait son propre chemin passé. Wang Lin attirerait l'attention de tous, et les Grands Empyréens lutteraient pour le recruter. Il obtiendrait alors des conditions supérieures pour devenir encore plus puissant.
+Il comprit que Wang Lin avait franchi le douzième palais et qu'il suivait la même voie que lui autrefois. Wang Lin attirerait l'attention de tous, et les Grands Empyréens lutteraient pour le recruter. Il obtiendrait alors des conditions supérieures pour devenir encore plus puissant.
 
-Le fait que Wang Lin franchît le douzième palais signifiait que, dès qu'on parlerait de lui, son nom serait cité! Cela rendait naturellement très mécontent l'Ascendant Empyréen Ming Dao, qui se considérait toujours comme le numéro un des Ascendants.
+Le fait que Wang Lin franchît le douzième palais signifiait que, chaque fois qu'on évoquerait Ming Dao, le nom de Wang Lin serait cité à ses côtés! Cela rendait naturellement très mécontent l'Ascendant Empyréen Ming Dao, qui se considérait toujours comme le numéro un des Ascendants.
 
 L'Ascendant Empyréen Ming Dao médita un instant et dit: « Un simple douzième palais... quelques membres du Clan Céleste peuvent le faire. Le tuer ne prendrait toujours qu'un seul souffle! »
 

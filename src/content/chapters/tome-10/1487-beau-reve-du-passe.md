@@ -24,21 +24,21 @@ Un ancien dieu à 7 étoiles!
 
 Une ancienne déesse à 7 étoiles!
 
-Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il poursuivi le Serpent aux yeux de lune!
+Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le Maître Yi Mu avait-il reçu l'ordre de poursuivre le Serpent aux yeux de lune!
 
 Pourquoi Wang Lin avait-il vu toute sa force vitale emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
 
 Bien que Wang Lin ne sache pas tout cela, il en comprenait la majeure partie alors qu'il voyageait à travers Luotian!
 
-Après avoir examiné les souvenirs de l'ancêtre de la famille Xiang, Wang Lin avait appris que la vitalité absorbée par l'ancêtre n'était que le fruit de sa propre cupidité, dictée par sa méthode de culture. L'ancêtre n'avait pas non plus l'intention de laisser Wang Lin repartir vivant. En réalité, dès l'instant où Wang Lin entra sur la planète Dong Ling, l'ancêtre de la famille Xiang avait perçu en lui le ressentiment d'un membre de son propre clan... Après avoir savouré ce ressentiment, il sut de qui il s'agissait.
+Après avoir examiné les souvenirs de l'ancêtre de la famille Xiang, Wang Lin avait appris que la vitalité absorbée par l'ancêtre n'était que le fruit de sa propre cupidité, dictée par sa méthode de culture. L'ancêtre n'avait pas non plus l'intention de laisser Wang Lin repartir vivant. En réalité, dès l'instant où Wang Lin entra sur la planète Dong Lin, l'ancêtre de la famille Xiang avait perçu en lui le ressentiment d'un membre de son propre clan... Après avoir savouré ce ressentiment, il sut de qui il s'agissait.
 
 Même sans ce ressentiment, l'ancêtre de la famille Xiang aurait tout de même absorbé la vitalité de Wang Lin. Bien que Wang Lin ne fût pas fusionné avec son corps original à cette époque, la puissante vitalité révélée par le lien avec son corps originel avait fait naître chez l'ancêtre une soif insatiable.
 
-Cependant, alors qu'il absorbait la vitalité de Wang Lin et s'apprêtait à le tuer, un ordre tomba de la famille antique Dong Ling. L'ancêtre n'osa désobéir et renonça à l'idée de tuer Wang Lin. Il se contenta d'absorber une grande quantité de la force vitale d'ancien dieu provenant du corps original de Wang Lin.
+Cependant, alors qu'il absorbait la vitalité de Wang Lin et s'apprêtait à le tuer, un ordre tomba de la famille antique Dong Lin. L'ancêtre n'osa désobéir et renonça à l'idée de tuer Wang Lin. Il se contenta d'absorber une grande quantité de la force vitale d'ancien dieu provenant du corps original de Wang Lin.
 
 Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille Xiang. En mettant cela en lien avec les actions du Maître Yi Mu, il put spéculer sur plusieurs points.
 
-« La famille antique Dong Ling... » Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon.
+« La famille antique Dong Lin... » Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon.
 
 « Au sein de cette famille... se cache un ancien dieu! Je ne sais juste pas si cet ancien dieu était originellement tel quel ou s'il est quelqu'un ayant obtenu un héritage, comme moi... » Wang Lin médita silencieusement un long moment avant de détourner le regard et de reprendre sa marche.
 
@@ -48,9 +48,9 @@ Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille 
 
 « Le Dieu de Sang m'a poursuivi autrefois. Si ce n'était pas pour le Frère Qing Shui, mon avatar serait mort. Comment pourrais-je oublier? De plus, le Dieu de Sang possède un ancien démon en lui... Mon avatar de démon antique a besoin de puissance de démon antique à présent... Par ailleurs, bien que je n'aie pas fait de promesse à cette fille de la famille Yao, j'en ai fait une dans son rêve, ce qui a laissé derrière elle du karma... Il est temps que je m'occupe de cela. » Wang Lin disparut au loin.
 
-La planète Dong Ling était brisée et toutes les familles de la planète s'étaient effondrées. Les échos des combats sur Dong Ling se propagèrent, et la nouvelle fut rapidement connue des cultivateurs de Luotian.
+La planète Dong Lin était brisée et toutes les familles de la planète s'étaient effondrées. Les échos des combats sur Dong Lin se propagèrent, et la nouvelle fut rapidement connue des cultivateurs de Luotian.
 
-La planète Dong Ling était la plus féroce de Luotian. Son effondrement et sa destruction suffirent à choquer l'ensemble de Luotian.
+La planète Dong Lin était la plus féroce de Luotian. Son effondrement et sa destruction suffirent à choquer l'ensemble de Luotian.
 
 À ce moment-là, dans la partie sud de Luotian, un groupe de cent cultivateurs avançait silencieusement. Une femme faisait partie de ce groupe.
 
@@ -66,7 +66,7 @@ Ces cicatrices ne pouvaient être effacées par des sorts ordinaires. Elle les a
 
 Son niveau de culture n'était pas très élevé, seulement Corporel Yang. Pourtant, son corps dégageait un profond sentiment d'épuisement et de confusion.
 
-Presque tous les membres de sa famille étaient morts lors de la guerre contre l'Alliance. Même l'ancêtre qu'elle aimait le plus avait été gravement blessé durant le conflit avant de périr pour la sauver, sur la terre des dieux anciens de la planète Suzaku de l'Alliance. Toute sa lignée s'était éteinte.
+Presque tous les membres de sa famille étaient morts lors de la guerre contre l'Alliance. Même l'ancêtre qu'elle aimait le plus avait été gravement blessé durant le conflit avant de périr pour la sauver, sur la terre des dieux anciens de la planète Suzaku de l'Alliance. Il ne restait plus que quelques survivants de sa lignée.
 
 Après la guerre, elle était retournée à Luotian, épuisée et blessée, pour découvrir que sa famille n'existait plus. Elle avait versé des larmes devant les ruines du foyer familial avant de partir en silence. Elle avait cultivé seule, errante et sans abri.
 

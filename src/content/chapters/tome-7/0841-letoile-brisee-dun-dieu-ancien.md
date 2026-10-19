@@ -18,7 +18,7 @@ Ce souvenir remontait à une époque si lointaine qu'il était extrêmement flou
 
 À cet instant précis, il ressentait à nouveau le péril. Bien que bien plus faible qu'autrefois, cela le rendait prudent.
 
-Ses nombreux tentacules s'agitèrent alors que le Serpent aux yeux de lune poussait un rugissement. C'était comme si le monde lui-même se déchirait en deux; un son plus féroce que n'importe quel tonnerre, capable de fendre les cieux!
+Ses nombreux tentacules s'agitèrent alors que le Serpent aux yeux de lune poussait un rugissement. C'était comme le son primordial de la création du monde; un son plus féroce que n'importe quel tonnerre, capable de fendre les cieux!
 
 Ce son ne s'était pas manifesté lors des deux précédentes colères du serpent. Lorsqu'il affrontait de faibles cultivateurs, il n'en avait nul besoin; il se contentait de les massacrer. Cependant, dans sa rage actuelle, c'était le danger qu'il ressentait qui l'incitait à déployer sa véritable puissance!
 
@@ -34,7 +34,7 @@ Pas moins de dix mille de ces dragons rugissants s'élancèrent, prenant l'ancê
 
 Lie Yunzi, de la famille Zhan, était tel un spectre blanc; sa vitesse était proprement phénoménale. Armé d'une épée d'argent, son arme perçait le corps du serpent en un éclair, brillant d'un éclat si intense qu'il aurait pu aveugler n'importe quel cultivateur. L'épée d'argent s'étendait jusqu'à transpercer l'autre côté de la créature!
 
-C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système Stellaire de Luotian: le Sort Céleste du Mouvement du Cœur! Tant que sa volonté le dictait, rien ne pouvait l'arrêter!
+C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système Stellaire de Luotian: le Sort Céleste du Mouvement du Cœur! Là où son cœur se porte, nul obstacle!
 
 Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux de 330 mètres qui chargea le Serpent aux yeux de lune.
 
@@ -44,7 +44,7 @@ Des grondements incessants résonnaient dans l'intérieur du Serpent aux yeux de
 
 La main de Maître Yan Leizi traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles!
 
-Pour cette opération, presque tout le Domaine Nord avait été évacué et entièrement occupé par le Temple Céleste du Tonnerre pendant plusieurs mois. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
+Pour cette opération, tout le Domaine Nord avait été évacué et entièrement occupé par le Temple Céleste du Tonnerre pendant plusieurs mois. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
 
 Le rugissement du serpent devint plus intense encore. Les impacts internes et externes lui infligeaient une douleur si aiguë qu'ils le rendaient presque fou. Cela faisait une éternité qu'il n'avait pas souffert ainsi. Hormis cette voix dans sa mémoire, il n'avait jamais connu une telle agonie!
 

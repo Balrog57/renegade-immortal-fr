@@ -22,7 +22,7 @@ En observant l'os dans sa main, bien qu'il ne soit pas encore noir, il était d�
 
 « Cet os de bête a manifestement été raffiné plusieurs fois par d'autres, mais ils ont tous échoué; sinon, cet os aurait disparu... Plutôt que de dire que les herbes ou les âmes de bêtes sont rares, c'est cet os qui est étrange! »
 
-« Je ne sais juste pas à quelle bête appartient cet os... Cependant, même s'il n'y a qu'une chance sur 1 % que l'effet de cette pilule soit réel, je dois essayer! » Wang Lin tint l'os et l'étudia attentivement un instant avant de réfléchir puis de le ranger.
+« Je ne sais juste pas à quelle bête appartient cet os... Cependant, même s'il n'y a qu'une infime chance que l'effet de cette pilule soit réel, je dois essayer! » Wang Lin tint l'os et l'étudia attentivement un instant avant de réfléchir puis de le ranger.
 
 Un autre objet apparut dans sa main: la pierre de jade qui accompagnait l'os. Après l'avoir scannée avec son Sens Divin, son expression devint étrange. Wang Lin ouvrit à nouveau son espace de stockage et sortit l'âme originelle de la Vieille Femme Poisonneuse.
 
@@ -96,7 +96,7 @@ C'était comme s'il s'était transformé en la bête elle-même, comprenant prog
 
 Après un temps indéterminé, alors qu'il ne lui restait plus que la pilule de rang 8, il émergea de son étrange état. Il regarda devant lui d'un air absent et murmura:
 
-« Confirmer sa Voie par la force d'un seul individu, c'est un point. La confirmer par la force de nombreuses personnes, c'est un plan. Les pilules de la Mer des Nuages ne sont pas une fortune, elles offrent simplement aux cultivateurs la chance de chercher la Voie encore et encore... Elles utilisent les âmes de bêtes comme un autre moyen d'explorer la Voie... d'explorer les lois du monde... Contrairement aux deux autres systèmes stellaires, le Système Stellaire de la Mer des Nuages a réussi à raccourcir le processus d'illumination... »
+« Confirmer sa Voie par la force d'un seul individu, c'est un point. La confirmer par la force de nombreuses personnes, c'est un plan. Les pilules de la Mer des Nuages ne sont pas une fortune, elles offrent simplement aux cultivateurs la chance de chercher la Voie encore et encore... Elles utilisent les âmes de bêtes comme un autre moyen d'explorer la Voie... d'explorer les lois du monde... Contrairement aux Royaumes Célestes du Tonnerre et de la Pluie, le Système Stellaire de la Mer des Nuages a réussi à raccourcir le processus d'illumination... »
 
 « Cependant, les bêtes restent des bêtes. Leur façon de comprendre la Voie n'est pas directe et on ne peut pas remonter clairement jusqu'à l'origine, à moins que... nous ne raffinions une pilule avec l'âme d'un être humain ou l'âme de quelque chose ayant transcendé sa nature animale. Ce n'est qu'alors que l'illumination serait plus claire. Sinon, il faut avaler de grandes quantités de pilules pour trouver la Voie juste qui permettra de confirmer la sienne. »
 

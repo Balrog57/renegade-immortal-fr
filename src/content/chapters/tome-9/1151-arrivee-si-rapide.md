@@ -10,7 +10,7 @@ Wang Lin séjournait sur ce continent sauvage depuis un certain temps déjà. Co
 
 Bien qu'il ne craignît pas la Secte du Dao Pourpre, s'il n'était pas là, la Secte de l'Origine serait anéantie avec sa force actuelle. Si cela s'était produit dans le passé, Wang Lin ne s'en serait pas soucié, mais puisqu'il avait tué des membres de la Secte du Dao Pourpre, il était désormais impliqué dans cette affaire.
 
-De plus, cette cultivatrice rusée, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte du Dao Pourpre.
+De plus, cette cultivatrice astucieuse, Lu Yanfei, lui avait respectueusement offert une identité. Il y avait également l'indice incomplet de l'Extrême Yin qu'il devait obtenir auprès des membres de la Secte du Dao Pourpre.
 
 Par conséquent, Wang Lin décida d'agir avec arrogance pour une fois et utilisa le singe noir qu'il venait de dompter pour se précipiter dans le nid de ces bêtes féroces afin de leur voler leurs herbes par la force.
 
@@ -50,7 +50,7 @@ Un sourire apparut sur les lèvres de Wang Lin alors que sa main droite plongeai
 
 En un instant, une tempête d'un jaune terreux jaillit du corps du singe noir et monta droit vers le ciel. Le corps du singe trembla et ses yeux se remplirent de joie. Sa vitesse augmenta soudainement; d'un seul pas, il distança l'armée de bêtes et se retrouva loin devant elle.
 
-Cependant, il ne s'enfuit pas immédiatement; il poussa un rugissement face à la horde. Puis, il chargea au milieu d'elles, se frayant un chemin par ses coups de poing et de pieds avant de resurgir de l'autre côté.
+Cependant, il ne s'enfuit pas immédiatement; il poussa un rugissement face à la horde. Puis, il chargea au milieu d'elles, se frayant un chemin à coups de poing et de pied, comme s'il entrait et sortait sept fois de la mêlée, avant de resurgir de l'autre côté.
 
 Les bêtes rugirent toutes, devenant plus enragées encore.
 
@@ -84,7 +84,7 @@ Le temps passa rapidement. Alors que le singe noir traversait la vallée, l'arm�
 
 La voix avait manifestement aperçu l'armée interminable de bêtes féroces qui pourchassait le singe noir!
 
-À ce moment-là, le Sens Divin de Wang Lin perceba également les huit crânes géants à l'entrée de la vallée, qui absorbaient les âmes des morts pour les convertir en attaques.
+À ce moment-là, le Sens Divin de Wang Lin perçut également, à 10 000 pieds, les huit crânes géants à l'entrée de la vallée, qui absorbaient les âmes des morts pour les convertir en attaques.
 
 Il vit aussi une vieille femme décrépite debout sur l'un des crânes!
 
@@ -116,4 +116,4 @@ La troisième scintilla de sept couleurs avant de se transformer en une statue h
 
 Dès l'apparition du sceau, celui-ci chargea Wang Lin. S'il touchait son corps, outre la transformation de sa chair en sang, même son Âme Originelle mourrait instantanément sous l'effet du poison!
 
-La vieille femme était d'une cruauté extrême. Afin de s'approprier la pierre de jade et la recette de la pilule du Nirvana Vide, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.
+La vieille femme était d'une cruauté extrême. Afin de s'approprier le jade et la recette de la pilule du Nirvana Vide, elle avait utilisé son sort le plus dévastateur pour éliminer Wang Lin. Craignant qu'il n'esquive ses attaques, elle agita sa manche et un petit serpent apparut tel un éclair. Ce petit serpent était sa bête liée à sa vie; il était entièrement noir, coiffé d'une petite crête ressemblant à celle d'un coq. Dès son apparition, une odeur fétide emplit l'air.

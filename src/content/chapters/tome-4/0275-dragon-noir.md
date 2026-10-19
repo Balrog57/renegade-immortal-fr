@@ -38,11 +38,11 @@ Les quatre levèrent la tête pour contempler les tours de glace en descente. L'
 
 En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Papillon Rouge, de Xue Yu? »
 
-Papillon Rouge, le génie de Xue Yu qui avait captivé l'attention de Suzaku, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
+Papillon Rouge, le génie de Xue Yu que Suzaku cherchait à recruter, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
 Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit de Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
-Le sourcil de Zhou Yun se fronça. Cette femme avait répondu à sa question par une autre interrogation. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
+Le sourcil de Zhou Yun se fronça. Cette femme n'avait pas répondu à sa question. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
 
 Ce geste n'était pas seulement le signal du début des hostilités, mais aussi l'ordre donné aux membres de l'Alliance des Quatre Sectes d'entamer la seconde phase de leur plan.
 
@@ -84,7 +84,7 @@ Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail.
 
 Parmi les neuf figures, cinq se trouvaient au stade avancé de la Formation de l'Âme, tandis que les quatre autres maîtrisaient des domaines spéciaux. Personne ne pouvait survivre à une telle attaque, à moins d'avoir atteint le stade de la Transformation de l'Âme.
 
-Sous l'assaut combiné des domaines, la femme n'eut aucun moyen de résister et fut transformée en un cadavre ensanglanté. L'éventail, qui n'avait plus que deux plumes, fut saisi par un cultivateur au stade avancé de la Formation de l'Âme avant que les neuf silhouettes ne se muent en points lumineux et ne disparaissent.
+Sous l'assaut combiné des domaines, la femme n'eut aucun moyen de résister et son corps se transforma en un brouillard de sang. L'éventail, qui n'avait plus que deux plumes, fut saisi par un cultivateur au stade avancé de la Formation de l'Âme avant que les neuf silhouettes ne se muent en points lumineux et ne disparaissent.
 
 Les neuf assaillants avaient subi de lourds dégâts causés par l'éventail; leur niveau de culture avait été considérablement amoindri et il leur faudrait un temps considérable pour s'en remettre.
 

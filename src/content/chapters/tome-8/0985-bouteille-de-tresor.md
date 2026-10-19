@@ -104,7 +104,7 @@ L'expression de Wang Lin resta neutre, mais il fut secrètement bouleversé. Il 
 
 Il avait obtenu l'héritage des connaissances de Tu Si, et pourtant, rien dans les souvenirs de ce dernier ne mentionnait d'interactions avec des mortels. Rien ne pouvait expliquer ce qu'elle venait de dire.
 
-« Rêver d'un dieu ancien est trop absurde. » Wang Lin détourna le regard pour continuer à contempler l'horizon. Après un long moment, il déclara froidement: « Le lever du soleil est passé et j'ai répondu à ta question. Tu peux partir. Je vais rester ici pour une phase de compréhension, et je ne souhaite pas être dérangé. »
+« Rêver d'un Ancien Dieu est trop absurde. » Wang Lin détourna le regard pour continuer à contempler l'horizon. Après un long moment, il déclara froidement: « Le lever du soleil est passé et j'ai répondu à ta question. Tu peux partir. Je vais rester ici pour approfondir quelques intuitions, et je ne souhaite pas être dérangé. »
 
 Le visage de Ling Er devint instantanément livide; elle recula de quelques pas en fixant Wang Lin. Elle savait qu'il ne la croyait pas.
 

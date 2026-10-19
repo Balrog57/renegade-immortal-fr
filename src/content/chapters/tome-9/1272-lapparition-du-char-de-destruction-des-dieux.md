@@ -42,7 +42,7 @@ Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des con
 
 « Dix millions d'épées condensées en un seul doigt est la première contre-attaque que j'ai préparée contre ce cultivateur de la troisième étape qui veut me tuer! Cent continents sauvages fusionnés avec les trois grandes restrictions constituent la deuxième! »
 
-« Les innombrables tatouages du Clan du Tatouage, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque! » Les innombrables cristaux originels qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
+« Les innombrables tatouages du Clan du Tatouage, formés par d'innombrables bêtes féroces capables de détruire le monde, seront la troisième contre-attaque! » Les innombrables cristaux d'origine qui s'entassaient autour de Wang Lin s'effondrèrent et se dissipèrent, l'énergie originelle qu'ils contenaient ayant été drainée.
 
 « Même des êtres au stade du Fléau Céleste mourraient sans aucun doute s'ils étaient frappés par ces trois mouvements mortels! Mais ceci n'est pas la limite de mes 2 000 ans de culture! » Wang Lin avait tout donné pour cette bataille. Il prit une profonde inspiration, tendit la main et ouvrit son espace de stockage. Un éclair de tonnerre s'en échappa.
 
@@ -60,9 +60,9 @@ Une rafale de vent sortit de sa bouche et frappa la bête de tonnerre. La créat
 
 La bête de tonnerre poussa un cri de douleur tandis que son corps s'étendait rapidement. Les sceaux sur sa carcasse s'effondrèrent à un rythme effréné jusqu'à ce qu'ils fussent tous levés!
 
-Le Char de Guerre Divin, qui n'avait pu assaillir le Royaume Céleste avant de s'effondrer, se révélait une fois de plus au monde!
+Le Char de Guerre Divin, qui n'avait jamais fait parler de lui dans le Royaume Céleste et avait été englouti avec son effondrement, se révélait une fois de plus au monde!
 
-À mesure que la bête de tonnerre grandissait, elle atteignit des dizaines de milliers de pieds de haut. Son corps changea radicalement: sa moitié inférieure devint un gigantesque char de guerre! Sa partie supérieure se métamorphosa également pour devenir une lance colossale. Cette lance, reliée au char, dégageait un tonnerre incessant lorsqu'elle apparut devant Wang Lin!
+À mesure que la bête de tonnerre grandissait, elle atteignit des dizaines de milliers de pieds de haut. Son corps changea radicalement: sa moitié inférieure devint un gigantesque char de guerre! Sa partie supérieure se métamorphosa également pour devenir une lance colossale, longue d'environ 100 000 pieds. Cette lance, reliée au char, dégageait un tonnerre incessant lorsqu'elle apparut devant Wang Lin!
 
 Une aura capable d'ébranler les cieux explosa du char et frappa le corps de Wang Lin, lui coupant presque le souffle! Même la terre commença à trembler, et les cent continents sauvages couverts par les trois grandes restrictions furent secoués.
 
@@ -76,13 +76,13 @@ En un instant, le papillon trembla, ses ailes semblant s'immobiliser. Puis, un g
 
 Ce cocon ressemblait à celui qui l'avait transformé en papillon. Dès son apparition, une énergie originelle infinie commença à s'accumuler. Même l'énergie originelle de Wang Lin fut rapidement aspirée. À mesure qu'il absorbait cette force, le cocon grandissait jusqu'à atteindre 10 000 pieds de haut.
 
-Wang Lin ferma les yeux et continua de sortir des cristaux originels pour nourrir le cocon. Bientôt, la taille du cocon se stabilisa, mais l'aura à l'intérieur devint plus féroce encore.
+Wang Lin ferma les yeux et continua de sortir des cristaux d'origine pour nourrir le cocon. Bientôt, la taille du cocon se stabilisa, mais l'aura à l'intérieur devint plus féroce encore.
 
 Le temps passa lentement, une journée entière s'écoula!
 
 Soudain, le cocon qui flottait là disparut dans un effondrement violent, créant une déflagration puissante qui repoussa tout sur son passage. Même Wang Lin fut projeté en arrière de plus de 10 000 pieds, mais ses yeux brillaient d'extase.
 
-De l'effondrement du cocon surgit un char de guerre aux sept couleurs, large de plusieurs milliers de pieds! Ce char n'avait pas de lance, mais possédait sept épines terrifiantes. En absorbant l'énergie originelle, ces épines dégageaient une lueur arc-en-ciel.
+De l'effondrement du cocon surgit un char de guerre aux sept couleurs, large de plusieurs milliers de pieds! Ce char n'avait pas de lance, mais possédait sept épines terrifiantes, longues d'environ mille pieds chacune. En absorbant l'énergie originelle, ces épines dégageaient une lueur arc-en-ciel.
 
 Il atterrit soudainement et, alors que Wang Lin bougeait, les deux chars de guerre se positionnèrent à sa gauche et à sa droite!
 
@@ -92,7 +92,7 @@ Il ne restait que 12 heures!
 
 Il prédisait que dans 12 heures, l'ennemi qui cherchait sa mort arriverait, et la crise de vie ou de mort commencerait!
 
-« Ma dernière préparation consistera à extraire la rouille de l'épée de fer brisée durant ces 12 prochaines heures! » Wang Lin agita la main droite et l'épée de fer s'envola.
+« Ma dernière préparation consistera à extraire la rouille de sang de l'épée de fer brisée durant ces 12 prochaines heures! » Wang Lin agita la main droite et l'épée de fer s'envola.
 
 Même réparée, cette épée ne suffirait pas à contrer cette crise, et Wang Lin n'avait nullement l'intention de la restaurer; il était trop tard pour cela. Ce qu'il convoitait, c'étaient les taches de sang sur le fer!
 

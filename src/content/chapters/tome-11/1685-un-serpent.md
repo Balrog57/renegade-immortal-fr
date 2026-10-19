@@ -14,15 +14,15 @@ Un dragon rouge était enroulé sur la plateforme. Ce dragon n'était pas de tai
 
 « Le Dragon Céleste est puissant... Le Dragon Céleste révèle le Dao... » Les rugissements des cultivateurs rendaient le dragon encore plus satisfait.
 
-« Hmph, si je n'avais pas été piégé dans cet endroit maudit pendant tant d'années, ce vieux dragon aurait pu mener une vie plus belle dans le monde des grottes qu'ici dehors. Cet oiseau Vermillon maudit, ce Souverain Céleste maudit et ce Souverain maudit... Heureusement, je me suis échappé. Voici désormais ma vie idéale... Comme cette existence est merveilleuse... Je ne peux m'empêcher de penser à mon pays natal et d'en chanter les louanges... » Le dragon rouge paraissait très fier. Sa griffe brisa un nouveau morceau de pierre spirituelle qu'il projeta dans sa gueule.
+« Hmph, si je n'avais pas été piégé dans cet endroit maudit pendant tant d'années, ce vieux dragon aurait pu mener une vie plus belle dans le monde des grottes qu'ici dehors. Cet oiseau Vermillon maudit, ce Souverain Céleste maudit et ce Souverain maudit... Heureusement, je me suis échappé. Voici désormais ma vie idéale... Comme cette existence est merveilleuse... Je ne peux m'empêcher de penser à la musique de mon pays natal et de la chanter à tue-tête... » Le dragon rouge paraissait très fier. Sa griffe brisa un nouveau morceau de pierre spirituelle qu'il projeta dans sa gueule.
 
 « Deux petites filles-dragons sous la Montagne des Neiges Volantes, connaissez-vous l'ardeur de mes sentiments pour vous? Vos longues moustaches, vos corps merveilleux et vos yeux séduisants... » Le dragon rouge semblait transporté par une joie excessive et se mit à fredonner.
 
-Simultanément, sa queue battait la pierre spirituelle en rythme. Le millier de cultivateurs et plus qui l'entouraient ne pouvaient que contempler le dragon avec impuissance. Pour eux, sa voix était trop mélodieuse et dépourvue de tout goût. Chaque fois qu'il chantait ainsi, ils n'avaient d'autre choix que de rugir bruyamment pour couvrir son chant terrifiant.
+Simultanément, sa queue battait la pierre spirituelle en rythme. Le millier de cultivateurs et plus qui l'entouraient ne pouvaient que contempler le dragon avec impuissance. Pour eux, sa voix était trop lugubre et n'avait rien d'agréable. Chaque fois qu'il chantait ainsi, ils n'avaient d'autre choix que de rugir bruyamment pour couvrir son chant terrifiant.
 
 « Le Dragon Céleste révèle le Dao... Le Dragon Céleste est puissant... »
 
-Ce dragon rouge était le dragon de feu qui avait failli être vidé de son sang par la deuxième génération de l'Oiseau Vermillon dans la Terre Déchue. Cette deuxième génération avait confié le dragon à Wang Lin, mais celui-ci s'était échappé. Compte tenu de l'ouverture de l'ancienne tombe, Wang Lin ne s'était pas soucié de ce dragon.
+Ce dragon rouge était le dragon de feu qui avait failli être vidé de son sang par la deuxième génération de l'Oiseau Vermillon dans la Terre Déchue. Cette deuxième génération avait confié le dragon à Wang Lin, mais le dragon s'était échappé. Compte tenu de l'ouverture de l'ancienne tombe, Wang Lin ne s'était pas soucié de ce dragon.
 
 Désormais, des centaines d'années s'étaient écoulées. Juste au moment où Wang Lin allait totalement oublier cette affaire, ce pitoyable dragon de feu réapparut dans son Sens Divin.
 

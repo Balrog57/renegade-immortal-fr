@@ -84,7 +84,7 @@ L'expression de Wang Lin resta impassible, mais son esprit était en plein choc.
 
 « La bataille fut d'une intensité rare. Finalement, mon clan céleste l'emporta et dispersa ce clan du Tatouage. Nous avons même transformé une grande partie d'entre eux en esclaves! Cependant, les quatre Royaumes Célestes subirent des dommages encore plus lourds... Après cela, nous découvrîmes que ce clan du Tatouage provenait du vide situé sous l'espace! Qui est ici même! » Qing Shui pointa le sol sous ses pieds.
 
-Wang Lin eut un haut-le-cœur et ses yeux brillèrent. Il avait souvent croisé le Clan des Immortels Élus, mais il ne s'attendait pas à ce que leur origine soit le vide!
+Wang Lin eut un sursaut et ses yeux brillèrent. Il avait souvent croisé le Clan des Immortels Élus, mais il ne s'attendait pas à ce que leur origine soit le vide!
 
 En pensant au vieil homme et au jeune homme, une idée jaillit soudainement dans l'esprit de Wang Lin.
 
@@ -106,7 +106,7 @@ Wang Lin soutint Qing Shui tout en continuant de progresser dans le vide. Le fra
 
 Soutenant Qing Shui, Wang Lin suivit le fragment céleste. Au neuvième jour, Qing Shui était extrêmement faible. Il observa le vide et le fragment dérivant avant de dire: « Une fois que j'aurai extrait les souvenirs de l'âme originelle de Xuan Bao, tu devras conserver cette âme. Elle contient une immense quantité d'énergie d'origine céleste, elle te sera d'une grande utilité! »
 
-« Ton attitude est très semblable à la mienne autrefois... J'espère que tu en prendras plus soin que moi, car je n'ai plus ni les capacités, ni les proches pour le faire... » Qing Shui regarda Wang Lin comme s'il contemplait son propre passé.
+« Ton attitude est très semblable à la mienne autrefois... J'espère que tu en prendras plus soin que moi, car je n'ai plus le droit de chérir, ni personne à chérir... » Qing Shui regarda Wang Lin comme s'il contemplait son propre passé.
 
 La même froideur, la même cruauté et la même solitude.
 

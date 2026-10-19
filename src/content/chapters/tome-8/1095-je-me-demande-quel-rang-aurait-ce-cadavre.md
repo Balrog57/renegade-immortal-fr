@@ -68,7 +68,7 @@ En un instant, la vitesse de Lie Yunzi fut multipliée et il disparut sans laiss
 
 Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divines à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
 
-Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
+Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière glaciale jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
 
 L'expression de Lie Yunzi changea radicalement; il voulut esquiver, mais son niveau de culture ne lui permit pas d'échapper à l'attaque imminente. Le rayon perça sa poitrine.
 
@@ -82,7 +82,7 @@ Dès qu'elle fut formée, Lie Yunzi hurla: « Explose! »
 
 La sphère explosa soudainement, l'onde de choc venant heurter le rayon lumineux. Profitant de ce chaos, Lie Yunzi était prêt à consumer l'essence même de son âme originelle pour s'échapper.
 
-Cependant, une traînée rouge commença à se propager de sa poitrine à travers tout son corps. Un sourire qui n'en était pas un étira les lèvres de Lie Yunzi, mais ses yeux étaient emplis de terreur.
+Cependant, dans son âme originelle, un fin fil rouge commença à se propager de sa poitrine à travers tout son corps. Un sourire qui n'en était pas un étira les lèvres de Lie Yunzi, mais ses yeux étaient emplis de terreur.
 
 « Du poison! C'est le poison de la Secte des Cadavres! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
 
@@ -102,7 +102,7 @@ Les yeux de la belle femme s'illuminèrent. Elle était très intriguée par ce 
 
 Comme pour le tenter, elle entrouvrit ses lèvres dans un sourire provocateur: « Puisque l'Empereur Divin le demande, cette humble femme vous répondra avec plaisir. Le cadavre de rang 1 doit être le Cadavre Inversé Bizarre des Cinq Éléments. » Elle expliqua la chose d'un air de séduction.
 
-« Ce Cadavre Inversé Bizarre des Cinq Éléments n'est pas un cadavre ordinaire. Il est formé naturellement par les cieux selon des conditions exceptionnelles. Ce corps est composé des cinq éléments, mais il existe également cinq éléments à l'extérieur du corps. Cela provoque une altération étrange des lois naturelles. »
+« Ce Cadavre Inversé Bizarre des Cinq Éléments n'est pas un véritable cadavre. Il est formé naturellement par les cieux selon des conditions exceptionnelles. Ce corps est composé des cinq éléments, mais il existe également cinq éléments à l'extérieur du corps. Cela provoque une altération étrange des lois naturelles. »
 
 Wang Lin acquiesça.
 

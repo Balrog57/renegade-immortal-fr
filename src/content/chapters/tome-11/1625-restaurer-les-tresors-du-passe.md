@@ -8,7 +8,7 @@ slug: restaurer-les-tresors-du-passe
 ---
 Wang Lin absorba la puissance de la Porte du Vide à l'intérieur du vortex. Tandis qu'il le faisait, son essence de massacre fusionna complètement avec son corps.
 
-Au moment où la fusion fut achevée, le niveau de culture de Wang Lin passa du stade initial de l'Esprit du Vide au stade intermédiaire de l'Esprit du Vide!
+Au moment où la fusion fut achevée, le niveau de culture de Wang Lin passa du stade initial du Vide Spirituel au stade intermédiaire du Vide Spirituel!
 
 Une fois ce palier atteint, Wang Lin pointa le vortex du doigt. La puissance de la Porte du Vide se précipita vers sa main. Le tonnerre gronda et les éclairs jaillirent de toutes parts, faisant apparaître une épée de tonnerre dans sa main.
 
@@ -26,7 +26,7 @@ La cinquième était l'épée du vrai et du faux, mais la puissance à l'intéri
 
 Les yeux de Wang Lin s'illuminèrent. Il savait qu'une fois le vortex disparu, la rétribution divine à laquelle il ferait face serait la plus puissante de sa vie!
 
-Cependant, Wang Lin n'avait aucune crainte. Son regard était calme lorsqu'il fit un pas en avant, les bras tendus. Il s'efforça d'écarter le vortex en pleine dissipation.
+Cependant, Wang Lin n'avait aucune crainte. Son regard était calme lorsqu'il fit un pas en avant, les bras tendus. Il s'efforça de déchirer le vortex en pleine dissipation.
 
 Cette déchirure fit trembler le vortex, libérant encore plus de puissance de la Porte du Vide.
 
@@ -40,7 +40,7 @@ Il savait toutefois que ce pouvoir mystérieux de la Porte du Vide était extrê
 
 Cette aura pouvait même réparer des trésors. Cela se voyait bien au fait qu'elle puisse engendrer des trésors d'essence.
 
-Il leva la tête. Au moment où le vortex allait disparaître, Wang Lin le pointa du doigt. Il utilisa le sort « Arrêt » avec sa culture de stade intermédiaire de l'Esprit du Vide et poussa un rugissement calme.
+Il leva la tête. Au moment où le vortex allait disparaître, Wang Lin le pointa du doigt. Il utilisa le sort « Arrêt » avec sa culture de stade intermédiaire du Vide Spirituel et lança d'une voix basse et calme :
 
 « Arrête! »
 
@@ -106,7 +106,7 @@ Alors que les grondements résonnaient, le vortex se déforma. Wang Lin ouvrit l
 
 Grâce à cet afflux, le Bouclier de Lumière Azur absorba suffisamment d'énergie pour retrouver sa forme originelle!
 
-Excité, Wang Lin agita la main droite et le gantelet divin antique apparut. Après avoir absorbé le reste de la puissance de la Porte du Vide, il fut également restauré!
+Excité, Wang Lin agita la main droite et un fragment du gantelet de l'Ancien Dieu apparut. Après avoir absorbé le reste de la puissance de la Porte du Vide, il fut également restauré!
 
 Tout en riant, Wang Lin leva la main droite et projeta un coup de poing vers le vortex. Le vortex s'effondra dans un fracas assourdissant, mais une volonté d'une puissance indescriptible s'en échappa.
 

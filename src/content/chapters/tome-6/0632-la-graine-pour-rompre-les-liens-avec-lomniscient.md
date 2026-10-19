@@ -108,13 +108,13 @@ La capacité de décision de Wang Lin était un trait qui ne pouvait être compa
 
 En volant, Wang Lin laissa échapper un long soupir.
 
-« L'Omniscient vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma culture du domaine de la vie et de la mort sur Suzaku qu'il avait décidé de faire de moi son disciple! »
+« L'Omniscient vêtu de gris avait prétendu m'enseigner l'Art du Massacre Céleste en raison de mon domaine... À l'époque, je n'y avais pas prêté attention. Mais avec le recul, je crains que ce ne soit parce qu'il avait vu ma culture du domaine de la vie et de la mort sur Suzaku, lors de ma Formation de l'Âme, qu'il avait décidé de faire de moi son disciple! »
 
 Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son regard était d'une clarté absolue. Il se téléporta et disparut.
 
 « Je suis un peu paranoïaque à ce sujet, je ne peux donc pas porter de jugement définitif. L'Omniscient a été bienveillant envers moi, et c'était mon propre choix d'apprendre l'Art du Massacre Céleste, mais il semblait m'y pousser... Je devrai observer cela avec prudence à l'avenir. Cependant, l'Omniscient est trop puissant. Si je ne possède pas la force nécessaire, je ne peux pas lui laisser deviner que je suis au courant de tout cela... Quant à l'Art du Massacre Céleste, je devrai l'étudier minutieusement pour y trouver une faille! »
 
-Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays des Démons de Feu pendant plusieurs jours. Il ne plaça aucune restriction ou sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
+Wang Lin resta à la sortie de l'Abîme des Marées dans le Pays des Démons de Feu pendant plusieurs jours. Il ne plaça aucune formation ni sceau puissant. Au contraire, il fit l'inverse en laissant quelques restrictions simples mais extrêmement bien dissimulées.
 
 Ces restrictions n'avaient aucun pouvoir offensif, mais elles pouvaient servir à traquer autrui. Si quelqu'un en sortait, la restriction laisserait une empreinte sur lui que Wang Lin pourrait détecter. À moins d'un niveau de culture extrêmement élevé, il serait impossible pour quiconque de repérer cette trace.
 

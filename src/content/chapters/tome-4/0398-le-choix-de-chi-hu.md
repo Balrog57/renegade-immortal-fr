@@ -40,7 +40,7 @@ L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis Tian M
 
 Le regard de Wang Lin était glacial. Il fixa l'ancien et dit: « Tu n'en es pas digne! » Sur ce, il se tourna de nouveau vers Chi Hu pour attendre sa réponse.
 
-Le visage du vieil homme passa du vert au rouge sous le regard de Wang Lin. Après un rire nerveux, ses yeux devinrent glacials et il fit un pas en avant. Une hache gigantesque apparut dans sa main et il chargea Wang Lin dans un rugissement.
+Le visage du vieil homme passa du vert au rouge sous le regard de Wang Lin. Après un grand éclat de rire, ses yeux devinrent glacials et il fit un pas en avant. Une hache gigantesque apparut dans sa main et il chargea Wang Lin dans un rugissement.
 
 Les membres du Clan des Démons Géants utilisaient rarement des sorts ou des techniques; ils privilégiaient la puissance brute de leur corps pour attaquer.
 
@@ -72,7 +72,7 @@ Les trois anciens se regardèrent et hochèrent rapidement la tête. Sans hésit
 
 Le sol du clan commença soudainement à trembler et un pilier de lumière noire perçant le ciel surgit dans la partie occidentale du territoire. Une puissante onde d'énergie spirituelle commença à s'en propager.
 
-Au même instant, un second pilier noir apparut à l'est.
+Au même instant, un second pilier noir apparut à l'ouest.
 
 Et ce n'était pas fini. Après ces deux piliers, un troisième suivit rapidement. Le sol trembla de plus belle et d'innombrables fissures se propagèrent partout. Des ondulations d'énergie spirituelle émanaient de chacun des trois piliers.
 
@@ -80,7 +80,7 @@ Et ce n'était pas fini. Après ces deux piliers, un troisième suivit rapidemen
 
 « Ouvrez les Palais des Démons Géants du Nord! »
 
-Les deux autres anciens crièrent presque simultanément que le premier et lancèrent également leurs haches en l'air.
+Les deux autres anciens crièrent presque en même temps, comme le premier, et lancèrent également leurs haches en l'air.
 
 Le nord et le sud se mirent soudainement à gronder alors que six autres piliers noirs apparaissaient. À cet instant, un son mystérieux commença à résonner de toutes parts.
 
@@ -106,7 +106,7 @@ Il leva sa main droite et pointa Wang Lin.
 
 Le chant étrange qui entourait le clan devint soudainement plus puissant et intense. Les douze piliers noirs tremblèrent et se mirent à foncer rapidement vers Wang Lin, qui se trouvait au centre.
 
-Wang Lin laissa échapper un soupir. Il regarda Chi Hu et dit calmement: « Chi Hu, pour ce qui s'est passé dans le Royaume Céleste, tu me devais une dette, et depuis deux ans, je te dois quelque chose. Considérons que nous sommes quittes! »
+Wang Lin laissa échapper un soupir. Il regarda Chi Hu et dit calmement: « Chi Hu, pour ce qui s'est passé dans le Royaume Céleste, tu me dois une dette, et il y a deux ans, c'est moi qui te devais quelque chose. Considérons que nous sommes quittes! »
 
 Le regard de Chi Hu s'assombrit. « Quittes... c'est exact, nous sommes quittes. »
 
@@ -142,11 +142,11 @@ Cette fois, Wang Lin ne lança pas un coup de poing; dans un rugissement, son co
 
 Boum!
 
-Le pilier noir percuta la poitrine de Wang Lin et se brisa. Ce dernier fut repoussé de trois pas, mais il n'était nullement blessé. Il poussa un rugissement et la formation du Passage Céleste vola en éclats.
+Le pilier noir percuta la poitrine de Wang Lin et se brisa. Ce dernier fut repoussé de trois pas, mais il n'était nullement blessé. Il poussa un rugissement, les nuages du ciel se dissipèrent aussitôt et la formation du Passage Céleste vola en éclats.
 
 C'était là une démonstration magistrale de la puissance ultime d'un Dieu Ancien à trois étoiles!
 
-« Chi Hu, nous sommes quittes. Clan des Démons Géants, scellez-vous! » Le doigt gigantesque de Wang Lin pointa vers le ciel et d'innombrables filaments de gaz gris apparurent pour pénétrer dans les corps de tous les membres du clan.
+« Chi Hu, nous sommes quittes. Clan des Démons Géants, scellez-vous! » Le doigt gigantesque de Wang Lin pointa vers le ciel et d'innombrables filaments de gaz gris jaillirent de la roue de la vie et de la mort pour pénétrer dans les corps de tous les membres du clan.
 
 « À partir d'aujourd'hui, il n'y aura plus de cultivateurs au stade de l'Âme Naissante ou supérieur! Si quelqu'un souhaite franchir le stade de la Formation du Noyau, il devra obtenir mon approbation! C'est votre punition! » Le regard de Wang Lin était glacial. À cet instant, sa parole était comme la loi des cieux, décidant du destin même du clan.
 
@@ -170,4 +170,4 @@ Chi Hu laissa échapper un sourire amer avant que son corps ne s'effondre. Wang 
 
 La voix de Wang Lin résonnait partout. À cet instant, nul n'osait se lever pour résister à ce cri. Seule la personne capable de s'y opposer — l'ancêtre caché — en avait le pouvoir!
 
-À cet instant même, à la frontière du clan, une femme vêtue de pourpre se tenait là, observant Wang Lin. Elle était d'une grande beauté. Ses yeux brillaient d'une lueur mystérieuse lorsqu'elle murmura: « Alors, c'est là ta véritable force... Wang Lin... Il semble que même Maître t'ait sous-estimé... »
+À cet instant même, à la frontière du clan, une femme vêtue de violet se tenait là, observant Wang Lin. Elle était d'une grande beauté. Ses yeux brillaient d'une lueur mystérieuse lorsqu'elle murmura: « Alors, c'est là ta véritable force... Wang Lin... Il semble que même Maître t'ait sous-estimé... »

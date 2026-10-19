@@ -11,7 +11,7 @@ Alors que Wang Lin déchirait la protection de la Secte du Dao Démoniaque et le
 
 Le conflit, qui durait depuis plus de cent ans, ne cessait de s'étendre avec le temps. Des dizaines de millions de kilomètres de territoire étaient engloutis par les combats, et cette guerre affectait la quasi-totalité du Continent du Taureau Céleste.
 
-D'innombrables cultivateurs du Continent du Démon Vert avaient traversé la Mer des Pilules Vides pour pénétrer sur le continent, menés par des cultivateurs de la troisième étape et même des Exaltés. Les multiples couches de protection du Continent du Taureau Céleste s'étaient effondrées, leur permettant de s'enfoncer jusqu'au cœur du territoire.
+D'innombrables cultivateurs du Continent du Démon Vert avaient traversé la Mer des Pilules Vides pour pénétrer sur le continent, portés par la puissance des trois sectes du Démon Vert et menés par des cultivateurs de la troisième étape et même des Exaltés. Les multiples couches de protection du Continent du Taureau Céleste s'étaient effondrées, leur permettant de s'enfoncer jusqu'au cœur du territoire.
 
 Les cultivateurs du Continent du Démon Vert avaient formé deux armées pour encercler la Secte Gui Yi et la Secte de la Grande Âme afin de livrer cette bataille ultime!
 
@@ -21,9 +21,9 @@ Bien que cette bataille ne durât que cent ans, son intensité était sans préc
 
 Cependant, au cours de cette guerre entre les deux continents, certains individus anonymes brillèrent comme des étoiles, devenant célèbres sur les deux terres, tandis que ceux qui l'étaient déjà gagnaient encore en puissance.
 
-Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à sa Hache d’Âme Tranchante des Huit Lames, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion pour revenir sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
+Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes! Il avait tué de nombreux cultivateurs du Continent du Démon Vert et avait atteint un haut niveau de culture grâce à son art des Huit Lames Coupent l'Âme, ce qui lui avait valu une immense renommée. Il y a plusieurs mois, il avait quitté le Temple du Scorpion pour revenir sur le Continent du Taureau Céleste afin de participer à cette bataille finale!
 
-Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant les lumières les plus éclatantes aux côtés de l'Ancien Ancêtre.
+Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres de la Secte de la Grande Âme s'étaient aussi distingués, devenant, après les ancêtres, les lumières les plus éclatantes.
 
 Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
 
@@ -35,7 +35,7 @@ Il s'élança dans les airs et leva la Lame Yin qu'il tenait en main. Derrière 
 
 Les trois silhouettes, éclatantes sous le soleil, se rapprochèrent instantanément! Trois rugissements fracassants remplacèrent tout son dans le monde, captivant l'attention des trente mille cultivateurs en contrebas. C'était comme si le temps s'était arrêté à cet instant précis!
 
-Cette bataille allait rendre Wang Lin célèbre sur le Continent Astral Immortel. Son nom allait s'élever au sommet du Continent Astral Immortel!! Combattre seul deux Exaltés de la Tribulation du Vide suffisait à terrifier n'importe qui! C'étaient de véritables Exaltés de la Tribulation du Vide, et bien qu'ils n'aient peut-être jamais atteint le rang d'Exaltés Dorés, ils demeuraient des êtres redoutables que tout le monde admirait! Chacun d'eux était bien plus puissant que le Souverain Céleste aux Sept Couleurs; l'un ou l'autre aurait pu l'éliminer aussi facilement qu'on sort un objet de sa poche. Aujourd'hui, les deux attaquaient de front: comment cette bataille ne pouvait-elle pas bouleverser le monde?
+Cette bataille allait rendre Wang Lin célèbre sur le Continent Astral Immortel. Son nom allait s'élever au sommet du Continent Astral Immortel!! Combattre seul deux Exaltés de la Tribulation du Vide suffisait à terrifier n'importe qui! C'étaient de véritables Exaltés de la Tribulation du Vide, et bien qu'ils n'atteignent sans doute jamais le sommet du rang d'Exalté Doré, ils demeuraient des êtres redoutables que tout le monde admirait! Chacun d'eux était bien plus puissant que le Souverain Céleste aux Sept Couleurs; l'un ou l'autre aurait pu l'éliminer aussi facilement qu'on sort un objet de sa poche. Aujourd'hui, les deux attaquaient de front: comment cette bataille ne pouvait-elle pas bouleverser le monde?
 
 La Lame Yin fendit l'air et fondit sur l'homme en robe dorée. Des grondements tonitruants retentirent lorsque la lame imprégnée d'énergie Yin percuta le vieil homme! Ce dernier poussa un rugissement saisissant. Ses mains tracèrent des sceaux, puis il projeta tous ses trésors. Ces objets dégageaient des auras puissantes tandis qu'il mordait le bout de sa langue pour cracher son sang. Il invoqua alors le sort le plus puissant qu'un cultivateur de la Tribulation du Vide puisse maîtriser!
 

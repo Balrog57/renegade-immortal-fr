@@ -12,17 +12,17 @@ Le cœur de la cité ancestrale, le Palais Impérial Céleste!
 
 La cérémonie de couronnement de l'Ascendant Empyréen aux Cheveux Blancs. Cet événement avait déclenché une véritable tempête dans la cité ancestrale sept jours auparavant!
 
-Au fil des ans, quiconque en était digne avait entendu parler de l'Ascendant Empyréen aux Cheveux Blancs. Ce titre était devenu légendaire et mondialement connu.
+Cette année-là, quiconque en était digne avait entendu parler de l'Ascendant Empyréen aux Cheveux Blancs. Ce titre était devenu célèbre dans toute la cité ancestrale.
 
 Toutes les familles de cultivateurs s'étaient rendues sur la vaste place après avoir reçu l'autorisation de l'Empereur Céleste d'assister à cette cérémonie.
 
-En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de plusieurs dizaines de milliers d'individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Exaltés Empyréens.
+En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de plusieurs dizaines de milliers d'individus. La plupart possédaient des niveaux de culture extraordinaires, et certains étaient même des Exaltés Empyréens. Quelques Ascendants Empyréens se trouvaient aussi parmi eux.
 
 Même au sein du palais impérial, ces êtres recevaient le respect de tous ceux qui les entouraient.
 
 Tôt ce matin-là, la matrice de transfert à l'extérieur du palais fonctionnait sans relâche. Elle semblait scintiller continuellement à mesure que les cultivateurs arrivaient pour assister à la cérémonie.
 
-Ces derniers franchissaient les neuf portes et se dirigeaient rapidement vers la place située devant le Temple du Dao Céleste.
+Ces derniers contournaient les neuf portes et se dirigeaient rapidement vers la place située devant le Temple du Dao Céleste.
 
 De plus en plus de cultivateurs convergeaient vers la place du Temple du Dao Céleste. Ils n'étaient pas dispersés au hasard, mais disposés selon un ordre précis. Trois zones de mille pieds restaient vides.
 
@@ -30,7 +30,7 @@ Les cultivateurs occupant ces trois emplacements étaient trois des quatre rois 
 
 Sur la place devant le Temple du Dao Céleste, outre les dizaines de milliers d'invités, deux longues rangées de soldats en armure noire se tenaient prêtes.
 
-Ces soldats à l'armure noire appartenaient à la famille impériale et n'étaient loyaux qu'à l'Empereur. Bien que leurs niveaux de culture ne fussent pas tous très élevés et qu'ils ne fussent que 100 000, ils maîtrisaient tous la capacité de sacrifier leur force vitale en échange d'une puissance mortelle terrifiante.
+Ces soldats à l'armure noire appartenaient à la famille impériale et n'étaient loyaux qu'à l'Empereur. Chacun possédait une culture considérable. Ils n'étaient que 100 000, mais tous maîtrisaient la capacité de sacrifier leur force vitale en échange d'une puissance mortelle terrifiante.
 
 Peu de gens en connaissaient les détails précis, mais à cet instant, les deux rangées de soldats dégageaient une intention meurtrière monstrueuse et un froid glacial.
 
@@ -48,7 +48,7 @@ Ce passage, façonné par la lueur sombre, offrait le spectacle grandiose des 10
 
 À cet instant, les dizaines de milliers de cultivateurs massés autour de la place semblaient avoir cessé de respirer. Ils fixaient le passage formé par les neuf portes ainsi que la lumière de transfert émanant de la première porte.
 
-Dans un éclat de lumière, un jeune homme calme aux cheveux blancs sortit de l'ouverture.
+Dans un éclat de lumière, un jeune homme vêtu de blanc, aux cheveux blancs et au visage calme, sortit de l'ouverture.
 
 Debout là, Wang Lin avait les mains derrière le dos. La brise matinale faisait flotter sa robe et sa chevelure blanche.
 
@@ -74,7 +74,7 @@ Cependant, tous les cultivateurs, y compris les quatre rois, avaient les yeux ri
 
 Wang Lin resta immobile. Il avait entendu parler de cette cérémonie par le vieil homme de la famille Li. Chaque Ascendant Empyréen devait effectivement traverser les neuf portes avant son intronisation.
 
-Pourtant, il ne s'agissait que d'un geste symbolique. Après tout, les Ascendants Empyréens étaient reconnus par l'Ancêtre Céleste et devaient affronter le dixième palais. Les portes n'étaient qu'une démonstration de la puissance impériale et, en réalité, ne possédaient aucune force réelle; on pouvait simplement les traverser.
+Pourtant, il ne s'agissait que d'un geste symbolique. Après tout, les Ascendants Empyréens avaient été éprouvés par l'ombre de l'Ancêtre Céleste dans l'Épreuve Empyréenne et devaient avoir franchi dix palais. Les portes n'étaient qu'une démonstration de la puissance impériale et, en réalité, ne possédaient aucune force réelle; on pouvait simplement les traverser.
 
 Le regard de Wang Lin balaya les neuf portes et s'arrêta sur les deux longues rangées de soldats en armure noire. Ces derniers ne manifestaient que des regards glacials fixés sur lui.
 
@@ -106,6 +106,6 @@ Devant lui, le passage formé par la lueur sombre couvrant les huit portes resta
 
 Lorsque ce coup percuta sa cible, le monde trembla et l'ombre du tigre se désintégra. Le passage noir formé par les huit portes restantes s'effondra avec la lumière noire. Les 100 000 soldats en armure noire crachèrent tous du sang et furent projetés en arrière, sans qu'aucun ne succombe.
 
-Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement leurs armures. Il traversa calmement les huit portes restantes pour arriver devant le Temple du Dao Céleste. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
+Les pupilles de Wang Lin se contractèrent imperceptiblement tandis qu'il observait attentivement leurs armures. Il passa calmement entre les 100 000 soldats, traversa les huit portes restantes et arriva devant le Temple du Dao Céleste. Son regard se posa avec acuité sur le vieil homme en vert qui reculait!
 
 « Vous aussi, reculez! » Wang Lin lança froidement un regard au vieillard aux vêtements verts.

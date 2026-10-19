@@ -74,7 +74,7 @@ Mais ce n'était que le début, la fin était encore loin!
 
 Ces deux essences spéciales tournèrent devant lui. Wang Lin leva sa main droite et pointa le corps véritable d'essence du tonnerre.
 
-Le corps véritable du tonnerre ouvrit soudain les yeux, dont l'éclat était celui de la foudre. Il se transforma rapidement en un éclair et se faufila entre les essences du massacre et de la restriction. Il créa des filaments reliant les deux essences spéciales et les fusionna rapidement!
+Le corps véritable du tonnerre ouvrit soudain les yeux, dont l'éclat était celui de la foudre. Il se transforma rapidement en un éclair et se faufila entre les essences du massacre et de la restriction. Il créa des filaments reliant les deux essences spéciales et entreprit de les fusionner au plus vite!
 
 Cette fusion était encore plus complexe que celle des cinq éléments. Après un mois, Wang Lin n'avait toujours pas réussi. L'essence du massacre était extrêmement dominante, et la restriction constituait un contre naturel à l'essence du tonnerre. Il était ardu de les faire coexister.
 

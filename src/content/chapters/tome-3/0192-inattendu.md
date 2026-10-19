@@ -22,7 +22,7 @@ Dès l'entrée des deux intrus, tous les cultivateurs ouvrirent les yeux. Un à 
 
 Dou Mu se retourna. Son regard fixe et imperturbable était rivé sur Wang Lin.
 
-Wang Lin recula de quelques pas, ses pupilles se contractant soudainement. Il plaça sa main droite près de son sac de rangement tout en fixant l'individu devant lui. La situation était très différente de ce qu'il avait imaginé.
+Wang Lin recula de quelques pas, ses pupilles se contractant légèrement. Il plaça sa main droite près de son sac de rangement tout en fixant l'individu devant lui. La situation s'écartait beaucoup de ses calculs.
 
 L'un des neuf cultivateurs déclara: « Dou Mu, nous ne pourrons pas maintenir cela longtemps, trois heures tout au plus. Vite, explique-nous tout. »
 
@@ -44,7 +44,7 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 « Il nous a invités à franchir ce niveau ensemble. Bien que les chances qu'une transmission existe dans le corps du Dieu Ancien fussent infimes, la tentation était trop grande. Certes, nous ne pouvions le vaincre, mais nous avions une formation d'épées conjointe que nous n'avions pas encore utilisée; une fois déployée, nous étions sûrs de l'emporter même contre lui. Cependant, son usage nous ferait perdre une immense partie de notre culture. »
 
-« Pendant tout le chemin dans le corps du Dieu Ancien, cet homme avait certes beaucoup de ruse, mais nous n'étions pas des gens que l'on pouvait duper aisément. Nous nous méfiions les uns des autres, mais nous avons finalement réussi à franchir le niveau dont il parlait. Pourtant, tout cela semblait bien étrange. Ce niveau était manifestement un sceau d'une puissance colossale. Il nous avait fallu beaucoup de temps pour le passer. Il avait manifestement été posé par le Dieu Ancien pour emprisonner quelque chose. Si cet homme n'avait pas connu ce sceau à fond, jusqu'à ses moindres failles, nous n'aurions sans doute pas été capables de le rompre. Une fois le sceau rompu, nous avons nettement senti que celui qui se faisait appeler Tuo Sen était devenu un peu différent, sans pouvoir déterminer en quoi. »
+« Pendant tout le chemin dans le corps du Dieu Ancien, cet homme avait certes beaucoup de ruse, mais nous n'étions pas des gens que l'on pouvait duper aisément. Nous nous méfiions de lui, et lui de nous, mais nous avons finalement réussi à franchir le niveau dont il parlait. Pourtant, tout cela semblait bien étrange. Ce niveau était manifestement un sceau d'une puissance colossale. Il nous avait fallu beaucoup de temps pour le passer. Il avait manifestement été posé par le Dieu Ancien pour emprisonner quelque chose. Si cet homme n'avait pas connu ce sceau à fond, jusqu'à ses moindres failles, nous n'aurions sans doute pas été capables de le rompre. Une fois le sceau rompu, nous avons nettement senti que celui qui se faisait appeler Tuo Sen était devenu un peu différent, sans pouvoir déterminer en quoi. »
 
 « Nous sommes alors entrés avec succès dans le corps du Dieu Ancien. Le Dieu Ancien Tu Si était véritablement un génie; il avait bel et bien laissé une transmission derrière lui. Dans la Mer de Qi, nous avons trouvé l'héritage du pouvoir, mais avant même que nous puissions nous battre pour l'obtenir, il s'est dissipé de lui-même et, étrangement, cet homme l'a obtenu. »
 
@@ -56,7 +56,7 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 « Tuo Sen était terrifiant. Ces milliers de couches de sceaux, il a trouvé en peu de temps le moyen de les rompre. Ces sceaux étaient en réalité autant de fragments de conscience du Dieu Ancien Tu Si. Il les a arrachés de force et en a implanté un en chacun de nous dix. »
 
-« Depuis, pendant d'innombrables années, tous les mille ans, des cultivateurs venaient ici. Ils étaient tous capturés par lui et se voyaient disperser des fragments de sceau dans le corps. Mais à chaque fois, il laissait finalement s'échapper une personne, qui parvenait à fuir la Terre du Dieu Ancien grâce à diverses coïncidences, pour que d'autres reviennent la fois suivante. »
+« Depuis, pendant d'innombrables années, tous les mille ans, des cultivateurs venaient parfois ici. Ils étaient tous capturés par lui et se voyaient disperser des fragments de sceau dans le corps. Mais à chaque fois, il laissait finalement s'échapper une personne, qui parvenait à fuir la Terre du Dieu Ancien grâce à diverses coïncidences, pour que d'autres reviennent la fois suivante. »
 
 « À mesure que le nombre de cultivateurs augmentait, les sceaux sur Tuo Sen diminuaient. Heureusement, les nouveaux arrivants différaient de nous: leur culture était si médiocre qu'elle ne suffisait pas à fusionner avec un fragment; il fallait souvent plusieurs personnes pour en partager un. Cela rendait la levée des sceaux de Tuo Sen de plus en plus lente. »
 
@@ -72,7 +72,7 @@ Chacun des dix individus, à l'exception d'un vieillard au visage parcheminé qu
 
 « Il reste un point crucial qui nous laisse perplexes: l'identité de Tuo Sen. Pourquoi connaît-il si intimement le corps du Dieu Ancien? Après l'avoir observé pendant d'innombrables années, nous avons supposé que Tuo Sen n'est pas un humain comme nous, mais très probablement un démon formé par un fragment de ressentiment dans le corps du Dieu Ancien Tu Si après sa mort. » Ces derniers mots furent prononcés par Dou Mu, dont l'expression demeurait calme.
 
-Si Wang Lin avait obtenu l'intégralité de l'héritage des connaissances, il saurait si ces propos étaient vrais ou faux; mais là, face à une perspective aussi terrifiante, il ne put s'empêcher de laisser transparaître son trouble.
+Si Wang Lin avait obtenu l'intégralité de l'héritage de la mémoire, il saurait si ces propos étaient vrais ou faux; mais là, face à une perspective aussi terrifiante, il ne put s'empêcher de laisser transparaître son trouble.
 
 « C'est la seule explication possible: pourquoi, lorsqu'il nous a invités dans le corps du Dieu Ancien il y a toutes ces années, connaissait-il si bien les lieux et pourquoi avons-nous senti qu'il avait changé après la rupture du sceau? Ce sceau était manifestement semblable à celui qui, dans le corps d'un cultivateur, emprisonne les pensées démoniaques lorsque la pratique d'une technique attire un démon intérieur. Cela expliquerait aussi pourquoi Tuo Sen maîtrisait toutes les techniques du géant. Après tout, obtenir l'héritage du pouvoir ne suffit pas; il faut posséder les deux héritages pour détenir la puissance du Dieu Ancien. Toutes ces spéculations convergent vers une seule conclusion: cet homme est soit le Dieu Ancien Tu Si, soit le Démon Ancien Tu Si! »
 
@@ -88,7 +88,7 @@ Parmi les dix personnes, le vieillard qui s'était tu jusqu'ici laissa échapper
 
 Wang Lin n'accepta pas immédiatement. Il évaluait secrètement la crédibilité de ces propos.
 
-Dou Mu lança à Wang Lin un regard glacial: « Cadet, ne crois pas que nous dépendions de toi. Nous pourrions tout aussi bien te tuer pour éviter toute complication future. »
+Dou Mu lança à Wang Lin un regard glacial: « Cadet, ne crois pas que nous dépendions de toi. Nous pourrions tout aussi bien te tuer et nous séparer, pour éviter toute complication future. »
 
 Un cultivateur au visage sombre ricana: « Le temps presse et l'essentiel a été dit. Puisque ce gamin s'obstine dans son entêtement, nous ferions mieux de lui imposer une restriction. Bien que cela soit un peu gênant, cela nous permettrait de le contrôler à notre guise et serait plus simple. »
 

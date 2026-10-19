@@ -28,7 +28,7 @@ Fort heureusement, il ne se déplaçait pas trop vite, permettant ainsi à la B�
 
 « Ce tentacule me semble familier... » Wang Lin réfléchit silencieusement un instant avant que ses yeux ne s'illuminent en reconnaissant l'origine de l'attaque.
 
-Wang Lin eut un haut-le-cœur. « Cette chose ressemble étrangement à la troisième forme du Serpent aux yeux de lune! »
+Wang Lin eut le souffle coupé. « Cette chose ressemble étrangement à la troisième forme du Serpent aux yeux de lune! »
 
 Le Serpent aux yeux de lune possédait trois formes. La première était sa forme errante, flottante, dépourvue de tout pouvoir offensif. Lors de la première venue de Wang Lin, c'était l'état dans lequel il se trouvait.
 
@@ -56,7 +56,7 @@ La Bête du Tonnerre remua sa grosse tête et sembla réfléchir. Elle jeta un r
 
 Wang Lin fronça les sourcils et décida de l'ignorer. Il avança sans faire de bruit, se déplaçant lentement et prudemment entre les tentacules. À ses yeux, chacun d'eux recelait une puissance d'attaque terrifiante.
 
-Alors qu'il volait, l'un des tentacules devant lui s'abattit soudainement sur lui, projetant une force colossale. Le vent violent créé par cette attaque fit voler les cheveux de Wang Lin en arrière; le souffle était aussi tranchant que des lames contre son visage. Ayant été vigilant, il observa attentivement la racine du tentacule qui changea légèrement d'aspect au moment de l'attaque.
+Alors qu'il volait, l'un des tentacules devant lui s'abattit soudainement sur lui, projetant une force colossale. Le vent violent créé par cette attaque fit voler les cheveux de Wang Lin en arrière; le souffle était aussi tranchant que des lames contre son visage. Ayant été vigilant, il observa attentivement la racine du tentacule qui changea légèrement de couleur quelques instants avant l'attaque.
 
 En un éclair, Wang Lin se téléporta. Sa vitesse fut telle qu'il ne laissa qu'une image rémanente. Le tentacule frappa l'image avant de se rétracter lentement pour reprendre sa position initiale.
 
@@ -80,7 +80,7 @@ Wang Lin descendit avec prudence et se faufila entre les membres. Les tentacules
 
 Les souvenirs de l'Ancien Dieu Tu Si mentionnaient le point sensible du Serpent aux yeux de lune: la racine des tentacules. Une infime stimulation à cet endroit suffisait à exciter tout son organisme.
 
-Wang Lin sortit avec précaution plusieurs dizaines de Fruits d'Ascension Céleste et les affina en un liquide rouge. Après y avoir appliqué des restrictions, il permit au liquide de fusionner avec la racine du tentacule.
+Wang Lin sortit avec précaution plusieurs dizaines de Fruits d'Ascension Céleste et les affina en un liquide rouge. Après y avoir apposé un sceau, il permit au liquide de fusionner avec la racine du tentacule.
 
 Il procédait avec une extrême prudence, déployant son sens divin pour surveiller les environs.
 
@@ -90,7 +90,7 @@ La teinte rougeâtre des tentacules se dissipa rapidement, et Wang Lin comprit q
 
 En voyant cela, Wang Lin reconnut la scène: c'était le Serpent aux yeux de lune expulsant les toxines de son corps, tel un mortel déféquant.
 
-La Bête du Tonnerre, qui observait Wang Lin depuis les cieux, était irritée. En voyant les tentacules au sol, son mépris se mua en une indignation plus forte. Elle s'élança et chargea directement vers le sol, des éclairs jaillissant de son corps tandis qu'un grondement retentissait sur toute la planète.
+La Bête du Tonnerre, qui observait Wang Lin depuis les cieux, était irritée. En voyant les tentacules au sol, son mépris s'accentua. Elle s'élança et chargea directement vers le sol, des éclairs jaillissant de son corps tandis qu'un grondement retentissait sur toute la planète.
 
 Wang Lin se retourna brusquement et cria: « Bête maudite, reviens vite! »
 
@@ -110,6 +110,6 @@ Wang Lin envoya une transmission vocale: « Arrête de rugir! » Son visage éta
 
 Des brins de tentacules, aussi épais que des bras, étaient enroulés autour du fourneau. Ils ondulaient constamment, comme s'ils absorbaient une substance.
 
-L'expression de l'homme devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge s'y engouffra. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
+L'expression de l'homme devint sombre lorsqu'il ouvrit soudainement les yeux. Les parois de la caverne se mirent à bouger et une masse de brume rouge jaillit des parois. Des résidus fétides contenant des traces d'électricité parvinrent également, rendant l'odeur absolument insupportable.
 
-Cet homme était Cupidité. Si Wang Lin avait été présent, il aurait immédiatement reconnu cet endroit comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.
+Cet homme était Cupidité. Si Wang Lin avait été présent, il aurait reconnu cet endroit après un instant de réflexion comme le lieu où le Serpent aux yeux de lune absorbe ses nutriments et expulse ses déchets.

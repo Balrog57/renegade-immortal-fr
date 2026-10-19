@@ -78,7 +78,7 @@ Ce second sceau était totalement différent du précédent. Encore plus complex
 
 La Tribulation de l'Âme Vitale en Dix Souffles, la seconde des Tribulations Arcaniques de l'Âme, ne dommageait pas l'âme originelle, mais réduisait la durée de vie de cette dernière!
 
-Cette tribulation se transformait en un flux temporel. La longévité d'un cultivateur n'est pas infinie; ils atteignent tous une fin, tout comme l'âme. La Tribulation de l'Âme Vitale ne durait qu'un instant, mais cet instant pouvait représenter des centaines de millions d'années ou moins d'un siècle!
+Cette tribulation se transformait en un flux temporel. La longévité d'un cultivateur n'est pas infinie; ils atteignent tous une fin, tout comme l'âme. La Tribulation de l'Âme Vitale ne durait qu'un instant, mais cet instant pouvait représenter cent millions d'années ou moins d'un siècle!
 
 Lorsque le temps revient, l'âme meurt! Dix mille ans en un souffle — cette épreuve était bien plus étrange que les précédentes. Elle n'était pas destinée à tuer le cultivateur directement; son but était de le pousser à sacrifier volontairement sa durée de vie!
 
@@ -112,7 +112,7 @@ La huitième épreuve disparut.
 
 Au moment où elle se dispersa, Wang Lin aurait pu choisir de partir, mais il ne le fit pas. Il leva les yeux vers la voûte céleste, attendant l'apparition de la dernière épreuve!
 
-S'il parvenait à franchir cette ultime étape, il briserait le stade du Vide Arcanique pour devenir une puissance de la Tribulation du Vide!
+S'il parvenait à franchir cette ultime étape, il briserait le stade du Vide Arcanique pour devenir un Exalté de la Tribulation du Vide au stade initial!
 
 Wang Lin prit une profonde inspiration, le visage solennel. Il avait surmonté huit Tribulations Arcaniques consécutives et s'apprêtait à affronter la neuvième et dernière épreuve!
 
@@ -148,7 +148,7 @@ Dans le ciel, le dernier sceau apparut. C'était la neuvième Tribulation Arcani
 
 Dès son apparition, une pression colossale capable de bouleverser l'univers s'abattit. Les êtres risquaient de se perdre dans le cycle de la réincarnation, incapables d'en sortir avant de mourir!
 
-« Destruction de la tribulation! » Wang Lin laissa échapper un rugissement fracassant. Sa voix perça la lumière dorée et se propagea dans toutes les directions, atteignant les oreilles des cultivateurs du Continent du Démon Vert, tous stupéfaits par ce spectacle.
+« Destruction de la tribulation! » Wang Lin laissa échapper un rugissement fracassant. Sa voix perça la lumière dorée et se propagea dans toutes les directions sur plusieurs milliers de kilomètres, atteignant les oreilles des cultivateurs du Continent du Démon Vert, tous stupéfaits par ce spectacle.
 
 « Destruction de la tribulation! »
 

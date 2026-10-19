@@ -16,9 +16,9 @@ Chaque armure était un trésor précieux qui ne pouvait être dérobé par un �
 
 Ce qui fit trembler le cœur du Général de l'Eau, c'était que l'attaque de Wang Lin avait provoqué des fissures sur l'armure et lui avait brisé tout le corps, le tuant presque sur le coup. S'il n'avait pas été sauvé par la force vitale émise par l'armure, il serait déjà mort!
 
-Ce qui le terrifiait le plus, c'était que d'un simple regard, Wang Lin avait été capable de percer le secret de l'armure. Une telle perspicacité et une telle puissance firent frissonner le cœur du Général de l'Eau.
+Ce qui le terrifiait le plus, c'était que d'un simple regard, Wang Lin avait été capable de percer le secret de l'armure. Une telle perspicacité et un tel savoir firent frissonner le cœur du Général de l'Eau.
 
-Lorsque Wang Lin posa les yeux sur lui, le Général de l'Eau vit des lignes de sang dans le regard de ce dernier. Ces lignes contenaient une sorte de loi qui lui fit perdre la raison un instant.
+Lorsque Wang Lin posa les yeux sur lui, le Général de l'Eau vit des lignes de sang dans le regard de ce dernier. Ces lignes contenaient une sorte de loi qui le plongea un instant dans la stupeur.
 
 « Enlève ton armure et je t'épargnerai. » À cet instant, l'eau entourant Wang Lin et le Général de l'Eau retomba, levant le rideau d'eau qui occultait la vue de tous. Lorsque les cultivateurs de la Secte Gui Yi virent le Général de l'Eau dans un état aussi pitoyable, leur joie s'évanouit et ils tombèrent dans le silence.
 
@@ -36,7 +36,7 @@ Le visage du Général de l'Eau était pâle, ses yeux empreints de folie. Il le
 
 À cet instant, les vagues rugirent comme si un dragon géant s'agitait dans les profondeurs. Tandis qu'il étendait ses mains, la mer entière sembla bouillir et s'élever.
 
-De loin, le spectacle était saisissant. Toute l'étendue marine s'élança dans les airs vers Wang Lin.
+De loin, le spectacle était saisissant. Toute l'étendue marine s'élança vers le ciel, en s'écartant de Wang Lin.
 
 Simultanément, le Général de l'Eau cracha de nouveau du sang, révélant un visage épuisé et tourmenté. Sa main gauche se tendit vers le ciel.
 
@@ -80,7 +80,7 @@ Ces changements semblaient dépourvus de logique, mais lorsque les lignes de san
 
 À part Wang Lin, personne ne pouvait remarquer ce phénomène. Le Général de l'Eau n'en avait aucune idée. Son expression était féroce, teintée elle aussi d'une pointe d'excitation.
 
-Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques centaines de milliers de pieds!
+Il fixait la sphère et ses mains continuaient de tracer des sceaux, renforçant l'essence et accélérant la contraction de l'eau. En seulement une demi-baguette d'encens, la masse d'eau passa d'une taille infinie à quelques dizaines de milliers de pieds!
 
 L'essence au sein de cette sphère devint encore plus puissante à mesure que l'eau de mer et la pluie se condensaient!
 
@@ -88,7 +88,7 @@ L'essence au sein de cette sphère devint encore plus puissante à mesure que l'
 
 Wang Lin ressentit presque de la gratitude envers le Général de l'Eau. Les actions de ce dernier lui permettaient d'observer encore plus de changements dans l'essence et de mieux la comprendre!
 
-La sphère de plusieurs centaines de milliers de pieds se contracta de moins de moitié pour atteindre 200 000 pieds. Le Général de l'Eau, bien qu'exalté, haletait lourdement, comme épuisé.
+La sphère de plusieurs dizaines de milliers de pieds se contracta de moins de moitié pour atteindre 20 000 pieds. Le Général de l'Eau, bien qu'exalté, haletait lourdement, comme épuisé.
 
 Il leva les yeux vers le ciel et poussa un rugissement: « Na Duo, aide-moi!! »
 

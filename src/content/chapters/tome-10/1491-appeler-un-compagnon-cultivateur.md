@@ -12,7 +12,7 @@ Le rugissement tonitruant se propagea dans toutes les directions!
 
 C'était la première confrontation entre Maître Lu Fu et Wang Lin! Bien qu'aucun des deux n'ait attaqué directement, l'un cherchait à progresser tandis que l'autre tentait de bloquer sa route. Une bataille s'engagea au-dessus de la formation!
 
-Ce simple cri strident contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas. Ce cri fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
+Ce simple cri strident contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas, ainsi que ses pouvoirs divins. Ce cri fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
 
 C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau du Fléau Céleste, son corps aurait été déchiré par ce cri et son âme originelle aurait été anéantie!
 
@@ -30,7 +30,7 @@ GRAAAH!!
 
 Ce rugissement se propagea instantanément, écrasant le cri strident de Maître Lu Fu. Il forma une onde sonore monstrueuse qui balaya tout sur son passage!
 
-Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse dans la tombe antique qui avait blessé d'innombrables cultivateurs du troisième pas et chassé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout acquis une ampleur phénoménale!
+Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse dans la tombe antique qui avait blessé d'innombrables cultivateurs du troisième pas et chassé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout gagné une certaine ampleur!
 
 Le grondement fit trembler l'espace entre Wang Lin et Maître Lu Fu. C'était comme si les deux hommes s'étaient lancé des attaques invisibles. Le domaine stellaire vacilla et les innombrables cultivateurs environnants crachèrent du sang, reculant frénétiquement une fois de plus.
 
@@ -38,7 +38,7 @@ Au plus profond du vortex de la formation, Maître Yan Leizi et ses compagnons �
 
 Maître Lu Fu, assis devant eux, vit son expression changer. Il sentit clairement un impact inimaginable se précipiter vers lui, une force voulant détruire tout ce qui lui résistait.
 
-Son cri fut immédiatement balayé par le rugissement de l'Ordre Antique. Les vêtements de Maître Lu Fu flottèrent violemment sous la pression. Bien que son visage soit resté impassible, une lueur de froideur passa dans ses yeux.
+Son cri fut immédiatement balayé par le rugissement de l'Ordre Antique. Ses vêtements et ses cheveux gris flottèrent violemment sous la pression. Bien que son visage ait changé, une lueur de froideur passa dans ses yeux.
 
 Toutefois, derrière cette froideur, il ne put dissimuler une pointe de choc!
 
@@ -46,7 +46,7 @@ Toutefois, derrière cette froideur, il ne put dissimuler une pointe de choc!
 
 Pourtant, son analyse venait d'être totalement ébranlée. Ce rugissement contenait une aura qui lui inspirait la terreur. Il sentit vaguement qu'il ne pourrait pas y résister!
 
-C'était comme si ce qui s'apprêtait à charger n'était ni un cultivateur, ni même un dieu antique, mais une existence dépassant de loin sa compréhension, quelque chose qui ne devrait pas exister. La nature tyrannique de cette créature était intégralement révélée dans ce cri!
+C'était comme si ce qui s'apprêtait à charger n'était ni un cultivateur, ni même un dieu antique, mais une existence dépassant de loin sa compréhension, quelque chose qui ne devrait pas exister. Cette créature dégageait une tyrannie défiant le ciel, qui se révélait tout entière dans ce cri!
 
 Quiconque oserait lui barrer la route en paierait le prix!
 
@@ -86,7 +86,7 @@ Bien que les mots de Wang Lin fussent « compagnon cultivateur », Maître Yan L
 
 Wang Lin esquissa un léger sourire et continua de progresser vers le vortex.
 
-« Sur la planète Suzaku, nous faisions équipe et pouvions être considérés comme amis. Normalement, je devrais être heureux de vous voir, compagnon cultivateur, mais pourquoi avez-vous tué onze de ceux qui aidaient à l'installation de la formation? » Les yeux de Maître Lu Fu se plissèrent, une lueur glaciale les traversant.
+« Sur la planète Suzaku, nous avions fait équipe et entretenions une certaine camaraderie. Normalement, je devrais être heureux de vous voir, compagnon cultivateur, mais pourquoi avez-vous tué onze de ceux qui aidaient à l'installation de la formation? » Les yeux de Maître Lu Fu se plissèrent, une lueur glaciale les traversant.
 
 L'expression de Wang Lin resta neutre. Il leva la main pour désigner Dieu de Sang, aux côtés de Maître Lu Fu, et dit lentement: « J'ai naturellement mes propres raisons pour les avoir tués. Il n'y a pas de querelle entre nous, et je n'ai aucune intention de vous combattre. Je ne veux que cette personne! »
 
@@ -100,7 +100,7 @@ L'expression de Maître Lu Fu devint sombre et une hésitation perla dans ses ye
 
 « Ce vieil homme prendra sa propre décision! »
 
-Maître Lu Fu se leva et joignit les mains vers Wang Lin. Il dit lentement: « Compagnon Wang Lin, pourriez-vous accorder une faveur à ce vieil homme et laisser cet homme partir? Cela compterait comme une dette envers moi! »
+Maître Lu Fu se leva et joignit les mains vers Wang Lin. Il dit lentement: « Compagnon Wang Lin, pourriez-vous accorder une faveur à ce vieil homme et laisser cet homme partir? Ce vieil homme vous en sera redevable! »
 
 Wang Lin regarda Maître Lu Fu. Un instant plus tard, il secoua la tête.
 

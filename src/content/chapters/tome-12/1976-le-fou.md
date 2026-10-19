@@ -66,7 +66,7 @@ Parce qu'il existait, une fois disparu, il devenait néant. Ce qui venait de se 
 
 Les pupilles de Wang Lin se contractèrent violemment. À cet instant, il ressentit une fluctuation terrifiante émanant du Maître Impérial. C'était un degré d'illumination du Dao d'une hauteur extrême.
 
-Le Taureau Céleste se dissipa, tout comme l'ombre noire que le vieil homme avait créée au prix de sa force vitale. Ce dernier semblait avoir énormément vieilli; il esquissa un sourire amer et joignit les mains en signe de salut vers Wang Lin. Sans dire un mot, il s'envola pour rejoindre son clan.
+Le Taureau Céleste se dissipa, tout comme l'ombre noire que le vieil homme avait créée au prix de sa force vitale. Ce dernier semblait avoir énormément vieilli; il esquissa un sourire amer et joignit les mains en signe de salut vers Wang Lin. Sans dire un mot, il redescendit au sol pour rejoindre les siens.
 
 « Le second... » Le Maître Impérial sourit devant le Temple du Dao Céleste. Cependant, juste après avoir parlé, il fronça les sourcils.
 

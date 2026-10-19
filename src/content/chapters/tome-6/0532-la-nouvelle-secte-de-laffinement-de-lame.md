@@ -102,7 +102,7 @@ Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs d
 
 Il devait se rendre à la Grande Muraille Antique, mais avant cela, des préparatifs s'imposaient.
 
-Créer sa propre assise au sein de l'Ancienne Cité Démoniaque serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
+Créer sa propre assise au sein de la Grande Muraille Antique serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
 
 Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, lui, en avait côtoyé, et l'ancêtre de celui-ci avait interagi avec ce genre d'individus durant une longue période.
 

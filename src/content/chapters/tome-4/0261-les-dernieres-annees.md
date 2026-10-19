@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 261 - Latter Years
 slug: les-dernieres-annees
 ---
-Wang Lin ne pouvait qu'imiter le domaine de l'émotion désespérée. Bien qu'il soit finalement parvenu à achever la sculpture, celle-ci différait encore grandement du domaine de l'homme d'âge mûr.
+Wang Lin ne pouvait qu'imiter le domaine de l'insensibilité. Bien qu'il soit finalement parvenu à achever la sculpture, celle-ci différait encore grandement du domaine de l'homme d'âge mûr.
 
 Wang Lin regarda le couteau à sculpter brisé. D'un geste de la main, il fit voler la lame vers une étagère sur le côté. Il prit un autre morceau de bois et utilisa son doigt comme s'il s'agissait d'un couteau.
 
@@ -62,7 +62,7 @@ Wang Lin marchait dans la rue où il avait vécu toutes ces années. Tous les co
 
 Des voix similaires s'élevaient de partout. Il ne put s'empêcher d'esquisser un sourire amer. Il ignorait comment cela en était arrivé là, mais au cours des dix dernières années, presque chaque demeure de cette rue lui devait de l'argent.
 
-Même la plupart des boutiques lui appartenaient désormais. Chaque fois qu'un commerçant avait besoin de fonds, il engageait sa boutique en gage pour obtenir un prêt auprès de lui.
+Même la plupart des boutiques lui appartenaient désormais. Chaque fois qu'un commerçant avait besoin de fonds, il venait lui céder sa boutique.
 
 Quant à la propre boutique de Wang Lin, le propriétaire était venu la lui vendre il y a deux ans. Bien sûr, le prix avait été exorbitant.
 

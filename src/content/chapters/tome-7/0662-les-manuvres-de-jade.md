@@ -32,7 +32,7 @@ Un sourire apparut sur les lèvres de Wang Lin. Une douce brise printanière sem
 
 Au fil de son vol, son apparence changea lentement. Peu de temps après, ses traits furent totalement transformés. À cet instant, même des personnes familières avec lui ne pourraient le reconnaître.
 
-Presque tous les cultivateurs de haut niveau maîtrisaient ce type de sort de changement d'apparence. Cependant, pour les experts, ce sort présentait trop de faiblesses: il suffisait à un cultivateur de haut niveau de se concentrer un instant pour déceler des indices, et face à des utilisateurs de sorts de vision, l'illusion serait perçue au premier coup d'œil.
+La plupart des cultivateurs maîtrisaient ce type de sort de changement d'apparence. Cependant, pour les experts, ce sort présentait trop de faiblesses: il suffisait à un cultivateur de haut niveau de se concentrer un instant pour déceler des indices, et face à des utilisateurs de sorts de vision, l'illusion serait perçue au premier coup d'œil.
 
 Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même; il était lancé par le gardien céleste caché dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
 

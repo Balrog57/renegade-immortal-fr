@@ -98,7 +98,7 @@ La réponse qu'il reçut fut un rayon d'énergie d'épée.
 
 Un nouveau rayon d'énergie d'épée vola vers lui, accompagné d'un cri de colère: « Ton maître n'est pas un homme bien! Va-t'en! »
 
-« Ah, tu oses insulter Maître? Petite lame noire, tu as entendu? Ce n'est pas que je veux que tu m'aides dans mes affaires personnelles, mais je veux que tu améliores l'image de mon Maître, alors j'ai besoin de toi. Aide-moi à la capturer; je vais avoir une longue discussion avec elle! »
+« Ah, tu oses insulter Maître? Petite lame noire, tu as entendu? Ce n'est pas que je veux que tu m'aides dans mes affaires personnelles, mais je veux corriger l'opinion qu'elle a de mon Maître, alors j'ai besoin de toi. Aide-moi à la capturer; je vais avoir une longue discussion avec elle! »
 
 Sa seule réponse fut une salve ininterrompue de rayons d'énergie d'épée. Alors que ces éclats traversaient le ciel, ils étaient portés par les rires obscènes de Xu Liguo.
 

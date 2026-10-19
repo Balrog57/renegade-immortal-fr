@@ -8,7 +8,7 @@ slug: un-complement-de-taille
 ---
 L'homme d'âge mûr vêtu de la robe impériale tendit la main, et un vortex se matérialisa dans la salle. Une lueur fantomatique en émana, semblant mener vers l'inconnu.
 
-Un hurlement résonna à l'intérieur du vortex, et deux ombres floues apparurent avant d'être extraites par l'homme en robe impériale.
+Un sifflement étrange résonna dans la salle, et deux ombres floues apparurent dans le vortex avant d'être extraites par l'homme en robe impériale.
 
 L'homme et la femme inconscients n'étaient autre que le fou et la femme en argent!
 
@@ -46,11 +46,11 @@ Ils furent absorbés instantanément par son œil gauche, y formant une empreint
 
 L'empreinte scintilla, projetant une lueur éclatante dans la grotte désormais privée de la lumière des flammes!
 
-« Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde de la grotte... Mais elle est incompatible avec le feu terrestre de ce continent du Taureau Céleste... »
+« Ma propre essence de feu est déjà formée et s'avère même plus puissante que lorsqu'elle était dans le monde des grottes... Mais elle est incompatible avec le feu terrestre de ce continent du Taureau Céleste... »
 
 « Je dois trancher entre ces deux feux... Sinon, si je rencontre une autre personne possédant une essence de feu, elle verra immédiatement que quelque chose ne va pas. De plus, le feu terrestre ici est trop différent, ce qui me place en position de faiblesse! » Wang Lin était sur le Continent Astral Immortel depuis plus d'un mois, et il en ressentait déjà les divergences.
 
-Dans le monde de la grotte, il pouvait contrôler tout le feu du monde. Il y était comme l'empereur des flammes et n'avait jamais à se soucier de la consommation de son essence. Tant qu'il respirait, il pouvait rapidement la reconstituer.
+Dans le monde des grottes, il pouvait contrôler tout le feu du monde. Il y était comme l'empereur des flammes et n'avait jamais à se soucier de la consommation de son essence. Tant qu'il respirait, il pouvait rapidement la reconstituer.
 
 Cependant, la situation différait sur le Continent Astral Immortel. Non seulement il était un étranger, mais son essence de feu l'était aussi. Il lui serait très difficile de restaurer son pouvoir igné.
 
@@ -64,7 +64,7 @@ La force de rejet était extrêmement puissante. Sous la manipulation forcée de
 
 L'oiseau vermillon, façonné par l'âme originelle de Wang Lin, emplit la grotte d'une chaleur torride avant de disparaître sous terre.
 
-Tout le continent du Taureau Céleste était parcouru par une immense veine de feu terrestre s'étendant sous toutes les montagnes. Dès que l'âme originelle de Wang Lin s'enfonça dans les profondeurs, il ressentit une chaleur suffocante montant des entrailles du monde.
+Tout le continent du Taureau Céleste était parcouru par de nombreuses veines de feu terrestre s'étendant sous toutes les montagnes. Dès que l'âme originelle de Wang Lin s'enfonça dans les profondeurs, il ressentit une chaleur suffocante montant des entrailles du monde.
 
 Cette aura était très nocive pour une âme originelle, mais elle ne posait aucun problème à Wang Lin. Tandis qu'il chargeait vers le bas, une vague de chaleur émanant de son propre corps se déploya pour contrer le feu terrestre.
 
@@ -74,9 +74,9 @@ Alors qu'il s'enfonçait davantage dans les profondeurs, un rugissement retentit
 
 La température de cette onde était capable de faire fondre tous les trésors et de consumer les âmes de tous les êtres vivants.
 
-Un éclair de froideur traversa le regard de Wang Lin. Ce rugissement ressemblait à un défi — la collision inévitable de deux types de feu distincts lorsqu'ils se rencontraient.
+Un éclair de froideur traversa le regard de Wang Lin. Ce rugissement ressemblait à un défi — la collision de deux types de feu distincts lorsqu'ils se rencontraient.
 
-Alors que l'écho du rugissement résonnait, l'Oiseau Vermillon formé par Wang Lin poussa un cri strident. Ce fut le cri de l'Oiseau Vermillon: une plainte qui devint une épée acérée perçant les entrailles du sol en direction de la source du fracas!
+Alors que l'écho du rugissement résonnait, l'Oiseau Vermillon formé par Wang Lin poussa un cri strident. Ce fut le cri de l'Oiseau Vermillon: un hurlement perçant qui devint une épée acérée perçant les entrailles du sol en direction de la source du fracas!
 
 Wang Lin se déplaçait avec une rapidité fulgurante dans les profondeurs. Il ne fallut pas longtemps pour qu'il franchisse des distances incommensurables et atteigne bientôt la source du tumulte!
 
@@ -104,7 +104,7 @@ Le dragon de feu dévora l'Oiseau Vermillon mais afficha une expression de doule
 
 Une fois manifeste, il continua d'absorber le feu provenant du dragon. À mesure qu'il se renforçait, les rugissements du dragon s'affaiblissaient. Cependant, alors qu'il était absorbé, le dragon se débattit avec une violence accrue.
 
-Des grondements tonnants secouèrent la surface où se trouvait Wang Lin. La terre trembla et se fendit, laissant jaillir des flammes qui consumaient tout sur leur passage.
+À la surface, dans les cent mille montagnes où se trouvait Wang Lin, des grondements tonnants secouèrent la terre. La terre trembla et se fendit, laissant jaillir des flammes qui consumaient tout sur leur passage.
 
 Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'encens, le feu qui jaillissait du sol se rétracta brusquement et disparut dans les fissures pour retourner dans les profondeurs. Le dragon avait cessé de lutter et l'Oiseau Vermillon était enfin pleinement manifesté. Il ouvrit les yeux, révélant un regard glacial.
 
@@ -112,4 +112,4 @@ Le processus ne dura pas longtemps. Après l'équivalent du temps d'un bâton d'
 
 Le corps de Wang Lin trembla lorsque son âme originelle réintégra son être, et il ouvrit les yeux.
 
-« Ce fut un complément de taille pour moi! » Wang Lin regarda le sol, ses yeux brillant d'une lueur singulière.
+« C'est là, pour moi, un complément rare et de taille! » Wang Lin regarda le sol, ses yeux brillant d'une lueur singulière.

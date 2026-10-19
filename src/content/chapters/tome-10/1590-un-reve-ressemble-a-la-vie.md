@@ -28,7 +28,7 @@ En face de lui, le serveur de la veille, une serviette sur l'épaule, apportait 
 
 Alors que les chevaux passaient et que la chambre tremblait, le jeune homme ouvrit lentement les yeux. Il posa une main sur son front et regarda autour de lui d'un air hébété.
 
-« Hélas, la gourmandise est un vilain défaut, un vilain défaut... Comment ai-je pu boire autant de vin... » Le jeune homme semblait avoir dix-huit ou dix-neuf ans. Il était svelte, d'une apparence ordinaire, et dégageait l'aura d'un lettré.
+« Hélas, aimer trop le vin est un vilain défaut, un vilain défaut... Comment ai-je pu boire autant de vin... » Le jeune homme semblait avoir dix-huit ou dix-neuf ans. Il était svelte, d'une apparence ordinaire, et dégageait l'aura d'un lettré.
 
 Avec un sourire amer, il se redressa en s'appuyant sur le bord de son lit, la tête douloureuse. Il tituba jusqu'à la table et se versa une tasse de thé froid. Ce n'est qu'après avoir bu qu'il se sentit un peu mieux.
 

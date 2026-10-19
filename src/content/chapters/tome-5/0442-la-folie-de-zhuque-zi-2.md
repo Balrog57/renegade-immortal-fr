@@ -13,7 +13,7 @@ Boum!
 
 Après une violente détonation, le phénix disparut et le cinquième ancêtre laissa échapper un cri de douleur alors qu'il s'embrasait. Trois respirations plus tard, il était mort!
 
-Le visage de Zhu Quezi devint livide et une aura de mort émana de lui. Lorsqu'il est activé, le Sceau de Suzaku consume la force vitale de son utilisateur; avec sa durée de vie actuelle, il ne pouvait l'utiliser que deux fois encore. Après cette utilisation, il mourrait.
+Le visage de Zhu Quezi devint livide et une aura de mort émana de lui. Lorsqu'il est activé, le Sceau de Suzaku consume la force vitale de son utilisateur; avec sa durée de vie actuelle, il ne pouvait l'utiliser que deux fois. Après la seconde, il mourrait.
 
 Une fois qu'une cible a été verrouillée par le sens divin de l'utilisateur, celle du Sceau de Suzaku ne peut plus changer et rien en ce monde ne peut l'arrêter. Il n'avait pas blessé le premier ancêtre, mais il avait tué presque instantanément le cinquième ancêtre. S'il avait visé le premier ancêtre ou Yun Quezi, le Sceau de Suzaku ne les aurait pas tués d'un coup, mais les aurait gravement blessés. C'est pourquoi Zhu Quezi n'avait pas cherché à les atteindre, préférant cibler le relativement faible cinquième ancêtre afin de s'imposer d'emblée.
 
@@ -75,7 +75,7 @@ Dès que le Mont Suzaku se fendit en deux, Qian Feng fut le premier à charger d
 
 À cet instant, les nuages se mirent à bouillonner et un grand nombre de membres du Clan de l'Immortel Délaissé apparurent au sein des masses sombres. Plusieurs individus s'envolèrent des nuages; ils semblaient déjà informés de la situation. Sans un mot, ils pénétrèrent dans le Tombeau de Suzaku. Parmi eux se trouvait le vieil homme bossu aux huit feuilles qui avait autrefois traqué Wang Lin.
 
-Trois jours plus tard, la nouvelle de l'ouverture du Tombeau de Suzaku s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Culture, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau de Suzaku afin de récupérer leur propre fragment d'âme.
+En trois jours, la nouvelle de l'ouverture du Tombeau de Suzaku s'était répandue sur toute la planète, tout comme celle du Cristal de la Planète de Culture, qui se propagea comme une traînée de poudre. À cet instant, la priorité absolue pour tous les cultivateurs était de se rendre au Tombeau de Suzaku afin de récupérer leur propre fragment d'âme.
 
 Tous les cultivateurs de la planète accoururent vers le pays de Suzaku pour pénétrer dans le tombeau. Cependant, le Tombeau de Suzaku était soumis à une restriction spéciale imposée par le Cristal de la Planète de Culture: une fois qu'un certain nombre de personnes avait été atteint, plus personne ne pouvait entrer. Bien que beaucoup aient tenté l'aventure, ceux qui réussirent réellement à y pénétrer furent très peu nombreux.
 

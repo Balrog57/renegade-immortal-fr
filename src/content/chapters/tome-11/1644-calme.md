@@ -42,9 +42,9 @@ Au fond de son cœur, il ne considérait pas vraiment ces Célestes blessés com
 
 Wang Lin laissa échapper un rire et leva la main droite. Il tendit l'index pour pointer le doigt du Dragon Azure. Durant ce mouvement, la tête antique derrière lui fusionna avec son doigt.
 
-Simultanément, toutes ses étoiles entrèrent en rotation et les trois pouvoirs anciens fusionnèrent pour former le sortilège ancien originel de Wang Lin!
+Simultanément, toutes ses étoiles entrèrent en rotation et les pouvoirs des trois clans anciens affluèrent dans son index droit, fusionnant pour former le sortilège ancien originel de Wang Lin!
 
-Le Doigt de l'Immortel Ancien!
+L'Ancien Doigt Immortel!
 
 Ce doigt pouvait briser le sceau du Souverain Céleste aux Sept Couleurs; pourquoi Wang Lin devrait-il craindre ce Dragon Azure blessé?
 
@@ -52,9 +52,9 @@ D'un simple geste, les couleurs du ciel changèrent et les nuages se déchirère
 
 Des grondements tonitruants résonnèrent, un bruit si violent qu'il pouvait ébranler l'esprit. Au moment de la collision, le Général Dragon Azure cracha du sang et l'infinie silhouette du Dragon Azure derrière lui s'effondra. Le Général fut projeté en arrière de mille pieds avant de parvenir de justesse à s'arrêter. Ses yeux étaient emplis de terreur.
 
-Le Doigt de l'Immortel Ancien contenait le coup le plus puissant de l'héritage ancien de Wang Lin. Il ne pouvait pas s'effondrer totalement, car il possédait une capacité de régénération infinie. Le doigt du Général Dragon Azure n'avait provoqué que quelques centaines d'effondrements partiels; cela était bien moins puissant que le sceau qu'il avait brisé auparavant.
+L'Ancien Doigt Immortel contenait le coup le plus puissant de l'héritage ancien de Wang Lin. Il ne pouvait pas s'effondrer totalement, car il possédait une capacité de régénération infinie. Le doigt du Général Dragon Azure n'avait provoqué que quelques centaines d'effondrements partiels; cela était bien moins puissant que le sceau qu'il avait brisé auparavant.
 
-Ces centaines de ruptures ne suffirent pas à détruire le Doigt de l'Immortel Ancien de Wang Lin. C'était le Général Dragon Azure qui fut contraint de battre en retraite!
+Ces centaines de ruptures ne suffirent pas à détruire l'Ancien Doigt Immortel de Wang Lin. C'était le Général Dragon Azure qui fut contraint de battre en retraite!
 
 Cependant, le corps de Wang Lin subit aussi les contrecoups. Seul son doigt était immortel, pas sa chair. Du sang coula du coin de la bouche de Wang Lin. Un grondement sourd résonna dans son torse et ses organes internes furent pris de spasmes douloureux.
 
@@ -96,7 +96,7 @@ Le Général Tigre Blanc poussa un cri et une immense quantité d'énergie céle
 
 Dans son rugissement, son aura explosa et une rune dorée apparut entre ses sourcils!
 
-« Dragon Azure, Tortue Noire, aidez-moi à ouvrir le sceau! Si nous ne devions pas d'abord restaurer notre cultivation, nous ne serions pas repoussés par cette fourmi. Je vais le tuer! De quel droit ose-t-il repousser des Célestes comme nous? Il n'est qu'une vermine du monde inférieur! »
+« Dragon Azure, Tortue Noire, aidez-moi à ouvrir le sceau! Si nous ne devions pas d'abord restaurer notre culture, nous ne serions pas repoussés par cette fourmi. Je vais le tuer! De quel droit ose-t-il repousser des Célestes comme nous? Il n'est qu'une fourmi du monde inférieur! »
 
 L'expression de Wang Lin resta impassible, bien qu'il fût blessé. Il avait presque succombé à l'attaque combinée des trois généraux; sans ses multiples techniques de secours, il aurait été gravement atteint.
 

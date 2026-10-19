@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 483 - Demonic Finger
 slug: le-doigt-demoniaque
 ---
-L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même le Pavillon de la Forêt Violette voisin s'effondra partiellement.
+L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même les abords du Pavillon de la Forêt Violette s'effondrèrent en partie.
 
 L'explosion de l'avatar enveloppa la zone d'un épais nuage de poussière. Sentant la pression environnante s'alléger, la femme s'apprêtait à faire demi-tour pour s'échapper.
 
@@ -20,9 +20,9 @@ Juste après le pouce, les yeux froids de Wang Lin se révélèrent. Il fixait l
 
 Wang Lin laissa échapper un reniflement glacial. Il attendait justement l'arrivée de ces personnes. Loin de s'interrompre, son pouce s'anima avec une célérité accrue. À une vitesse plusieurs fois supérieure à la précédente, il pressa violemment entre les sourcils de la femme.
 
-Le regard de la femme s'éteignit soudainement; son corps trembla et elle commença à chuter du ciel, mais son âme originelle fut capturée par le doigt de Wang Lin.
+Le regard de la femme s'éteignit soudainement; son corps trembla et, sous une chiquenaude de l'index, elle commença à chuter du ciel, mais son âme originelle fut capturée par le doigt de Wang Lin.
 
-Le nuage de poussière se dissipa. Wang Lin flottait toujours dans les airs. Il porta son pouce à sa bouche et, d'une inspiration profonde, aspira l'âme originelle pour la sceller à l'intérieur du drapeau spirituel.
+Le nuage de poussière se dissipa. Wang Lin flottait toujours dans les airs. Il porta son pouce à sa bouche et, d'une inspiration profonde, aspira l'âme originelle pour la sceller à l'intérieur du drapeau des âmes.
 
 Des traînées de lumière traversèrent le ciel et quatre silhouettes apparurent à 330 mètres de Wang Lin.
 

@@ -28,7 +28,7 @@ L'homme en vert fut également stupéfait. Ses yeux devinrent froids et, loin de
 
 Bientôt, la Porte du Vide se forma complètement, couvrant toute la zone. Elle dégagea une lueur éclatante qui illumina l'obscurité de l'espace!
 
-La pression émanant de cette lumière était comparable à la puissance des cieux. Elle poussa les cultivateurs environnants à l'agenouillement; tous tremblaient, et certains cultivateurs de rang inférieur, manquant de force, s'effondrèrent directement au sol.
+La pression émanant de cette lumière était comparable à la puissance des cieux. Elle poussa les cultivateurs environnants à l'agenouillement; tous tremblaient, et certains cultivateurs de rang inférieur se prosternèrent directement.
 
 Un coup de tonnerre éclata. Des éclairs incessants entourèrent la Porte du Vide dans un fracas continu, faisant trembler l'espace environnant.
 
@@ -40,13 +40,13 @@ Un coup de tonnerre éclata. Des éclairs incessants entourèrent la Porte du Vi
 
 Au moment où le feu apparut, une force inconnue surgit à l'extérieur de la Porte du Vide. Cette puissance possédait la capacité d'aspirer l'esprit; elle forma une marque vague, semblable à une rune que nul ne pouvait distinguer clairement.
 
-C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement était normal: quiconque parviendrait à la fixer serait aspiré à l'intérieur et mourrait probablement.
+C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement était normal: quiconque parviendrait à la fixer serait aspiré à l'intérieur et n'y survivrait qu'à grand-peine.
 
 « Cela...! C'est le Grand Dao du Karma! Trois essences, ce sont réellement trois essences! Déclencher la Porte du Vide avec trois essences... cela ne s'était jamais produit auparavant. Qui est-ce donc!? » L'expression du jeune homme en robe verte changea radicalement.
 
 Le Maître Nan Yunzi était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
 
-« C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation de la troisième étape, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade précoce du Vide du Nirvana, il sera capable d'assassiner des cultivateurs du stade précoce du Vide Spirituel! »
+« C'est vraiment trois essences! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation de la troisième étape, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade précoce du Vide du Nirvana, il sera capable d'assassiner des cultivateurs du stade précoce du Vide Spirituel! »
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu étaient tous stupéfaits. L'apparition soudaine de cette Porte du Vide les avait choqués deux fois de suite. Ils ignoraient s'il s'agissait d'une bénédiction ou d'un désastre.
 
@@ -64,7 +64,7 @@ Cette quatrième essence était celle de la vie et de la mort!
 
 « Ma main droite est la Mort... » Une aura noire enveloppa sa main droite, libérant une présence mortifère terrifiante. Cette aura de mort contenait la puissance de la terre, créant un contraste saisissant avec sa main gauche.
 
-« Moi, Wang Lin, suis les cieux et la terre de la vie et de la mort! » Les mains de Wang Lin se rejoignirent devant lui et ses yeux s'ouvrirent. À cet instant, une lumière jaillit entre ses paumes et illumina le vide.
+« Moi, Wang Lin, suis les cieux et la terre de la vie et de la mort! » Les mains de Wang Lin se rejoignirent devant lui et ses yeux s'ouvrirent. À cet instant, une lumière entrelacée de noir et de blanc jaillit entre ses paumes et illumina le vide.
 
 « Sceau de la Vie et de la Mort! »
 
@@ -110,7 +110,7 @@ Situ Nan, le Maître Long Pan et le Maître Lu Fu lancèrent également l'assaut
 
 Les milliers de cultivateurs du Royaume Intérieur les suivirent. En un instant, un bain de sang commença!
 
-C’est alors qu'un reniflement glacial retentit au loin. Un nuage de brume violette apparut de nulle part. Trop rapide, il s'engouffra instantanément sur le champ de bataille et percuta le Maître Nan Yunzi qui combattait le jeune homme en vert. Un fracas tonitruant éclata et le visage du Maître Nan Yunzi devint livide. Déjà blessé, il fut projeté vers la planète Suzaku par l'impact.
+C’est alors qu'un reniflement glacial retentit au loin. Un nuage de brume violette apparut de nulle part. Trop rapide, il s'engouffra instantanément sur le champ de bataille et percuta le Maître Nan Yunzi qui combattait le jeune homme en vert. Un fracas tonitruant éclata et le visage du Maître Nan Yunzi devint livide. Déjà blessé, il cracha du sang et fut projeté vers la planète Suzaku par l'impact.
 
 « L'un des Cinq Maîtres du Système Stellaire Antique! Vite, repliez-vous vers la planète Suzaku et résistez avec la formation! »
 

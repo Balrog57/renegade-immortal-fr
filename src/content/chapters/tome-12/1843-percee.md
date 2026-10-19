@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Ils étaient trois: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient revenus il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
+Ils étaient trois: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient arrivés sur le Continent Astral Immortel il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.
 
@@ -28,7 +28,7 @@ La fuite et la poursuite se poursuivaient ainsi. Pourtant, sous les trois banni�
 
 Elle avait un mauvais pressentiment!
 
-« En une seule journée, le niveau de la mer a baissé de centaines de pieds, soit bien plus qu'hier! Il y a un problème! » Elle scruta la boussole couverte de points verts. Il ne restait que peu de points blancs, moins de mille.
+« En une seule journée, le niveau de la mer a baissé de centaines de pieds, soit plusieurs fois plus qu'hier! Il y a un problème! » Elle scruta la boussole couverte de points verts. Il ne restait que peu de points blancs, moins de mille.
 
 Les trois lumières les plus importantes avaient disparu. Quant aux neuf points plus faibles, après la disparition des quatre premiers, deux autres s'étaient éteints. Seuls les trois points groupés bougeaient lentement, poursuivis par deux points verts particulièrement visibles.
 
@@ -46,7 +46,7 @@ Cette eau sombre, semblable à de l'encre, se répandit à une vitesse inimagina
 
 Quant à Wang Lin, après deux jours, il avait absorbé une quantité massive d'eau de mer. Il tentait de la condenser en son sein pour former une essence d'eau, mais rien ne s'était encore produit. Après réflexion, il accéléra encore son absorption.
 
-Quelques heures plus tard, plus de la moitié de la Mer des Pilules avait viré au noir. Tous les cultivateurs du Continent du Taureau Céleste touchés par cette onde poussèrent des cris de douleur successifs. Leurs corps étaient corrodés par l'eau, et même leurs âmes originelles ne pouvaient y échapper.
+Quelques heures plus tard, plus de la moitié de la Mer des Pilules avait viré au noir. Tous les cultivateurs du Continent du Taureau Céleste touchés par cette onde poussèrent des cris de douleur successifs. Leurs corps étaient corrodés par l'eau et se changeaient aussitôt en une mare de sang; même leurs âmes originelles ne pouvaient y échapper.
 
 Même le groupe de cultivateurs aux robes vertes ralentit dans cette mer noire, bien qu'ils ne fussent pas blessés. La femme sous les bannières ne pouvait le voir, mais la boussole révélait clairement les changements en cours.
 
@@ -62,7 +62,7 @@ Le point blanc représentant Wang Lin fut d'abord ignoré par la femme. Cependan
 
 « J'aurais dû m'en rendre compte bien plus tôt! » Un éclair de fureur traversa ses yeux.
 
-« Plein est, à 97 millions de kilomètres, envoyez 30 unités de Soldats du Démon Vert pour l'éliminer... » Avant qu'elle n'ait pu terminer sa phrase, le point blanc représentant Wang Lin disparut soudainement.
+« Plein est, à 97 millions de kilomètres, envoyez 30 escouades de Soldats du Démon Vert pour l'éliminer... » Avant qu'elle n'ait pu terminer sa phrase, le point blanc représentant Wang Lin disparut soudainement.
 
 L'événement fut si brusque qu'elle en resta muette et stupéfaite.
 
@@ -88,7 +88,7 @@ L'encre noire qui recouvrait la moitié de la Mer des Pilules se dissipait rapid
 
 « C'est lui! » Les yeux de la femme se remplirent d'une intention meurtrière alors qu'elle pointait sa main gauche vers l'avant.
 
-« 50 unités de Soldats du Démon Vert, tuez cet homme! » Sur ce commandement, plus de la moitié des milliers de cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
+« 50 escouades de Soldats du Démon Vert, tuez cet homme! » Sur ce commandement, plus de la moitié des milliers de cultivateurs présents aux côtés de la femme s'élancèrent et disparurent.
 
 Sur la boussole de la femme, une multitude de points verts apparurent autour de Wang Lin pour l'encercler.
 

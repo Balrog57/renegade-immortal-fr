@@ -59,7 +59,7 @@ Il aperçut un gigantesque char de guerre doré volant lentement vers la planèt
 
 Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps étaient énormes et il s'agissait d'une espèce capable de voler sur de courtes distances dans l'espace. Bien qu'elles ne puissent utiliser aucun sort, elles ne devaient pas être sous-estimées.
 
-Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était assis un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
+Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était allongé un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
 
 Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la division pourpre de la Secte du Destin Céleste. Salutations, Senior Démon Doré. »
 
@@ -69,7 +69,7 @@ Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie d
 
 La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture du Démon Doré avait dépassé le stade du Yin Illusoire et du Yang Corporel pour atteindre le domaine légendaire.
 
-La masse de chair assise sur le siège fronça les sourcils et s'exclama: « Pourquoi ce petit garçon reste-t-il là, figé? Montrez-moi le chemin! »
+La masse de chair allongée sur le siège fronça les sourcils et s'exclama: « Pourquoi ce petit garçon reste-t-il là, figé? Montrez-moi le chemin! »
 
 Zhao Xingsha prit une profonde inspiration. Son sourire serein revint sur son visage et il répondit respectueusement: « Par ici, Senior! » D'un geste de la main, il fit bouger la brume violette pour révéler un long passage.
 

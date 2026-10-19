@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 819 - Heaven-Avoiding Coffin (3)
 slug: le-coffre-evitant-le-ciel-3
 ---
-L'homme en robe noire afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envola automatiquement pour refermer l'ouverture. Puis, le cercueil se changea en une traînée de lumière cristalline qui jaillit hors de la formation et fila au loin.
+L'homme en robe noire, Long Daozi, afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envola automatiquement pour refermer l'ouverture. Puis, le cercueil se changea en une traînée de lumière cristalline qui jaillit hors de la formation et fila au loin.
 
 Les yeux de Wang Lin s'illuminèrent. La scène qui se déroulait devant lui le choqua; il vit clairement le jeune homme à l'intérieur du cercueil disparaître.
 
@@ -24,7 +24,7 @@ Le regard de Wang Lin devint glacial alors qu'il traquait le cercueil.
 
 Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'il murmurait: « Maître, moi, Long Daozi, je n'ai pas eu de corps pendant toutes ces années passées à garder votre fils. Il s'avère qu'il me suffisait de rester allongé ici un instant pour récupérer mon enveloppe charnelle! »
 
-« Si c'était le cas, pourquoi m'avoir infligé une telle douleur? Aviez-vous peur que je ne protège plus votre héritage une fois mon corps retrouvé?! Je m'en voulais auparavant, mais maintenant je sais! Moi, Long Daozi, j'ai toujours été reconnaissant envers vous de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce cercueil. Cependant, je vois maintenant à quel point mes pensées étaient ridicules!! »
+« Si c'était le cas, pourquoi m'avoir infligé une telle douleur? Aviez-vous peur que je ne garde plus ce cercueil pour vous une fois mon corps retrouvé?! Je m'en voulais auparavant, mais maintenant je sais! Moi, Long Daozi, j'ai toujours été reconnaissant envers vous de m'avoir sauvé, et en raison de notre lien de maître à disciple, j'aurais préféré souffrir durant d'innombrables années plutôt que d'avoir la moindre idée sur ce cercueil. Cependant, je vois maintenant à quel point mes pensées étaient ridicules!! »
 
 À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
 
@@ -46,7 +46,7 @@ Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui 
 
 Wang Lin s'arrêta net, l'expression extrêmement sombre, sur le point de reculer. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
-Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait de lui. Bien qu'elle ne fût pas aussi écrasante que celle de l'Ancêtre Sanguin, elle n'en demeurait pas moins redoutable.
+Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait de lui. Bien qu'elle ne fût pas aussi écrasante que celle de l'Ancêtre de Sang, elle n'en demeurait pas moins redoutable.
 
 C'était comme si une tempête céleste faisait rage dans la zone et que cet homme en était le centre!
 
@@ -120,4 +120,4 @@ Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la b�
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 
-Wang Lin avait disparu pendant plus de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux visait directement Wang Lin!
+Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux visait directement Wang Lin!

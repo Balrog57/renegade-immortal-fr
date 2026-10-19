@@ -60,7 +60,7 @@ Zhou Yi flottait toujours aux côtés de Wang Lin. Ce dernier était très affai
 
 Bientôt, le brouillard sombre apparut devant eux. Bei Lou le regarda avec haine. Si ce n'était pas pour son propre échec, l'Ancien Démon Ta Jia n'aurait jamais pu saisir cette opportunité.
 
-« Cependant, ce n'est pas une mauvaise chose. Comment Qing Lin aurait-il pu être si facile à vaincre? Ta Jia n'a certainement pas réussi, sinon il aurait quitté cet endroit depuis longtemps. »
+« Cependant, ce n'est pas une mauvaise chose. Comment Qing Lin aurait-il pu être si facile à vaincre? Ta Jia n'a sans doute pas réussi, sinon il aurait quitté cet endroit depuis longtemps. »
 
 Après avoir pénétré dans le palais, Wang Lin vit immédiatement une stèle de pierre au sol. Elle mesurait environ vingt pieds de haut et ne portait qu'une seule empreinte de main.
 
@@ -78,7 +78,7 @@ Bien qu'il se soigne, il ne scella pas son Sens Divin. Même si cela ralentissai
 
 Le temps passa lentement, et en un clin d'œil, sept jours s'écoulèrent. Durant cette période, Wang Wei et Hu Juan restèrent assis comme s'ils étaient en pleine culture. L'Ancien Démon Bei Lou en fit de même.
 
-Wang Lin laissa échapper un long soupir. Ses blessures s'étaient légèrement atténuées, mais les dangers latents persistaient. Heureusement, il disposait de suffisamment de pilules pour une guérison complète. Il en sortit d'autres et les avala après vérification.
+Wang Lin laissa échapper un long soupir. Ses blessures s'étaient légèrement atténuées, mais les dangers latents persistaient. Heureusement, il disposait de suffisamment de pilules. Il en sortit d'autres et les avala après vérification.
 
 Cependant, son Sens Divin restait déployé, verrouillé sur l'entrée. Il attendait le Maître du Vide. Il était convaincu que le groupe de trois personnes dirigé par le Maître du Vide serait le premier à arriver.
 
@@ -112,4 +112,4 @@ Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impress
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 
-« Je suis l'Ancien de l'Alliance de la Culture, le Maître du Vide, le frère cadet de l'Ancien Principal, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.
+« Je suis l'Ancien de l'Alliance de la Culture, le Maître du Vide, le frère cadet du Grand Ancien, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.

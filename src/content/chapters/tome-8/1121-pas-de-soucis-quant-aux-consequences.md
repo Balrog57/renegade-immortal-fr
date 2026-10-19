@@ -8,9 +8,9 @@ slug: pas-de-soucis-quant-aux-consequences
 ---
 Qing Lin regarda Wang Lin et dit lentement: « Le Maître a été gravement blessé à l'époque et a dû affronter Bei Luo et Ta Jia par la suite. Finalement, Ta Jia a envahi mon corps... »
 
-« Bien que je ne sois pas totalement impuissant, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
+« Bien que je ne sois pas à bout de forces, j'ai besoin de me retirer en culture pour guérir. J'ai également appris l'état du Système Stellaire du Vide Brillant par ton frère aîné Wang Wei. Il est plongé dans un chaos total... »
 
-« Ce nouveau Royaume Céleste de la Pluie deviendra une terre pour mes disciples. La porte du Royaume Céleste de la Pluie a été scellée, personne d'autre ne pourra donc y pénétrer désormais. »
+« Ce nouveau Royaume Céleste de la Pluie deviendra une terre pour mes disciples. Le sceau de la porte du Royaume Céleste de la Pluie vient d'être ouvert. Désormais, plus personne d'autre ne pourra y entrer. »
 
 « Si tu as des amis ou des proches, tu peux les amener ici pour vivre dans le Royaume Céleste de la Pluie. Une fois que la culture de ton Maître aura retrouvé son niveau, nous pourrons rendre au Royaume Céleste sa gloire d'antan! » Tandis que Qing Lin parlait calmement, son regard croisa celui de Wang Lin.
 
@@ -22,7 +22,7 @@ L'expression de Qing Lin resta sereine et il hocha la tête.
 
 En entendant les mots « lignage royal », Qing Lin réfléchit un instant et dit: « Je présume que tu parles de l'ancien dieu Tu Si sur la planète Suzaku! »
 
-Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, et Tu Si existait depuis l'ère du Royaume Céleste. Il était logique que Qing Lin soit au courant.
+Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, et Tu Si existait avant le Royaume Céleste. Il était logique que Qing Lin soit au courant.
 
 « À mon apogée, je ne le considérais jamais comme une menace, mais pour des raisons particulières, je n'ai jamais pris la peine de vérifier... Désormais, je n'ai plus de force que pour une seule attaque! »
 
@@ -30,7 +30,7 @@ Wang Lin ne fut pas surpris. Après tout, Qing Lin était l'Empereur Céleste, e
 
 « La force d'une seule attaque... » Wang Lin esquissa un sourire amer en comprenant le sens des paroles de Qing Lin. Ce dernier était trop blessé et n'avait plus la puissance nécessaire que pour lancer une seule attaque. Bien que cet assaut puisse servir de menace, il ne pouvait pas être utilisé. Même si l'ennemi était forcé de reculer, l'avenir en deviendrait périlleux.
 
-Qing Lin réfléchit un instant et reprit lentement: « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver ma culture de pointe. Sinon, mon royaume scellé sera anéanti... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi! »
+Qing Lin réfléchit un instant et reprit lentement: « J'ai été entravé par l'Ancien Démon Ta Jia pendant bien trop longtemps. Le passage vers l'extérieur s'ouvrira bientôt. Je dois rapidement retrouver mon niveau de culture au sommet. Sinon, je serai anéanti dans mon royaume scellé... Cependant, si tu en as besoin, je peux utiliser cette unique attaque pour toi! »
 
 Wang Lin secoua la tête, regarda Qing Lin et demanda: « Maître, quelle calamité le Royaume Céleste a-t-il subie à l'époque? »
 
@@ -58,7 +58,7 @@ Les yeux de Qing Lin se plissèrent et il perçut naturellement la nervosité de
 
 L'esprit de Wang Lin trembla et sa respiration devint saccadée.
 
-« Ce Cercueil Évitant le Ciel ne provient pas des quatre Royaumes Célestes; il vient de l'Ancien Royaume Céleste. La rumeur prétend qu'il peut ressusciter les morts, mais ce n'est qu'une légende. Cependant, si l'on connaît l'incantation pour faire fonctionner ce cercueil, il devrait être possible de ramener un fragment d'âme. »
+« Ce Cercueil Évitant le Ciel ne provient pas des quatre Royaumes Célestes; il vient de l'Ancien Royaume Céleste. La rumeur prétend qu'il peut ressusciter les morts, mais ce n'est qu'une légende. Cependant, si l'on connaît l'incantation pour faire fonctionner ce cercueil, il est possible de ramener un fragment d'âme. »
 
 « Malheureusement, le Maître ne connaît pas l'incantation... » Les paroles de Qing Lin offrirent un espoir à Wang Lin, avant de le briser aussitôt.
 
@@ -74,7 +74,7 @@ Wang Lin prit une profonde inspiration en fixant Qing Lin. L'espoir dans ses yeu
 
 Wang Lin se leva et joignit les mains. Il était déjà satisfait d'obtenir une telle réponse.
 
-« Va, rassemble les personnes que tu juges importantes et amène-les ici. Je peux t'aider à les garder en sécurité. » Qing Lin semblait fatigué en parlant; il leva sa main droite et, d'un geste, fit apparaître une rune. Celle-ci se posa sur la paume droite de Wang Lin et s'insinua dans son corps.
+« Va, rassemble les personnes que tu juges importantes et amène-les ici. Je peux t'aider à les garder en sécurité. » Qing Lin semblait fatigué en parlant; il leva sa main droite et, d'un geste, fit apparaître une rune. Celle-ci se posa sur la paume de Wang Lin et s'insinua dans son corps.
 
 « Lorsque tu souhaiteras revenir, active cette rune. »
 
@@ -82,7 +82,7 @@ Wang Lin hocha la tête en regardant Qing Lin. Il rangea ensuite le Cercueil Év
 
 Les cultivateurs qui parcouraient autrefois le Système Stellaire de l'Alliance avaient tous disparu. La majorité des forces de diverses factions s'étaient dirigées vers la planète Suzaku.
 
-À cet instant, un rayon de lumière fendit le ciel. Wang Lin volait en avant, d'un calme olympien. Bien que l'éveil de Qing Lin et la formation du nouveau Royaume Céleste de la Pluie n'aient pas résolu ses problèmes, cela lui permettait désormais de ne plus craindre les conséquences.
+À cet instant, un rayon de lumière fendit le ciel. Wang Lin volait en avant, d'un calme olympien. Bien que l'éveil de Qing Lin et la formation du nouveau Royaume Céleste de la Pluie n'aient pas résolu ses problèmes, cela lui permettait désormais de ne plus avoir de souci pour ses arrières.
 
 Il allait envoyer tous ses proches au Royaume Céleste de la Pluie. Grâce à la promesse de Qing Lin, Wang Lin pouvait se détendre.
 
@@ -92,9 +92,9 @@ Il ne voulait pas que Qing Lin l'aide contre Tuo Sen. Bien que cela éliminerait
 
 Il ne lui restait plus de véritables parents dans ce monde. Au maximum, il n'y en avait qu'une seule personne.
 
-Wang Lin se souvenait clairement que lorsque son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume du Vide Brillant.
+Wang Lin se souvenait clairement que lorsque, dans la Terre des Esprits Démoniaques, son esprit s'était étendu sur le système stellaire grâce à la Perle Défiant le Ciel, il avait aperçu Zhou Ru dans le Royaume du Vide Brillant.
 
-Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, il se trouvait à l'extérieur d'une planète sauvage tout à fait ordinaire.
+Les yeux de Wang Lin s'illuminèrent et il fit un pas en avant. Des ondulations apparurent sous ses pieds et il disparut. Lorsqu'il réapparut, après avoir traversé d'innombrables étendues stellaires, il se trouvait à l'extérieur d'une planète sauvage tout à fait ordinaire.
 
 De loin, cette planète ne présentait rien d'anormal, mais Wang Lin savait que le réseau de transfert vers le Royaume du Vide Brillant se trouvait ici.
 
@@ -108,7 +108,7 @@ Cependant, alors que son sens divin détectait le réseau, quatre auras puissant
 
 Simultanément, une voix glaciale résonna:
 
-« Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, tu seras détruit! »
+« Ceci est un lieu interdit. Si tu fais un pas de plus, peu importe ton origine, ton corps et ton esprit seront anéantis! »
 
 Wang Lin fronça les sourcils, s'arrêta et dit: « Je ne suis pas venu pour combattre. Je viens livrer un jade au Royaume du Vide Brillant au nom de l'ancien Empereur Divin de l'Oiseau Vermillon! »
 
@@ -136,11 +136,11 @@ La froideur dans les yeux de Wang Lin s'intensifia, mais il la maîtrisa encore 
 
 Une aura meurtrière jaillit de son corps et une intention de tuer envahit son regard. Après avoir réfléchi un instant, il la réprima une fois de plus et dit calmement: « Je vous demande l'amabilité de transmettre un message. Dites simplement que Wang Lin est venu. »
 
-« Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Purificateur du Nirvana, il n'aurait pas été aussi poli et aurait déjà attaqué.
+« Si tu as du cran, essaie de forcer l'entrée toi-même. » La voix était empreinte d'agacement. Si Wang Lin n'avait pas été un cultivateur du Purificateur du Nirvana, il n'aurait pas été aussi poli et l'aurait déjà chassé de force.
 
-Wang Lin eut un sourire amer de colère. Il n'aurait jamais cru que les quatre gardiens du Royaume du Vide Brillant feraient preuve d'une telle arrogance.
+Wang Lin, pris d'une colère extrême, éclata de rire. Il n'aurait jamais cru que les quatre gardiens du Royaume du Vide Brillant feraient preuve d'une telle arrogance.
 
-« Très bien, très bien! » Une froideur glaciale apparut dans les yeux de Wang Lin alors qu'il fit un pas en avant et agita sa main droite. Une mer de flammes surgit dans le ciel, le teintant d'un rouge vif, et une pluie de feu s'abattit des hauteurs.
+« Très bien, très bien! » Une froideur glaciale apparut dans les yeux de Wang Lin alors qu'il fit un pas en avant et agita sa main droite. Une mer de flammes surgit dans le ciel, le teintant d'un rouge vif, et une pluie de feu s'abattit furieusement des hauteurs.
 
 Son corps vacilla et il réapparut à mille pieds de là, pointant l'avant du doigt. Les flammes s'écrasèrent avec violence. L'endroit que Wang Lin désignait se tordit, et un vieillard vêtu de blanc surgit en urgence, le visage sombre.
 

@@ -42,7 +42,7 @@ Luo Chen regarda Wang Lin d'un regard tourmenté. Il avait été contraint de co
 
 Il s'était assimilé à ce serpent pendant bien trop longtemps.
 
-Son esprit était envahi par la créature. À ses yeux, il n'était pas digne de porter le nom de Dieu Ancien; il n'était que l'esclave du Serpent aux yeux de lune.
+Son esprit était envahi par la créature. À ses yeux, il n'était pas digne de porter le nom de Dieu Ancien; il n'était qu'une marionnette du Serpent aux yeux de lune.
 
 Il avait sans cesse oscillé entre transmettre l'héritage à Wang Lin ou le dévorer. S'il avait sacrifié Ji Xiantian de son plein gré dans cette lutte intérieure, c'était peut-être parce qu'au fond de son cœur, il souhaitait surtout offrir cette étoile à Wang Lin.
 
@@ -50,7 +50,7 @@ Il avait sans cesse oscillé entre transmettre l'héritage à Wang Lin ou le dé
 
 Un impact violent retentit; Wang Lin sentit son bras droit s'engourdir et fut projeté en arrière. Luo Chen fut également repoussé de plusieurs pas, les étoiles entre ses sourcils devenant plus floues encore.
 
-Si Wang Lin avait défié Luo Chen, c'est qu'il savait que malgré sa puissance, ce dernier était extrêmement affaibli!
+Si Wang Lin avait défié Luo Chen, c'est qu'il savait que, qu'il s'agisse ou non du jeune Dieu Ancien, ou même d'un véritable Dieu Ancien adulte, ce dernier était extrêmement affaibli!
 
 Le caractère vacillant des étoiles sur le front de Luo Chen en était la preuve. À l'inverse de Wang Lin, dont les quatre étoiles étaient solides et brillaient d'un éclat pur, celles de son adversaire s'effaçaient. Plus important encore: Wang Lin appartenait à la lignée royale!
 
@@ -62,7 +62,7 @@ Des ondes de choc résonnèrent et des grondements sourds parcoururent le vide. 
 
 Au fil de l'affrontement, Wang Lin apprivoisait peu à peu la puissance d'un Dieu Ancien à 4 étoiles. Chaque coup déclenchait une tempête dévastatrice. Ses assauts étaient imprégnés des sorts ancestraux, rendant le duel avec Luo Chen de plus en plus intense!
 
-Dans un fracas retentissant, ils furent séparés. Alors qu'il reculait, Wang Lin leva ses mains et son regard s'illumina. Il commença à psalmodier dans la langue des Dieux Anciens, et l'ombre d'un Dieu Ancien titanesque apparut devant lui, poussant un rugissement vers Luo Chen!
+Dans un fracas retentissant, ils furent séparés. Alors qu'il reculait, Wang Lin leva ses mains et son regard s'illumina. Il commença à psalmodier dans la langue des Dieux Anciens, et l'ombre d'un Dieu Ancien titanesque, haute de cent mille pieds, apparut devant lui, poussant un rugissement vers Luo Chen!
 
 Le regard tourmenté de Luo Chen s'accentua et il leva lui aussi les mains. Une ombre de Dieu Ancien surgit derrière lui, haute de plus de cent mille pieds. C'était comme si un géant véritable venait d'éclore du néant!
 

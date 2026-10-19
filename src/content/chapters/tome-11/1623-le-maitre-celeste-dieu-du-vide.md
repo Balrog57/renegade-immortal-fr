@@ -26,7 +26,7 @@ Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, p
 
 « Réglons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa le Maître Céleste Dieu du Vide et s'avança vers lui.
 
-« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes d'encens jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
+« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes de flammes jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
 
 « Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse jamais s'en échapper d'un pouce! » rugit le Maître Céleste Dieu du Vide en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
 
@@ -70,13 +70,13 @@ L'index droit de Wang Lin sembla se muer en un éclair éternel. Ce tonnerre des
 
 Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
 
-D'une seule pression, le corps du Maître Céleste Dieu du Vide trembla. Une lueur argentée jaillit entre ses sourcils et se propagea sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
+D'une seule pression, le corps du Maître Céleste Dieu du Vide trembla. Une lueur argentée jaillit entre ses sourcils; des dizaines de milliers de filaments argentés se déployèrent et s'étendirent sur tout son être dans un fracas de tonnerre. Du sang s'échappa du coin de sa bouche alors qu'il était repoussé.
 
 Alors qu'il reculait, Wang Lin avança de nouveau. Son pouce droit s'étira pour frapper une fois encore entre les sourcils de son adversaire.
 
 « Feu! »
 
-Dans un grondement assourdissant, un feu destructeur se répandit entre ses sourcils, tel le tonnerre argenté. Les flammes dévorèrent son corps, s'engouffrèrent dans son esprit et consumèrent son âme. La douleur de voir son corps brûler de l'intérieur comme de l'extérieur fit se crisper le visage du Maître Céleste Dieu du Vide, qui cracha une large gorgée de sang.
+Dans un grondement assourdissant, un feu destructeur se répandit entre ses sourcils, sous le voile de ces filaments argentés. Les flammes dévorèrent son corps, s'engouffrèrent dans son esprit et consumèrent son âme. La douleur de voir son corps brûler de l'intérieur comme de l'extérieur fit se crisper le visage du Maître Céleste Dieu du Vide, qui cracha une large gorgée de sang.
 
 Pourtant, ce n'était pas fini. Une lueur meurtrière brilla dans les yeux de Wang Lin. Il leva la main droite en forme de paume, puis l'écrasa sur le front du Maître Céleste Dieu du Vide avant de refermer ses doigts pour former un poing.
 

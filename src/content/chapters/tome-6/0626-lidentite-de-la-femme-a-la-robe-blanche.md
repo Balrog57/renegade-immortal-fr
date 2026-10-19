@@ -7,7 +7,7 @@ en: Chapter 626 - Identity of the White-Robed Female Corpse
 slug: lidentite-de-la-femme-a-la-robe-blanche
 ---
 
-« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles empreints de la puissance primordiale, que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
+« Le pinceau céleste est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles empreints de la puissance primordiale, que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
 
 « Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.
 
@@ -57,7 +57,7 @@ Les sceaux des deux dernières parties du jade venaient d'être levés!
 
 Le temps s'écoula lentement. Wang Lin resta immergé dans les secrets du jade pendant une durée indéterminée.
 
-Le vieil homme chétif s'était réveillé le deuxième jour suivant l'immersion de Wang Lin. Cependant, la Formation d'Épées aux Trois Talents l'encerclait toujours. Des rafales d'énergie glaciale pénétraient son corps par les pointes des lames, l'empêchant de bouger d'un pouce.
+Le vieil homme chétif s'était réveillé le deuxième jour suivant l'immersion de Wang Lin. Cependant, la Formation des Trois Talents à l'Épée l'encerclait toujours. Des rafales d'énergie glaciale pénétraient son corps par les pointes des lames, l'empêchant de bouger d'un pouce.
 
 Avec sa culture, il pouvait vaguement percevoir que le mystère de cette formation ne résidait pas dans les épées elles-mêmes, mais dans la force mystérieuse qui les animait. En outre, Xu Liguo le surveillait. Ce dernier flottait nonchalamment autour du vieil homme, affichant par intermittence un sourire glacial tout en agitant sa lame noire devant lui.
 
@@ -99,12 +99,12 @@ La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains ét
 
 Le temps passa silencieusement; en un clin d'œil, plus de vingt ans s'étaient écoulés.
 
-La guerre entre le Pays Démoniaque Céleste et le Pays Démoniaque du Feu s'éternisait. L'intensité des combats augmentait à mesure que le conflit perdurait. Les autres nations ne purent plus rester en retrait et décidèrent enfin d'intervenir.
+La guerre entre le Pays du Démon Céleste et le Pays du Démon de Feu s'éternisait. L'intensité des combats augmentait à mesure que le conflit perdurait. Les autres nations ne purent plus rester en retrait et décidèrent enfin d'intervenir.
 
-L'Ancien Démon du Pays Démoniaque Céleste avait anticipé ce problème dès le déclenchement de la guerre contre le Pays Démoniaque du Feu. Alors que les autres pays s'apprêtaient à agir, il utilisa sa propre puissance pour sceller la Ville Démoniaque Céleste!
+L'Ancien Démon du Pays du Démon Céleste avait anticipé ce problème dès le déclenchement de la guerre contre le Pays du Démon de Feu. Alors que les autres pays s'apprêtaient à agir, il utilisa sa propre puissance pour sceller la Cité du Démon Céleste!
 
-Quant aux autres cités du Pays Démoniaque Céleste, l'Ancien Démon les abandonna totalement. Il ne garda que la capitale et le Lac du Dragon, attendant l'échéance de son accord avec Wang Lin. Il n'avait aucune crainte que ce dernier ne revienne sur sa parole; si cela arrivait, il utiliserait ses capacités pour le traquer jusqu'à ce qu'il le tue. Il était convaincu que Wang Lin n'était pas un homme aussi court-termiste.
+Quant aux autres cités du Pays du Démon Céleste, l'Ancien Démon les abandonna totalement. Il ne garda que la capitale et le Lac du Dragon, attendant l'échéance de son accord avec Wang Lin. Il n'avait aucune crainte que ce dernier ne revienne sur sa parole; si cela arrivait, il utiliserait ses capacités pour le traquer jusqu'à ce qu'il le tue. Il était convaincu que Wang Lin n'était pas un homme aussi court-termiste.
 
-Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays Démoniaque du Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes et de vies.
+Dans ce contexte, la Tribu de l'Affinement de l'Âme s'étendit et se renforça rapidement. Au cours des dernières décennies, sur les champs de bataille du Pays du Démon de Feu, des silhouettes mystérieuses vêtues de noir attirèrent l'attention des deux camps. Ces hommes en robe noire apparaissaient souvent sur les lieux des combats pour absorber une quantité massive de fragments d'âmes et de vies.
 
 Parallèlement, les soldats démons qui avaient tué d'innombrables ennemis sur les champs de bataille, affichant des performances exceptionnelles et une puissance grandement accrue, furent promus au rang de généraux dans les armées des deux pays pour remplacer les généraux tombés au combat.

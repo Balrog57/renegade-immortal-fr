@@ -78,7 +78,7 @@ En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi
 
 Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomber sur la soie blanche. En s'étendant, elles formèrent une tache semblable à une fleur de prunier... « Le Gang des Chevaux... » Une haine monstrueuse brilla dans ses yeux alors qu'il s'éloignait vers l'horizon... « Grand frère, je t'attendrai... »
 
-Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior!
+Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le plus brillant de la génération junior!
 
 Dans le fief du Gang des Chevaux, plus de mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit vieillards subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 
@@ -96,13 +96,13 @@ Il vit également ce qui se passerait des dizaines de milliers d'années plus ta
 
 « Si je dois mourir, alors que je meure! »
 
-Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi reformer ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta culture réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
+Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulement ce vieil homme peut t'empêcher de mourir... mais je peux aussi donner une forme à ta sœur... Je ne peux pas la ramener à la vie, mais je peux lui permettre de rester à tes côtés pour l'éternité... Si ta culture réussit, peut-être rencontreras-tu quelqu'un capable de la ressusciter... Si tu meurs maintenant, tout sera perdu... »
 
 L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo"! »
 
-À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un ongle situé entre ses sourcils se propagea progressivement pour occuper tout son front.
+À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un ongle situé entre ses sourcils se propagea progressivement pour occuper le sommet de son crâne.
 
-À l'extérieur du Fourneau de l'Empereur, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard des cultivateurs environnants. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau de l'Empereur avant qu'il ne se dissipe.
+À l'extérieur du Fourneau de l'Empereur, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard de dizaines de milliers de cultivateurs. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau de l'Empereur avant qu'il ne se dissipe.
 
 La silhouette de Maître Simo apparut.
 

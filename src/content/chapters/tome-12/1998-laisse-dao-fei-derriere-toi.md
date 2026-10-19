@@ -94,7 +94,7 @@ Une sensation familière envahit le cœur de Wang Lin. Il agita la main droite e
 
 Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tête de l'Ancêtre Céleste. L'homme fou était toujours inconscient sur cette tête monumentale.
 
-« Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Empyréen au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin.
+« Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Empyréen au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin, sans dissimuler ses pensées.
 
 « Et toi, Gémeaux. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte du Yang Pourpre ne s'en sortira pas seule! »
 

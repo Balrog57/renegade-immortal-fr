@@ -22,7 +22,7 @@ Sur ces mots, il fit un pas et chargea vers le palais où se trouvait Wang Lin.
 
 Si Situ Nan n'était pas allé vers Wang Lin, le Maître Fu Fengzi ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir!
 
-Les êtres ayant atteint son niveau de culture étaient assez directs. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
+Les cultivateurs de son niveau voient la plupart des choses avec détachement. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
 
 Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, le Maître Fu Fengzi apparut devant lui.
 
@@ -78,7 +78,7 @@ Au moment où Situ Nan pointa le doigt, l'anneau disparut, mais un instant plus 
 
 L'anneau se multiplia soudainement, passant de un à deux, de deux à quatre, et en un clin d'œil, devint une multitude d'anneaux piégeant la cible! Cependant, cette femme n'était pas ordinaire. Elle ouvrit la bouche pour cracher une paire de ciseaux qui tournèrent autour d'elle, tranchant les anneaux.
 
-Profitant de cet instant, Situ Nan cracha au sol avec un sourire amer: « Malédiction, qu'est-ce que c'est? Je n'ai pas reconnu quelqu'un que je connaissais... » Sur ce, il passa devant la femme et se dirigea directement vers le palais.
+Profitant de cet instant, Situ Nan cracha au sol avec un sourire amer: « Malédiction, quelle affaire! Le déluge emporte le temple du Roi-Dragon... Je n'ai pas reconnu quelqu'un que je connaissais... » Sur ce, il passa devant la femme et se dirigea directement vers le palais.
 
 En s'approchant, ses mains formèrent un sceau et il pointa du doigt en riant: « Reçois mon Doigt du Tremblement de Montagne! » D'un geste, l'ombre d'une montagne majestueuse apparut derrière lui. Elle était si immense qu'elle semblait relier le ciel et la terre. Puis, cette ombre se condensa rapidement sur le doigt de Situ Nan.
 
@@ -86,7 +86,7 @@ Finalement, lorsque la montagne disparut totalement, la puissance de ce doigt at
 
 Un rire joyeux retentit depuis l'intérieur du palais et une aura frénétique explosa de l'enceinte.
 
-Les deux forces entrèrent en collision, provoquant une onde de choc inimaginable. Le souffle de l'impact souleva une poussière épaisse qui enveloppa les environs du palais de Wang Lin, projetant des fragments de pierre dans toutes les directions.
+Les deux forces entrèrent en collision, provoquant une onde de choc inimaginable. Le souffle de l'impact souleva une poussière épaisse qui enveloppa les environs du palais de Wang Lin, projetant des fragments de pierre dans toutes les directions. Le sol fut raclé sur plusieurs dizaines de pieds, et le palais de Wang Lin s'effondra dans un fracas, tous ses débris étant repoussés en arrière.
 
 Le corps de Situ Nan trembla et la stupeur se lut dans ses yeux. Il se transforma en un rayon de lumière et recula de mille pieds avant que la force ne se dissipe. Néanmoins, sa main droite restait tremblante et engourdie.
 
@@ -102,7 +102,7 @@ Tout ce qui s'était passé sur la planète Suzaku résonna presque simultanéme
 
 « Doigt du Tremblement de Montagne! » rit Situ Nan en pointant Wang Lin de sa main droite. À cet instant, la planète entière trembla et les âmes des montagnes s'envolèrent. Une illusion enveloppa Situ Nan.
 
-Des montagnes apparurent autour de lui; il y en avait des centaines de milliers. Situ Nan avait, de manière inattendue, invoqué toutes les âmes de montagne de la planète. Elles apparaissaient comme des mirages d'un réalisme saisissant.
+Des montagnes apparurent autour de lui; il y en avait des centaines, voire des milliers. Situ Nan avait, de manière inattendue, invoqué toutes les âmes de montagne de la planète. Elles apparaissaient comme des mirages d'un réalisme saisissant.
 
 Alors qu'il pointait le doigt, ces âmes de montagne dégageaient des auras ancestrales qui se rassemblèrent promptement! Elles se condensèrent en une force colossale qui fonça vers Wang Lin.
 

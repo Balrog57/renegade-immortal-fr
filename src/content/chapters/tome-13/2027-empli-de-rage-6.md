@@ -10,7 +10,7 @@ slug: empli-de-rage-6
 
 Wang Lin ne parvenait pas à distinguer les silhouettes qui se précipitaient vers lui, tant il était entouré. De plus en plus de gens arrivaient tandis que des formations de transfert scintillaient. Tous furent un instant déconcertés avant de se ruer sur Wang Lin sans la moindre hésitation.
 
-À cet instant, seule la silhouette de Wan Er, dans le palais qui se dressait devant lui, restait visible à ses yeux.
+À cet instant, seule la silhouette de Wan Er, dans le palais qui se dressait à cent mille pieds devant lui, restait visible à ses yeux.
 
 L'arrivée massive de nouveaux arrivants finit par obstruer totalement sa vue. Après un moment, Wang Lin poussa un rugissement et bondit dans les airs. Il était impossible de se téléporter ou d'utiliser la Distorsion Spatiale ici. Lorsqu'il s'élança, la moitié de ses cheveux vira au noir.
 
@@ -30,7 +30,7 @@ Au loin, le Prince Ji Du s'enthousiasma en voyant cela. Il avait attendu ce jour
 
 « L'Ancien Dao... a attiré une immense calamité, tout cela par la faute de cet empereur stupide! »
 
-Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva la main droite comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
+Le Prince Ji Du était transporté d'excitation tandis que le Grand Soleil Empyréen noir et blanc s'étendait, libérant une lumière infinie. Au même instant, Wang Lin poussa un rugissement et leva les deux mains comme s'il brandissait son propre Grand Soleil Empyréen. D'un geste, il balaya les dizaines de milliers de membres de l'Ancien Dao qui lui barraient la route.
 
 Sous ce mouvement, le Grand Soleil Empyréen fondit sur la terre tel un météore. Le hurlement de l'astre couvrit même le grondement des tambours!
 

@@ -20,7 +20,7 @@ Wang Lin n'était pas le seul à bouger. Tous les cultivateurs qui se précipita
 
 C'était comme s'ils s'apprêtaient à briser le monde de leurs pas. Wang Lin ne s'arrêta pas; il continua, pas après pas. Chaque foulée faisait trembler l'univers alors qu'il avançait vers les six messagers du Temple Céleste du Tonnerre.
 
-Cet élan était trop puissant; pour quiconque n'était pas sur place, il aurait été impossible d'en ressentir le choc. Plus de cent cultivateurs rugissaient en chargeant sur ce chemin vers la survie, les yeux injectés de sang, vers la formation de transfert.
+Cet élan était trop puissant; pour quiconque n'était pas sur place, il aurait été impossible d'en ressentir le choc. Plus de cent cultivateurs rugissaient en chargeant sur ce chemin vers la survie, les yeux injectés de sang, vers la réseau de transfert.
 
 Cette scène fit trembler le cœur des six messagers du Temple Céleste. Bien qu'ils fussent puissants, ils furent tout de même ébranlés par une telle ferveur.
 
@@ -44,11 +44,11 @@ Leur présence, conjuguée à la charge de la foule, fit naître une terreur dan
 
 Ils ne pouvaient pas résister! Ils ne pouvaient que reculer, encore et toujours reculer!
 
-Les six reculèrent de plus en plus vite jusqu'à atteindre l'entrée de la formation de transfert!
+Les six reculèrent de plus en plus vite jusqu'à atteindre l'entrée de la réseau de transfert!
 
 « Ouvrez la formation pour que nous puissions partir! Ils sont fous! Une bande de lunatiques! » L'expression de l'un des hommes d'âge moyen était livide alors qu'il regardait les cultivateurs aux yeux rouges fondre sur eux.
 
-Il n'avait même pas besoin de parler. Trois d'entre eux s'assirent immédiatement et commencèrent à former des sceaux pour activer la formation de transfert afin de s'échapper.
+Il n'avait même pas besoin de parler. Trois d'entre eux s'assirent immédiatement et commencèrent à former des sceaux pour activer la réseau de transfert afin de s'échapper.
 
 Une lueur de froideur passa dans les yeux de Wang Lin; il fit un pas et chargea dans la formation. De nombreux cultivateurs s'engouffrèrent derrière lui!
 
@@ -66,19 +66,19 @@ Simultanément, la main de Wang Lin s'étira et le dragon noir descendit du ciel
 
 Le visage du cultivateur qui avait libéré le cadenas pâlit et il recula. Cependant, Wang Lin fut plus rapide. Il fit un pas en avant et, les deux doigts de sa main droite formant une épée chargée d'une aura tranchante, les pressa vers le messager.
 
-Alors que l'homme reculait, il forma un sceau et frappa son sac de stockage. Trois petits drapeaux apparurent autour de lui. Un gaz violet s'échappa des drapeaux et forma des vortex.
+Alors que l'homme reculait, il forma un sceau et frappa son sac de rangement. Trois petits drapeaux apparurent autour de lui. Un gaz violet s'échappa des drapeaux et forma des vortex.
 
 Lorsque les doigts de Wang Lin pressèrent sur le gaz violet, il ressentit immédiatement une force puissante à l'intérieur. Il ne put s'empêcher de marquer un temps d'arrêt, ses yeux se rétrécissant.
 
 Le messager profita de cet instant pour reculer de nouveau. Un sourire narquois apparut sur les lèvres de Wang Lin; il leva sa main droite et le Tatouage d'Os de Bête s'envola aussitôt. Une aura maléfique passa en éclair et une lumière grise apparut au pied du messager.
 
-Le visage de ce dernier devint livide alors que le gaz violet tentait de résister à la lumière grise. À cet instant, Wang Lin se rapprocha et utilisa le sort d'Immobilisation.
+Le visage de ce dernier devint livide alors que le gaz violet tentait de résister à la lumière grise. À cet instant, Wang Lin se rapprocha et utilisa le sort d'Arrêt.
 
 Le corps du messager s'immobilisa instantanément. Bien que ce ne fût que pour un court moment, la lumière grise se propagea immédiatement sur tout son corps. Tandis que Wang Lin s'élançait, il assena un coup de pied au messager avec son pied droit.
 
 Un bruit de craquement retentit aussitôt, puis le corps du messager se fragmenta en morceaux de pierre qui tombèrent au sol. Cependant, les petits drapeaux autour de lui emportèrent son âme originelle et s'enfuirent.
 
-« Je vous en prie, ne me tuez pas, j'utiliserai un trésor puissant... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite une bouchée d'énergie originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
+« Je vous en prie, ne me tuez pas, j'utiliserai un trésor puissant... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite un souffle de son âme originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
 
 À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains cultivateurs de l'Yin Illusoire — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 
@@ -86,7 +86,7 @@ C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la 
 
 Avant que Wang Lin n'ait pu agir, des dizaines de cultivateurs Ascendants attaquèrent avec des yeux injectés de sang, accompagnant le rayon argenté qui poursuivait l'âme. Un instant plus tard, ce messager était mort!
 
-À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, la formation de transfert commença à s'effondrer sur ses bords!
+À cet instant, les trois messagers avaient fini d'activer la formation. Puis, sans aucune hésitation, ils entrelacèrent leurs bras et murmurèrent un chant complexe. Immédiatement, la réseau de transfert commença à s'effondrer sur ses bords!
 
 En sacrifiant la stabilité des bords de la formation, ils accélérèrent son activation. En un instant, des ondulations apparurent et s'élancèrent vers le ciel. À l'intérieur de ces ondes, les trois messagers affichaient des regards malveillants tandis que leurs silhouettes se déformaient et disparaissaient lentement.
 
@@ -104,15 +104,15 @@ Tous les cultivateurs environnants se précipitèrent comme s'ils ne pourraient 
 
 Shengong Hu était la seule personne qui n'avait pas attaqué durant tout ce temps. Il devait une dette au Temple Céleste du Tonnerre, bien qu'il fût isolé après avoir offert son âme dao.
 
-Quoi qu'il en soit, il ne pouvait pas agir et, pour éviter les ennuis, il avait utilisé un sort de changement d'apparence lorsqu'il se trouvait à moins de cinq kilomètres du fragment. À cet instant, il chargea dans le faisceau de lumière.
+Quoi qu'il en soit, il ne pouvait pas agir et, pour éviter les ennuis, il avait utilisé un sort de changement d'apparence lorsqu'il se trouvait à moins de cinq kilomètres du réseau de transfert. À cet instant, il chargea dans le faisceau de lumière.
 
-Alors que davantage de cultivateurs s'engouffraient dans la lumière, celle-ci devint plus intense encore. En s'élançant dans le faisceau, Xi Zifeng regarda en arrière vers Wang Lin. Elle mordilla sa lèvre inférieure comme si elle voulait dire quelque chose.
+Alors que davantage de cultivateurs s'engouffraient dans la lumière, celle-ci devint plus intense encore. En s'élançant dans le faisceau, Xi Zifeng regarda en arrière vers Wang Lin. Elle pinça les lèvres comme si elle voulait dire quelque chose.
 
 L'effondrement des bords de la formation se propageait rapidement et, en un clin d'œil, avait presque atteint le cœur lumineux. Au prix de la destruction de la structure, ce transfert était sur le point de dépasser ses limites.
 
 Wang Lin entra dans le faisceau d'un pas décidé. Dans son cœur, il pensa: « Il est temps de partir... L'effondrement de la formation est une bonne chose. Même si elle ne s'était pas effondrée, je comptais la détruire au moment du transfert. De cette façon, un incident se serait forcément produit à l'arrivée, et j'aurais pu éviter d'apparaître au Temple Céleste du Tonnerre! »
 
-Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Yang Corporel qui s'était transformé en rayon argenté cria: « Aîné, dites-nous votre nom! Cette grande dette ne sera jamais oubliée! »
+Lorsque le faisceau de lumière s'élança vers le ciel, une force puissante apparut. Alors que la lumière était sur le point de se dissiper, le cultivateur Yang Corporel qui s'était transformé en rayon argenté cria: « Senior, dites-nous votre nom! Cette grande dette ne sera jamais oubliée! »
 
 « Xu Mu... » Wang Lin disparut avec le faisceau de lumière. Les yeux de Xi Zifeng s'illuminèrent et elle pensa dans son cœur: « Xu Mu... »
 

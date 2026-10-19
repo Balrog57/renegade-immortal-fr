@@ -10,7 +10,7 @@ slug: sous-la-pluie
 
 « Tu me l'as dit personnellement », répondit Wang Lin en prenant une gorgée de vin.
 
-« Impossible! Mon maître est l'Exalté Empyréen Gu Ya. Je… Je… Si vous me faites du mal, vous mourrez! De plus, je ne vous ai jamais vu et je ne vous ai jamais trompé, que me voulez-vous… » La terreur dans les yeux de Liu Jinbiao s'intensifia jusqu'à ce que ses paroles deviennent incohérentes.
+« Impossible! Mon maître est l'Exalté Empyréen Gu Ya. Je… Je… Si vous me faites du mal, vous serez anéanti, corps et âme! De plus, je ne vous ai jamais vu et je ne vous ai jamais trompé, que me voulez-vous… » La terreur dans les yeux de Liu Jinbiao s'intensifia jusqu'à ce que ses paroles deviennent incohérentes.
 
 « À moins que… À moins que vous ne soyez quelqu'un qui marche sur le même chemin? » Liu Jinbiao ne savait plus quoi penser en fixant Wang Lin.
 
@@ -24,7 +24,7 @@ Aussitôt, un grondement tonitruant résonna dans l'esprit de Liu Jinbiao, comme
 
 Sa vision se brouilla et il revit ces centaines d'années de vie. Lui, utilisant son dao de la tromperie, encore et encore...
 
-« Grand Céleste Jin Biao, immortel céleste! Voilà qui est bien. À l'avenir, vous crierez tous ainsi. Le nom de ce vieil homme est Liu; désormais, je m'appellerai Liu Jinbiao. Quel nom impérieux! »
+« Grand Céleste Jin Biao, immortel impérissable! Voilà qui est bien. À l'avenir, vous crierez tous ainsi. Le nom de ce vieil homme est Liu; désormais, je m'appellerai Liu Jinbiao. Quel nom impérieux! »
 
 « Une fois devenu un céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Haha, j'ai créé cela moi-même. Avec ça, je deviendrai célèbre sur tout le Continent du Grand Sage et je ferai fortune! »
 
@@ -64,7 +64,7 @@ Wang Lin afficha lui aussi un sourire radieux. Il rit en regardant Liu Jinbiao e
 
 « Bois une gorgée pour célébrer notre rencontre sur le Continent Astral Immortel. »
 
-De sa main tremblante, Liu Jinbiao saisit la cruche et but une grande gorgée. Le vin épicé descendit dans son ventre et réchauffa son corps. Cela le fit frissonner et lui permit de se concentrer.
+De sa main tremblante, Liu Jinbiao saisit la cruche et but une grande gorgée. Le vin épicé descendit dans son ventre et réchauffa son corps. Cela lui rendit l'esprit vif.
 
 Liu Jinbiao regarda la cruche qu'il tenait en murmurant: « J'ai longtemps cru que mon dao de la tromperie avait déjà atteint le sommet de la deuxième étape. Je pouvais instantanément me duper pour croire n'importe quoi. »
 
@@ -106,7 +106,7 @@ Liu Jinbiao gloussa de côté, pensant secrètement qu'il était le premier à s
 
 « Qui l'a laissé utiliser le fait d'être le premier disciple du Maître pour me harceler? » En y pensant, Liu Jinbiao fut pris d'une pointe d'excitation.
 
-Liu Jinbiao et Situ Nan ne se connaissaient pas. Au plus profond de ses souvenirs, il avait trompé un homme qui voulait devenir roi, mais cela remontait à une éternité...
+Liu Jinbiao et Situ Nan ne se connaissaient pas vraiment. Au plus profond de ses souvenirs, il avait trompé un homme qui voulait devenir roi, mais cela remontait à une éternité...
 
 Accompagné de Liu Jinbiao, Wang Lin vola vers la Secte Dong Lin.
 
@@ -122,7 +122,7 @@ Au pied d'une petite montagne, Wang Lin entendit le murmure d'une rivière et vi
 
 En suivant les sentiers, Wang Lin monta la montagne, suivi par Liu Jinbiao. Des cultivateurs passaient à proximité, mais ils ne remarquèrent pas les deux hommes. C'était comme s'ils n'appartenaient pas au même espace.
 
-Lorsque Wang Lin atteignit le sommet de la montagne, des nuages sombres envahirent le ciel et la pluie commença à tomber. Les précipitations s'abattirent devant lui, sur les dalles de pierre verte à l'extérieur du grand hall.
+Lorsque Wang Lin atteignit le sommet de la montagne, des nuages sombres envahirent le ciel et la pluie se mit à tomber à verse. De grosses gouttes s'abattirent devant lui, sur les dalles de pierre verte à l'extérieur du grand hall.
 
 La pluie créa des ondulations sur les dalles de pierre verte tandis que l'eau éclaboussait le sol. Une vapeur sembla s'élever, avant de se dissiper dans l'air.
 

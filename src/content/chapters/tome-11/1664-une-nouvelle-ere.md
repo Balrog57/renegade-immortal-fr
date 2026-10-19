@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1664 - A New Era!"
 slug: une-nouvelle-ere
 ---
-Lorsque la hache apparut, une aura de Dieu Ancestral se déploya comme des vagues océaniques. Cette aura fit trembler la Formation de Scellement du Royaume avec une violence accrue.
+Lorsque la hache apparut, une aura de Dieu Ancien se déploya comme des vagues océaniques. Cette aura fit trembler la Formation de Scellement du Royaume avec une violence accrue.
 
 Des grondements tonitruants résonnaient dans les oreilles et persistaient. Si l'on fermait les yeux, on aurait pu ressentir l'innombrable carnage auquel la hache avait fait face durant ses innombrables années d'existence. Tant de vies avaient été anéanties par cette arme!
 
@@ -24,7 +24,7 @@ Le temps passa lentement. Le grondement de la Formation de Scellement du Royaume
 
 En un instant, la Hache de la Fente Céleste sembla se libérer de l'emprise de la Formation de Scellement du Royaume. Elle poussa un hurlement capable de fendre les cieux en s'abattant sur Wang Lin!
 
-« Un simple trésor de Dieu Ancestral Royal ose prétendre me blesser? » Un éclair de froideur traversa le regard de Wang Lin tandis qu'il faisait un pas en avant. Son corps s'enflamma instantanément pour atteindre plus de dix mille pieds de haut, se transformant en son corps de Dieu Ancestral!
+« Un simple trésor de Dieu Ancien Royal ose prétendre me blesser? » Un éclair de froideur traversa le regard de Wang Lin tandis qu'il faisait un pas en avant. Son corps se dilata instantanément jusqu'à plus de dix mille pieds de haut, se transformant en son corps de Dieu Ancien!
 
 Ce corps titanesque trônait comme un géant debout sur la Formation de Scellement du Royaume. Alors que la hache s'approchait, Wang Lin lui asséna un coup de poing.
 
@@ -40,13 +40,13 @@ Tous deux étaient des trésors invincibles. Leurs collisions se multiplièrent,
 
 D'innombrables marques d'épée apparurent sur la hache, dont la lumière devint instable.
 
-Wang Lin abattit son épée et rugit: « Je te donne une dernière chance de me reconnaître comme ton maître! »
+Wang Lin abattit son épée et rugit: « Je te donne une nouvelle chance de me reconnaître comme ton maître! »
 
-Un fracas assourdissant retentit lorsque la hache fut repoussée. Dans un bang violent, elle ouvrit une immense faille dans l'espace.
+Un fracas assourdissant retentit lorsque la hache fut repoussée. Dans un grondement violent, elle ouvrit une immense faille dans l'espace.
 
-L'Épée de Sang disparut de la main de Wang Lin et, simultanément, il s'élança en avant. Alors que la hache volait vers la faille, libérant sa monstrueuse puissance de Dieu Ancestral, Wang Lin agrippa le manche de l'arme!
+L'Épée de Sang disparut de la main de Wang Lin et, simultanément, il s'élança en avant. Alors que la hache volait vers la faille, libérant sa monstrueuse puissance de Dieu Ancien, Wang Lin agrippa le manche de l'arme!
 
-La main droite de Wang Lin serra implacablement; peu importait l'agitation de la Hache de la Fente Céleste, elle ne pouvait s'échapper. Cependant, à cet instant, l'ombre d'un Dieu Ancestral apparut au sommet de la hache et sembla pousser un rugissement. Bien qu'il fût impossible de distinguer son visage, il se précipita vers Wang Lin telle une bourrasque, comme s'il voulait le dévorer.
+La main droite de Wang Lin serra implacablement; peu importait l'agitation de la Hache de la Fente Céleste, elle ne pouvait s'échapper. Cependant, à cet instant, l'ombre d'un Dieu Ancien apparut au sommet de la hache et sembla pousser un rugissement. Bien qu'il fût impossible de distinguer son visage, il se précipita vers Wang Lin telle une bourrasque, comme s'il voulait le dévorer.
 
 L'ombre mesurait des dizaines de milliers de pieds et avait une forme conique, plus large dans sa partie haute. Elle ressemblait à une fumée s'étendant d'innombrables fois en montant vers le ciel.
 
@@ -54,7 +54,7 @@ Cette ombre était l'esprit du trésor de la Hache de la Fente Céleste. Elle fo
 
 Le corps de dix mille pieds de Wang Lin semblait n'être qu'un adolescent face à un homme dans la force de l'âge; il paraissait ne pas avoir de chance de résister. Pourtant, Wang Lin fixa les yeux de l'ombre qui fonçait sur lui et poussa un rugissement.
 
-« Tu oses?! Je suis un Dieu Ancestral Royal et je possède l'héritage du Dao Ancien. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante du Dao Ancien apparut et rugit en chœur avec lui!
+« Tu oses?! Je suis un Dieu Ancien Royal et je possède l'héritage du Dao Ancien. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante du Dao Ancien apparut et rugit en chœur avec lui!
 
 Ce fut comme si un ouragan surgissait du vide pour frapper l'ombre de la Hache de la Fente Céleste. L'ombre poussa un cri de terreur et recula précipitamment. Son corps fut déchiré, mais se reforma rapidement.
 
@@ -66,7 +66,7 @@ Wang Lin saisit l'arme, mordit le bout de sa langue et cracha son sang. Une marq
 
 La Hache de la Fente Céleste s'était soumise. Cette fois, il avait soumis l'arme par sa propre force. Autrefois, faute de puissance de culture suffisante, il avait dû solliciter l'aide de l'ancien Seigneur du Royaume Scellé pour la contrôler.
 
-Armé de cette hache gigantesque, ses cheveux blancs flottaient au vent. À cet instant, Wang Lin ne différait en rien de sa statue sur la planète Suzaku!
+Armé de cette hache gigantesque, ses cheveux blancs flottaient au vent. À cet instant, Wang Lin ne différait presque en rien de sa statue sur la planète Suzaku!
 
 D'un geste de la main droite, il fit se transformer la Hache de la Fente Céleste en une multitude de particules de lumière dorée qui s'enfoncèrent entre les sourcils de Wang Lin et disparurent.
 
@@ -74,7 +74,7 @@ Wang Lin contempla la Formation de Scellement du Royaume qui s'effondrait, une l
 
 Cependant, lorsque la faille apparut et que les événements tragiques survinrent, l'âme du Seigneur du Royaume Scellé avait péri. Cela avait également causé une perte de vitalité chez l'esprit final.
 
-C'était là la raison pour laquelle la formation déclinait.
+Cela avait aussi partiellement contribué au déclin de la formation.
 
 Wang Lin leva sa main droite et forma une paume. Il utilisa l'Empreinte du Karma. Sa paume descendit et se referma brusquement en un poing.
 
@@ -92,7 +92,7 @@ Alors que le jade était extrait par l'Empreinte du Karma de Wang Lin, la Format
 
 Cet effondrement était total, absolu et irréversible!
 
-Tandis que tout s'écroulait, les cultivateurs restants dans les quatre grands systèmes stellaires furent frappés de stupeur. Le système stellaire lui-même semblait bouillonner, et la Formation de Scellement du Royaume qui avait emprisonné le Royaume Intérieur pendant des dizaines de milliers d'années était en train de voler en éclats.
+Tandis que tout s'écroulait, les cultivateurs restants dans les quatre grands systèmes stellaires furent frappés de stupeur. Le système stellaire lui-même semblait bouillonner, et la Formation de Scellement du Royaume qui avait emprisonné le Royaume Intérieur pendant des centaines de millions d'années était en train de voler en éclats.
 
 Dans la Mer des Nuages, Mu Bingmei, la femme en rose et Xi Zifeng s'étaient regroupés. Ils cessèrent de voler pour contempler le système stellaire environnant. Ils se trouvaient encore à une certaine distance de Wang Lin.
 
@@ -106,12 +106,12 @@ Dès que le jade se brisa, la Formation de Scellement du Royaume s'effondra soud
 
 En cet instant, Luotian et la Mer des Nuages étaient enfin libres!
 
-Après des dizaines de milliers d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
+Après des centaines de millions d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 
-Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler la Flamme Joss s'était évanouie. À Luotian, tous les grands puissants affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
+Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler les Flammes Joss s'était évanouie. À Luotian, tous les grands puissants affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
 
 Wang Lin avait détruit la Formation de Scellement du Royaume!
 
 À travers les âges, il était le premier à accomplir un tel exploit. Le premier à avoir l'audace de briser la Formation de Scellement du Royaume après avoir massacré les envahisseurs du Royaume Extérieur!
 
-Son nom était destiné à être transmis pendant des dizaines de milliers d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte des Sept Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel!
+Son nom était destiné à être transmis pendant des centaines de millions d'années dans ce monde de culture, car il était le Seigneur du Royaume Scellé. Non pas le Seigneur du Royaume Scellé de la Secte des Sept Dao, ni celui soumis au Souverain Céleste aux Sept Couleurs, mais le Seigneur du Royaume Scellé des cultivateurs du Royaume Intérieur. Il allait mener les cultivateurs du Royaume Intérieur hors de cette prison et ébranler le Continent Astral Immortel!

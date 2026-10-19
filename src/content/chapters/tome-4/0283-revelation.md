@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 283 - Insight
 slug: revelation
 ---
-L'expression de Wang Lin était calme, mais il était extrêmement vigilant. Cet homme était très étrange. Il ne dégageait pas la moindre trace d'énergie spirituelle et ressemblait à un mortel au premier abord; pourtant, comment un simple mortel aurait-il pu percer à jour son niveau de culture? Wang Lin joignit calmement les mains et répondit: « Je ne suis qu'un homme des montagnes. Inutile de me donner un nom; appelez-moi simplement Da Niu. »
+L'expression de Wang Lin était calme, mais il était extrêmement vigilant. Cet homme était très étrange. Il ne dégageait pas la moindre trace d'énergie spirituelle et ressemblait à un mortel au premier abord; pourtant, comment un simple mortel aurait-il pu percer à jour ma véritable identité? Wang Lin joignit calmement les mains et répondit: « Je ne suis qu'un homme des montagnes. Inutile de me donner un nom; appelez-moi simplement Da Niu. »
 
 Le colosse regarda Wang Lin d'un air curieux et éclata de rire: « Frère Da Niu, pourquoi ne pas nous asseoir pour discuter en cette nuit pluvieuse? »
 
@@ -28,7 +28,7 @@ Mo Zhi sourit et secoua la tête. Il regarda Wang Lin et demanda: « Le frère D
 
 Wang Lin eut un mince sourire et répondit: « Vos paroles sont trop mystérieuses. Je ne comprends pas, mais je pense que le mot "fou" n'est pas approprié. À la place, le mot "obsession" serait bien meilleur. »
 
-Les yeux de Mo Zhi s'illuminèrent et il rit: « Bien! "Obsession" est un excellent mot! Si nous, les cultivateurs, perdions toute obsession, comment pourrions-nous suivre la voie juste et accomplir le Dao des cieux? »
+Les yeux de Mo Zhi s'illuminèrent et il rit: « Bien! "Obsession" est un excellent mot! Si nous, les cultivateurs, perdions toute obsession, comment pourrions-nous atteindre la récompense de notre culture et parfaire cette vie que le Dao des cieux a amoindrie? »
 
 Wang Lin prit une gorgée et sourit silencieusement.
 
@@ -44,7 +44,7 @@ Mo Zhi poussa un soupir et sourit à Wang Lin: « Peu importe. Puisque j'ai oubl
 
 Le front de Wang Lin se plissa davantage. Après un instant, il secoua la tête et esquissa un léger sourire: « Da Niu. »
 
-Mo Zhi acquiesça. Il observa la pluie à l'extérieur et dit: « La nuit pluvieuse est magnifique par son humeur et son éternité. Les plantes absorbent silencieusement l'eau, et l'odeur de mort qui les entoure s'estompe paisiblement. C'est là la beauté de la pluie et le goût de la vie. »
+Mo Zhi acquiesça. Il observa la pluie à l'extérieur et dit: « La nuit pluvieuse est magnifique par son humeur et son éternité. Les plantes absorbent silencieusement l'eau, et l'aura de mort qui les entoure s'estompe paisiblement. C'est là la beauté de la pluie et le goût de la vie. »
 
 Wang Lin tourna la tête pour regarder hors du sanctuaire. Le bruit de la pluie tombante pénétrait lentement à l'intérieur, tandis que le tonnerre illuminait occasionnellement l'extérieur par intermittence.
 
@@ -56,11 +56,11 @@ Wang Lin murmura: « Qu'est-ce que la vie? »
 
 Cette question le tourmentait depuis longtemps.
 
-Mo Zhi détourna le regard. Il désigna le feu du doigt et sourit légèrement: « Ce feu est la vie. »
+Mo Zhi désigna le feu du doigt et sourit légèrement: « Ce feu est la vie. »
 
 Wang Lin réfléchit en observant la lueur vacillante et demanda: « Pourquoi? »
 
-Mo Zhi sourit doucement en contemplant les flammes: « Je ne sais pas pourquoi c'est la vie, mais j'ai souvent entendu les mortels dire "feu vivant, feu vivant", alors je pense que le feu doit être la vie. »
+Mo Zhi sourit doucement en contemplant les flammes: « Je ne sais pas pourquoi c'est la vie, mais j'ai souvent entendu les mortels dire « faire naître le feu, faire naître le feu », alors je pense que le feu doit être la vie. »
 
 « Fou! » Cette fois, tous les hommes près du feu les regardèrent comme s'ils étaient des créatures étranges.
 
@@ -86,7 +86,7 @@ Demander directement à quelqu'un la nature de son domaine était quelque peu ta
 
 L'expression de Mo Zhi devint encore plus trouble alors qu'il déclarait: « Qu'est-ce que la mort... la mort, c'est mourir. Si une personne meurt, c'est la mort; et si le cœur meurt, alors il oublie... c'est cela, la mort. »
 
-Le cœur de Wang Lin trembla. Cette phrase fut comme une rafale qui balaya une grande partie du brouillard qui l'embrouillait.
+Le cœur de Wang Lin trembla. Cette phrase fut comme un coup de tonnerre par temps clair, une rafale qui balaya une grande partie du brouillard qui l'embrouillait.
 
 La mort, c'est mourir. Si une personne meurt, c'est la mort. Si le cœur meurt, alors il oublie...
 
@@ -100,7 +100,7 @@ Sur ces mots, il se leva, pointa le ciel et déclara: « Ces gouttes de pluie na
 
 Wang Lin fut profondément touché. Il se leva et s'inclina respectueusement devant Mo Zhi.
 
-Mo Zhi esquissa un mince sourire. Puis, d'un pas, il quitta le sanctuaire telle une météorite. Sa voix ténue parvint de loin:
+Mo Zhi esquissa un mince sourire. Puis, à grands pas, il quitta le sanctuaire. Sa voix ténue parvint de loin:
 
 « Frère Da Niu, soit tu comprends, soit tu ne comprends pas... prends soin de toi. »
 
@@ -118,7 +118,7 @@ Ce qui se trouvait entre les deux était la vie entière de la goutte.
 
 C'était cela, la vie et la mort!
 
-Le feu est la vie parce qu'il possède une étincelle de vie, c'est ce qu'ils entendent par « feu vivant ».
+Le feu est la vie parce qu'il possède une étincelle de vie, c'est ce que signifie « faire naître le feu ».
 
 La mort, c'est mourir. Si une personne meurt, c'est la mort. Si le cœur meurt, alors il oublie...
 
@@ -128,7 +128,7 @@ On pourrait dire qu'à cet instant précis, si Wang Lin le souhaitait, il pourra
 
 Mais ce n'était manifestement pas le lieu propice pour une telle progression. Wang Lin réprima son envie de percer et s'envola encore plus rapidement.
 
-« Je crois que le domaine du frère Mo est la mort du cœur, ce qui entraîne la perte de mémoire. Tout oublier, pour ne laisser que le Dao. » Wang Lin prit une profonde inspiration. Ce Mo Zhi était un génie.
+« Je crois que le domaine du frère Mo est la mort du cœur, ce qui entraîne la perte de mémoire. Ayant concentré son cœur à l'extrême, il peut oublier même sa propre mort, tout oublier pour ne laisser que le Dao. » Wang Lin prit une profonde inspiration. Ce Mo Zhi était un homme extraordinaire.
 
 L'illumination qu'il avait acquise dans le sanctuaire par cette nuit pluvieuse permit à l'esprit de Wang Lin d'atteindre enfin le niveau de la Formation de l'Âme. À cet instant, il était digne de ce stade et possédait le domaine d'un cultivateur de la Formation de l'Âme.
 

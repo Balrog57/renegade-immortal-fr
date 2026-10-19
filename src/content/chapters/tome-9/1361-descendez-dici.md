@@ -20,7 +20,7 @@ Un tumulte éclata au sein du Clan du Tonnerre Dispersé. Le Grand Ancien était
 
 Leurs esprits tremblaient, car leur pilier spirituel s'était totalement effondré! Si même le Grand Ancien était tombé, comment pourraient-ils résister?!
 
-Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les cultivateurs de l'extérieur du monde. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
+Tout cela se produisit en un instant. Wang Lin se montrait totalement impitoyable envers les cultivateurs du Royaume Extérieur. Lorsqu'il avait annoncé la capture du Grand Ancien, il savait qu'en raison de leur foi, les membres du clan ne le croiraient pas immédiatement, mais il pouvait utiliser cela pour planter une graine!
 
 Puis, il briserait la formation d'un seul coup et, au moment où leurs esprits seraient ébranlés, il sortirait le Fouet de l'Âme. Il n'aurait pas besoin de s'en servir pour attaquer; la simple vue de l'âme originelle du Grand Ancien frapperait comme un coup impitoyable dans les cœurs du Clan du Tonnerre Dispersé!
 
@@ -38,7 +38,7 @@ Même sans ce choc psychologique, cette bataille aurait été aisée car ce cult
 
 S'il n'avait pas été un cultivateur du tonnerre, Wang Lin aurait affronté une bataille difficile. Après tout, avec sa puissance actuelle, il pouvait vaincre des cultivateurs de la troisième étape du Fléau Céleste, mais il aurait rencontré des difficultés face à ceux de la quatrième étape.
 
-Tout s'était passé trop vite. Avant même que le Clan du Tonnerre Dispersé n'ait accepté la défaite de leur Grand Ancien, Wang Lin les avait stupéfaits en tuant un ancien de la quatrième étape du Fléau Céleste.
+Tout s'était passé trop vite. Avant même que le Clan du Tonnerre Dispersé n'ait accepté la défaite de leur Grand Ancien, Wang Lin les avait stupéfaits en tuant un membre du clan de la quatrième étape du Fléau Céleste.
 
 L'expression de Wang Lin restait indifférente et il ne leur prêtait plus aucune attention. L'épée de sang tournait autour de lui tandis que le dragon de tonnerre avançait. Tous les cultivateurs devant lui reculèrent, n'osant pas faire le moindre pas en avant!
 
@@ -74,7 +74,7 @@ Un rugissement tonitruant retentit et un grondement jaillit du vortex, accompagn
 
 Sous cette force, la majeure partie du tonnerre éternel fut aspirée dans le vortex, ne laissant que quelques centaines de pieds à l'extérieur. Le corps de Wang Lin fut également entraîné, comme s'il allait être aspiré dans le vortex lui aussi!
 
-L'expression de Wang Lin était féroce. Il avait tout mis en œuvre, collaborant finalement avec Daoïste Esprit Dispersé pour tuer le Grand Ancien du clan. Tout cela n'avait qu'un but: absorber ce tonnerre éternel. Pourtant, au moment le plus critique, le tonnerre allait lui échapper!
+L'expression de Wang Lin était féroce. Il avait tout mis en œuvre, collaborant finalement avec le Daoïste Esprit Dispersé pour tuer le Grand Ancien du clan. Tout cela n'avait qu'un but: absorber ce tonnerre éternel. Pourtant, au moment le plus critique, le tonnerre allait lui échapper!
 
 Si le tonnerre s'était enfui à travers les étoiles, Wang Lin aurait pu le poursuivre, mais ce qui se passait dépassait son imagination. L'aura émanant du vortex lui était inconnue, et quelque chose en son sein fit naître une pointe de peur dans son cœur!
 
@@ -84,7 +84,7 @@ Ce sentiment lui glaça le sang, semblable à ce que Daoïste Esprit Dispersé a
 
 « Corps de Dieu Ancien, étends-toi! » Alors qu'il s'agrippait au tonnerre éternel en train d'être aspiré, les étoiles divines entre ses sourcils tournèrent rapidement. En un instant, il grandit pour atteindre près de 10 000 pieds de haut, revêtant sa véritable forme de Dieu Ancien!
 
-Un Dieu Ancien de 10 000 pieds possédait une puissance capable de briser les cieux. Les bras de Wang Lin s'allongèrent également. Le sang dans son corps circula avec frénésie et son cœur battait plus vite pour accroître le flux sanguin, lui conférant une force décuplée!
+Un Dieu Ancien de 10 000 pieds possédait une puissance capable de briser les cieux. Les bras de Wang Lin s'épaissirent démesurément également. Le sang dans son corps circula avec frénésie et son cœur battait plus vite pour accroître le flux sanguin, lui conférant une force décuplée!
 
 Les étoiles divines formèrent une tempête en tournant entre ses sourcils. L'aura du Dieu Ancien déferla sur chaque centimètre de son corps, créant un tourbillon indescriptible!
 

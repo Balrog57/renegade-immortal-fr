@@ -96,7 +96,7 @@ Ce cycle se répéta plusieurs fois. Après une journée entière d'observation,
 
 D'après ses déductions, ce pilier de lumière était lié au rayonnement solaire. Il semblait que, malgré la ruine du site, certains trésors étaient encore actifs; après avoir absorbé suffisamment de lumière, ils déclenchaient leur pouvoir.
 
-De plus, de nombreuses bêtes sauvages semblaient connaître l'effet cicatrisant du pilier. Au cours de la journée, Wang Lin vit au moins vingt créatures blessées se diriger vers lui.
+De plus, de nombreuses bêtes sauvages semblaient connaître l'effet cicatrisant du pilier. Au cours de la journée, Wang Lin vit au moins vingt créatures blessées se diriger vers le pilier.
 
 Voyant l'obscurité tomber, Wang Lin calcula que le dernier pilier allait bientôt apparaître. Sans hésiter, il s'élança et plongea la main dans la colonne lumineuse. Il ressentit un flux d'air agréablement chaud; ce n'était pas de la puissance spirituelle, mais une substance qui lui était totalement inconnue.
 

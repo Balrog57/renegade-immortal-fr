@@ -32,7 +32,7 @@ Il laissa échapper un soupir et pointa du doigt son corps véritable des cinq �
 
 Enfin, Wang Lin tourna son regard vers l'essence du tonnerre de massacre. Cette essence était la plus cruciale et la plus insaisissable qu'il possédât!
 
-« Massacre... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Massacre". L'Enseignant Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
+« Massacre... Lorsqu'il est apparu pour la première fois, il s'est nommé lui-même "Massacre". Le Maître Impérial du Dao Ancien connaît également cet avatar... » L'expression de Wang Lin était complexe. Il nourrissait ses propres spéculations, mais elles restaient enfouies au plus profond de son cœur.
 
 « Massacre est un corps immortel. Elle représente la destruction et ne peut donc être effacée. Cette essence de massacre n'est qu'à l'état d'achèvement, elle ne peut pas encore former de corps véritable d'essence. J'ignore si ma démarche est juste... ou erronée. » Wang Lin hésitait.
 
@@ -78,9 +78,9 @@ Il approchait de sa réincarnation et devait faire face à l'ouverture du Royaum
 
 Le clan Ancien Shi faisait face à un problème similaire. Le terme des dix mille ans du vieil empereur approchait, et selon l'accord ancestral, à moins que le Grand Empyréen Gu Dao ne l'autorise, il devrait abdiquer en faveur de ses descendants.
 
-Il restait environ cent ans avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empyréen Song Tian.
+Il restait un peu plus d'un siècle avant cette abdication. Il demeurait silencieux, n'ayant aucun droit de choisir, ce qui poussait tous les princes à concentrer leurs espoirs sur le Grand Empyréen Song Tian.
 
-Ji Du avait tenté de rencontrer le Grand Empyréen Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne d'Origine. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
+Ji Du avait tenté de rencontrer le Grand Empyréen Song Tian à maintes reprises, mais s'était vu systématiquement refoulé devant la Montagne de l'Origine. L'échéance approchait et, une fois la décision de Song Tian prise, il serait trop tard.
 
 À cet instant, trois personnes se trouvaient dans le palais du Prince Ji Du. L'un d'eux était Ji Du lui-même, le sourcil froncé par l'anxiété.
 

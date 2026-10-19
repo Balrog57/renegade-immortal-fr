@@ -78,7 +78,7 @@ Wang Lin ne pouvait ni échapper à cette souffrance, ni l'étouffer. Il devait 
 
 L'Empereur Divin de l'Oiseau Vermillon n'agissait ainsi que par nécessité. Il sentait la mort le guetter; il savait qu'il ne lui restait plus que trois mois à vivre. Dans trois mois, le troisième Fléau Céleste éclaterait et il mourrait sans aucun doute!
 
-Cette douleur intense rendit les rugissements de Wang Lin capables de briser les cieux. Au septième jour, l'énergie originelle atteignit une fois de plus son paroxysme. L'Empereur Divin semblait encore plus vieilli, une aura de mort émanant de lui alors qu'il se tenait derrière Wang Lin.
+Cette douleur intense rendit les rugissements de Wang Lin capables de briser les cieux. Au septième jour, l'énergie originelle atteignit une fois de plus son paroxysme. L'Empereur Divin semblait encore plus vieilli, une aura de mort émanant de lui alors qu'il s'effondrait derrière Wang Lin.
 
 « Que vaut la mort? » Le visage de l'Empereur était livide, mais ses yeux brillaient d'anticipation en fixant Wang Lin.
 
@@ -100,6 +100,6 @@ Le huitième tatouage sur sa main droite commença à brûler et s'éleva dans l
 
 À cet instant, le champ stellaire où résidait la Secte Divine de l'Oiseau Vermillon commença à bouillonner! Toutes les créatures de ce domaine furent ébranlées et levèrent les yeux...
 
-« La première transformation des Neuf Transformations Mystérieuses! » Le choc sur les visages des Anciens de la Secte Divine de l'Oiseau Vermillon fut plus grand encore que lorsqu'ils avaient découvert l'Éveil de l'Oiseau Vermillon!
+« La première transformation des Neuf Transformations Mystérieuses! » L'émotion sur les visages des Anciens de la Secte Divine de l'Oiseau Vermillon fut tout aussi vive que lorsqu'ils avaient découvert l'Éveil de l'Oiseau Vermillon!
 
 L'Éveil de l'Oiseau Vermillon ne faisait pas forcément de quelqu'un l'Empereur Divin, mais la première transformation des Neuf Transformations Mystérieuses, elle, en faisait à coup sûr un! C'était aussi le symbole du passage de relais entre deux générations d'Empereurs Divins!

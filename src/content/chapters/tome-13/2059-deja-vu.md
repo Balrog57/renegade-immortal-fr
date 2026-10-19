@@ -66,7 +66,7 @@ En raison de l'accident survenu lors de la seconde séparation, Wang Lin se mont
 
 Il avait un plan plus profond encore, et s'il voulait réussir, il devait l'exécuter durant cette fusion.
 
-Le temps passa. Après la 96e année, Wang Lin avait fusionné 30 % de son âme originelle. L'âme elle-même n'était pas grande, pas plus grande que la paume de sa main.
+Le temps passa. Au cours de la 96e année, Wang Lin avait fusionné près de 30 % de son âme originelle. L'âme elle-même n'était pas grande, pas plus grande que la paume de sa main.
 
 Cependant, ces 30 % étaient plusieurs fois plus puissants que son âme après la seconde séparation. Peut-être que s'il parvenait à fusionner totalement son âme pour cette troisième fois, cela le porterait vers un nouveau sommet.
 
@@ -82,7 +82,7 @@ Il avait tout abandonné pour accompagner son parrain durant les trois dernière
 
 Au fil des jours, de plus en plus de gens voyageaient vers Shi Antique. Même les membres des deux autres clans étaient en route.
 
-Chaque jour, une foule immense pénétrait dans la cité impériale. Pourtant, comparé à l'agitation de la ville, le temple ancestral était d'un calme absolu. Il avait été transformé en zone interdite depuis longtemps et nul n'était autorisé à s'en approcher. D'innombrables gardes du palais royal surveillaient même les lieux.
+Chaque jour, une foule immense pénétrait dans la cité impériale. Pourtant, comparé à l'agitation de la ville, le temple ancestral et ses mille pieds alentour étaient d'un calme absolu. Il avait été transformé en zone interdite depuis longtemps et nul n'était autorisé à s'en approcher. D'innombrables gardes du palais royal surveillaient même les lieux.
 
 Ji Du écoutait les rumeurs de la foule tout en restant assis en silence, les yeux clos.
 
@@ -92,7 +92,7 @@ Ji Du resta là. Tandis que les jours et les nuits se succédaient, la 98e anné
 
 En ce jour, après un siècle, tous les regards de la cité impériale convergèrent une fois de plus vers la statue de l'Ancêtre Ancien. Cependant, ils ne regardaient pas les halos, mais leur empereur!
 
-La cité entière était plongée dans le silence et une foule immense entourait le palais. Ils attendaient l'apparition de leur nouveau souverain. Des milliers de personnes se pressaient sur la place.
+La cité entière était plongée dans le silence et une foule immense entourait le palais. Ils attendaient l'apparition de leur nouveau souverain. Une foule dense se pressait sur la place.
 
 Les émissaires des deux autres clans étaient arrivés en grande pompe. Les dignitaires présents appartenaient aux familles impériales et jouissaient de rangs très élevés. Tous attendaient sur la place.
 

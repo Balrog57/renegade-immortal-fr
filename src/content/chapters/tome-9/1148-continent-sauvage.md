@@ -12,7 +12,7 @@ En contemplant le jardin qui était encore luxuriant trois jours auparavant et q
 
 Pourtant, en seulement trois jours, la quasi-totalité des plantes avait disparu. Bien que l'explosion de pilule qu'elle redoutait ne s'était jamais produite, elle aurait préféré qu'une telle explosion détruise la majeure partie du jardin plutôt que de subir une telle torture.
 
-En jetant un regard sur la demeure qu'elle détestait tant, toute trace de bienveillance envers Wang Lin s'était évanouie. Xu Yun ne put plus le supporter et se précipita à l'intérieur. Elle y vit Wang Lin assis, tenant une pilule parfaitement formée.
+En jetant un regard sur la demeure qu'elle détestait tant, toute trace de bienveillance envers Wang Lin s'était évanouie. Xu Yun ne put plus le supporter, poussa brusquement la porte et se précipita à l'intérieur. Elle y vit Wang Lin assis, tenant une pilule parfaitement formée.
 
 Ce qui exaspéra Xu Yun au plus haut point, c'est que Ceng Niu souriait en contemplant la pilule. Ce sourire fit bouillir le sang de la jeune femme.
 
@@ -22,13 +22,13 @@ Après avoir ramené une mèche de cheveux derrière son oreille, Xu Yun dit d'u
 
 Après quinze échecs, presque toutes les herbes du jardin avaient été consumées pour cette unique pilule. L'âme de bête s'était fusionnée avec la pilule plus de dix fois, et la douleur de ces va-et-vient était pire que la mort. L'âme de bête voulait absolument que Wang Lin réussisse afin que ses souffrances cessent enfin.
 
-Wang Lin regarda la pilule dans sa main avec un certain regret. La fusion d'une âme de bête avec une pilule exigeait une attention méticuleuse à de nombreux détails. Ces subtilités n'étaient pas expliquées dans le jade; il devait les découvrir par l'expérience.
+Wang Lin regarda la pilule dans sa main avec émotion. La fusion d'une âme de bête avec une pilule exigeait une attention méticuleuse à de nombreux détails. Ces subtilités n'étaient pas expliquées dans le jade; il devait les découvrir par l'expérience.
 
-À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré ses plus de mille ans de culture, il ressentit une pointe d'embarras.
+À cet instant, en entendant les paroles de Xu Yun, Wang Lin toucha inconsciemment son nez. Son regard passa du corps gracieux de la jeune femme au jardin presque stérile et, malgré son prestige de plus de mille ans, il ressentit une pointe d'embarras.
 
 D'un revers de la main droite, Wang Lin lança la pilule vers Xu Yun. Alors qu'il s'apprêtait à parler, il fut interrompu par un cri.
 
-Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette blanche, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle n'aurait même pas osé utiliser elle-même — être arrachées une à une.
+Les yeux de Xu Yun s'écarquillèrent en fixant la pilule, incapable de contenir plus longtemps la colère qui lui déchirait le cœur. À cet instant, toutes les pensées de silhouette aux cheveux blancs, de doigt gracieux ou de puissant senior furent balayées. Durant ces trois jours, elle avait regardé impuissante les herbes qu'elle avait mis tant de temps à cultiver — des herbes qu'elle ne se résolvait pas à utiliser elle-même — être arrachées une à une.
 
 Au final, il n'avait raffiné qu'une pilule de rang 3. Une pilule de rang 3 était précieuse et nécessaire à un cultivateur du Corps Yang, mais toutes les herbes de son jardin auraient dû suffire à raffiner une pilule de rang 4. Si l'Oncle-Maître Li s'en était chargé, il y aurait même eu une chance de produire une pilule de rang 5.
 
@@ -38,7 +38,7 @@ La silhouette de Wang Lin apparut dans le ciel au-dessus du continent de Mo Luo.
 
 « Laisse tomber. Ce n'est qu'un simple jardin d'herbes... » Wang Lin secoua la tête et s'élança dans les cieux tel un rayon de lumière, disparaissant à l'horizon.
 
-Après avoir franchi la barrière lumineuse entourant le continent, la mer de nuages apparut devant lui. Dans le jade contenu au sein du temple taoïste, outre les informations sur l'alchimie et les âmes de bêtes, figurait une carte stellaire de la région de rang 5 à laquelle appartenait le continent de Mo Luo. Après avoir étudié cette carte, Wang Lin découvrit qu'en plus des continents habités, il existait un autre type de territoires appelés « continents sauvages ».
+Après avoir franchi la barrière lumineuse entourant le continent, la mer de nuages apparut devant lui. Dans le jade contenu au sein du temple taoïste, outre les enseignements sur l'alchimie et les bêtes spirituelles, figurait une carte stellaire de la région de rang 5 à laquelle appartenait le continent de Mo Luo. Après avoir étudié cette carte, Wang Lin découvrit qu'en plus des continents habités, il existait un autre type de territoires appelés « continents sauvages ».
 
 Ils ressemblaient aux planètes sauvages des deux domaines du Tonnerre et de la Pluie. Cependant, dans la mer de nuages, ces continents sauvages ne possédaient pas de tours noires et restaient donc enveloppés par le brouillard stellaire. Ils servaient de repaires à de nombreuses bêtes féroces.
 

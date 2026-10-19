@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 377 - Gathering Spirits
 slug: rassemblement-desprits
 ---
-Wang Lin observa attentivement la jeune fille alors qu'elle s'élevait vers les quartiers intérieurs de la Secte de l'Affinement de l'Âme.
+Wang Lin observa attentivement la jeune fille alors qu'elle s'éloignait en flottant pour franchir les portes de la Secte de l'Affinement de l'Âme.
 
 « Cette personne m'est familière... » Wang Lin la dévisagea une nouvelle fois et réfléchit, mais il ne parvint pas à se remémorer où il l'avait déjà vue.
 
@@ -48,7 +48,7 @@ En un clin d'œil, il pénétra à l'intérieur de la grotte. Il l'inspecta un m
 
 Wang Lin vola le long de la montagne avec son jeton jusqu'à trouver la grotte 803. La taille de la grotte était identique à celle de la 1090, mais au centre se trouvait une petite formation.
 
-Cette formation était extrêmement complexe; elle dégageait même l'impression de n'être pas réelle.
+Cette formation était extrêmement complexe; elle donnait même une impression de dédoublement, comme si ses couches se superposaient.
 
 Une fois entré dans la grotte, le regard de Wang Lin se posa sur la formation. Après l'avoir étudiée un moment, il comprit qu'il s'agissait en fait d'une simple formation de rassemblement d'énergie spirituelle.
 
@@ -56,7 +56,7 @@ De nombreux éléments superflus y avaient été ajoutés, clairement pour empê
 
 Le but de cette formation était de concentrer l'énergie spirituelle environnante pour créer une zone de haute densité. Cependant, une telle formation devait être installée sur un œil de veine spirituelle, sans quoi elle perdait de son efficacité.
 
-Les yeux des veines spirituelles étaient comme les points d'acupuncture sur le corps d'un être vivant.
+Les yeux des veines spirituelles étaient comme les points d'acupuncture sur le corps d'un être vivant. Agir sur l'un d'eux suffisait à ébranler tout le corps.
 
 « Cet endroit ne peut pas être un véritable œil de veine spirituelle; il doit s'agir d'un faux œil! » Après l'avoir observée, Wang Lin en perçut le secret.
 

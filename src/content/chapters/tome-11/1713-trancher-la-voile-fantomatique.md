@@ -14,7 +14,7 @@ Au même moment, une lame se désintégra en morceaux.
 
 Wang Lin serra les dents et rugit sans hésitation: « Coupez trois corps! »
 
-Alors qu'il rugissait, la lame qui n'avait plus qu'une seule ombre s'abattit sur Wang Lin. Elle n'était plus silencieuse, mais produisait un hurlement assourdissant!
+Alors qu'il rugissait, la lame qui n'avait plus qu'une seule ombre s'abattit sur Wang Lin pour la troisième fois. Elle n'était plus silencieuse, mais produisait un hurlement assourdissant!
 
 La longue lame traversa le corps de Wang Lin puis se brisa! Tandis qu'elle se désintégrait, le corps de Wang Lin se divisa en trois!
 
@@ -42,7 +42,7 @@ Les yeux du troisième Wang Lin révélèrent une étrange lumière alors qu'il 
 
 Alors que les trois Wang Lin parlaient, les trois corps firent tous un pas en avant. Ils se superposèrent et commencèrent à fusionner. Après un long moment, ils ne formèrent plus qu'une seule personne!
 
-Ses cheveux blancs dansaient alors qu'il ouvrait les yeux, flottant là, immobile. Il sentit la puissante vitalité couler dans son corps. Il y avait trois parties, et chacune était égale à lui-même à pleine puissance.
+Ses cheveux blancs dansaient alors qu'il ouvrait les yeux, flottant là, immobile. Il sentit la puissante vitalité couler dans son corps. Il y avait trois parties, et chacune équivalait à tout ce qu'il était auparavant.
 
 « Le sortilège des Trois Vies est en effet mystérieux. Avec cela, j'aurai trois vies! » Wang Lin ouvrit les yeux, désormais empreints de confiance.
 
@@ -86,7 +86,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « J'ai oublié une personne! » Une lueur de froideur traversa les yeux de Wang Lin. Il se souvint soudainement d'un homme. Si quelqu'un lui disait que cet homme était mort, il ne le croirait certainement pas!
 
-« L'Omniscient! Cette personne a obtenu le sang du Dao Céleste. Même si l'Empereur Divin du Dragon Azure a déclaré que ce sang était corrompu, il est impossible que l'Omniscient soit mort. Il n'est jamais apparu durant la guerre avec le Royaume Extérieur, il a disparu sans laisser de trace...
+« L'Omniscient! Cette personne a obtenu le sang du Dao Céleste. Même si l'Empereur Divin du Dragon Azure a déclaré que ce sang posait problème, il est impossible que l'Omniscient soit mort. Il n'est jamais apparu durant la guerre avec le Royaume Extérieur, il a disparu sans laisser de trace...
 
 « Ses complots étaient prodigieux, et il m'a tendu des pièges à maintes reprises. Maintenant qu'il est caché, comment ai-je pu l'oublier? » L'expression de Wang Lin devint sombre.
 
@@ -98,7 +98,7 @@ Cependant, à cet instant précis, l'expression de Wang Lin devint soudainement 
 
 « Cependant, avec le recul, peut-être essayait-il de former des Flammes Joss avec ces trois mille avatars. C'est possible... Ou avait-il un autre dessein? » Wang Lin songea à bien des choses, mais plus il réfléchissait, moins il comprenait les intentions de l'Omniscient.
 
-« L'âme du destin de l'Omniscient n'était pas non plus présente dans la rétribution divine du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
+« L'âme du destin de l'Omniscient n'était pas non plus présente dans la tribulation divine du Royaume Céleste Antique... » Wang Lin médita longuement avant de réprimer lentement cette pensée. Il était inutile d'y songer maintenant. Avec le temps, il obtiendrait naturellement ses réponses.
 
 Ses yeux s'illuminèrent et il se tourna vers la Voile Fantôme. Il l'examina attentivement et vit qu'elle contenait d'innombrables restrictions, incluant les quatre grandes restrictions et bien d'autres encore.
 
@@ -110,7 +110,7 @@ Tandis que son Sens Divin se déployait avec précaution, la voile bougea sans v
 
 Durant ces dix jours, Wang Lin resta immobile, consacrant toute son énergie à l'étude des restrictions. Un million, dix millions, des dizaines de millions de restrictions défilèrent dans son esprit.
 
-Ce ne fut qu'au dixième jour que Wang Lin leva lentement la tête, les yeux injectés de sang.
+Ce ne fut qu'au sixième jour que Wang Lin leva lentement la tête, les yeux injectés de sang.
 
 « Elles peuvent évoluer d'elles-mêmes, il est impossible d'en calculer le nombre exact », dit Wang Lin en fronçant les sourcils et en se massant les tempes. Ces dix jours l'avaient épuisé.
 

@@ -72,7 +72,7 @@ Le second disciple répondit promptement: « Maître, deux d'entre eux viennent 
 
 Wang Lin acquiesça doucement et dit: « Sortez-les, et je verrai si vous avez progressé dans votre technique. » Wang Lin avait extrait une description très détaillée de la méthode des souvenirs du cultivateur. De son point de vue, cette technique, nommée Tactique du Cœur de Glace, reposait sur des techniques propres aux cultivateurs de Xue Yu et s'avérait fort ingénieuse.
 
-En plus de l'énergie spirituelle, les cultivateurs de Xue Yu absorbaient également l'énergie froide de la neige lors de leur pratique. Cette énergie était indispensable car elle leur permettait de quitter leur corps pour former des géants de glace lorsqu'ils atteindraient le stade de l'Âme Naissante.
+En plus de l'énergie spirituelle, les cultivateurs de Xue Yu absorbaient également l'énergie froide de la neige lors de leur pratique. Cette énergie était indispensable car elle transformait peu à peu leur constitution et leur permettait de quitter leur corps pour former des géants de glace lorsqu'ils atteindraient le stade de l'Âme Naissante.
 
 Cependant, cette technique comportait plusieurs niveaux et n'était pas facile à maîtriser. Le cultivateur que Wang Lin avait capturé n'en maîtrisait que les quatre premiers, et ce uniquement parce que son oncle les lui avait transmis en secret.
 
@@ -100,7 +100,7 @@ Wang Lin acquiesça, mais il se remémora soudain un détail des souvenirs du cu
 
 Pensant à cela, Wang Lin s'apprêtait à répondre, mais le visage de la jeune femme devint encore plus rubicond et ses vêtements tombèrent brusquement, révélant la moitié de son corps.
 
-Wang Lin fronça les sourcils. D'un revers de manche, il recouvrit la femme de ses vêtements, puis la fixa d'un regard glacial.
+Wang Lin fronça les sourcils. D'un revers de manche, il remit en place les vêtements de la femme, puis la fixa d'un regard glacial.
 
 La disciple ressentit une pression glaciale l'encercler. Son expression changea instantanément et elle s'agenouilla, terrifiée. Après un long moment, elle se redressa avec prudence, pétrifiée par la peur, ignorant ce qu'elle avait fait pour irriter ainsi son maître.
 
@@ -110,7 +110,7 @@ Il avait fallu plusieurs heures au second disciple pour parvenir à peine à pla
 
 Il était évident que la production de cette sculpture de glace l'épuisait.
 
-Une fois la sculpture terminée, le second disciple prit une profonde inspiration, s'agenouilla devant l'œuvre et commença à murmurer une prière. Puis il se redressa, serra les dents et pointa du doigt le point de convergence des neuf veines.
+Une fois la sculpture terminée, le second disciple prit une profonde inspiration, s'agenouilla devant l'œuvre et commença à murmurer une prière. Puis il se redressa, serra les dents et posa la main sur le point de convergence des neuf veines.
 
 Dans un fracas sourd, le second disciple cracha du sang et fut projeté à plus de trente mètres de là. Quant à la sculpture de glace, les neuf veines s'agitèrent comme des serpents. Puis, deux d'entre elles se touchèrent et l'œuvre explosa en mille éclats de glace.
 

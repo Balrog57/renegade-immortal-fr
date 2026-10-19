@@ -18,7 +18,7 @@ Une fois le sens divin retiré, Wang Lin leva la tête pour scruter l'horizon. S
 
 Lorsqu'on traverse ce désert, particulièrement en l'absence de soleil ou de lune, il est facile de perdre la notion du temps. Si Wang Lin n'avait pas été habitué depuis longtemps à la solitude, il serait devenu fou ici.
 
-Comparée à la solitude qui régnait en ces lieux, ses décennies de culture ou les centaines d'années passées dans la Terre de l'Ancien Dieu étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
+Comparée à la solitude qui régnait en ces lieux, ses décennies de culture ou le siècle passé dans la Terre de l'Ancien Dieu étaient bien plus éprouvantes. La solitude actuelle n'était, en vérité, rien de spécial.
 
 Tandis qu'il marchait, sa silhouette disparut progressivement au loin, comme si sa silhouette pouvait révéler la solitude qui habitait son cœur.
 
@@ -38,7 +38,7 @@ Wang Lin était actuellement enveloppé de brume. Il était couvert d'énergie d
 
 Le sens divin passa et disparut bien au-delà de Wang Lin.
 
-Quelques respirations plus tard, le 32ème sens divin se retira rapidement. Cependant, à l'instant même où il dépassa Wang Lin, l'énergie démoniaque de ce dernier explosa!
+Quelques respirations plus tard, le 32ème sens divin se retira rapidement. Cependant, à l'instant même où il s'approcha de Wang Lin, l'énergie démoniaque de ce dernier explosa!
 
 Il avait attendu six mois, accumulé pendant six mois et observé pendant six mois! Durant cette période, Wang Lin avait silencieusement attendu l'énergie démoniaque qui apparaissait naturellement ici pour la collecter. Pendant ce temps, il avait dû veiller à ce que cette énergie n'affecte pas son âme originelle. À cet instant, tout éclata.
 
@@ -74,7 +74,7 @@ En ouvrant les bras, ses yeux libérèrent une intention de tuer féroce et l'é
 
 Alors que le sens divin allait s'échapper, Wang Lin laissa échapper un rugissement!
 
-Précédant ce cri, l'énergie démoniaque infinie s'effondra soudainement. Tout comme l'énergie d'il y a six mois, au moment de son effondrement, elle se propagea avec une célérité extrême.
+Au son de ce cri, l'énergie démoniaque infinie s'effondra soudainement. Tout comme l'énergie d'il y a six mois, au moment de son effondrement, elle se propagea avec une célérité extrême.
 
 Elle se répandit si vite que l'on ne percevait que cette expansion démoniaque avant qu'elle ne couvre des centaines de milliers de kilomètres, enveloppant le sens divin en fuite.
 
@@ -100,7 +100,7 @@ Il ne pouvait que s'armer de patience et attendre. Pourtant, il n'avait pas les 
 
 Il y a six mois, lorsqu'il avait découvert qu'il avait condensé une trace d'énergie démoniaque avant de la briser, il avait remarqué quelque chose. Lorsque l'énergie s'était propagée un instant, Wang Lin avait eu l'impression d'être dans un vide.
 
-Il avait vaguement compris la nature de cet espace au sein du vide. En étendant son sens divin, celui-ci s'était instantanément déployé sur plus de 1 000 pieds sans aucune obstruction.
+Il avait vaguement compris la nature de cet espace au sein du vide. En étendant son sens divin, celui-ci s'était instantanément déployé sur 1 000 pieds sans aucune obstruction.
 
 Cette découverte fut une révélation pour le Wang Lin alors qu'il était dans l'incertitude.
 

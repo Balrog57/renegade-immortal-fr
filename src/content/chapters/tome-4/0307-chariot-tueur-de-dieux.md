@@ -42,7 +42,7 @@ Celle-ci s'anima immédiatement et s'ouvrit lentement.
 
 Le sens divin de Wang Lin se déploya et ses yeux s'illuminèrent aussitôt.
 
-Cette dixième salle n'était pas très vaste. Outre quelques outils éparpillés sur le côté, les objets les plus frappants étaient les trois structures monstrueuses au centre.
+Cette dixième salle n'était pas très vaste. Outre quelques matériaux de raffinage de trésors éparpillés sur le côté, les objets les plus frappants étaient les trois structures monstrueuses au centre.
 
 Il n'était pas exagéré de parler d'objets monstrueux, car ils semblaient recouverts d'une matière ressemblant à de la peau de bête, et des épines féroces en jaillissaient, dont une, au centre, était de la taille d'un homme.
 

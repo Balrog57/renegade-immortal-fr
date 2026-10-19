@@ -42,7 +42,7 @@ Lie Yunzi se redressa soudainement, les yeux écarquillés par une surprise inim
 
 « Tiens bon! » Les yeux de Lie Yunzi brillaient d'anticipation.
 
-Le corps de Xu Ting trembla. Au moment où la bête féroce chargea, il cracha un sang noir et fut projeté en arrière. Des craquements sinistres retentirent alors que des jets de sang jaillissaient de son corps.
+Le corps de Xu Ting trembla. Au moment où la bête féroce chargea, il cracha un jet de sang et fut projeté en arrière. Des craquements sinistres retentirent alors que des jets de sang jaillissaient de son corps.
 
 Lançant un sourire misérable, il s'écrasa lourdement à plus de trente mètres de là.
 

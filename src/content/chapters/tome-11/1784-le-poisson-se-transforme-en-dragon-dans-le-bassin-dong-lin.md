@@ -54,7 +54,7 @@ Pour le corps véritable du karma, sa paume ouverte représentait la cause karmi
 
 Les yeux du corps véritable du vrai et du faux étaient mi-clos. Il semblait osciller entre le vrai et le faux, tel un être enveloppé de brume. Cependant, ce corps dégageait une pression capable de faire trembler les cœurs les plus fermes.
 
-Alors que les cinq essences avaient formé des corps véritables, ce n'était pas encore fini. L'essence de la mise à mort de Wang Lin apparut et absorba une grande quantité d'eau. Lorsqu'il ne resta plus que 30 % du bassin, l'essence de la boucherie forma son corps véritable!
+Alors que les cinq essences avaient formé des corps véritables, ce n'était pas encore fini. L'essence de la mise à mort de Wang Lin apparut et absorba une grande quantité d'eau. Lorsqu'il ne resta plus que 30 % du bassin, l'essence de la mise à mort forma son corps véritable!
 
 Ce corps, entièrement rouge, était constitué d'intention meurtrière. Dès son apparition, il dégagea une soif de sang capable de détruire le monde!
 
@@ -78,7 +78,7 @@ Mais ce n'était pas terminé. Un changement encore plus stupéfiant survint alo
 
 Cette huitième essence était l'essence d'eau qu'il avait obtenue grâce à la formation sur la Planète des Cinq Éléments. Toutefois, elle n'était qu'à un stade de petite complétude et était loin d'être assez aboutie pour faire progresser sa culture.
 
-Mais à cet instant précis, l'eau du bassin Dong Lin pénétra dans le corps de Wang Lin par ses pores et fusionna avec son essence d'eau. Le cœur de Wang Lin battait la chamade alors qu'il sentait cette huitième essence se renforcer rapidement. Lorsque le bassin fut totalement vidé, l'essence d'eau devint complète!
+Mais à cet instant précis, l'eau du bassin Dong Lin pénétra dans le corps de Wang Lin par ses pores et fusionna avec son essence d'eau. Son esprit résonnait alors qu'il sentait cette huitième essence se renforcer rapidement. Lorsque le bassin fut totalement vidé, l'essence d'eau devint complète!
 
 Elle forma également un corps véritable d'essence. Ce dernier portait une tunique aux motifs d'ondes et son corps entier était cristallin comme de l'eau pure. Dès sa formation, le niveau de culture de Wang Lin, au stade avancé du Vide Spirituel, grimpa en flèche!
 
@@ -100,7 +100,7 @@ Wang Lin leva soudainement les yeux. Alors que le Vieux Fantôme Zhan se rapproc
 
 Alors qu'il s'élançait, le monde se décomposait sous ses pas. Le monde des souvenirs de Sept-Couleurs s'effondrait, mais l'aura de la vraie porte devenait plus intense encore. Elle était juste devant lui!
 
-Le Vieux Fantôme Zhan semblait avoir perdu la raison et pressait le pas. Cependant, il ne pouvait rattraper Wang Lin, qui avait maîtrisé l'Art Céleste du Nuage et avait formé huit corps véritables d'essence!
+Le Vieux Fantôme Zhan semblait avoir perdu la raison et pressait le pas. Cependant, il ne pouvait rattraper Wang Lin, qui avait maîtrisé l'Art Céleste du Dao des Nuages et avait formé huit corps véritables d'essence!
 
 En un seul pas, Wang Lin se retrouva devant la véritable porte!
 

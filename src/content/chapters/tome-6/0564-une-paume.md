@@ -18,11 +18,11 @@ Seules les quelques personnes dont la culture était équivalente ou supérieure
 
 Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin. Quatre nouveaux filaments s'ajoutèrent à celui de Sima Yan: ces cinq gaz, pareils à autant de dragons azurés, tournoyèrent entre les doigts de sa main gauche.
 
-« Quel sort puissant! » Une voix grave résonna devant lui. Une fois la poussière retombée, la silhouette massive du général démoniaque apparut.
+« Quel sort puissant! » Une voix grave résonna devant lui. Une fois la poussière retombée, la silhouette massive du général démon apparut.
 
 Après avoir parlé, son corps vacilla alors qu'il luttait contre sa propre reculée. L'énergie spirituelle démoniaque en lui s'agita frénétiquement pour l'empêcher d'être projeté plus loin. Ses yeux brillaient comme des éclairs lorsqu'il fit un pas en avant, parcourant 9,9 mètres en un instant. Puis, sa paume s'abattit sur le sol. Ce geste créa une rafale de vent telle que la zone de cinq kilomètres environ sembla se transformer en océan.
 
-La mer entière poussa un rugissement sous l'impact de la paume du général démoniaque et chargea vers Wang Lin avec une fureur folle.
+La mer entière poussa un rugissement sous l'impact de la paume du général démon et chargea vers Wang Lin avec une fureur folle.
 
 « Résiste à ma Mer Démoniaque aux Cent Vagues, et alors tu seras digne de me parler! »
 
@@ -34,7 +34,7 @@ Face à cette mer d'énergie spirituelle démoniaque, une idée traversa soudain
 
 Sur la planète Suzaku, une rumeur disait qu'un puissant cultivateur avait utilisé un sort pour transformer la mer en brume, créant ainsi l'apparence unique de la Mer des Diables!
 
-Lorsqu'il l'avait apprise à l'époque, bien que choqué, Wang Lin n'y avait pas vraiment cru. Cependant, aujourd'hui, il voyait de ses propres yeux le général démoniaque transformer l'énergie spirituelle invisible en une mer tangible. Si cela le stupéfiait, cela le faisait surtout réfléchir profondément.
+Lorsqu'il l'avait apprise à l'époque, bien que choqué, Wang Lin n'y avait pas vraiment cru. Cependant, aujourd'hui, il voyait de ses propres yeux le général démon transformer l'énergie spirituelle invisible en une mer tangible. Si cela le stupéfiait, cela le faisait surtout réfléchir profondément.
 
 Alors que la mer démoniaque déferlait, les vagues commencèrent à s'empiler les unes sur les autres jusqu'à en compter trente, et Wang Lin se concentrait sur sa retraite!
 
@@ -44,7 +44,7 @@ Les trente vagues de la mer démoniaque s'empilèrent et poursuivirent Wang Lin.
 
 Cependant, ces restrictions n'étaient que du papier fin face à la puissance des ondes. Elles se brisèrent rapidement, se dissipant en éclats de lumière noire.
 
-Alors que les vagues devenaient plus féroces, les yeux de Wang Lin s'illuminèrent. Il s'apprêtait à sortir des jades de sang du sac de Yao Xixue pour l'aider à résister quand le symbole doré qu'il avait absorbé de la seconde statue apparut soudainement dans son esprit!
+Alors que les vagues devenaient plus féroces, les yeux de Wang Lin s'illuminèrent. Il s'apprêtait à sortir de son sac de rangement les jades de sang de Yao Xixue pour résister quand le symbole doré qu'il avait absorbé de la seconde statue apparut soudainement dans son esprit!
 
 Ce symbole s'imprima brusquement dans son esprit. Mais Wang Lin l'ignora et sortit une grande quantité de jades de sang. Il les broya, et des vagues de lumière écarlate remplirent la zone.
 
@@ -62,41 +62,41 @@ D'un seul trait, le gaz gris se tordit pour former un symbole!
 
 Après avoir tracé ce signe, Wang Lin sentit son esprit devenir d'une clarté absolue, et une pulsion de libérer la puissance qui sommeillait en lui l'envahit.
 
-Au moment où le symbole apparut, les yeux du général démoniaque se plissèrent. De son point de vue, ce symbole n'avait aucune puissance, mais si Wang Lin l'utilisait à un moment aussi critique, cela ne pouvait être ordinaire!
+Au moment où le symbole apparut, les yeux du général démon se plissèrent. De son point de vue, ce symbole n'avait aucune puissance, mais si Wang Lin l'utilisait à un moment aussi critique, cela ne pouvait être ordinaire!
 
 Le doigt de Wang Lin ne s'arrêta pas; il parcourut une nouvelle fois le symbole. D'un second trait, il créa un symbole à deux traits!
 
-Le regard du général démoniaque devint encore plus sérieux. À la formation de ce signe, il eut l'impression de faire face aux cieux eux-mêmes.
+Le regard du général démon devint encore plus sérieux. À la formation de ce signe, il eut l'impression de faire face aux cieux eux-mêmes.
 
 Le doigt de Wang Lin bougea une ultime fois pour créer le symbole à trois traits. À cet instant, le symbole doré dans son esprit fondit en une force d'or qui fusionna avec le nouveau symbole.
 
-Soudain, une puissance colossale émana du signe. Cette force était si intense qu'elle fit contracter le cœur du général démoniaque.
+Soudain, une puissance colossale émana du signe. Cette force était si intense qu'elle fit contracter le cœur du général démon.
 
 Il augmenta précipitamment les trente vagues à soixante et les lança en avant.
 
 Après une série de fracas, le symbole rencontra les vagues, provoquant leur effondrement, mais le signe s'estompa aussitôt après l'impact. Le symbole doré percuta ensuite les trente vagues suivantes, qui s'annulèrent mutuellement.
 
-Mais à cet instant précis, trois filaments de gaz gris apparurent là où le symbole avait disparu. Ils percèrent la mer démoniaque et chargèrent directement vers le général démoniaque.
+Mais à cet instant précis, trois filaments de gaz gris apparurent là où le symbole avait disparu. Ils percèrent la mer démoniaque et chargèrent directement vers le général démon.
 
-Le général démoniaque écarquilla les yeux et hurla: « Armure, active! »
+Le général démon écarquilla les yeux et hurla: « Armure, active! »
 
 D'un mot, un rideau d'énergie spirituelle démoniaque apparut à 2,31 mètres devant lui. Les trois filaments de gaz gris percutèrent la barrière et tremblèrent violemment avant d'être repoussés, devenant légèrement plus ternes qu'auparavant.
 
-Le général démoniaque eut un éclair dans le regard, puis il rit en faisant un pas en avant: « Quel sortilège de symbole puissant! Wang Lin, je t'ai effectivement sous-estimé. Cependant, il semble que ce symbole cache encore bien des choses. Que dirais-tu de tout me montrer et d'engager un véritable combat contre moi? »
+Le général démon eut un éclair dans le regard, puis il rit en faisant un pas en avant: « Quel sortilège de symbole puissant! Wang Lin, je t'ai effectivement sous-estimé. Cependant, il semble que ce symbole cache encore bien des choses. Que dirais-tu de tout me montrer et d'engager un véritable combat contre moi? »
 
 Wang Lin demanda froidement: « Où est Treize? »
 
-« Nous en parlerons après la bataille! » Le général démoniaque rit, ses yeux brillant comme des torches!
+« Nous en parlerons après la bataille! » Le général démon rit, ses yeux brillant comme des torches!
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il reculait de plusieurs pas: « Une fois que j'aurai utilisé mon ultime atout, tu seras mort! »
 
-« Oh? Alors montre-le-moi. Si cela peut réellement me tuer, je serais comblé! » Le général démoniaque créa alors quarante nouvelles vagues qui s'abattirent vers Wang Lin.
+« Oh? Alors montre-le-moi. Si cela peut réellement me tuer, je me soumettrai sans discuter! » Le général démon créa alors quarante nouvelles vagues qui s'abattirent vers Wang Lin.
 
-« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
+« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays du Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
 
-Les yeux du général démoniaque révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons, et il ressemblait à un Dieu de la Mer Démoniaque!
+Les yeux du général démon révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons, et il ressemblait à un Dieu de la Mer Démoniaque!
 
-Suspendu dans les airs, Wang Lin ferma les yeux. Le général démoniaque était bien plus fort qu'il ne l'avait pensé. L'intention de poing des Dix Effondrements n'était qu'une de ses techniques; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir!
+Suspendu dans les airs, Wang Lin ferma les yeux. Le général démon était bien plus fort qu'il ne l'avait pensé. L'intention de poing des Dix Effondrements n'était qu'une de ses techniques; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir!
 
 Bien que la culture de cet adversaire ne soit qu'au sommet du stade tardif de la Transformation de l'Âme, tout comme celle de Wang Lin, ses sorts étaient bien plus puissants.
 
@@ -104,7 +104,7 @@ Wang Lin devait l'admettre: il manquait de techniques de combat!
 
 Même en utilisant ses trésors, il n'était pas certain de pouvoir l'emporter. C'était la première fois depuis des centaines d'années que Wang Lin affrontait un égal en termes de culture et qu'il ne se sentait pas vainqueur; s'il était le moindre peu imprudent, il perdrait!
 
-De plus, il se trouvait dans la ville du général démoniaque. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En réalisant qu'il ne pouvait pas gagner par la force brute, une idée lui vint: une ruse!
+De plus, il se trouvait dans la ville du général démon. Son but était de sauver Treize, et s'il était blessé, toute chance de sauvetage s'envolerait. En réalisant qu'il ne pouvait pas gagner par la force brute, une idée lui vint: une ruse!
 
 Flottant les yeux clos, il se remémora l'empreinte de main géante qu'il avait vue dans le Royaume Céleste. À l'époque, il y avait passé un temps infini pour tenter de la comprendre, avant de l'utiliser contre Papillon Rouge. Cependant, cette paume n'avait été que forme, sans puissance réelle derrière elle.
 
@@ -112,11 +112,11 @@ Mais ce sort-ci était imprévisible. Dès son apparition, sa pression atteignai
 
 L'empreinte géante se condensa lentement dans son esprit, et son état mental changea pour retrouver celui qu'il avait lors de sa compréhension initiale. À cet instant, ses yeux s'ouvrirent brusquement, affichant une couleur inexplicable.
 
-D'un seul regard, il contempla le sol comme s'il surplombait le monde entier. Quant au général démoniaque, il ne lui semblait plus être qu'une minuscule fourmi.
+D'un seul regard, il contempla le sol comme s'il surplombait le monde entier. Quant au général démon, il ne lui semblait plus être qu'une minuscule fourmi.
 
-Lorsque le général démoniaque ressentit ce regard, son cœur trembla violemment pour la première fois!
+Lorsque le général démon ressentit ce regard, son cœur trembla violemment pour la première fois!
 
-« Ceci... Ce regard est celui que je ne ressens que face à l'Ancien Démon dans le temple. C'est une présence que même l'Empereur Démoniaque ne possède pas! » Le corps du général démoniaque tremblait, et les vagues autour de lui commencèrent à tourbillonner hors de contrôle.
+« Ceci... Ce regard est celui que je ne ressens que face à l'Ancien Démon dans le temple. C'est une présence que même l'Empereur Démon ne possède pas! » Le corps du général démon tremblait, et les vagues autour de lui commencèrent à tourbillonner hors de contrôle.
 
 Wang Lin tendit sa main droite et pressa vers le bas. Cette paume fit s'obscurcir le ciel, tandis que diverses forces mystérieuses convergeaient sous lui pour former une empreinte de paume d'une immensité prodigieuse.
 

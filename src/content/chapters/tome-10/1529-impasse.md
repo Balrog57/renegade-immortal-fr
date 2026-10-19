@@ -10,11 +10,11 @@ La Hache Brise-Ciel qui jaillit de la main droite de Wang Lin s'étendit des mil
 
 Cette déchirure s'engouffra par l'ouverture de la Formation de Scellement du Royaume et se précipita vers l'extérieur. Les deux cultivateurs du troisième niveau furent stupéfaits. À cet instant, ils ne tentèrent pas de résister mais s'empressèrent d'esquiver.
 
-Cependant, ils furent ralentis par la hache gigantesque. Au moment même où ils voulaient esquiver, la Hache Brise-Ciel fendit l'air. Le sang jaillit de toutes parts et les deux cultivateurs du troisième niveau recrachèrent des bouffées de sang; l'un de leurs bras fut tranché et séparé de leur corps au passage de l'arme.
+Cependant, ils furent ralentis par la hache gigantesque. Au moment même où ils voulaient esquiver, la Hache Brise-Ciel fendit l'air. Le sang jaillit de toutes parts et les deux cultivateurs du troisième niveau recrachèrent des bouffées de sang; un bras chacun fut tranché et séparé de leur corps au passage de l'arme.
 
 Le visage livide, ils n'osèrent plus combattre. Ils battirent en retraite précipitamment pour s'échapper.
 
-Bien que les deux aient réussi à esquiver malgré de graves blessures, les cultivateurs de la troisième armée ne purent rien faire. Tandis que la Hache Brise-Ciel passait, une multitude de vies fut anéantie!
+Bien que les deux aient réussi à esquiver malgré de graves blessures, les cultivateurs de la troisième vague ne purent rien faire. Tandis que la Hache Brise-Ciel passait, une multitude de vies fut anéantie!
 
 Il n'y eut aucun cri, seulement des effondrements et une désintégration totale. Une immense brèche large de dizaines de milliers de pieds apparut au sein de l'armée après le passage de la hache!
 
@@ -26,11 +26,11 @@ Dans le Royaume Intérieur, les envahisseurs du Royaume Extérieur qui assistèr
 
 « Quiconque pénètre dans le Royaume Intérieur mourra! » Wang Lin serra son poing droit et fixa froidement les cultivateurs du Royaume Extérieur postés devant la Formation de Scellement du Royaume. Sa voix résonna comme une bourrasque de vent glacial.
 
-À cet instant précis, le rugissement d'une corne retentit depuis le Système d'Étoiles Anciennes et pénétra dans le Royaume Intérieur par l'ouverture de la Formation de Scellement du Royaume.
+À cet instant précis, le gémissement lugubre d'une corne retentit depuis le Système d'Étoiles Anciennes et pénétra dans le Royaume Intérieur par l'ouverture de la Formation de Scellement du Royaume.
 
 Ce son de corne sembla réveiller la troisième vague de cultivateurs du Royaume Extérieur qui étaient terrifiés; ils jetèrent des regards complexes vers Wang Lin, gravant son apparence à jamais dans leurs cœurs!
 
-En un éclair, la troisième vague de cultivateurs entama une retraite lente et cessa de charger la Formation de Scellement du Royaume. Ils s'envolèrent pour retourner vers le Système d'Étoiles Anciennes!
+En un éclair, la troisième vague de cultivateurs entama une retraite silencieuse et cessa de charger la Formation de Scellement du Royaume. Ils s'envolèrent pour retourner vers le Système d'Étoiles Anciennes!
 
 Le son de la corne pénétra dans le Royaume Intérieur et fut entendu par des dizaines de milliers de cultivateurs du Royaume Extérieur. Ces derniers reculèrent encore plus vite vers l'ouverture de la Formation de Scellement du Royaume. L'ombre que Wang Lin et le Royaume Intérieur avaient projetée sur leurs âmes persisterait à jamais!
 
@@ -76,7 +76,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 
-Presque personne ne pouvait contraindre le Souverain à changer d'avis. Miao Yin ne le pouvait pas, Neuf Cieux non plus, mais Rêve Bleu le pouvait!
+Personne ne pouvait contraindre le Souverain à changer d'avis. Miao Yin ne le pouvait pas, Neuf Cieux non plus, mais Rêve Bleu le pouvait!
 
 Le Maître Hong Shan, qui combattait le jeune homme au regard froid, devint lui aussi grave. Le nom du Maître du Dao Rêve Bleu était trop célèbre pour être ignoré!
 
@@ -86,7 +86,7 @@ La main droite de Wang Lin marqua un temps d'arrêt tandis qu'il observait l'hom
 
 Le vacarme du carnage s'estompa lentement. Hormis le Maître Hong Shan et ses compagnons qui poursuivaient leur combat, tous les regards se tournèrent vers Wang Lin, attendant sa réponse.
 
-Wang Lin avait déjà imposé le respect de son identité de Seigneur du Royaume Scellé auprès des cultivateurs du Royaume Intérieur. Bien que son niveau de culture ne fût pas aussi élevé que celui du Maître Hong Shan, il était, à leurs yeux, digne de ce titre!
+Grâce à ses exploits de cette bataille, Wang Lin avait déjà imposé le respect de son identité de Seigneur du Royaume Scellé auprès des cultivateurs du Royaume Intérieur. Bien que son niveau de culture ne fût pas aussi élevé que celui du Maître Hong Shan, il était, à leurs yeux, digne de ce titre!
 
 Wang Lin réfléchit en silence face à l'homme d'âge mûr, puis, un instant plus tard, il s'inclina profondément devant lui, le regard déterminé. Il agita la main droite et des millions de restrictions apparurent, se condensant pour former une gigantesque armature d'ombrelle!
 
@@ -94,7 +94,7 @@ Dès que cette structure apparut, l'ombrelle se déploya lentement et l'Ombrelle
 
 Le Maître du Dao Rêve Bleu observa Wang Lin intensément et secoua la tête dans un soupir.
 
-« Par égard pour ma fille, je t'ai transmis des sorts et une technique du Dao pour éviter l'attaque de la concubine impériale céleste. C'était la première fois! »
+« Par égard pour ma fille, je t'ai transmis des sorts et une technique du Dao pour te soustraire au regard scrutateur de la concubine impériale céleste. C'était la première fois! »
 
 « La Pêche de la Lune au Puits du Souverain fut la deuxième! »
 
@@ -106,7 +106,7 @@ Le Maître du Dao Rêve Bleu observa Wang Lin intensément et secoua la tête da
 
 En regardant là où le Maître du Dao Rêve Bleu avait disparu, l'ombre ténue d'une femme apparut devant lui. La femme secouait la tête avec un léger sourire. Ces paroles prononcées des centaines d'années plus tôt résonnèrent dans son esprit:
 
-« Oublions-nous... » La perte de vitalité fit pâlir l'ombre de la femme. Toute la vitalité du corps de Wang Lin se précipita vers l'Ombrelle Brûlante du Royaume, se transformant en une force capable de soutenir l'ouverture de cette arme!
+« Nous oublier au fil des fleuves et des lacs... n'est-ce pas? » La perte de vitalité fit pâlir l'ombre de la femme. Toute la vitalité du corps de Wang Lin se précipita vers l'Ombrelle Brûlante du Royaume, se transformant en une force capable de soutenir l'ouverture de cette arme!
 
 Des grondements tonitruants retentirent alors que l'Ombrelle Brûlante du Royaume s'ouvrait lentement... Le feu destructeur jaillit et ravagea la zone. D'innombrables cultivateurs luttèrent dans cette mer de flammes, leurs visages déformés par la douleur semblant s'ancrer dans les yeux de Wang Lin.
 

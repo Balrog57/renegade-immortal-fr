@@ -90,13 +90,13 @@ Wang Lin prit une grande inspiration, les yeux tremblants devant cette lueur.
 
 Le jeune homme maléfique fit un geste de la main et la lumière disparut. Il regarda Wang Lin: « Le Royaume Ji se décline en de nombreuses formes. Quant à leur nombre exact, personne ne le sait vraiment. Les cultivateurs possédant un Royaume Ji sont rares au sein de l'Union de Culture, je suis donc incapable de déterminer les propriétés de ton propre Royaume Ji. Mais je sais que quel que soit son type, tous possèdent un goulot d'étranglement, et ces verrous sont extrêmement difficiles à briser. »
 
-« Je connais une méthode permettant au Royaume Ji de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Lors de l'octroi du titre, plusieurs vieillards de l'Union offrent ensemble un sacrifice au ciel, et la majesté céleste manifeste alors sa puissance divine: le cristal se condense de lui-même. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Royaume Ji parvient à l'obtenir et à le raffiner, il aura une chance de briser son goulot d'étranglement. »
+« Je connais une méthode permettant au Royaume Ji de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Lors de l'octroi du titre, plusieurs vieillards de l'Union offrent ensemble un sacrifice au ciel, et la majesté céleste manifeste alors sa puissance divine: le cristal se condense de lui-même. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Royaume Ji parvient à l'obtenir et à l'utiliser comme catalyseur, il aura une chance de briser son goulot d'étranglement. »
 
 Le visage de Wang Lin se crispa. Un trésor national d'un pays de culture de rang 6 était une chose hors de sa portée actuelle.
 
 Le jeune homme maléfique regarda Wang Lin, tapota son sac de rangement et en sortit un disque noir. D'un geste décontracté de la main droite, il frappa le disque qui s'agrandit soudainement tout en émettant une douce lueur.
 
-« Si tu parviens à obtenir le Cristal de la Planète de Culture et la qualification pour quitter cette planète sans intérêt, viens me chercher sur la Planète des Cinq Éléments. Mon nom est Na Duo. » Sur ces mots, il s'éleva dans les airs et disparut dans le disque volant. Peu après, le disque se mit à tourner rapidement, déchirant le ciel. À travers cette brèche, Wang Lin put apercevoir le vide infini parsemé d'étoiles étincelantes.
+« Si tu parviens à obtenir le Cristal de la Planète de Culture et la qualification pour quitter cette planète abandonnée, viens me chercher sur la Planète des Cinq Éléments. Mon nom est Na Duo. » Sur ces mots, il s'éleva dans les airs et disparut dans le disque volant. Peu après, le disque se mit à tourner rapidement, déchirant le ciel. À travers cette brèche, Wang Lin put apercevoir le vide infini parsemé d'étoiles étincelantes.
 
 Le disque s'engouffra dans la brèche. Celle-ci se referma rapidement, ne laissant aucune trace.
 

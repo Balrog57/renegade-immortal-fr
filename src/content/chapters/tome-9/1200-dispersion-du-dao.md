@@ -14,7 +14,7 @@ Le cycle de la vie et de la mort, le cycle du karma, ainsi que le vrai et le fau
 
 Diviser les étoiles, trancher la lune et dominer les cieux: tel était le chemin d'un cultivateur défiant les cieux. Puisqu'il avait percé le mystère de la vie et de la mort, il n'avait plus rien à craindre! Telles étaient les réflexions que le domaine de la vie et de la mort avait insufflées à Wang Lin.
 
-Il était devenu puissant parce qu'il possédait cette intention! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les cieux et à cultiver sur une voie harmonieuse!
+Il était devenu puissant parce qu'il possédait cette intention! Pourtant, les cieux étaient impitoyables et forçaient toute vie à leur obéissance! C'était aussi grâce à l'intention de toute vie que d'innombrables Daos s'étaient formés pour que chacun puisse les appréhender. C'était le présent des cieux à tous les êtres vivants, afin de donner un sens à leur culture. Cela revenait à suivre les règles et à cultiver sur une voie docile!
 
 Mais Wang Lin ne suivrait pas ce chemin!
 
@@ -76,7 +76,7 @@ Son esprit traversa la porte de pierre et aperçut des orbes de lumière aux sep
 
 Dans cette grotte, il vit une jeune fille qui ressemblait à la vieille femme. Son visage était livide, elle semblait morte, mais son corps tremblait.
 
-Wang Lin vit également qu'un espace caché existait au sommet, et à l'intérieur, il retrouva la tablette. Il vit aussi la moitié d'un squelette clouée sous la tablette par deux clous aux sept couleurs.
+Wang Lin vit également qu'un espace caché existait dans la montagne, et à l'intérieur, il retrouva la tablette. Il vit aussi la moitié d'un squelette clouée sous la tablette par deux clous aux sept couleurs.
 
 À cet instant, son esprit fut attiré par le squelette et se fixa sur les innombrables mots gravés sur celui-ci.
 
@@ -92,13 +92,13 @@ Le jeune homme marqué par la foudre dit doucement: « Cet endroit est très mys
 
 Derrière lui, le jeune homme avec la marque de flamme entre les sourcils se frotta les tempes. L'expression sombre, il murmura: « C'est en effet très étrange. Depuis que nous sommes entrés ici, je sens quelque chose m'appeler dans mon cœur. De plus, j'ai l'impression que ma marque ancestrale est sur le point de quitter mon corps. »
 
-Le dernier jeune homme, celui au croissant de lune, observait les environs avec prudence et ses yeux s'illuminèrent. Juste au moment où il allait accélérer, son expression changea radicalement.
+Le dernier jeune homme, celui au croissant de lune, observait les environs avec prudence et ses yeux s'illuminèrent. Juste au moment où il allait parler, son expression changea radicalement.
 
 L'esprit de Wang Lin balaya les trois jeunes gens. À cet instant, ce fut comme si un éclair frappait le jeune homme marqué par la foudre entre les sourcils. La marque commença à briller violemment.
 
 Le jeune homme au croissant de lune trembla également, comme s'il venait de penser à quelque chose, sans toutefois en être certain. Son visage devint pâle et une vague immense déferla dans son cœur.
 
-Le plus choqué fut le jeune homme à la marque de flamme. Au moment où l'esprit de Wang Lin passa, il eut l'impression de perdre toute force. Une peur indicible l'envahit et la marque de flamme commença à brûler, comme si elle voulait réduire son corps en cendres.
+Le plus choqué fut le jeune homme à la marque de flamme. Au moment où l'esprit de Wang Lin passa, il eut l'impression de perdre toute force. Une crainte révérencielle indicible, mêlée de frénésie, l'envahit et la marque de flamme commença à brûler, comme si elle voulait réduire son corps en cendres.
 
 Heureusement, ce sentiment ne dura qu'un instant. Lorsque l'esprit de Wang Lin passa, la douleur disparut.
 

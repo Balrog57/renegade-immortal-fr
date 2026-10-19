@@ -50,13 +50,13 @@ Wang Lin esquissa un sourire amer et se frotta inconsciemment le nez. Il ne dit 
 
 Wang Lin accepta la cruche et en prit une gorgée.
 
-« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet d'Âme... » rit Papillon Rouge.
+« Et aussi, sur la planète Suzaku, pendant notre combat, tu m'as volé mon Fouet de l'Âme... » rit Papillon Rouge.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 
 « Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée dans le Tombeau de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
 
-« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Papillon Rouge était la femme qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
+« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Parmi les femmes rencontrées dans ses premiers temps, Papillon Rouge était celle qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
 
 Sa silhouette semblable à un papillon rouge, cette femme si fière, était difficile à oublier. Elle avait atteint le stade de la Formation de l'Âme en seulement cent ans; elle était une femme bénie!
 
@@ -110,7 +110,7 @@ Le corps de Li Qianmei trembla et des larmes coulèrent au coin de ses yeux. Ses
 
 Papillon Rouge observa la scène, surprise. Elle les regarda tous deux, plongée dans une réflexion silencieuse.
 
-Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de cent pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
+Le Maître Dao Bleu Rêve soupira et conduisit sa fille vers la formation. En un instant, ils se retrouvèrent à moins de dix pieds de la barrière. La formation en roue bourdonna, signe qu'elle s'activait.
 
 Le regard de Wang Lin quitta Li Qianmei pour se tourner vers le Maître Dao Bleu Rêve. Ses yeux brillèrent intensément, mais cet éclat se dissipa rapidement.
 

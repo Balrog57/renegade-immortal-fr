@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 179 - Studying Restrictions
 slug: etude-des-restrictions
 ---
-Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité supérieure, mais la situation était trop périlleuse dans le premier essai; sans le Bossu Meng pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Et même s'il parvenait à rentrer au prix de mille efforts, si cet endroit interdisait le retour, il n'y trouverait que la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
+Ce n'était pas que Wang Lin n'ait pas envisagé de revenir sur ses pas après avoir obtenu les pierres spirituelles de qualité suprême, mais la situation était trop périlleuse dans le premier essai; sans le Bossu Meng pour lui ouvrir la voie, il ignorait s'il pourrait seulement en revenir. Et même s'il parvenait à rentrer au prix de mille efforts, si cet endroit interdisait le retour, il n'y trouverait que la mort, car il n'aurait aucune chance de réussir à nouveau le premier essai.
 
 La personnalité de Wang Lin ne lui permettait pas de prendre des risques facilement, surtout lorsque des enjeux qu'il ne pouvait se permettre de perdre étaient en jeu.
 
@@ -24,7 +24,7 @@ Il regarda autour de lui. Un parcours de moins de cent mètres lui avait pris pl
 
 Il leva les yeux vers la montagne qui semblait infinie. Il se demanda combien d'années il lui faudrait pour atteindre le sommet s'il continuait à ce rythme.
 
-Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple culture de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, ce serait encore plus périlleux.
+Il laissa échapper un lourd soupir. Lors du premier essai, il avait réussi grâce à la chance, mais il semblait qu'il devrait compter sur ses propres forces pour ce second essai. Après avoir réfléchi un instant, son visage s'assombrit. Avec sa simple culture de Formation du Noyau, l'endroit était bien trop dangereux, mais s'il tentait de faire demi-tour, le danger resterait tout aussi grand.
 
 S'il voulait vivre, il devait forcer le passage vers l'avant. Wang Lin réfléchit un instant, puis ses yeux s'illuminèrent. Il ne continua pas sa progression, mais fit volte-face et franchit avec précaution l'interstice entre les deux restrictions. Il recula ainsi jusqu'à atteindre de nouveau le pied de la montagne.
 

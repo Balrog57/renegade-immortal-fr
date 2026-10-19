@@ -8,11 +8,11 @@ slug: seigneur-celeste-qing-shui
 ---
 Le vortex engendré par la rotation des quarante-neuf fragments provoqua l'effondrement du Royaume Céleste du Tonnerre. La succion de l'immense tourbillon résonna à travers tout le royaume.
 
-L'effondrement à grande échelle se poursuivit, devenant de plus en plus intense. Les fissures dans le ciel apparaissaient de plus en plus fréquemment, comme si une épée fendait la voûte céleste pour étendre ses déchirures. Quiconque s'en approchait trop ne serait pas seulement terrassé par la splendeur du spectacle, mais serait également dévoré par les failles.
+L'effondrement à grande échelle se poursuivit, devenant de plus en plus intense. Les fissures dans le ciel apparaissaient de plus en plus fréquemment, comme si une épée fendait la voûte céleste pour étendre ses déchirures. Quiconque s'en approchait trop ne serait pas seulement frappé de stupeur par le spectacle, mais serait également dévoré par les failles.
 
 À cet instant, les yeux du Maître Yan Leizi brillèrent d'une lueur étrange. Flottant dans les airs, les bras tendus, il observa le fragment sous lui qui commençait, lui aussi, à tourner lentement.
 
-« La Formation Céleste du Tonnerre de ce vieil homme sera achevée aujourd'hui! » s'exclama le Maître Yan Leizi dans un rire. Sa main traça un sceau et l'énergie originelle jaillit vers le fragment inférieur, se propageant comme si elle était infinie.
+« La Formation Céleste du Tonnerre de ce vieil homme sera achevée aujourd'hui! » s'exclama le Maître Yan Leizi dans un rire. Ses deux mains traçèrent des sceaux, et l'énergie originelle jaillit vers le fragment inférieur, se propageant comme si elle était infinie.
 
 L'esprit de Wang Lin trembla violemment. Le visage sombre, il fixa silencieusement le Maître Yan Leizi au loin.
 
@@ -52,7 +52,7 @@ Une fois apparue, l'âme originelle leva les yeux vers le ciel, l'air hébété,
 
 Le processus ne s'interrompit pas. Une paire de mains massives sembla vouloir déchirer le miroir, avant qu'une âme originelle n'en émerge. C'était celle d'un homme d'âge moyen au visage empreint d'une aura maléfique qui, dès son apparition, poussa un rugissement monstrueux, transformant sa noirceur en une tempête rouge.
 
-Le corps de Wang Lin recula involontairement, frappé par le choc. Il ne pouvait plus évaluer la force de cette âme; il pressentait seulement qu'elle était moins puissante que l'Ancêtre du Sang.
+Le corps de Wang Lin recula involontairement, frappé par le choc. Il ne pouvait plus évaluer la force de cette âme; il pressentait seulement qu'elle était moins puissante que l'Ancêtre Sanguin.
 
 « Rang 9 Céleste du Firmament! » Le jeune homme maléfique afficha une avidité gourmande, sans toutefois se précipiter pour s'en emparer.
 
@@ -66,13 +66,13 @@ Bien qu'il n'émanât aucune énergie originelle de lui, la simple présence de 
 
 « Roi Céleste de Rang 2! » Les yeux du jeune homme maléfique s'illuminèrent.
 
-L'âme de ce vieillard n'était pas confuse; elle était parfaitement lucide. Son regard se posa enfin sur le Maître Yan Leizi et il hocha la tête. Une voix antique résonna alors: « Tiens ta promesse! »
+L'âme de ce vieillard n'était pas confuse; elle était parfaitement lucide. Son regard se posa enfin sur le Maître Yan Leizi et il hocha la tête. Une voix antique résonna alors: « Souviens-toi de ta promesse! »
 
 Après cela, l'âme du vieil homme entra dans un fragment et disparut. Puis, une aura dévastatrice éclata du cinquième fragment. De nouveaux craquements déchirèrent le miroir ancien, dont les fissures s'étirèrent davantage pour laisser passer une autre âme originelle. Cette dernière était entièrement rouge, exhalant un profond sentiment de haine.
 
-« L'Ancêtre du Sang! » L'expression de Wang Lin changea radicalement et il recula aussitôt. Pourtant, il nota une anomalie: bien qu'il s'agisse de l'âme de l'Ancêtre du Sang, ses yeux étaient ternes, dépourvus de toute étincelle de vie.
+« L'Ancêtre Sanguin! » L'expression de Wang Lin changea radicalement et il recula aussitôt. Pourtant, il nota une anomalie: bien qu'il s'agisse de l'âme de l'Ancêtre Sanguin, ses yeux étaient ternes, dépourvus de toute étincelle de vie.
 
-Peu après, l'âme de l'Ancêtre du Sang pénétra silencieusement dans le fragment. Mais juste avant de disparaître, elle leva la tête pour fixer Wang Lin.
+Peu après, l'âme de l'Ancêtre Sanguin pénétra silencieusement dans le fragment. Mais juste avant de disparaître, elle leva la tête pour fixer Wang Lin.
 
 La quatrième âme a pris sa place!
 
@@ -96,7 +96,7 @@ Le Maître Yan Leizi désigna le fragment inférieur et ordonna: « Première â
 
 L'homme d'âge moyen réfléchit un instant avant de s'engouffrer dans le fragment. Une intention meurtrière monstrueuse explosa alors du premier fragment central, enveloppant immédiatement tous les autres fragments de la formation.
 
-Excité, le Maître Yan Leizi cria: « Formation Céleste, rassemblement! » Les quarante-neuf âmes originelles initiales n'incluaient pas l'Ancêtre du Sang, mais après l'avoir obtenue, il avait décidé de l'utiliser comme substitut.
+Excité, le Maître Yan Leizi cria: « Formation Céleste, rassemblement! » Les quarante-neuf âmes originelles initiales n'incluaient pas l'Ancêtre Sanguin, mais après l'avoir obtenue, il avait décidé de l'utiliser comme substitut.
 
 Alors que le Maître Yan Leizi parlait, le Royaume Céleste du Tonnerre subit une métamorphose. Les quarante-neuf fragments, désormais dotés d'âmes de trésor, se rétrécirent jusqu'à la taille d'une paume et gravitèrent autour du Maître Yan Leizi. Un sens divin émana de chaque fragment pour s'infuser dans le corps du Maître. Une fois les quarante-neuf sens divins intégrés, son corps devint tangible.
 

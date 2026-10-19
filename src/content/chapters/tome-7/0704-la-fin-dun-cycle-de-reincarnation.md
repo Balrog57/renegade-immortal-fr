@@ -8,7 +8,7 @@ slug: la-fin-dun-cycle-de-reincarnation
 ---
 Une voix hideuse résonna. Au moment où le tonnerre du Dao descendit à l'intérieur du fourneau, une flamme violette apparut. En un instant, une mer de flammes s'embrasa dans l'enceinte du fourneau. La combinaison du tonnerre et du feu était infiniment plus puissante!
 
-L'expression de Wang Lin était sombre. L'énergie originelle dans son corps ne pouvait rivaliser avec celle du vieil homme; il ne pouvait donc pas déployer toute la puissance de son Coup Céleste. C’était ainsi que le patriarche de la famille Huan l'avait prédit: si Wang Lin atteignait la deuxième étape, ou même le stade Yin et Yang, la puissance de son Coup Céleste augmenterait de façon exponentielle.
+L'expression de Wang Lin était sombre. L'énergie originelle dans son corps ne pouvait rivaliser avec celle du vieil homme; il ne pouvait donc pas déployer toute la puissance de son Coup Céleste. C’était ainsi que l'ancêtre de la famille Huan l'avait prédit: si Wang Lin atteignait la deuxième étape, ou même le stade Yin et Yang, la puissance de son Coup Céleste augmenterait de façon exponentielle.
 
 Ses yeux s'illuminèrent alors qu'il rangeait la grande épée pour fixer la Bête du Tonnerre. Wang Lin se mordit le bout du doigt et utilisa son sang pour tracer un symbole d'une complexité extrême.
 
@@ -48,7 +48,7 @@ Le visage de Wang Lin était d'une pâleur mortelle. Après avoir utilisé deux 
 
 Son corps vacilla et le monde autour de lui retrouva son calme. Wang Lin prit une profonde inspiration. Bien que son visage fût livide, ses yeux étaient plus froids que jamais.
 
-Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les sorts et trésors qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient s'en vouloir de ne pas avoir fui plus tôt!
+Le corps du Daoïste du Tonnerre apparut dans les airs. Il cracha une large bouchée de sang et fit immédiatement demi-tour pour fuir. La terreur l'habitait. Il avait mené d'innombrables batailles, mais n'avait jamais rencontré une telle étrangeté. Bien que l'ennemi ne fût qu'un cultivateur Ascendant, les pouvoirs et sortilèges qu'il possédait lui glaçaient le sang; ces deux rayons d'énergie d'épée le faisaient s'en vouloir de ne pas avoir fui plus tôt!
 
 La marionnette du gardien céleste poursuivit rapidement le Daoïste du Tonnerre. La Bête du Tonnerre poussa un rugissement et suivit également de près le gardien. Ils disparurent progressivement à l'horizon...
 
@@ -84,7 +84,7 @@ Ce fragment ne pouvait pas cultiver car il en était incapable! Toute tentative 
 
 Wang Ping ne pouvait pas cultiver en cachette de Wang Lin, car son corps même était constitué d'énergie d'épée...
 
-Utiliser un rayon d'énergie d'épée pour former la chair et un autre pour protéger l'âme: tel était Wang Ping! Sa croissance n'était que le fruit d'un sortilège...
+Utiliser un rayon d'énergie d'épée de Ling Tianhou pour former la chair et un autre pour protéger l'âme: tel était Wang Ping! Sa croissance n'était que le fruit d'un sortilège...
 
 Durant plus de soixante-dix ans, tout le développement de Wang Ping n'avait été que le résultat du sortilège céleste de Wang Lin.
 
@@ -122,7 +122,7 @@ Wang Lin fixa la sphère de lumière pendant un long moment avant de lever la ma
 
 Après avoir traversé un cycle de réincarnation, tout le ressentiment de l'enfant de Wang Lin était enfin dissipé. Des larmes coulèrent sur les joues du cultivateur alors qu'il tenait tendrement la sphère de lumière, comme s'il berçait le nouveau-né d'autrefois.
 
-Le vent se leva et la sphère commença à se dissiper, mais Wang Lin ne la lâcha pas. Il savait que si elle s'évanouissait, le Wang Ping purifié retournerait définitivement dans le cycle des réincarnations.
+Le vent se leva et la sphère commença à se dissiper, mais Wang Lin ne la lâcha pas. Il savait que s'il la lâchait, le Wang Ping purifié retournerait définitivement dans le cycle des réincarnations.
 
 « Ping Er, ta promesse s'accomplira! » Wang Lin prit la sphère de lumière et l'appuya contre son front. Elle pénétra la Perle Défiant le Ciel pour reposer aux côtés de l'Âme Naissante de Li Muwan.
 

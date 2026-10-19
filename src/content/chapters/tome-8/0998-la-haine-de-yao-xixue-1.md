@@ -64,7 +64,7 @@ L'homme sourit en jetant un regard tendre à la femme et dit: « Nous avons atte
 
 La femme s'assit à ses côtés, le regardant avec douceur avant de rire: « Nous avons planifié cela pendant une éternité. Tant que nous restons prudents, je suis convaincue qu'il n'y aura pas d'imprévu. »
 
-Ils se sourirent mutuellement, et un sentiment de complicité chaleureuse emplit leurs cœurs. Même cette grotte vide ne semblait plus froide, comme si une chaleur s'en était propagée.
+Ils se sourirent mutuellement, et une tendresse conjugale, chaleureuse, emplit leurs cœurs. Même cette grotte vide ne semblait plus froide, comme si une chaleur s'en était propagée, tout simplement parce qu'ils étaient ensemble.
 
 Ce couple de cultivateurs était celui qui n'avait jamais quitté la grotte depuis son arrivée: Wang Wei et Hu Juan!
 

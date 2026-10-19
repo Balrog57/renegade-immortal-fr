@@ -26,7 +26,7 @@ Alors qu'il s'enfuyait, il sentit soudain chaque poil de son corps se hérisser.
 
 Les yeux de Teng Neuf furent envahis par la terreur, car cette foudre rouge lui avait fait entrevoir une mort imminente. Il était convaincu que s'il n'avait pas esquivé cet éclair à cet instant précis, il serait déjà mort.
 
-Mais avant qu'il ne puisse se réjouir, des centaines de traînées de foudre rouge apparurent soudainement tout autour de lui, bloquant totalement son échappatoire.
+Mais avant qu'il ne puisse se réjouir, plus d'une centaine de traînées de foudre rouge apparurent soudainement tout autour de lui, bloquant totalement son échappatoire.
 
 Le corps de Teng Neuf se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Senior, ce junior est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
 
@@ -110,7 +110,7 @@ Teng Huit poussa un cri terrible, si déchirant qu'il aurait pu faire pâlir n'i
 
 La scène ne dura pas longtemps, mais les hurlements de douleur de Teng Huit persistèrent. Sa voix devint rauque et il fut couvert de sueur froide. Après un instant, son corps fut secoué d'un violent spasme et il s'effondra.
 
-Au moment où il tombait, l'âme dévoreuse de Wang Lin s'empara de l'Âme Naissante et de l'âme de Teng Huit pour retourner dans le corps de Wang Lin. L'âme de Teng Huit fut placée dans le drapeau des âmes, tandis que son corps fut lié par la bannière du dragon.
+Au moment où il tombait, l'âme dévoreuse de Wang Lin s'empara de l'Âme Naissante et de l'âme de Teng Huit pour retourner dans le corps de Wang Lin. L'âme de Teng Huit fut placée dans le drapeau des âmes, tandis que son corps fut lié par le tendon de dragon.
 
 Depuis l'apparition de Wang Lin, peu de temps s'était écoulé. La majeure partie de ce laps de temps avait été occupée par les cris de Teng Huit. Une fois son âme récupérée, Wang Lin n'hésita pas et chargea vers sa prochaine cible.
 

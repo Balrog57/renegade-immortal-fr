@@ -62,11 +62,11 @@ Cette détermination se mua en une puissante aura de combat! Chi Hu se tenait l�
 
 « Le domaine de la Folie contient la persistance, une forme d'obsession dévorante. Le domaine de Zhou Yi est véritablement étrange! Bien que Chi Hu ne soit qu'au stade de la Formation de l'Âme, cette aura de combat engendrée par cette obsession semble capable de terrasser des êtres célestes! » Wang Lin afficha un visage choqué en comprenant le véritable sens du domaine de la Folie.
 
-L'éclat fantomatique dans les yeux de Papillon Rouge brilla plus intensément encore lorsqu'elle pointa sa tempe, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux étamines et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
+L'éclat fantomatique dans les yeux de Papillon Rouge brilla plus intensément encore lorsqu'elle pointa sa tempe, faisant apparaître sa rose; mais celle-ci n'était plus rouge, elle était désormais noire. Sans hésiter, elle arracha les deux stigmates et les pétales restants, puis les jeta sur les quatre éléments spirituels, créant un puissant tourbillon.
 
 Simultanément, une nuée de fumée verte s'échappa du front de Papillon Rouge. Dès son apparition, la fumée se mua en le beau jeune homme qui, d'un mouvement fluide, pénétra dans le tourbillon. Ce dernier cessa instantanément de tourner et, après une série de grondements, fusionna avec le jeune homme.
 
-Des mouvements étranges survinrent alors que le tourbillon se transformait en une créature à l'allure maléfique. La créature esquissa un sourire et poussa un rugissement.
+Des mouvements étranges survinrent alors que le tourbillon se transformait en une créature à l'allure maléfique. La créature esquissa un sourire et rugit en silence.
 
 Le corps de Papillon Rouge frissonna. Après le départ du jeune homme, la fumée noire disparut de son corps. Elle recula de quelques pas, le visage d'une pâleur terrifiante alors qu'elle reprenait conscience.
 
@@ -78,11 +78,11 @@ La hache fut déviée et d'innombrables pétales de fleurs noires tombèrent de 
 
 Bang!
 
-La griffe de la créature se brisa, révélant deux étamines.
+La griffe de la créature se brisa, révélant deux stigmates.
 
 Bang, Bang, Bang!
 
-Après trois assauts de la hache, les étamines furent toutes détruites, mais la hache fut elle-même brisée par l'attaque de la corne de la créature et se changea en une poussière scintillante. Cependant, la créature se dissipa elle aussi, ne laissant rien derrière elle. À cet instant, le vieil homme assis sur le cercueil cracha une bouchée de sang noir. Son corps s'affaissa, comme vidé de toute énergie.
+Après trois assauts de la hache, les stigmates furent toutes détruites, mais la hache fut elle-même brisée par l'attaque de la corne de la créature et se changea en une poussière scintillante. Cependant, la créature se dissipa elle aussi, ne laissant rien derrière elle. À cet instant, le vieil homme assis sur le cercueil cracha une bouchée de sang noir. Son corps s'affaissa, comme vidé de toute énergie.
 
 Chi Hu fixa avec stupeur sa main droite vide. Sa foi puisait sa source dans cette hache fend-cieux, son intention de combat était née de cette hache, et son cœur de Dao était la hache elle-même. La hache s'étant brisée, le domaine de la Folie que Zhou Yi avait infusé en Chi Hu se dissipa également.
 

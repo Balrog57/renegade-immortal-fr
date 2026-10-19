@@ -8,7 +8,7 @@ slug: sceaux-de-force-vitale
 ---
 L'expression de Wang Lin resta de marbre, mais Ouyang Hua afficha une terreur et une amertume qu'il n'avait jamais manifestées auparavant.
 
-« Je vais être le témoin d'un combat entre deux étrangers... »
+« Un massacre entre deux étrangers... et voilà que j'en suis témoin... »
 
 À cet instant précis, un éclair d'énergie d'épée jaillit, faisant trembler la formation et provoquant l'apparition de nombreuses fissures à sa surface.
 
@@ -26,7 +26,7 @@ La main droite de Wang Lin pointa vers le vide et, soudain, une bête spirituell
 
 L'homme en robe noire étudia attentivement Wang Lin, ses yeux se rétrécissant. L'arrogance de tout à l'heure avait disparu; il hésita désormais et demanda: « À quelle secte appartient votre excellence? »
 
-Trois filaments de gaz gris dansaient entre les doigts de Wang Lin, produisant un sifflement strident. Il fixa froidement l'homme en robe noire et déclara: « Quel est ce charabia? Si tu ne comptes pas te battre, alors pars immédiatement! »
+Trois filaments de gaz gris dansaient entre les doigts de Wang Lin, produisant un sifflement strident. Il fixa froidement l'homme en robe noire et déclara: « Pourquoi tant de paroles inutiles? Si tu ne comptes pas te battre, alors pars immédiatement! »
 
 L'homme en robe noire eut un rire colérique: « Quel être arrogant! Si tu ne me semblais pas familier et que je ne voulais pas blesser un ami ou une connaissance, pourquoi même te parlerais-je? Puisque tu cherches la mort, je vais exaucer ton vœu! »
 
@@ -40,7 +40,7 @@ Alors que l'énergie d'épée approchait, l'homme en robe noire leva son épée 
 
 Cependant, au moment même où elle se dissipait, un craquement retentit provenant de l'arme qu'il tenait et une fissure apparut sur la lame.
 
-En contemplant son épée volante brisée, le regard de l'homme en robe noire devint glacial.
+En contemplant son épée volante fissurée, le regard de l'homme en robe noire devint glacial.
 
 « Tu oses endommager mon épée volante?! Aujourd'hui, même si tu es un membre de la Secte de l'Épée Da Luo, tu mourras! » Sa main traça un sceau et une flamme noire jaillit de sa paume.
 
@@ -52,13 +52,13 @@ La lame demi-lune apparut à côté de l'épée céleste en un éclair, encore m
 
 Les yeux de Wang Lin se plissèrent; la culture de l'adversaire était véritablement puissante. Il fallait admettre que la lame demi-lune était extrêmement rapide et que, même pour Wang Lin, il aurait été difficile d'éviter le désastre sans préparation préalable. Pourtant, cet homme avait réussi à forcer son corps à reculer d'une dizaine de centimètres au moment critique pour éviter une blessure fatale. Cela signifiait que son Sens Divin était bien plus puissant que celui de Wang Lin et qu'il avait pu détecter la trajectoire de la lame.
 
-Une lueur meurtrière passa dans le regard de Wang Lin. Puisque la culture de cet homme était supérieure, il devait être éliminé sur-le-champ. S'il parvenait à s'échapper pour se rétablir et apprendre les techniques de Wang Lin, ce dernier ne pourrait plus rien faire face à son retour.
+Une lueur meurtrière passa dans le regard de Wang Lin. Puisque la culture de cet homme était supérieure, il devait être éliminé sur-le-champ. S'il parvenait à s'échapper, à se rétablir puis à connaître les techniques et les trésors de Wang Lin, celui-ci ne pourrait plus lui résister à son retour.
 
 Profitant du moment où son ennemi était affaibli par l'attaque surprise de la lame demi-lune, il chargea. Ignorant totalement les flammes qui tombaient du ciel, Wang Lin s'élança comme l'éclair et pressa son pouce contre le vide.
 
 Doigt de la Mort!
 
-L'homme en robe noire plaqua sa main sur sa poitrine et sa blessure se referma instantanément. Le visage pâle, il fixa violemment Wang Lin. Il secoua l'épée dans sa main et hurla: « Dispersion d'Épées! »
+L'homme en robe noire plaqua sa main sur sa poitrine et sa blessure se referma instantanément. Le visage pâle, il fixa violemment Wang Lin. Il secoua l'épée dans sa main et hurla: « Épée brisée! »
 
 Sur ce cri, l'épée vola en éclats devant lui avant que les fragments ne chargent vers Wang Lin.
 
@@ -70,7 +70,7 @@ Sceaux de Force Vitale!
 
 Dès leur apparition, les symboles se propagèrent rapidement sur tout son corps. Un symbole créait une couche, deux symboles en créaient deux.
 
-À cet instant précis, les éclats d'épée atteignirent leur cible et la pluie de flammes s'abattit, submergeant Wang Lin sous une salve d'attaques.
+À cet instant précis, les éclats d'épée approchaient, et la pluie de flammes les rattrapa, submergeant Wang Lin sous une salve d'attaques.
 
 Wang Lin se retrouvait pris en étau entre les fragments d'épée et le déluge de feu. En descendant du ciel, les flammes se métamorphosèrent en six dragons de feu noir qui rugissaient comme de véritables créatures mythiques en chargeant vers lui.
 
@@ -86,7 +86,7 @@ L'homme en robe noire se tenait au cœur de cette onde de choc. Loin de montrer 
 
 La zone de l'explosion s'assombrit sous le retour de l'énergie démoniaque, mais au milieu de cette obscurité, une silhouette émergea lentement, pas après pas.
 
-Les vêtements de la silhouette flottaient dans l'air malgré l'absence de vent, et des hurlements émanaient de son bras droit. En y regardant de plus près, on aurait pu voir une sorte de petit serpent s'agiter entre ses doigts.
+Les vêtements de la silhouette flottaient dans l'air malgré l'absence de vent, et des sifflements émanaient de son bras droit. En y regardant de plus près, on aurait pu voir une sorte de petit serpent s'agiter entre ses doigts.
 
 À mesure que la silhouette avançait, le visage de l'homme en robe noire s'assombrit davantage. Sa vitesse de formation des sceaux s'accéléra et il se mit à réciter des incantations.
 
@@ -106,9 +106,9 @@ La silhouette suivit immédiatement la pression du pouce. Il leva la tête et re
 
 L'homme en robe noire était extrêmement agacé. Il avait entendu parler de Wang Lin et avait même vu son visage sur un morceau de jade. Après tout, les disciples de l'Omniscient étaient des personnalités suivies par tous sur la planète Tian Yun.
 
-Surtout Wang Lin, dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de véritable disciple lui serait sans doute revenu!
+Surtout Wang Lin, dont l'apparition soudaine avait stupéfié le monde. Si le sixième disciple n'était pas revenu subitement pour vaincre Wang Lin grâce à sa culture de niveau Ascendant, le titre de l'un des Sept Disciples du Destin Céleste lui serait sans doute revenu!
 
-Comment ne pas prêter attention à un tel individu? De plus, le sort interdit qu'il utilisait était singulier; il était spécialisé dans l'attaque de cultivateurs plus puissants. Dès lors, comment ne pas le surveiller de près?
+Comment ne pas prêter attention à un tel individu? De plus, le sort interdit qu'il utilisait était singulier; il était spécialisé dans l'attaque de cultivateurs plus puissants. Dès lors, comment ne pas le surveiller de près, tant ce sort faisait convoiter bien des gens?
 
 L'homme en robe noire soupira intérieurement. S'il avait connu l'identité de Wang Lin plus tôt, il n'aurait pas agi avec autant de légèreté. Bien que son adversaire fût au stade intermédiaire de la Transformation de l'Âme, on ne pouvait sous-estimer un disciple de l'Omniscient!
 

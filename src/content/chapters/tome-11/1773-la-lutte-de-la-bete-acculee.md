@@ -10,7 +10,7 @@ Wang Lin devina vaguement les pensées de Yun Yifeng. Cet homme était très rus
 
 Cet objet venait tout juste d'être manifesté à partir du néant et n'avait aucun propriétaire. La culture de Wang Lin s'y était imprimée, faisant de lui le premier maître de ce trésor.
 
-Cette empreinte dorée dégageait une aura puissante et scellait la technique du Dao de Destruction du Dieu du Souverain. Ce sort avait été utilisé par le Souverain à pleine puissance; sa force était donc identique à celle du Souverain lui-même utilisant la technique.
+Cette empreinte dorée dégageait une aura puissante et scellait la technique du Dao de Destruction du Dieu du Souverain. Ce sort avait été utilisé par le Souverain à pleine puissance; sa force était donc comparable à celle du Souverain lui-même utilisant la technique.
 
 Et parce qu'il avait été créé par Xuan Luo, il contenait une trace du pouvoir des Neuf Soleils. Par conséquent, ce trésor était indestructible!
 
@@ -24,15 +24,15 @@ Il était intelligent et rusé, mais il n'aurait jamais pu s'attendre à la pré
 
 En pensant à la terreur que représentait le frère aîné de son Maître, le Souverain fut trempé de sueur froide. Il perdit presque la raison.
 
-Alors qu'il commençait sa retraite, une lueur glaciale traversa les yeux de Wang Lin. Il se redressa et fit un pas en avant. Des grondements tonitruants résonnèrent alors qu'il poursuivait le Souverain.
+Alors qu'il commençait sa retraite, une lueur glaciale traversa les yeux de Wang Lin. Il se redressa et fit un pas de côté. Des grondements tonitruants résonnèrent alors qu'il poursuivait le Souverain.
 
-« Autrefois, tu as tenté de me tuer avec la calamité de la vie et de la mort. Aujourd'hui, je vais t'infliger à ton tour une telle calamité! Tuo Sen, tu es enfin arrivé. Veux-tu te battre contre moi ou m'aider à combattre cet homme?! » La voix de Wang Lin résonna tout au long de sa poursuite.
+« Autrefois, tu as tenté de me tuer avec la calamité de la vie et de la mort. Aujourd'hui, je vais t'infliger à ton tour une telle calamité! Tuo Sen, tu es arrivé depuis longtemps. Veux-tu te battre contre moi ou m'aider à combattre cet homme?! » La voix de Wang Lin résonna tout au long de sa poursuite.
 
 À peine sa voix eut-elle fini d'écho, un rire retentit à travers le monde. L'espace se distordit derrière le Souverain et une silhouette gigantesque apparut.
 
 Son corps était à moitié nu et dégageait une aura antique autant qu'arrogante. C'était Tuo Sen!
 
-Dès son apparition, sa main droite forma un sceau et il projeta un coup de poing vers le Souverain. Ce coup fit trembler le monde entier, comme s'il avait absorbé toute la puissance environnante pour l'abattre sur le corps du Souverain.
+Dès son apparition, il projeta un coup de poing de la main droite vers le Souverain. Ce coup fit trembler le monde entier, comme s'il avait absorbé toute la puissance environnante pour l'abattre sur le corps du Souverain.
 
 Le Souverain se retourna brusquement. Ses mains formèrent un sceau et la lumière solaire enveloppa son corps. Il sembla se transformer en un soleil lorsqu'il entra en collision avec le coup de poing.
 
@@ -42,13 +42,13 @@ Des grondements tonitruants éclatèrent. Le Souverain laissa échapper un gémi
 
 Les yeux de Wang Lin se rétrécirent et il esquissa un sourire. Des grondements sourds émanèrent de son propre corps et, pour la première fois, il déploya totalement sa stature. Le corps de Wang Lin grandit instantanément jusqu'à atteindre la même taille que celle de Tuo Sen!
 
-De loin, les deux géants ressemblaient à deux montagnes obstruant la route du Souverain.
+De loin, les deux géants ressemblaient à deux montagnes qui enfermaient le Souverain devant et derrière.
 
 Simultanément, les yeux de Yun Yifeng brillèrent. Sachant que le mystérieux Xuan Luo rôdait, il agit avec détermination. Ses mains formèrent un sceau et sa main droite pointa vers le ciel. Une lueur pourpre jaillit, se transformant instantanément en un singe violet. L'animal afficha un regard féroce avant de bondir sur le Souverain.
 
 « Wang Lin n'a aucune chance d'échouer au cœur de la grotte. Mon plan ne peut qu'aboutir! »
 
-Il y avait également la troisième concubine, Tang Shan. Elle serra les dents et la perle dorée à son poignet brilla. Des portes dorées apparurent, se superposant les unes aux autres. Les sept portes fusionnèrent en une seule. Une lumière éclatante jaillit alors que la porte se métamorphosait en un dragon d'or qui fonça sur le Souverain.
+Il y avait également la troisième concubine, Tang Shan. Elle serra les dents, bondit et agita la perle dorée à son poignet. Des portes dorées apparurent, se superposant les unes aux autres. Les sept portes fusionnèrent en une seule. Une lumière éclatante jaillit alors que la porte se métamorphosait en un dragon d'or qui fonça sur le Souverain.
 
 Les quatre attaquèrent de concert, déchaînant une puissance phénoménale!
 
@@ -66,7 +66,7 @@ Le Souverain frémit. Les attaques de Wang Lin et Tuo Sen avaient déjà fait bo
 
 Le Souverain se retourna et frappa le dragon d'or de sa main droite. Tandis que le dragon s'effondrait, le Souverain cracha une bouffée de sang pour la première fois. Son expression s'assombrit et la terreur dans ses yeux s'intensifia.
 
-La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de culture était trop vaste. Bien que ces quatre-là fussent difficiles à affronter et pussent le blesser gravement, le prix à payer pour eux serait certainement lourd!
+La puissance des Dieux Anciens de Wang Lin et Tuo Sen était ce que le Souverain redoutait le plus. Cependant, l'écart entre leurs niveaux de culture était trop vaste. Bien que ces quatre-là fussent difficiles à affronter et pussent le blesser gravement, le prix à payer serait certainement lourd pour lui!
 
 Ce qui l'effrayait par-dessus tout restait ce qui était arrivé à l'empreinte dorée. Il avait la sensation qu'une cinquième paire d'yeux l'observait, imperturbable.
 
@@ -78,7 +78,7 @@ Dans un éclat de lumière spectrale, ces dizaines de Feuilles Anciennes se pré
 
 Une lueur meurtrière traversa les yeux de Wang Lin alors qu'il avançait. Il leva la main pour déclencher son sort le plus puissant: la Déchirure du Ciel. Le monde se déchira et une faille s'élança vers le Souverain.
 
-La faille fondit instantanément sur lui. Le Souverain forma un sceau et frappa de sa main la faille.
+La faille fondit instantanément sur lui. Le Souverain forma un sceau et frappa la faille de ses deux mains.
 
 Au même instant, le corps de Tuo Sen bougea et une ombre superposée apparut. En un éclair, son aura arrogante disparut, remplacée par un calme et une stabilité absolus.
 
@@ -90,7 +90,7 @@ Yun Yifeng et Tang Shan lancèrent une nouvelle attaque, utilisant tous leurs so
 
 Des grondements éclatèrent. Yun Yifeng cracha du sang et fut projeté au sol. Du sang commença à couler du coin de la bouche de Tang Shan; elle recula de 10 000 pieds, paraissant extrêmement affaiblie.
 
-Le Souverain intercepta la lance de Tu Si. Son expression était féroce alors qu'il abattait sa paume droite sur Tu Si.
+Le Souverain intercepta la lance de Tu Si de sa main gauche. Son expression était féroce alors qu'il abattait sa paume droite sur Tu Si.
 
 Le corps de Tu Si trembla et il recula de mille pieds, mais il n'était pas blessé!
 

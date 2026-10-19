@@ -50,7 +50,7 @@ Le brouillard noir enveloppa le cadavre du vieil homme et, un instant plus tard,
 
 L'apparition de cette voix attisa la panique et la peur qui s'accumulaient dans le cœur des survivants. Le brouillard noir était un cauchemar; dès qu'on le croisait, on mourait misérablement!
 
-Pour eux, les cultivateurs du Royaume Intérieur n'étaient que des troupeaux de moutons, ne représentant aucune menace. Ils se croyaient même le Dao Céleste du Royaume Intérieur. Chaque membre du Système Stellaire Antique pouvait être considéré comme le Dao Céleste pour les habitants du Royaume Intérieur.
+Pour eux, les cultivateurs du Royaume Intérieur n'étaient que des troupeaux de moutons et de bêtes en cage, ne représentant aucune menace. Ils se croyaient même le Dao Céleste du Royaume Intérieur. Chaque membre du Système Stellaire Antique pouvait être considéré comme le Dao Céleste pour les habitants du Royaume Intérieur.
 
 Le Royaume Intérieur n'était, à leurs yeux, qu'une terre sauvage peuplée de barbares!
 
@@ -72,13 +72,13 @@ Ses yeux s'écarquillèrent et, au moment où son regard se troubla, son corps e
 
 À peine effondré le premier, Wang Lin rattrapa un autre cultivateur du Royaume Extérieur. C'était une femme délicate dont les yeux exprimaient une terreur infinie. Les dévorations précédentes de Wang Lin, effectuées par le brouillard noir, étaient certes terrifiantes, mais pas aussi sanglantes. Mais ce qu'il venait de faire était d'une violence visuelle inouïe.
 
-Lorsqu'il s'approcha et que l'odeur du sang lui parvint, elle hurla. Elle tenta de reculer, mais percuta la poitrine de Wang Lin et fut projetée en avant.
+Lorsqu'il s'approcha et que l'odeur du sang lui parvint, elle hurla. Elle tenta de reculer, mais Wang Lin la heurta de la poitrine et l'entraîna en avant dans sa course.
 
 Ses cris lugubres devinrent plus violents et perçants encore. Le corps de la femme trembla et se dessécha rapidement. Sa beauté disparut, ne laissant que des os...
 
 « Démon!!! Cet homme est un démon!!! » Tandis que les hurlements résonnaient, tous les cultivateurs s'enfuirent dans une panique totale.
 
-Au milieu de ces cris de détresse, Wang Lin continuait sa dévoration, se déplaçant de plus en plus vite. Grâce à sa manipulation spatiale, ces centaines de cultivateurs n'avaient aucun échappatoire!
+Au milieu de ces cris de détresse, Wang Lin continuait sa dévoration, se déplaçant de plus en plus vite. Grâce à la Distorsion Spatiale, ces centaines de cultivateurs n'avaient aucun échappatoire!
 
 Wang Lin rattrapait ses proies en un éclair. Peu importait qu'ils soient hommes ou femmes, ils étaient tous ses ennemis!
 

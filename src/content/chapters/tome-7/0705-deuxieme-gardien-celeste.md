@@ -74,7 +74,7 @@ Les pupilles du Daoïste du Tonnerre se contractèrent; son visage pâlit et son
 
 « Xu Mu!!! Ne me force pas! Tous les messagers du Temple Céleste du Tonnerre possèdent un sort de préservation de la vie. Au pire, je sacrifierai ma propre durée de vie! » Les yeux du Daoïste du Tonnerre étaient injectés de sang alors qu'il fixait Wang Lin.
 
-Il ressentait une amertume profonde. Utiliser ce sort ne serait pas un problème s'il disposait de suffisamment d'énergie originelle, mais sans elle, cela consumerait sa longévité. Dans ce cas, non seulement sa vie serait raccourcie, mais sa culture chuterait au stade de la Transformation de l'Âme à cause de l'épuisement de son énergie originelle.
+Il ressentait une amertume profonde. Utiliser ce sort ne serait pas un problème s'il disposait de suffisamment d'énergie originelle, mais sans elle, cela consumerait sa longévité. Dans ce cas, non seulement sa vie serait raccourcie, mais sa culture chuterait au stade de la Transformation de l'Âme du premier niveau à cause de l'épuisement de son énergie originelle.
 
 Surtout, il n'avait aucune certitude pouvoir blesser Wang Lin avec ce trésor de survie. Ces deux rayons d'énergie d'épée l'effrayaient au plus haut point et lui glaçaient le sang. Une fois ce sort utilisé, il craignait que la seule issue ne soit encore la mort.
 
@@ -100,7 +100,7 @@ Sa main gauche forma un sceau et pointa la formation. Celle-ci émit un éclat d
 
 Le Daoïste ne chercha pas à esquiver; il serra les dents et laissa la formation pénétrer entre ses sourcils. Elle traversa son corps pour atteindre directement son âme originelle. Dès qu'elle entra en contact avec elle, la formation de restriction fondit et enveloppa complètement l'âme originelle.
 
-En voyant cela, il pensa: *Cette restriction est étrange, mais aucune ne peut résister à l'impact de l'énergie originelle. Une fois que l'énergie de ce vieil homme sera restaurée, je briserai cette formation!*
+En voyant cela, il pensa: *Cette restriction est étrange, mais aucune ne peut résister à l'impact de l'énergie originelle. Une fois que l'énergie de ce vieil homme se sera un peu rétablie, je briserai cette formation!*
 
 « Ce n'est que la première étape de la restriction, il y en a une seconde! » Après avoir lancé cela, Wang Lin monta sur sa boussole stellaire et s'éloigna.
 
@@ -118,7 +118,7 @@ Wang Lin pénétra dans la cavité et le Daoïste du Tonnerre fut forcé de le s
 
 Se retournant vers le Daoïste du Tonnerre, le regard de Wang Lin devint indéchiffrable et mystérieux: « Après la seconde restriction, je ne vous tuerai pas! »
 
-Le Daoïste du Tonnerre réfléchit en silence, observant les périls qui l'entouraient. Après un long moment, il hocha la tête: « D'accord. »
+Le Daoïste du Tonnerre réfléchit en silence, observant la marionnette et les autres objets qui l'entouraient, que Wang Lin n'avait pas rappelés. Après un long moment, il hocha la tête: « D'accord. »
 
 Wang Lin s'assit en position de lotus et ses mains formèrent une succession de sceaux. Un à un, des restrictions jaillirent pour se poser sur le corps du Daoïste. Simultanément, Wang Lin avertit: « Lorsque je placerai mon empreinte, ne résistez pas. Sinon, ne me reprochez pas de ne pas avoir tenu ma promesse! »
 

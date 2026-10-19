@@ -14,7 +14,7 @@ L'Empereur Céleste de cette génération, Lian Daozhen, se retirait fréquemmen
 
 Wu Feng retourna au Continent Nord et s'enferma immédiatement dans le glacier éternel. Il dissipa silencieusement la malédiction ancestrale qui rongeait son corps.
 
-N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, son combat serait bien plus facile que celui de Dao Yi ou de Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
+N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, dissiper celle-ci lui serait un peu plus facile qu'à Dao Yi ou à Jiu Di. De plus, il avait obtenu les oreilles de l'Ancêtre Céleste. Une fois la malédiction dissipée et les oreilles raffinées, son niveau de culture augmenterait considérablement.
 
 Dao Yi traîna son corps mutilé jusqu'à la Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
 
@@ -32,7 +32,7 @@ Cette méthode cruelle consistant à partager le poids de la malédiction ancest
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
-Seule Gémeaux, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'inverser la faiblesse causée par l'incident lors de leur réincarnation.
+Seule Gémeaux, Grand Empyréen, ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'réparer complètement la faiblesse causée par l'incident lors de leur réincarnation.
 
 Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les 72 esprits des 72 continents.
 
@@ -46,11 +46,11 @@ Le Continent du Taureau Céleste, autrefois parsemé de montagnes, avait perdu b
 
 Cependant, la structure du pouvoir sur le continent ne changea guère. La Secte de la Grande Âme et la Secte Gui Yi demeuraient les plus puissants, entourés de nombreuses petites sectes.
 
-Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sectes respectives. Ils avaient tous obtenu leur propre fortune et deviendraient l'avenir de leurs clans.
+Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sectes respectives. Ils avaient tous obtenu leur propre fortune et deviendraient l'avenir de leurs sectes.
 
 La Secte de la Grande Âme.
 
-Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens, sans qu'il n'impose de conditions particulières. La montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
+Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens. Il ne posa qu'une seule condition : la montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
 
 Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres de la Secte de la Grande Âme furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Ascendant Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
 
@@ -66,7 +66,7 @@ Il avait été personnellement nommé Ancien par l'ancêtre de la Secte de la Gr
 
 Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, la Secte de la Grande Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
-Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait ressenti un lien avec la Secte de la Grande Âme. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
+Wang Lin se tenait devant la Secte de la Grande Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait découvert le lien profond entre la Secte de la Grande Âme et ce palais. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
 
 « Le clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de cette Secte de la Grande Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
 
@@ -122,7 +122,7 @@ La statue représentait un homme. Il se tenait là, le regard baissé, ses yeux 
 
 Le squelette était agenouillé devant la statue dans une posture de douleur et de supplication. Une fissure marquait son crâne, mais il n'y avait plus de cerveau... Un trou béait dans sa poitrine, mais il n'y avait plus de cœur...
 
-Ses mains étaient levées vers ses cheveux. Dans sa main gauche reposait son cerveau desséché, et dans sa droite, son cœur sans battement. Il fixait la statue comme s'il implorait le pardon, agenouillé là depuis des éons...
+Ses mains étaient levées. Dans sa main gauche reposait son cerveau desséché, et dans sa droite, son cœur sans battement. Il fixait la statue comme s'il implorait le pardon, agenouillé là depuis des éons...
 
 Ce n'était pas un squelette ordinaire, mais une prison pour l'âme de cet homme. Une âme qui priait pour obtenir le pardon.
 

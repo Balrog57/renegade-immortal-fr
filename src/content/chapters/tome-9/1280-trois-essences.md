@@ -28,7 +28,7 @@ Dès l'apparition du talisman, une lumière dorée illumina l'espace sombre et s
 
 « Seigneur du Royaume Scellé, à l'époque, vous aviez dit que cet esclave qui vous avait tant aidé méritait un talisman capable de protéger sa vie trois fois! Lorsque cet esclave vous a trahi, vous aviez clairement deux occasions de le tuer, mais vous l'avez laissé partir, gaspillant ainsi deux utilisations du talisman. Finalement, vous êtes mort. Maintenant que des dizaines de milliers d'années ont passé, la troisième utilisation du talisman est consommée. Vous allez donc toujours protéger l'esclave taoïste qui vous a trahi! »
 
-« J'admire votre culture, mais je méprise vos méthodes! Vos idéaux sont trop inflexibles! » La voix antique laissa échapper un soupir avant de se dissiper lentement.
+« J'admire votre culture, mais je méprise votre manière d'être! Vos idéaux sont trop inflexibles! » La voix antique laissa échapper un soupir avant de se dissiper lentement.
 
 Le Shui Daozi était trempé de sueur. En cet instant, tout en endurant la douleur entre ses sourcils, il ressentait une terreur persistante. Il eut un rictus et poussa un rugissement vers le ciel.
 
@@ -42,7 +42,7 @@ Les yeux de Wang Lin étaient toujours ouverts. Il se sentait lentement marcher 
 
 « Je peux effondrer toutes mes étoiles divines anciennes en échange d'une ultime attaque à mon apogée! »
 
-« Je peux détruire mon étoile de loi en échange d'une énergie originelle infinie et fendre les cieux! » Wang Lin semblait avoir atteint une illumination, et ses yeux révélèrent une lueur étrange. L'aura de mort en lui forma soudainement un vortex. Ce vortex pouvait détruire le monde, briser le yin et le yang, et pulvériser la réincarnation. Contre toute attente, une trace d'essence émanait de ce vortex!
+« Je peux détruire mon étoile de loi en échange d'une énergie originelle infinie et déployer la grande Voie du ciel et de la terre! » Wang Lin semblait avoir atteint une illumination, et ses yeux révélèrent une lueur étrange. L'aura de mort en lui forma soudainement un vortex. Ce vortex pouvait détruire le monde, briser le yin et le yang, et pulvériser la réincarnation. Contre toute attente, une trace d'essence émanait de ce vortex!
 
 C'était l'essence! C'était l'élément le plus crucial pour devenir un cultivateur du troisième étape!
 
@@ -68,7 +68,7 @@ Les six étoiles explosèrent. À ce moment-là, un vortex encore plus vaste app
 
 Cette essence était née de l'accomplissement total dans le domaine du karma!
 
-Le fracas des étoiles divines était une action karmique. Sans la destruction des étoiles, comment y aurait-il eu puissance? La brisure et la puissance étaient le karma! En cet instant de vie ou de mort, les étoiles brisées de Wang Lin lui permirent de comprendre sa deuxième essence!
+Le fracas des étoiles divines était une action karmique. Sans la destruction des étoiles, comment y aurait-il eu édification? Briser puis édifier, c'est justement le karma! En cet instant de vie ou de mort, les étoiles brisées de Wang Lin lui permirent de comprendre sa deuxième essence!
 
 L'essence du Karma!
 

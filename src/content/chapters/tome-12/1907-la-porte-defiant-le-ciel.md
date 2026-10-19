@@ -52,13 +52,13 @@ Le scorpion mesurait des centaines de milliers de pieds de large et, dès son ap
 
 « C'est... Que se passe-t-il? L'âme du Seigneur Démon Vert est apparue, alors qui est cet homme?! »
 
-« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
+« Se pourrait-il qu'il ne soit pas la résurrection du Seigneur Démon Vert, revenu par possession d'un autre corps?! » Les cultivateurs du Continent du Démon Vert étaient plongés dans le doute. En voyant la brume verte se transformer en ce scorpion gigantesque, une pensée incroyable leur traversa l'esprit!
 
 « Wang Lin! C'est Wang Lin, du Continent du Taureau Céleste! » s'exclama l'un des cultivateurs de la Secte du Dao Démoniaque. Il y a plus de cent ans, alors qu'il se trouvait à la frontière entre le Continent du Démon Vert et le Continent de la Terre Meng, il avait participé à la traque de Wang Lin!
 
 L'hésitation luttait en lui, jusqu'à ce qu'un fracas retentisse dans son esprit lorsqu'il reconnut enfin Wang Lin!
 
-L'âme du Scorpion Démon Vert surgissant du gouffre laissa échapper un sifflement violent. Son corps colossal vacillait dans le ciel tandis qu'il fixait Wang Lin. Quatre sceaux marquaient son corps — sur la tête, la queue, ainsi qu'à l'avant et à l'arrière — dégageant une force de répression.
+L'âme du Scorpion Démon Vert surgissant du gouffre laissa échapper un sifflement violent. Son corps colossal vacillait dans le ciel tandis qu'il fixait Wang Lin. Quatre sceaux rouges marquaient son corps — sur la tête, la queue, ainsi qu'à l'avant et à l'arrière — dégageant une force de répression.
 
 Ces quatre sceaux avaient été forgés par l'Ancêtre Céleste pour emprisonner cette âme et en faire la puissance du Continent du Démon Vert!
 

@@ -10,7 +10,7 @@ slug: lambition-gravee
 
 À mesure que le sceau apparaissait, des flammes éthérées jaillirent des sourcils du vieux Oiseau Vermillon pour pénétrer dans la formation. Cela fit briller le sceau d'un éclat rouge, et les deux fusionnèrent pour former un os de feu d'environ dix pieds de long.
 
-Il n'était peut-être pas approprié de l'appeler un os; cela ressemblait plutôt à un bâton, mais il était très lisse.
+Il n'était peut-être pas approprié de l'appeler un os; cela ressemblait plutôt à un bâton, mais il était parfaitement droit.
 
 Dès que cet os de feu apparut, le regard du vieux Oiseau Vermillon se fit grave. Ses mains formèrent de nouveaux sceaux et de fines lignes commencèrent à apparaître. Elles n'entouraient pas l'os de feu, mais s'étendaient depuis sa pointe.
 
@@ -48,7 +48,7 @@ Tous les cultivateurs qui furent témoins de cela eurent l'impression que le san
 
 Le ciel était couvert d'une distorsion infinie, comme s'il ne pouvait supporter la tempête. Cette distorsion continua de se propager jusqu'à couvrir presque la moitié des Terres Déchues!
 
-Toutes les planètes enveloppées par ce phénomène montraient les signes d'une grande sécheresse imminente. C'étaient les prémices d'une destruction inévitable.
+Toutes les planètes enveloppées par ce phénomène montraient les signes d'une sécheresse de dix mille ans. C'étaient les prémices d'une destruction inévitable.
 
 La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l'utilisation de ce sort lui imposait un stress immense.
 
@@ -96,11 +96,11 @@ Le premier obstacle que la plupart des gens rencontraient n'était pas si diffic
 
 « Issu de l'Ancien Souverain Céleste... Donc, il vient de l'Ancien Empereur Céleste qui l'a appris secrètement. Il est incomplet... » Wang Lin prit une profonde inspiration, une lueur de terreur dans les yeux.
 
-Si ces paroles étaient vraies, leur portée était terrifiante.
+Bien que ces paroles restent incertaines, si elles étaient vraies, leur portée était terrifiante.
 
 « Ce sort... Qui diable l'a créé... Où l'Ancien Empereur Céleste l'a-t-il appris en secret... Si ce sort volé et incomplet suffit à détruire un royaume, qu'en serait-il s'il était complet... » Wang Lin leva la tête et regarda silencieusement le ciel. Il se sentit soudain aussi minuscule qu'un mortel contemplant l'immensité céleste.
 
-« Que vaut mon niveau de culture actuel... Quelle est la taille de ce monde? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin prit une profonde inspiration et une détermination farouche remplit son regard.
+« Que vaut mon niveau de culture actuel... Quelle est la taille de ce monde? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin exhala longuement et une détermination farouche remplit son regard.
 
 Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur, tout comme les paroles qu'il avait dites auparavant au premier Oiseau Vermillon!
 
@@ -118,6 +118,6 @@ Dans ce monde, certains étaient mortels, d'autres devenaient des immortels, cer
 
 Peut-être était-ce là sa véritable ambition!
 
-Wang Lin serra les mains et son esprit plongea dans le jade. Il grava les innombrables sceaux dans sa mémoire, ainsi que la méthode pour déployer l'ombrelle!
+Wang Lin ferma les yeux et son esprit plongea dans le jade. Il grava les innombrables sceaux dans sa mémoire, ainsi que la méthode pour déployer l'ombrelle!
 
 Le jade se changea en cendres entre ses mains et fut emporté par le vent. Ces cendres qui s'envolaient incarnaient l'ambition de Wang Lin, s'élevant toujours plus haut...

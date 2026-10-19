@@ -10,7 +10,7 @@ Wang Lin sentit une chaleur l'envahir le cœur. Depuis un mois, il devait s'habi
 
 « Deuxième frère, Wang Lin est véritablement un disciple immortel. Votre sixième frère était aveugle à l'époque et a laissé échapper quelques paroles dures; j'espère que tu ne le prendras pas trop à cœur. Tu me connais, j'ai la langue acérée mais le cœur tendre. Ce n'était que pour le bien de Wang Lin. »
 
-« Belle-sœur, quand j'ai annoncé à ma fille que je ne l'avais pas promise en mariage, elle a paniqué et a affirmé qu'elle devait absolument épouser Tie Zhu de votre famille. Laissons ce mariage se conclure. »
+« Belle-sœur, quand j'ai annoncé à ma fille que je ne l'avais pas promise en mariage, elle s'est emportée et a affirmé qu'elle devait absolument épouser Tie Zhu de votre famille. Laissons ce mariage se conclure. »
 
 « Lao Er, ton cinquième oncle est vieux. À l'avenir, la famille Wang reposera sur vos épaules. Ton cinquième oncle a toujours eu un œil pour ton fils. À mes yeux, il est encore plus prometteur que le fils de ton frère aîné. »
 

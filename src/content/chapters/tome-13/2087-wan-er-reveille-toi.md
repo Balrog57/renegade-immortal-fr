@@ -48,7 +48,7 @@ Wang Lin leva la main droite et, regardant la brume noire foncer sur lui, fit un
 
 « Lorsque j'ai maîtrisé la réincarnation, j'avais déjà atteint le Piétinement des Cieux. » Tandis que Wang Lin parlait calmement, il agita sa manche. La brume noire devant lui grésilla et commença à se dissiper rapidement.
 
-« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » L'Omniscient poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de l'Omniscient: c'était celle d'un homme d'âge moyen, entre ses sourcils scintillait un motif d'étoile à cinq branches à l'intérieur duquel une ombre vague de grue semblait lutter.
+« Je refuse que cela se termine ainsi! Wang Lin, je refuse! » L'Omniscient poussa un cri misérable. Alors que les gaz noirs se dispersaient, le reste de la substance se condensa en une tête gigantesque. Cette tête différait grandement de l'apparence de l'Omniscient: c'était celle d'un homme d'âge moyen à l'allure imposante, entre ses sourcils scintillait un motif d'étoile à cinq branches à l'intérieur duquel une ombre vague de grue semblait lutter.
 
 Tout cela ne dura qu'un instant avant de se dissiper. La tête de l'homme s'évapora et le reste de la brume noire se transforma soudainement en une gigantesque grue noire.
 
@@ -84,19 +84,19 @@ Pourtant, une rare trace de tension apparut sur son visage — il était extrêm
 
 Wang Lin caressa les cheveux de Li Muwan et murmura: « Wan Er, reviens à la vie... Reviens à la vie... Ouvre les yeux, ouvre les yeux et regarde-moi... »
 
-La rencontre à l'extérieur de la Mer des Diables semblait avoir scellé le destin de trois vies. *N'oublie pas, n'abandonne pas...*
+La rencontre à l'extérieur de la Mer des Démons semblait avoir scellé le destin de trois vies. *N'oublie pas, n'abandonne pas...*
 
 Ce cri d'aide si doux et ces yeux emplis de panique avaient poussé Wang Lin, qui s'était caché sous terre après avoir pressenti un danger, à lever la tête...
 
 S'il n'avait pas levé les yeux, peut-être que tout aurait été différent.
 
-Dans la Mer des Diables, pendant ces années, à l'instant où il avait ouvert les yeux et vu cette silhouette fragile mais déterminée se tenir à l'entrée de la grotte, son cœur avait tremblé un instant. Il ne savait pas pourquoi il avait dit: « N'aie pas peur, je vais t'emmener pour tuer... », mais il savait qu'à ce moment-là, ces mots étaient sortis naturellement...
+Dans la Mer des Démons, pendant ces années, à l'instant où il avait ouvert les yeux et vu cette silhouette fragile mais déterminée se tenir à l'entrée de la grotte, son cœur avait tremblé un instant. Il ne savait pas pourquoi il avait dit: « N'aie pas peur, je vais t'emmener pour tuer... », mais il savait qu'à ce moment-là, ces mots étaient sortis naturellement...
 
 Cette silhouette délicate qui avait utilisé son sang pour graver des écailles sur la grande formation du Dragon Azur et se changer en jade protecteur de vie, ce visage pâle qui lui brisait le cœur. Mais il portait alors une haine du sang aussi profonde que la mer. Il ne pouvait que fermer les yeux et se dire d'oublier.
 
 La scène à la Secte du Nuage, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 
-*Ma main gauche est un court karma dans la Mer des Diables, et ma main droite est une méditation solitaire longue d'un siècle...*
+*Ma main gauche est un court karma dans la Mer des Démons, et ma main droite est une méditation solitaire longue d'un siècle...*
 
 « Wan Er, ouvre les yeux, réveille-toi... Et il y a aussi Ping Er. Il s'éveillera lui aussi, tu aimeras cet enfant... » Les larmes de Wang Lin coulaient tandis qu'il murmurait.
 

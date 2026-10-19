@@ -40,7 +40,7 @@ Ses mains traçaient des sceaux, envoyant constamment des runes pour accélérer
 
 « Cependant, tant que je ne cherche pas à la briser par la force brute mais que j'utilise plutôt la brume de sang pour l'envahir, tout sera sûr. Heureusement, cette aura n'est pas très présente; sinon, il serait encore plus difficile de briser la formation! » Le vieil homme aux cheveux rouges était Maître Âme Écarlate!
 
-Jadis, lorsque Wang Lin avait été confronté au piège mortel du Souverain, il avait libéré une âme scellée par Ye Mo. Cette âme s'était échappée du piège et avait pris la fuite.
+Jadis, lors de l'épreuve de vie ou de mort du Souverain, Wang Lin avait libéré une âme scellée par Ye Mo. Cette âme s'était échappée du piège et avait pris la fuite.
 
 Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante culture pour blesser gravement le Maître du Dao Rêve Bleu, puis il avait détruit le corps du Maître Nan Yunzi.
 
@@ -52,7 +52,7 @@ Il fixa les terres du Royaume Céleste avec une expression cruelle.
 
 Et à ce moment-là, en tant que cultivateur au service de l'un des Grands Empyréens, il serait célèbre à travers tout le Continent Astral Immortel.
 
-« Si je suis l'un des cinq Grands Empyréens, je pourrais certainement choisir l'Empereur Céleste... Malheureusement, il y a bien des êtres puissants sous les ordres de l'Empereur Céleste et il pourrait ne pas vouloir de moi... Cependant, même si je ne peux suivre l'Empereur Céleste, je peux toujours suivre le Grand Empyréen Dao Yi! »
+« Parmi les cinq Grands Empyréens, si je devais me rallier à l'un d'eux, je choisirais en premier l'Empereur Céleste... Malheureusement, il y a bien des êtres puissants sous les ordres de l'Empereur Céleste et il pourrait ne pas vouloir de moi... Cependant, même si je ne peux suivre l'Empereur Céleste, je peux toujours suivre le Grand Empyréen Dao Yi! »
 
 « Le Grand Empyréen Dao Yi accorde beaucoup d'importance aux Exaltés Empyréens, donc si je le souhaite, il m'acceptera certainement. Sous la protection du Grand Empyréen Dao Yi, même si ce Wang Lin venait à l'apprendre, je n'aurais aucune crainte! »
 
@@ -80,7 +80,7 @@ Le jeune homme dit avec respect: « Et alors? Bien que le Disciple porte le nom 
 
 « Ye Mo est mort, mais puisque tu as obtenu son héritage, Wang Lin, tu peux aussi hériter de ma haine! » Maître Âme Écarlate rit, une lueur de malveillance brillant dans ses yeux.
 
-Maître Âme Écarlate sourit et ajouta: « Ce n'est pas nécessaire. Cette Mu Bingmei est quelqu'un que Maître a personnellement choisie pour toi, alors comment Maître pourrait-il te la voler? Cependant, Maître va jouer avec elle un moment. Une fois que je me serai lassé d'elle, je te la donnerai naturellement. »
+Maître Âme Écarlate sourit et ajouta: « Ce n'est pas nécessaire. Cette Mu Bingmei est la compagne que Maître t'a personnellement choisie, alors comment Maître pourrait-il te la voler? Cependant, Maître va la dresser un moment. Une fois que je me serai lassé d'elle, je te la donnerai naturellement. »
 
 « Comme il se doit. Merci, Maître. » Le jeune homme hocha la tête en souriant.
 

@@ -12,7 +12,7 @@ L'énergie d'origine à l'intérieur de son corps fusionna avec la puissance de 
 
 À cet instant précis, le poing droit de Wang Lin percuta l'artifice.
 
-Une explosion fracassante retentit, projetant le corps de Wang Lin en arrière; il recula de plusieurs pas sur le fragment du Royaume Céleste. À chacun de ses pas, il laissait une empreinte profonde, tandis que des craquements sourds émanaient de son corps.
+Une explosion fracassante retentit, projetant le corps de Wang Lin en arrière; il recula de plusieurs pas sur le fragment du Royaume Céleste. À chacun de ses pas, il laissait une empreinte profonde, tandis que des bruits sourds retentissaient.
 
 En jetant un regard vers le doigt géant, il vit encore plus de lueurs rouges jaillir jusqu'à ce qu'il soit entièrement recouvert par elles. Le coup de poing de Wang Lin avait provoqué l'effondrement de la pointe, et le doigt entama sa phase finale de décomposition.
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin devint encore plus sombre alors qu'il fixait le dragon 
 
 « Omniscient... À quoi pense-t-il? A-t-il vraiment commis une erreur dans sa divination concernant l'Extrême Yang... » Wang Lin laissa échapper un soupir. Il avait rencontré d'innombrables personnes au cours de sa vie, mais l'Omniscient était le seul qu'il ne parvenait jamais à cerner. C'était ainsi il y a des centaines d'années, et des centaines d'années plus tard, c'était toujours la même chose.
 
-Bien que cela puisse sembler être son propre raisonnement, tout faisait partie du plan de l'Omniscient. À cet instant, Wang Lin était accablé de mélancolie et éprouvait une lassitude croissante envers l'Omniscient.
+Bien que cela puisse sembler être son propre raisonnement, tout faisait partie du plan de l'Omniscient. À cet instant, le visage sombre, Wang Lin se méfiait encore davantage de l'Omniscient.
 
 « Omniscient... Si je ne saisis pas l'Extrême Yang, une ombre marquera mon cœur Dao. Cependant, maintenant que je l'ai pris, j'ai l'impression d'être tombé dans les plans de l'Omniscient! C'était un stratagème à double couche: je serais tombé dans le piège, que je le prenne ou non! »
 
@@ -58,7 +58,7 @@ Le rugissement du dragon de vent se rapprochait de plus en plus. À cet instant,
 
 Une lueur de froideur passa dans les yeux de Wang Lin. Si le dragon de vent n'avait été qu'un simple sortilège, il ne pourrait pas y résister, mais il contenait l'esprit d'un dragon. Wang Lin n'oublierait jamais comment la couronne avait capturé ce véritable dragon à robe dorée dans le vide!
 
-Sa main droite se posa sur son sac, prêt à sortir la couronne. Cependant, à cet instant précis, un rire parvint de loin et une mer de flammes apparut à l'horizon. Un Qilin écarlate surgit de ce brasier.
+Sa main droite se posa sur son sac, prêt à sortir la couronne. Cependant, à cet instant précis, un rire parvint de loin et une mer de flammes couvrant presque tout le ciel apparut à l'horizon. Un Qilin écarlate surgit de ce brasier.
 
 Ce Qilin était d'une férocité extrême et ses yeux brillaient d'un éclat vif. Sur son dos siégeait un vieil homme maigre: c'était le Saint de l'Épée, Ling Tianhou!
 

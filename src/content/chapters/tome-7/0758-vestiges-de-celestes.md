@@ -51,7 +51,7 @@ Dès qu'il eut stoppé les lames, Wang Lin chargea directement vers l'os de la b
 
 Il attendait ce moment! Puisqu'il ne pouvait maintenir son troisième œil et que son sens divin ne parvenait pas à localiser l'ombre, le moment idéal pour s'en défaire était précisément celui où elle tenterait de le dévorer.
 
-Wang Lin ne se retourna pas, mais l'ombre d'un fouet flotta entre ses sourcils. Le Fouet du Karma apparut devant lui et cingla le vide, provoquant un gémissement étouffé dans le néant.
+Wang Lin ne se retourna pas, mais l'ombre d'un fouet flotta entre ses sourcils. Le Fouet du Karma apparut derrière lui et cingla le vide, provoquant un gémissement étouffé dans le néant.
 
 Simultanément, Wang Lin sentit l'aura glaciale se dissiper autour de lui. Il ne s'interrompit pas; tout s'enchaîna avec la fluidité de l'eau courante. Sa main traça un sceau et l'apposa sur l'os de la bête avant de le saisir pour le ranger dans son sac.
 

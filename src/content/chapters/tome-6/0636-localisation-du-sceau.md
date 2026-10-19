@@ -16,9 +16,9 @@ Sun Tai possédait une marionnette cadavre qui n'était qu'un enfant, mais elle 
 
 En songeant à la marionnette cadavre de Sun Tai, Wang Lin ne put s'empêcher de penser à Situ Nan, qui avait fini par prendre possession de la chair de cet enfant.
 
-« Je ne sais pas où se trouve Situ actuellement, mais il doit être sur une planète de culture, vivant sa vie comme un roi parmi les mortels... » Une pointe de nostalgie passa dans ses yeux. À cet instant, il n'était plus le démon, mais un simple mortel se remémorant un ami.
+« Je ne sais pas où se trouve Situ actuellement, mais il doit être sur une planète de culture, vivant sa vie comme un prince parmi les mortels... » Une pointe de nostalgie passa dans ses yeux. À cet instant, il n'était plus le démon, mais un simple mortel se remémorant un ami.
 
-« Il y avait aussi Sun Tai. Il était l'Ancien en chef de la Secte des Cadavres sur la planète Suzaku. Il fut projeté dans l'espace par la puissance du lignage de l'Ancêtre du Clan des Démons Géants. Sa localisation actuelle est inconnue. »
+« Il y avait aussi Sun Tai. Il était l'Ancien en chef de la Secte des Cadavres sur la planète Suzaku. Il fut projeté dans l'espace par le pouvoir divin de l'Ancêtre du Clan des Démons Géants. Sa localisation actuelle est inconnue. »
 
 Wang Lin prit une profonde inspiration pour rassembler ses pensées. Ses yeux s'illuminèrent alors qu'il observait les fissures ramifiées qui l'entouraient. Ne parvenant à déceler aucune aura de Zhou Yi, il allait devoir les inspecter une à une lui-même.
 
@@ -74,13 +74,13 @@ Wang Lin prit une profonde inspiration, le regard froid. Il se redressa et s'ext
 
 « Quelle puissance! » Wang Lin fixa la fissure. Bien qu'il ignorât sa profondeur, il était certain que Zhou Yi s'y trouvait! Car le Sens Divin qui l'avait percuté appartenait à un seul homme: Ling Tianhou!
 
-« Un simple fragment du Sens Divin qu'il a laissé derrière lui suffit à tuer des cultivateurs de rang inférieur à l'Ascendant. Quel est donc le niveau exact de Ling Tianhou? Le sommet du stade avancé de l'Ascendant marque la fin de la première étape. Seul en franchissant l'épreuve du stade Yin et Yang, un cultivateur peut entrer dans la deuxième étape: les Trois Royaumes du Nirvana! »
+« Un simple fragment du Sens Divin qu'il a laissé derrière lui suffit à tuer des cultivateurs de rang inférieur à l'Ascendant. Quel est donc le niveau exact de Ling Tianhou? Le sommet de l'Ascendant marque la fin de la première étape. Seul en franchissant l'épreuve des stades Yin-Yang et Vide-Réel, un cultivateur peut entrer dans la deuxième étape: les Trois Royaumes du Nirvana! »
 
 « Les Trois Royaumes du Nirvana sont le Scruteur du Nirvana, le Purificateur du Nirvana et le Briseur du Nirvana. Chaque royaume se divise en stades de début, milieu, fin et sommet. L'Omniscient avait prétendu être à la fin de la deuxième étape; je suppose qu'il est au stade initial du Briseur du Nirvana. Ling Tianhou et l'Omniscient étant rivaux depuis des dizaines de milliers d'années, leurs niveaux ne peuvent être trop éloignés. Il doit donc se situer au sommet du Purificateur du Nirvana... »
 
 Une pointe de détermination brilla dans les yeux de Wang Lin. Comparée à celle de l'Omniscient ou de Ling Tianhou, sa propre culture était dérisoire. Il n'avait même pas atteint le sommet de la première étape, mais Wang Lin faisait preuve d'une persévérance sans faille. Depuis qu'il était un enfant dans le monde de la culture, il n'avait compté que sur lui-même pour devenir aujourd'hui une puissance Ascendant!
 
-Bien qu'un Ascendant ne soit qu'une fourmi aux yeux des experts de la deuxième étape, parmi les cultivateurs de la première étape, il restait une force redoutable!
+Bien qu'un Ascendant ne soit qu'une fourmi aux yeux des experts de la deuxième étape, parmi les cultivateurs de la première étape, atteindre l'Ascendant équivaut à être un seigneur régional!
 
 Wang Lin prit une profonde inspiration et pressa son front. Cent mille brins d'énergie meurtrière apparurent pour se transformer en sceaux de vie entourant son corps. Pour être plus précis, il en manquait un seul. Wang Lin prit ce dernier brin et le fusionna avec son âme. Ainsi, ces sceaux ne pourraient jamais être détruits, à moins que le tout dernier brin au sein de son Âme Originelle ne soit brisé!
 

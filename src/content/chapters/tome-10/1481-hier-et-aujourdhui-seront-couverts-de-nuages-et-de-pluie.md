@@ -8,7 +8,7 @@ slug: hier-et-aujourdhui-seront-couverts-de-nuages-et-de-pluie
 ---
 Hier comme aujourd'hui, la pluie tombe sur Hengyun, emplit les ravins de la montagne, et un vieil ami est venu.
 
-Les gouttes de pluie tombaient sur la roche. Cependant, l'averse était précipitée et désordonnée; loin d'être joyeuse, elle semblait presque agacée.
+Les gouttes de pluie tombaient sur la roche dans un bruit agréable à l'oreille. Cependant, l'averse était précipitée et désordonnée; loin d'être joyeuse, elle semblait presque agacée.
 
 Heureusement, le vent balayait les gouttes, dissipant cette pointe d'irritation. Le grondement puissant de la pluie résonnait alors.
 
@@ -60,13 +60,13 @@ Le corps de Xie Qing frémit alors qu'une compréhension vague commençait à po
 
 D'un revers de la main, Wang Lin dissipa le mince sort de Xie Qing. Sans cette protection, la pluie retomba sur lui sans entrave.
 
-« Si tu te considères comme faisant partie de ce monde, si tu deviens les cieux et la terre, alors cette pluie est ton propre sang. Pourquoi l'arrêter? Le vent, la pluie, la neige, le tonnerre... tout ce qui compose la nature. Tu es eux, ils sont toi; comment pourraient-ils t'entraver? 800 ans, et tu n'as toujours pas percé l'illumination que je t'ai offerte... Quand tu pourras abandonner ta chair, oublier tous tes sorts et devenir une âme de Dao, alors tu pourras venir me trouver... »
+« Si tu te considères comme faisant partie de ce monde, si tu deviens les cieux et la terre, alors cette pluie est ton sang invisible. Pourquoi l'arrêter? Le vent, la pluie, la neige, le tonnerre... tout ce qui compose la nature. Tu es eux, ils sont toi; comment pourraient-ils t'entraver? 800 ans, et tu n'as toujours pas percé l'illumination que je t'ai offerte... Quand tu pourras abandonner ta chair, oublier tous tes sorts et devenir une âme de Dao, alors tu pourras venir me trouver... »
 
 Wang Lin observa Xie Qing plongé dans sa réflexion. Il tendit la main vers le vide céleste. Le ciel changea de teinte, les vents et les nuages se renversèrent et d'épais nuages noirs grondèrent. La pluie qui couvrait près de la moitié de la planète sembla s'animer et convergea de toutes parts.
 
 En un éclair, cette pluie infinie se rassembla comme un océan pour fusionner en une gigantesque épée d'eau haute d'environ 100 000 pieds!
 
-D'un geste de la main, l'épée de pluie descendit du ciel et s'enfonça dans le sommet de la montagne, jusqu'à ce que près de trente pour cent de sa masse soit ancrée dans la roche. Environ 60 000 à 70 000 pieds de la lame dépassaient encore, si imposante qu'on pouvait l'apercevoir de très loin!
+D'un geste de la main, l'épée de pluie descendit du ciel et s'enfonça dans le sommet de la montagne, jusqu'à ce que près de trente pour cent de sa longueur soit ancrée dans la roche. Environ 60 000 à 70 000 pieds de la lame dépassaient encore, si imposante qu'on pouvait l'apercevoir de très loin!
 
 Une puissance colossale émanait de cette épée et enveloppait le monde, s'étendant de la planète Qing Ling jusqu'à l'espace profond!
 
@@ -108,6 +108,6 @@ Il s'agissait d'un vieil homme vêtu d'une robe taoïste: Maître Lu Fu!
 
 Il ne souhaitait pas affronter Wang Lin immédiatement. Ayant ressenti cette énergie d'épée, il était venu ici discrètement après le départ de ce dernier. Flottant dans les airs, il fronça les sourcils et réfléchit un instant, avant de pointer du doigt l'immense épée de pluie plantée dans la montagne.
 
-Lorsqu'il toucha l'épée, aucun son ne retentit. Pourtant, son corps trembla et il leva les yeux, le regard chargé d'effroi.
+Lorsqu'il effleura l'épée à distance, aucun son ne retentit. Pourtant, son corps trembla et il leva les yeux, le regard chargé d'effroi.
 
 « C'est cette aura...! Semblable à celle d'un Dieu Ancien, mais totalement différente. Cette présence me fait hérisser la peau! Et en plus... à l'intérieur de cette épée... il y a deux essences!!! »

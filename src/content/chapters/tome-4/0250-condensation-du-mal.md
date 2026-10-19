@@ -22,7 +22,7 @@ Sans parler des mortels, même la plupart des cultivateurs ne pourraient percevo
 
 Lorsqu'on peut maîtriser cette aura maléfique, elle peut être utilisée telle une technique puissante, capable de faire plier l'ennemi sans combattre. De plus, en l'incorporant lors du raffinage d'un trésor magique, on en augmenterait grandement la puissance.
 
-Une brise printanière souffla sur Wang Lin, qui prit inconsciemment une profonde inspiration. Ses yeux rayonnèrent d'une lumière imperceptible. Il sentait clairement que son énergie spirituelle subissait une mutation. Bien que ce changement fût infime, il recelait un pouvoir des plus mystérieux.
+Une brise légère souffla sur Wang Lin, qui prit inconsciemment une profonde inspiration. Ses yeux rayonnèrent d'une lumière imperceptible. Il sentait clairement que son énergie spirituelle subissait une mutation. Bien que ce changement fût infime, il recelait un pouvoir des plus mystérieux.
 
 L'aura maléfique autour de Wang Lin se détendit légèrement. Un mince filet de cette substance pénétra son corps pour fusionner avec son énergie spirituelle.
 
@@ -30,13 +30,13 @@ Alors que le carrosse progressait lentement, l'énergie spirituelle s'accumula d
 
 Même les yeux des artistes martiaux mortels s'illuminèrent. Ils ignoraient pourquoi, mais ils ressentaient une chaleur et un confort inexpliqués dans leur corps.
 
-Après un long moment, l'énergie spirituelle dans le corps de Wang Lin se stabilisa et celle qui entourait la zone se dissipa. Les esprits des artistes martiaux s'éclaircirent soudainement, et ils se mirent à discuter avec animation de ce qu'ils venaient d'expérimenter.
+Après un long moment, l'énergie spirituelle dans le corps de Wang Lin se stabilisa et celle qui entourait la zone se dissipa. Les esprits des artistes martiaux s'éclaircirent soudainement, et ils échangèrent à voix basse, étonnés, sur ce qu'ils venaient de vivre.
 
 Le groupe continua sa route jusqu'à ce que la nuit tombe. Un cercle de carrosses fut formé sur le bas-côté de la route.
 
 Certaines servantes descendirent pour préparer le dîner. Certaines jetèrent des regards vers Wang Lin en chuchotant entre elles.
 
-Il n'était pas difficile de comprendre pourquoi les servantes l'observaient ainsi. À cet instant, il dégageait un charme indicible. Bien que ses traits fussent ordinaires, il possédait une aura d'une singularité absolue.
+Il n'était pas difficile de comprendre pourquoi les servantes l'observaient ainsi. À cet instant, il dégageait un charme indicible. Bien que ses traits fussent ordinaires, il possédait une aura d'une grâce détachée.
 
 Wang Lin s'assit, appuyé contre un grand arbre, observant le ciel qui s'obscurcissait lentement. Il éprouvait une paix de l'esprit qu'il n'avait pas connue depuis quatre cents ans. Le ciel étoilé était resplendissant, chaque point de lumière éclairant la terre, mais Wang Lin savait que chacun de ces points était en réalité une planète.
 
@@ -82,7 +82,7 @@ Le visage ridé de Lu Xing rougit. Très embarrassé, il se frappa la cuisse et 
 
 Wang Lin eut un sourire, mais ne parla plus. Il se contenta de savourer lentement le goût du vin.
 
-Lu Xing regarda la cruche vide au sol, puis celle, presque vide, que tenait Wang Lin. Il sourit: « Le petit frère a une sacrée endurance à l'alcool. C'est bien trop calme ici. Et si nous allions rejoindre mes frères autour du feu? »
+Lu Xing regarda la cruche vide au sol, puis celle, presque vide, que tenait Wang Lin. Il sourit: « Le petit frère a une sacrée endurance à l'alcool. C'est bien trop calme ici. Et si nous allions faire un concours de boisson avec mes frères autour du feu? »
 
 Wang Lin voulut instinctivement refuser, mais après réflexion, il acquiesça d'un signe de tête.
 
@@ -90,7 +90,7 @@ Il suivit Lu Xing jusqu'au foyer. De nombreux artistes martiaux s'y trouvaient, 
 
 L'homme nommé Wang s'écarta pour faire de la place à Lu Xing et Wang Lin en répondant: « Vas-y, de toute façon tu fais vite! Quand tu auras fini, j'aurai bien le temps d'y aller aussi! »
 
-À ces mots, l'assistance éclata de rire. Lu Xing répliqua par une petite remontrance en plaisantant avant de s'asseoir avec Wang Lin. Ce dernier observa distraitement les mortels qui l'entouraient, envahi par un sentiment de regret. Bien que la vie de ces gens fût éphémère et qu'un simple souffle de sa part suffît à les anéantir, leur bonheur était une chose dont il avait été privé.
+À ces mots, l'assistance éclata de rire. Lu Xing répliqua par une petite remontrance en plaisantant avant de s'asseoir avec Wang Lin. Ce dernier observa les mortels qui l'entouraient, envahi par une profonde émotion. Bien que la vie de ces gens fût éphémère et qu'un simple souffle de sa part suffît à les anéantir, leur bonheur était une chose dont il avait été privé.
 
 Ce soir-là, Wang Lin but beaucoup de vin. Bien qu'il fût peu loquace, les autres finirent par s'habituer à sa présence, riant et buvant avec lui. Plus tard, quelques servantes audacieuses se joignirent au groupe, y compris celle qui lui avait apporté à manger. Elle choisit toutefois de s'asseoir près de Wang Lin. Son regard brillant se posait souvent sur lui, mais nul ne pouvait deviner ses pensées.
 

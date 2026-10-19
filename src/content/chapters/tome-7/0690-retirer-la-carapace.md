@@ -16,11 +16,11 @@ Au cours de ces cinq années, trois vieillards s'éteignirent et trois nouvelles
 
 Sun Tai était devenu encore plus vieux. Sa demeure jouxtait celle de Wang Lin. Cette maison n'était pas grande, et un voile de crépuscule la couvrait. Tel un mortel conscient que son heure approchait, il n'aimait guère rester enfermé. Il préférait s'asseoir dans la cour, le regard porté vers le ciel, accompagné par l'éclat de ses souvenirs.
 
-Wang Ping avait désormais dix ans; pourtant, comparé aux autres enfants du village, il semblait n'en avoir que sept ou huit. Néanmoins, son petit visage était bien plus coloré qu'il y a cinq ans.
+Wang Ping avait désormais dix ans; pourtant, comparé aux autres enfants du village, il semblait n'en avoir que sept ou huit. Néanmoins, son petit visage n'était plus aussi pâle qu'il y a cinq ans et avait repris un peu de couleur.
 
 À dix ans, Wang Ping était extrêmement beau, et les habitants du village étaient tous très attachés à cet enfant sage et charmant. Parmi ses camarades de jeu, beaucoup de petites filles éprouvaient une affection sincère pour le fils du charpentier.
 
-Cette grande tempête de neige rendait la journée particulièrement glaciale. Sun Tai était assis paisiblement dans la cour. Vêtu d'un manteau épais, il contemplait le ciel, les yeux emplis de nostalgie. À ses côtés, Wang Ping, lui aussi emmitouflé dans un manteau épais, regardait le ciel d'un air absent.
+Cette grande chute de neige rendait la journée un peu plus froide. Sun Tai était assis paisiblement dans la cour. Vêtu d'un manteau épais, il contemplait le ciel, les yeux emplis de nostalgie. À ses côtés, Wang Ping, lui aussi emmitouflé dans un manteau épais, regardait le ciel d'un air absent.
 
 « Ping Er, pourquoi es-tu venu rendre visite à ce vieil homme au lieu d'accompagner ton père? » Les yeux de Sun Tai brillaient de bienveillance. Il aimait véritablement cet enfant du plus profond de son cœur. S'il n'avait pas eu Wang Lin pour lui interdire de laisser l'enfant pratiquer la culture, il lui aurait réellement enseigné tout ce qu'il savait.
 
@@ -42,7 +42,7 @@ En voyant cela, Sun Tai ne put s'empêcher de rire, et la tendresse dans ses yeu
 
 À cet instant, Wang Lin vivait une tout autre situation que celle de Sun Tai. Il fronçait les sourcils face à une jeune femme qui ne cessait de se plaindre, le visage empreint d'un sourire amer.
 
-Wang Lin semblait avoir légèrement vieilli au cours de ces cinq années. C'était le même phénomène que lorsqu'il s'était transformé en mortel: afin de ne pas effrayer les gens ordinaires, son apparence n'était plus celle d'un jeune homme mais celle d'un homme d'âge mûr. La vicissitude dans ses yeux lui conférait un tempérament singulier, malgré sa maturité récente.
+Wang Lin semblait avoir légèrement vieilli au cours de ces cinq années. C'était le même phénomène que lorsqu'il s'était transformé en mortel: afin de ne pas effrayer les gens ordinaires, son apparence n'était plus celle d'un jeune homme mais celle d'un homme d'âge mûr. La vicissitude dans ses yeux lui conférait un tempérament singulier qui flottait autour de lui sans se dissiper, malgré sa maturité récente.
 
 La jeune femme était très féminine. Elle regarda Wang Lin et dit avec ferveur: « Frère Wang, regardez, Wang Ping a déjà dix ans et il a eu une vie difficile sans mère. Si vous ne pensez pas à vous-même, pensez au moins à l'enfant. La fille de la famille Zhao, à l'entrée du village, est une jeune fille encore vierge et elle est prête à vous suivre. Elle a même promis de traiter l'enfant comme le sien. Qu'est-ce qui ne vous convient pas? »
 
@@ -58,7 +58,7 @@ La jeune femme soupira et secoua la tête. « Si vous n'en avez pas envie, il es
 
 Wang Ping grogna et recula d'un bond.
 
-La jeune femme rit: « Quel caractère! Tu devrais prendre exemple sur ton père. Il est l'homme le plus doux du village; si ce n'était pas le cas, pourquoi toutes ces belles filles voudraient-elles l'épouser? » Sur ces mots, elle se détourna et partit.
+La jeune femme rit: « Quel caractère! Tu devrais prendre exemple sur ton père. À l'époque, il était l'un des deux hommes les plus doux du village; si ce n'était pas le cas, pourquoi toutes ces belles filles voudraient-elles l'épouser? » Sur ces mots, elle se détourna et partit.
 
 Une fois la visite terminée, Wang Ping demanda: « Papa, tu... »
 
@@ -84,7 +84,7 @@ L'école du village rouvrit au printemps, où les enfants apprenaient à lire et
 
 Les jours s'écoulaient ainsi, paisibles, comme une eau sans rides. Au sein de cette quiétude, une pointe de tendresse venait apaiser le cœur fatigué de Wang Lin.
 
-À mesure que Wang Ping grandissait, Wang Lin ne poursuivait plus obstinément l'illumination; il se contentait d'observer son fils avec un cœur de père. Durant ces dix années, hormis pour dissiper la rancœur de Wang Ping, il n'avait utilisé aucun autre sortilège. C'était comme s'il avait tout oublié.
+À mesure que Wang Ping grandissait, Wang Lin ne poursuivait plus obstinément l'illumination; il se contentait d'observer son fils avec un cœur de père. Durant ces dix années, hormis chaque nuit pour dissiper la rancœur de Wang Ping, il n'avait utilisé aucun autre sortilège. C'était comme s'il avait tout oublié.
 
 Pourtant, tandis qu'il oubliait le monde, une compréhension du cycle de la vie et de la mort se forgeait silencieusement dans son esprit. À mesure que Wang Ping grandissait, cette compréhension devenait plus profonde.
 
@@ -92,7 +92,7 @@ Wang Lin possédait une compréhension très fine de l'aspect « mort » du cycl
 
 Après une maîtrise parfaite de la vie et de la mort, viendrait ensuite le cycle du karma. Le Dao de Wang Lin évoluait doucement dans cette existence paisible. Si un puissant cultivateur avait été témoin de ce changement, il en aurait été stupéfait, car il ne s'agissait pas d'une simple progression, mais d'une mutation colossale de son domaine.
 
-Un domaine était une compréhension spéciale acquise par les cultivateurs après la fragmentation des Royaumes Célestes. On pouvait dire que le Dao qu'un cultivateur suivait était façonné par son domaine; tout en découlait. Par conséquent, chaque domaine était presque immuable pour un cultivateur, et il était extrêmement rare qu'il évolue. La raison pour laquelle Liu Mei avait attiré l'attention de l'ancêtre de la famille Huan était précisément parce que son domaine montrait des signes d'évolution. Cela avait poussé l'ancêtre à abandonner sa recherche de la Perle Défiant le Ciel pour ramener Liu Mei au sein de sa famille. La cause profonde, outre le désir de dévorer son domaine, était la crainte qu'une telle prodige ne soit dérobée par un autre!
+Un domaine était un pouvoir surnaturel particulier, une compréhension acquise par les cultivateurs après la fragmentation des Royaumes Célestes. On pouvait dire que le Dao qu'un cultivateur suivait était façonné par son domaine; tout en découlait. Par conséquent, chaque domaine était presque immuable pour un cultivateur, et il était extrêmement rare qu'il évolue. La raison pour laquelle Liu Mei avait attiré l'attention de l'ancêtre de la famille Huan était précisément parce que son domaine montrait des signes d'évolution. Cela avait poussé l'ancêtre à abandonner sa recherche de la Perle Défiant le Ciel dans l'Alliance de Culture pour ramener Liu Mei au sein de sa famille. La cause profonde, outre le désir de dévorer son domaine, était la crainte qu'une telle prodige ne soit dérobée par un autre!
 
 Wang Lin suivait actuellement cette voie. Cependant, faute d'une compréhension suffisante de la partie « vie » de son domaine de vie et de mort, bien qu'il montrât des signes d'évolution vers le domaine du karma, son domaine n'avait pas encore muté. Le présent était donc un moment charnière pour Wang Lin; il allait déterminer ses accomplissements futurs.
 
@@ -100,7 +100,7 @@ Wang Lin n'en comprenait qu'à moitié le sens. Cependant, s'il avait eu le choi
 
 Le printemps passa, l'automne vint, et six années supplémentaires s'écoulèrent. L'heure de Sun Tai sonna. Elle semblait être arrivée un peu plus tôt que prévu.
 
-Lorsqu'il reposait dans sa demeure, seuls Wang Lin et Wang Ping étaient présents pour l'accompagner dans son dernier voyage. À cet instant, il était comme ces feuilles mortes emportées par la grande tempête de neige six ans auparavant.
+Lorsqu'il reposait dans sa demeure, seuls Wang Lin et Wang Ping étaient présents pour l'accompagner dans son dernier voyage. À cet instant, il était comme ces feuilles mortes emportées par la grande tempête de neige six ans auparavant : celle qui refusait de tomber s'envolait, et ce qui s'en allait avec elle, c'était un fragment d'âme venu d'une terre lointaine.
 
 Wang Ping avait désormais seize ans et ressemblait de plus en plus à Liu Mei. Cette apparence conférait au jeune homme une beauté exceptionnelle. Cependant, ses yeux étaient purs, distinguant clairement le bien du mal. Au cours de sa croissance, il avait compris beaucoup de choses: par exemple, que Grand-père Sun connaissait son père depuis longtemps et lui vouait un immense respect. Ce respect ne se manifestait pas dans leurs paroles ou en surface; il était ancré dans leurs os mêmes, et Wang Ping pouvait le ressentir avec clarté.
 

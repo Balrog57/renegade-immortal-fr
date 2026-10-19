@@ -8,7 +8,7 @@ slug: zhang-daozong
 ---
 Ce massacre ne rassemblait pas autant de cultivateurs que la première fois; l'étendue des combats n'était donc pas trop vaste — seulement quelques centaines de kilomètres.
 
-À environ 100 000 kilomètres du champ de bataille, tout était encore enveloppé de brouillard. Une pierre gisait dans la boue et l'herbe. À cet instant, une lueur diffuse jaillit et la silhouette de Wang Lin apparut.
+À des dizaines de milliers de kilomètres du champ de bataille, tout était encore enveloppé de brouillard. Une pierre gisait dans la boue et l'herbe. À cet instant, une lueur diffuse jaillit et la silhouette de Wang Lin apparut.
 
 Le ciel était sombre, drapé de brume. La pluie des jours précédents ne s'était pas arrêtée, mais elle s'était considérablement affaiblie, se mêlant au brouillard pour rendre l'atmosphère très humide.
 
@@ -36,7 +36,7 @@ Il ne voulait pas prendre part à ce carnage. À ses yeux, le Continent du Taure
 
 En un éclair, Wang Lin chargea dans les profondeurs du champ de bataille. Peu après, il tourna la tête vers la droite. Dans la brume, deux cultivateurs s'affrontaient, et celui qui était en position de faiblesse traversait des moments critiques. Le vieil homme du Continent du Démon Vert était au stade intermédiaire du Vide Arcanique, et ses attaques étaient féroces.
 
-« C'est lui! » Wang Lin fixa le cultivateur qui reculait. Il avait un souvenir de lui; c'était le vieil homme qui était apparu sur la Prairie du Ciel Extrême.
+« C'est lui! » Wang Lin fixa le cultivateur qui reculait. Il avait un souvenir de lui; c'était le vieil homme qui était apparu sur la Prairie de l'Extrême Ciel.
 
 Ce vieillard était dans un état lamentable, le visage pâle. Du sang coulait du coin de sa bouche, mais son expression demeurait déterminée.
 
@@ -60,7 +60,7 @@ Wang Lin apparut silencieusement et fit un geste nonchalant de la main. Le broui
 
 L'effondrement des illusions changea radicalement l'expression du cultivateur du Continent du Démon Vert. Ce n'était pas que son sort était invincible, mais le fait que l'autre partie le brise si aisément ne signifiait qu'une chose!
 
-Au bas mot, cet individu était un cultivateur de la Tribulation du Vide!
+Au bas mot, cet individu était un cultivateur de la Tribulation de l'Arcane!
 
 Une multitude de pensées traversèrent son esprit et le cultivateur du Continent du Démon Vert sentit son cuir chevelu s'engourdir. Il recula sans hésiter, s'apprêtant à fuir les lieux.
 
@@ -80,7 +80,7 @@ Wang Lin comprenait vaguement le principe de l'Art Magique Rapide. Il devait con
 
 Plus il y aurait de cultivateurs et plus leur niveau de culture serait élevé, plus le vortex serait rapide. Par conséquent, lorsque Wang Lin l'utiliserait, la vitesse de ses sorts augmenterait proportionnellement.
 
-Cependant, il y avait une limite. En chemin, Wang Lin avait scellé un total de neuf âmes originelles lorsqu'il approcha du cœur des combats de la Tribulation du Vide. Il ne pouvait plus en sceller davantage et ne parvenait pas à former une seconde veine de sorts.
+Cependant, il y avait une limite. En chemin, Wang Lin avait scellé un total de neuf âmes originelles lorsqu'il approcha de la lisière des combats de la Tribulation du Vide. Il ne pouvait plus en sceller davantage et ne parvenait pas à former une seconde veine de sorts.
 
 Cela était explicité dans l'Art Magique Rapide, et après l'avoir expérimenté lui-même, Wang Lin en avait acquis une compréhension profonde. S'il voulait former une seconde veine, il aurait besoin de l'âme originelle d'un cultivateur encore plus puissant.
 

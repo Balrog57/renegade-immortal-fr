@@ -66,7 +66,7 @@ Il se devait donc d'être vigilant, mais il refusait de renoncer à cette chance
 
 Sentant son cœur se serrer, la moitié de l'âme originelle du Maître du Vide se divisa pour former un avatar. Ce double avala le cube de glace violet et chargea Wang Lin tel un éclair.
 
-Wang Lin agita l'épée de fer et, dans un éclat argenté, l'illusion de la gigantesque épée réapparut. Elle fonça vers l'avatar de l'âme originelle du Maître du Vide. L'avatar forma un sceau et pointa vers la lame géante. Dans un fracas assourdissant, l'avatar fut repoussé; il s'affaiblit considérablement, mais l'épée illusoire s'effondra également.
+Wang Lin agita l'épée de fer et, dans un éclat argenté, l'illusion de la gigantesque épée réapparut. Elle fonça vers l'avatar de l'âme originelle du Maître du Vide. L'avatar forma un sceau et pointa vers la lame géante. Dans un fracas assourdissant, l'avatar fut repoussé; son éclat s'assombrit, mais l'épée illusoire s'effondra également.
 
 Dès l'apparition du cube de glace violet, Wang Lin avait ressenti une aura similaire à celle de son épée de fer et de la flèche de l'Estimé Xuan Bao. Il était évident que ce cube était lui aussi un trésor de Pseudo-Vide du Nirvana.
 

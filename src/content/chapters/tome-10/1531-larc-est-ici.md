@@ -14,7 +14,7 @@ Wang Lin était dans un état de concentration extrême et semblait avoir oubli�
 
 Une douleur intense irradia entre ses sourcils; c'était comme si une paire de mains invisibles cherchait à lui déchirer le crâne. La flèche blanche hurla en traversant la Formation de Scellement du Royaume et se trouvait à moins de 1 000 pieds de Wang Lin!
 
-Le hurlement de la flèche était d'une aiguité extrême. L'intention meurtrière contenue dans ce son fit pâlir les cultivateurs du Royaume Intérieur.
+Le hurlement de la flèche était d'une acuité extrême. L'intention meurtrière contenue dans ce son fit pâlir tous les cultivateurs présents dans la formation.
 
 La distance de 1 000 pieds était devenue insignifiante. Alors que le rugissement résonnait, la tête de l'Ordre Antique à sept étoiles devant Wang Lin commença à se déformer violemment. C'était comme si une puissance indescriptible convergeait vers lui!
 
@@ -30,7 +30,7 @@ Au moment où ses mains touchèrent la flèche, Wang Lin sentit une force puissa
 
 Chacun de ses pas couvrait plusieurs dizaines de pieds dans un grondement assourdissant. Wang Lin, l'expression féroce, s'accrocha à la flèche et recula de plus de 10 000 pieds!
 
-Le sang continuait de couler durant cette retraite de 10 000 pieds. Déjà blessé, il voyait son état s'aggraver.
+Il cracha du sang à sept reprises durant cette retraite de 10 000 pieds. Déjà blessé, il voyait son état s'aggraver.
 
 Des grondements tonitruants retentirent une fois de plus. Wang Lin pénétra dans la zone où les cultivateurs du Royaume Extérieur étaient scellés par les Feuilles Anciennes. Dès qu'il y entra, une épaisse brume noire jaillit de son dos. Aussitôt qu'un cultivateur du Royaume Extérieur touchait cette brume, son corps se flétrissait, toute sa force vitale ayant été drainée par Wang Lin.
 
@@ -64,7 +64,7 @@ Cela ne dura qu'une respiration!
 
 Ces trois écailles dorées cédèrent en deux respirations, et Tai Aluo recula avec un sourire amer. La seconde flèche n'étant pas dirigée contre lui, il put se retirer lorsqu'il fut dépassé.
 
-Tai Aluo avait tenu sa promesse et retardé le destin de trois respirations. Ces trois respirations étaient d'une valeur inestimable pour Wang Lin. Lors de la première respiration, Wang Lin mordit le haut de sa langue et cracha un brouillard de sang devant lui.
+Tai Aluo avait tenu sa promesse et retardé le destin de trois respirations. Ces trois respirations étaient d'une valeur inestimable pour Wang Lin. Lors de la première respiration, Wang Lin mordit le bout de sa langue et cracha un brouillard de sang devant lui.
 
 Lors de la deuxième, le feu destructeur de l'Ombrelle Brûlante du Royaume convergea vers Wang Lin de toutes parts. Le feu l'enveloppa et fusionna avec le sang qu'il avait projeté. Cela créa une force dévastatrice qui fit face à la flèche qu'il serrait dans sa main!
 
@@ -136,6 +136,6 @@ Une douce lumière émanait de l'arc, dégageant une attraction capable de rendr
 
 « Le Maître a ordonné d'accorder au Royaume Intérieur trois chances de saisir cet arc. Pour chaque tentative, vous devrez renvoyer 30 % de nos cultivateurs du Royaume Extérieur encore en vie! Le voulez-vous ou non? »
 
-Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Limbes sa bête d'essence vitale, l'ouverture de l'ombrelle aurait consommé 90 % de sa force vitale. Cependant, même avec la Bête des Limbes, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
+Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Limbes sa bête d'essence vitale, l'ouverture de l'ombrelle aurait fait disparaître plus de 90 % de sa longévité. Cependant, même avec la Bête des Limbes, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
 
 « Que cherche à obtenir le Souverain... Il semble presque effrayé... Il veut utiliser cet arc pour attirer quelqu'un... »

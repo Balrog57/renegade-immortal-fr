@@ -18,13 +18,13 @@ L'œil droit de l'Ancêtre Céleste était un autre monde. Les yeux de Wang Lin 
 
 Les cheveux de Wang Lin passaient rapidement du noir au blanc. Il ne semblait pas conscient de ce changement, ses paupières restant fermées.
 
-À l'intérieur de son corps, une lumière dorée se dissipait lentement, comme si elle pénétrait sa peau. Cette clarté était vacillante, pareille à une flamme prête à s'éteindre à tout instant. Wang Lin paraissait serein au cœur de cette lueur, comme s'il dormait, insensible à tout.
+À l'intérieur de son corps, une lumière dorée s'échappait lentement, comme si elle traversait sa peau. Cette clarté était vacillante, pareille à une flamme prête à s'éteindre à tout instant. Wang Lin paraissait serein au cœur de cette lueur, comme s'il dormait, insensible à tout.
 
 On ignorait combien de temps avait passé lorsque la lumière dorée dans le corps de Wang Lin devint plus éclatante et se propagea vers l'extérieur. En son sein, se jouaient un héritage et une possession, une suppression et une rébellion!
 
 L'apparence de Wang Lin restait normale, mais à l'intérieur de son corps résidait une sphère de lumière dorée. Cette sphère contenait le pouvoir de l'Ancêtre Céleste et émettait une radiance qui se répandait dans tout son être, transformant sa chair, son sang et ses os pour les adapter à la présence de cette énergie.
 
-Cette lumière dorée était d'une arrogance extrême. Elle dégageait une aura capable de dominer toute forme de vie et de plonger quiconque dans la folie. Cette puissance était telle que, même sans la tentative de possession de l'Enseignant Impérial, cet héritage aurait suffi à transformer Wang Lin en un fou dépourvu de conscience!
+Cette lumière dorée était despotique à l'extrême. Elle dégageait une aura capable de dominer toute forme de vie et de plonger quiconque dans la folie. Cette puissance était telle que, même sans la tentative de possession de l'Enseignant Impérial, cet héritage aurait suffi à transformer Wang Lin en un fou dépourvu de conscience!
 
 La lumière dorée, impérieuse, annihila instantanément toute tentative de résistance de Wang Lin. Elle occupa totalement ses membres et enveloppa son corps.
 
@@ -32,9 +32,9 @@ Cependant, une partie du corps de Wang Lin demeura immuable, peu importe l'invas
 
 Le sang de l'âme de l'Ancien Ancêtre étant du même niveau que l'héritage de l'Ancêtre Céleste, la lumière dorée ne put l'affecter. Toutefois, comme ce sang d'âme était peu abondant, il ne put s'étendre pour riposter; ainsi, les deux forces ne se rencontrèrent pas.
 
-« Une fois que la lumière dorée aura supprimé son corps, je pourrai utiliser cette formation pour écraser son âme et provoquer son effondrement. Alors, ce vieil homme pourra enfin prendre le contrôle de son corps! » Les pensées de l'Enseignant Impérial résonnaient dans l'esprit de Wang Lin.
+« Une fois que la lumière dorée aura supprimé son corps, je pourrai utiliser cette lumière pour écraser son âme et provoquer son effondrement. Alors, ce vieil homme pourra enfin prendre le contrôle de son corps! » Les pensées de l'Enseignant Impérial résonnaient dans l'esprit de Wang Lin.
 
-Son propre corps étant mort depuis longtemps, il n'était plus qu'une parcelle de Sens Divin dans celui de Wang Lin. Conscient que la prise de contrôle ne serait pas aisée, il avait utilisé la culture de l'Ancêtre Céleste comme appât. Son but était d'emprunter le pouvoir de l'héritage pour briser toute résistance de Wang Lin. Cela permettrait au corps de ce dernier d'absorber la culture de l'Ancêtre Céleste, lui permettant ensuite de l'occuper sans le moindre danger.
+Son propre corps étant mort depuis longtemps, il n'était plus qu'une parcelle de Sens Divin dans celui de Wang Lin. Conscient que la prise de contrôle ne serait pas aisée, il avait utilisé la culture de l'Ancêtre Céleste comme appât. Son but était d'emprunter le pouvoir de l'héritage pour briser toute résistance de Wang Lin. Cela permettrait au corps de ce dernier d'absorber la culture de l'Ancêtre Céleste sans qu'aucune âme ne lui résiste, lui permettant ensuite de l'occuper sans le moindre danger.
 
 Cette lumière dorée avait envahi chaque parcelle du corps de Wang Lin, à l'exception de la tête et de l'endroit où résidait le sang de l'âme. La radiance émanant de Wang Lin était si vive qu'on pouvait la percevoir de l'extérieur; on distinguait nettement une faible lueur dorée provenant de l'œil droit de l'Ancêtre Céleste.
 
@@ -88,7 +88,7 @@ Alors que les chants résonnaient, l'œil gauche de l'Ancêtre Céleste s'ouvrit
 
 Dès que l'Ancêtre Céleste ouvrit son œil gauche, une force d'aspiration colossale fut projetée vers le ciel, en direction du gouffre!
 
-Simultanément, des craquements retentirent. À l'extérieur du bassin effondré, le fou lié par les neuf chaînes était aspiré vers le bassin de sang par cette force gravitationnelle!
+Simultanément, des craquements retentirent. À l'extérieur du bassin effondré, le fou lié par les neuf chaînes était aspiré vers le bassin de sang par cette force d'aspiration!
 
 Les chaînes gémirent lorsqu'elles atteignirent leur extension maximale, incapables de supporter la tension!
 

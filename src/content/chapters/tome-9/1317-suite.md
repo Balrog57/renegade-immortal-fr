@@ -58,7 +58,7 @@ Cependant, rien ne pouvait arrêter Wang Lin. Il leva la tête vers le sommet de
 
 Cette montagne bleue s'élançait vers les cieux sans fin apparente. Pourtant, des escaliers sinueux menaient au sommet. Wang Lin gravit les marches une à une.
 
-Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Il poussa un rugissement en franchissant instantanément les 30 % premières marches!
+Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il avançait, il mobilisait toute son énergie originelle pour contrer la force qui le repoussait. Il poussa un rugissement en franchissant instantanément près de 30 % des marches!
 
 Mais à ce moment précis, la résistance de la montagne devint terrifiante. C'était comme si une planète entière pesait sur lui, l'empêchant d'avancer. À chaque pas, il devait supporter une pression colossale. Plus surprenant encore: plus il montait, plus la résistance se multipliait!
 
@@ -120,6 +120,6 @@ La confusion dans les yeux de Lune Bleue s'intensifia. Elle ressentit une douleu
 
 Lune Bleue ne se retourna pas et murmura doucement: « Père, pourquoi ai-je l'impression qu'il m'est si familier, comme s'il faisait partie de mes souvenirs... Quelque chose de très important, de très important... »
 
-« La plus grande distance au monde n'est ni la fin de l'univers, ni le yin et le yang, mais le fait d'être oublié... Une relation erronée est née au mauvais endroit et au mauvais moment. Tout était faux dès le départ... Si vous pouvez recommencer après vous être oubliés, alors ton père ne vous en empêchera pas... Même s'il est choisi par le Royaume Céleste Ancien, ton père oserait se battre contre eux pour toi! » Au lieu de répondre à Li Qianmei, le Maître du Dao Rêve Bleu ferma les yeux et effleura la cithare.
+« La plus grande distance au monde n'est ni les confins du ciel, ni la séparation de la vie et de la mort, mais le fait d'être oublié... Une relation erronée est née au mauvais endroit et au mauvais moment. Tout était faux dès le départ... Si vous pouvez recommencer après vous être oubliés, alors ton père ne vous en empêchera pas... Même s'il est choisi par le Royaume Céleste Antique, ton père oserait se battre contre eux pour toi! » Au lieu de répondre à Li Qianmei, le Maître du Dao Rêve Bleu ferma les yeux et effleura la cithare.
 
 « La plus grande distance... est d'être oublié... Meng Er, quand te souviendras-tu de moi... »

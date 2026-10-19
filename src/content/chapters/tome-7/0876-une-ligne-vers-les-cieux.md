@@ -8,7 +8,7 @@ slug: une-ligne-vers-les-cieux
 ---
 L'expression de Wang Lin était neutre, mais son cœur fut troublé. D'après ce qu'il avait perçu à travers l'illusion, il était clair qu'il y avait six parchemins. Wang Lin resta calme et joignit respectueusement ses mains. « Merci, Senior Lie Yunzi. »
 
-Lie Yunzi rit et observa attentivement Wang Lin. D'un revers de manche, il fit signe à quelqu'un d'autre de poursuivre l'épreuve céleste.
+Lie Yunzi rit et observa attentivement Wang Lin. D'un revers de manche, il fit entrer quelqu'un d'autre sur la place pour poursuivre l'épreuve céleste.
 
 Wang Lin se détourna et quitta la place. Il trouva un espace dégagé et s'assit. Ignorant les regards des autres cultivateurs, il se mit tranquillement à cultiver.
 
@@ -90,7 +90,7 @@ En ce lieu, même si vous ne cherchez pas à tuer les autres, ils viendront vous
 
 Wang Lin cracha un objet: c'était le Sceau Céleste! Ce petit objet flottait devant lui en émettant des éclats de lumière dorée.
 
-Parmi les centaines de milliers de runes dorées, deux d'entre elles contenaient les âmes originelles de cultivateurs scellées à l'intérieur, et la puissance de ces deux runes était manifestement différente des autres. Wang Lin n'était pas certain que ces âmes originelles illusoires puissent être scellées. Il resta calme, attendant l'arrivée du premier prétendant à la mort.
+Parmi les centaines de milliers de runes dorées, deux d'entre elles contenaient les âmes originelles de cultivateurs scellées à l'intérieur, et la puissance de ces deux runes était manifestement différente des autres. Wang Lin n'était pas certain que ces avatars illusoires puissent être scellés. Il resta calme, attendant l'arrivée du premier prétendant à la mort.
 
 Après quelques respirations, une silhouette jaillit de la jungle sur la droite comme un éclair. Cependant, dès que cette silhouette se trouva à moins de mille pieds de Wang Lin, elle fut frappée de stupeur. En voyant que sa cible était Wang Lin, les yeux de l'individu se remplirent de terreur et il choisit de fuir sans hésiter.
 

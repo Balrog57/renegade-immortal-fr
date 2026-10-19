@@ -52,7 +52,7 @@ Après la troisième occurrence, le bouclier s'effondra! Mais au moment de sa ru
 
 Il restait encore trois respirations! Aucun être assez puissant pour observer ce combat avec son Sens Divin ne croyait que Wang Lin puisse l'emporter en seulement trois respirations!
 
-Lorsque le mot « deux » retentit, une lueur glaciale passa dans les yeux de Wang Lin. La destruction du Bouclier d'Ombre et de Lumière l'avait affecté, le faisant cracher du sang. Pourtant, il laissa échapper un rire sonore et chargea en avant!
+Lorsque le mot « deux » retentit, une lueur glaciale passa dans les yeux de Wang Lin. La destruction du Bouclier d'Ombre et de Lumière l'avait affecté, le faisant cracher du sang. Pourtant, il laissa échapper un long cri et chargea en avant!
 
 Dans son élan, Wang Lin lança son coup fatal! Sa vitesse était au-delà de l'imagination et un tatouage de tonnerre apparut dans son œil droit. Le tonnerre possédait neuf types d'accompagnements et forma immédiatement un gigantesque tatouage tonitruant devant lui!
 
@@ -88,7 +88,7 @@ Tout cela se passa trop vite. En un instant, le tatouage de tonnerre s'imprima s
 
 Le tonnerre couvrait sa poitrine dans un crépitement incessant. Ses blessures s'aggravaient à chaque pas qu'il faisait en retrait!
 
-Il affichait un regard horrifié. Bien qu'il ait déjà une haute estime pour Wang Lin, il ne pouvait croire à une telle puissance de tonnerre!
+Il affichait un regard horrifié. Bien qu'il ait déjà surestimé la puissance de la foudre de Wang Lin, il ne pouvait croire à une telle puissance de tonnerre!
 
 Même le temps devait s'effondrer devant cet éclair!
 
@@ -98,7 +98,7 @@ Cependant, l'instant d'après, une vitalité infinie jaillit du corps de Wang Li
 
 Voyant Maître Simo battre en retraite, une lueur de froideur passa dans les yeux de Wang Lin et une intention meurtrière monstrueuse éclata alors qu'il se lançait à sa poursuite! Pourtant, à ce moment précis, la voix résonna de nouveau depuis le vide.
 
-« Quatre... » Avant même que la voix ne puisse achever sa phrase, le rire de Wang Lin l'interrompit. Il fendit le ciel à toute allure pour rattraper Maître Simo en pleine retraite, puis agita la main!
+« Quatre... » Avant même que la voix ne puisse achever sa phrase, le cri de Wang Lin l'interrompit. Il fendit le ciel à toute allure pour rattraper Maître Simo en pleine retraite, puis agita la main!
 
 Une pilule dorée de la taille d'un ongle surgit du vide et fonça vers Maître Simo à une vitesse inimaginable. Elle était si rapide qu'en un clin d'œil, elle se retrouva à cent pieds de lui!
 
@@ -110,7 +110,7 @@ Il ne s'attendait pas à ce que Wang Lin possède un tel trésor. Lorsqu'il fut 
 
 Si ce n'était le fait que son corps original était au troisième pas, lui permettant d'avoir accumulé suffisamment de ressources pour affiner un corps quasi invincible, un cultivateur ordinaire serait mort depuis longtemps.
 
-Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas et aide à accroître sa culture.
+Maître Simo avait raffiné cet avatar après avoir réalisé qu'il était resté bloqué trop longtemps au début du Nirvana Vide et ne parvenait pas à obtenir assez d'esprits du Dao. Il avait créé cet avatar dans l'espoir qu'il atteigne le troisième pas, sans jamais améliorer ses propres pouvoirs divins.
 
 Alors que l'avatar de Maître Simo était repoussé par l'explosion, Wang Lin fit un pas en avant et agita la main droite. Les Cristaux de Mutation de Feu Déchaîné qu'il avait raffinés furent projetés.
 

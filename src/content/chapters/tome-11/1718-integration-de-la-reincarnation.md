@@ -10,7 +10,7 @@ Après un long moment, Qing Lin fronça les sourcils. Il retira son sens divin d
 
 « Il n'y a rien d'anormal... Cette âme ne diffère pas des autres âmes d'avatars, et elle est très faible. Elle pourrait mourir à tout moment. »
 
-« Vous ne parvenez pas non plus à la trouver », réfléchit Wang Lin un instant avant de poursuivre: « Que diriez-vous de ceci: je vais fusionner avec elle, et votre sens divin entrera dans mon corps pour voir s'il y a un changement dans mes essences. »
+« Vous non plus, vous n'avez rien remarqué », réfléchit Wang Lin un instant avant de poursuivre: « Que diriez-vous de ceci: je vais fusionner avec elle, et votre sens divin entrera dans mon corps pour voir s'il y a un changement dans mes essences. »
 
 Qing Lin hocha la tête.
 

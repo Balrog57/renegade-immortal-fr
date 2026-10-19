@@ -22,13 +22,13 @@ Un grondement assourdissant retentit parmi ces magnifiques lumières. Ce rugisse
 
 C'était comme si un géant bombardait la porte avec acharnement, cherchant désespérément à la briser pour en sortir!
 
-Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de la Rivière Invoquée. Ce tumulte était audible et résonnait jusque dans la Mer des Nuages et l'Au-delà.
+Tandis que les grondements assourdissants se propageaient, le même rugissement sourd émana également de la Rivière Invoquée. Ce tumulte était audible et résonnait jusque dans la Mer des Nuages et Luotian.
 
 Ce son violent apparut lors du premier souffle et atteignit son apogée au cinquième. Il se propagea dans chaque recoin du Royaume Intérieur, touchant chaque planète et percutant les oreilles de chaque créature vivante!
 
 À cet instant précis, d'innombrables êtres vivants du Royaume Intérieur — qu'il s'agisse de cultivateurs, de mortels, de bêtes ou même de simples végétaux — tremblèrent et entrèrent dans une stupeur léthargique.
 
-Sur une planète sauvage et inhabitée, dépourvue d'hommes mais peuplée de nombreuses bêtes féroces, le silence se fit soudainement pesant. Ces bêtes, qui vivaient ici depuis des générations et chassaient dans la forêt tropicale, furent frappées par le grondement. Toutes, qu'il s'agisse du tigre bondissant ou du python géant qui venait de capturer une proie, tremblèrent de terreur, levant les yeux vers le ciel d'un regard hébété.
+Sur une planète sauvage et inhabitée, dépourvue d'hommes mais peuplée de nombreuses bêtes féroces, le silence se fit soudainement pesant. Ces bêtes, qui vivaient ici depuis des générations et chassaient dans les prairies et la forêt tropicale, furent frappées par le grondement. Toutes, qu'il s'agisse du tigre bondissant ou du python géant qui venait de capturer une proie, tremblèrent de terreur, levant les yeux vers le ciel d'un regard hébété.
 
 La petite bête qui n'était pas encore morte en oublia de se débattre; elle leva la tête, pétrifiée.
 
@@ -44,7 +44,7 @@ Au onzième souffle, le tumulte qui parcourait les quatre systèmes stellaires e
 
 Cette pression émanait de l'Ancien Royaume Céleste. Cette aura, antique, enveloppa tout le Royaume Intérieur, comme pour proclamer au monde qu'ils étaient de retour!
 
-Sur une planète de l'Au-delà, où il ne restait plus que des mortels, les villes autrefois animées devinrent silencieuses comme la mort. Le vieil homme qui vendait du vin à la lisière de la ville et la douzaine de clients qui buvaient furent saisis d'effroi en voyant le ciel, jusque-là sans nuages, s'assombrir brusquement. Un grondement tonitruant retentit et tous les mortels perdirent connaissance.
+Sur une planète de Luotian, où il ne restait plus que des mortels, les villes autrefois animées devinrent silencieuses comme la mort. Le vieil homme qui vendait du vin à la lisière de la ville et la douzaine de clients qui buvaient furent saisis d'effroi en voyant le ciel, jusque-là sans nuages, s'assombrir brusquement. Un grondement tonitruant retentit et tous les mortels perdirent connaissance.
 
 Les évanouis ne purent voir le changement céleste. Le ciel continua de s'obscurcir jusqu'à ce que toute lumière disparaisse, plongeant le monde dans une nuit totale!
 
@@ -58,11 +58,11 @@ Alors que ce grondement résonnait, une fissure apparut dans le Vide Brillant, s
 
 Dès l'apparition de la faille, des rugissements empreints d'excitation et de folie jaillirent. L'aura de l'Ancien Royaume Céleste s'engouffra hors de cette brèche et balaya le Vide Brillant. Simultanément, des regards hideux apparurent dans la faille, tandis que des mains desséchées tentaient de s'étendre vers l'extérieur. On aurait dit un groupe d'êtres devenus fous, prêts à déchirer le système stellaire!
 
-À ce moment précis, une fissure similaire apparut dans la Rivière Invoquée, l'Au-delà et la Mer des Nuages. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
+À ce moment précis, une fissure similaire apparut dans la Rivière Invoquée, Luotian et la Mer des Nuages. Les quatre failles déchirèrent le système stellaire, libérant l'aura de l'Ancien Royaume Céleste!
 
 L'Ancien Royaume Céleste était sur le point de s'éveiller!
 
-Dans le Royaume Céleste du Tonnerre, au sein de l'Au-delà, le Vieux Fantôme Zhan se redressa soudainement, le visage transfiguré. Il fit un pas en avant, quittant son domaine pour apparaître dans l'Au-delà. Ses yeux trahissaient un regard étrange alors qu'il contemplait la faille, avant de se glacer de froideur!
+Dans le Royaume Céleste du Tonnerre, au sein de Luotian, le Vieux Fantôme Zhan se redressa soudainement, le visage transfiguré. Il fit un pas en avant, quittant son domaine pour apparaître dans Luotian. Ses yeux trahissaient un regard étrange alors qu'il contemplait la faille, avant de se glacer de froideur!
 
 « L'Ancien Royaume Céleste!! »
 
@@ -93,7 +93,7 @@ Une fois l'escalier manifesté, des silhouettes enveloppées d'une lumière dor�
 « Enfin libres!! »
 « Maintenant que notre culture est rétablie, nous, les célestes, sommes revenus! »
 
-Des rugissements s'élevèrent de ces dizaines de silhouettes dorées. Chacune d'elles dégageait l'aura d'un cultivateur du troisième pas! Cependant, ces auras différaient de celles des cultivateurs du monde des grottes; il était difficile de décrire précisément cette différence!
+Des rugissements s'élevèrent de ces dizaines de silhouettes dorées. Chacune d'elles dégageait l'aura d'un cultivateur de la troisième étape! Cependant, ces auras différaient de celles des cultivateurs du monde des grottes; il était difficile de décrire précisément cette différence!
 
 Après ces dizaines d'individus, d'autres figures dorées continuèrent de surgir. Vu de loin, le spectacle était saisissant!
 
@@ -105,7 +105,7 @@ Pourtant, comparé à eux, Qing Lin était le plus exalté. Il fit un pas en ava
 
 Cependant, son existence et ses paroles ne captèrent l'attention d'aucun de ces anciens célestes. Les célestes rirent sauvagement et passèrent directement devant eux, filant vers le nouveau Royaume Céleste!
 
-« Ce céleste n'a pas dévoré de Flammes Joss depuis longtemps. Bien que les Flammes Joss ici ne soient pas puissantes, elles me satisferont pour l'instant! »
+« Ce céleste n'a pas dévoré de Flammes Joss depuis longtemps. Bien que les Flammes Joss ici ne soient pas puissantes, elles apaiseront un peu le manque de plusieurs éternités! »
 « Des Flammes Joss... cet endroit possède l'aura des Flammes Joss! »
 « Haha, je ne m'attendais pas à ce que des Flammes Joss nous attendent à notre réveil. Disciple du Seigneur du Royaume Scellé, tu es très doué! »
 

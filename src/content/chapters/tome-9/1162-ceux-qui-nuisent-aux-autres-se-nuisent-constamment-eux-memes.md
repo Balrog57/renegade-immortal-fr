@@ -28,7 +28,7 @@ Si la Vieille Femme Poisonneuse n'était pas retrouvée rapidement, la Secte des
 
 Des disciples de chaque secte suivaient leur sillage. Tous se transformèrent en rayons de lumière et descendirent à travers la barrière entourant le continent de Mo Luo.
 
-« Zhou Hai, Zhao Yu, suivez-moi à la Secte de l'Origine. Vous autres, disciples, éparpillez-vous sur le continent de Mo Luo et fouillez chaque parcelle. Ne manquez aucun recoin. Si vous trouvez quoi que ce soit, rapportez-le immédiatement! » La voix de l'homme d'âge moyen était calme, mais elle portait une autorité incontestable.
+« Zhou Hai, Zhao Yu, suivez-moi à la Secte de l'Origine. Vous autres, disciples, éparpillez-vous sur le continent de Mo Luo et fouillez chaque parcelle. Ne manquez aucun recoin. Si vous trouvez quoi que ce soit, signalez-le immédiatement! » La voix de l'homme d'âge moyen était calme, mais elle portait une autorité incontestable.
 
 Les disciples environnants hochèrent rapidement la tête et se dispersèrent pour entamer leurs recherches. Ils avaient l'habitude de procéder ainsi chaque fois qu'ils atteignaient un nouveau continent.
 
@@ -62,7 +62,7 @@ Les yeux de Lu Yanfei devinrent glacials et elle déclara d'une voix lente: « L
 
 Feng Peishan esquissa un sourire et secoua la tête. « Compagnons cultivateurs de la Secte de l'Origine, nul besoin de s'alarmer. Cette affaire est d'une importance capitale, et presque toutes les sectes de rang 6 ont dépêché des hommes pour une recherche. Cette personne est extrêmement douée pour se dissimuler, et le seul indice réside dans le poison qu'elle porte. Si le compagnon cultivateur Zhou a attaqué, c'est parce que ce junior portait une trace de ce poison sur lui. »
 
-Le regard de Lu Yanfei se fit plus froid encore. Elle agita sa main droite vers le disciple blessé. Le corps de celui-ci trembla et un vortex apparut. Peu après, son Âme Naissante s'en échappa, révélant un petit serpent rouge à l'intérieur: c'était son esprit de bête spirituelle.
+Le regard de Lu Yanfei se fit plus froid encore. Elle pointa sa main droite vers le disciple blessé. Le corps de celui-ci trembla et un vortex apparut. Peu après, son Âme Naissante s'en échappa, révélant un petit serpent rouge à l'intérieur: c'était son esprit de bête spirituelle.
 
 Cependant, le petit serpent était affaibli, au bord de la mort. Même l'Âme Naissante du disciple semblait presque transparente.
 

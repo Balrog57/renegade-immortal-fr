@@ -12,7 +12,7 @@ Le Shui Daozi était terrifié par les essences qui émanaient du corps de Wang 
 
 À cet instant, le Shui Daozi ignorait que ces trois essences n'étaient pas encore la limite de Wang Lin.
 
-Il avait sacrifié sa vie pour comprendre sa première essence: l'essence de la vie et de la mort. Il avait brisé ses étoiles de Dieu Antique pour comprendre sa deuxième essence: l'essence du karma. Il avait détruit son étoile de la loi pour comprendre sa troisième essence: l'essence du vrai et du faux!
+Il avait brisé sa vitalité pour comprendre sa première essence: l'essence de la vie et de la mort. Il avait brisé ses étoiles de Dieu Antique pour comprendre sa deuxième essence: l'essence du karma. Il avait détruit son étoile de la loi pour comprendre sa troisième essence: l'essence du vrai et du faux!
 
 Cependant, au sein de son corps qui ne s'était pas encore dissipé, brûlait encore le feu de l'Oiseau Vermillon!
 
@@ -22,9 +22,9 @@ Tous les sorts de feu devaient s'incliner devant lui!
 
 S'il y avait un cultivateur pratiquant des sorts de feu, Wang Lin pouvait d'un simple geste déclencher le propre feu de l'adversaire pour l'anéantir. Même si celui-ci ne pratiquait pas le feu, Wang Lin pouvait utiliser sa colère et le consumer jusqu'à la mort!
 
-Dans ce monde, le feu le plus puissant était la flamme de la colère. Tout le monde en possédait une, invisible, mais une fois qu'elle s'embrasait et que l'on ne pouvait plus la contenir, on mourait!
+Dans ce monde, le feu le plus élémentaire était la flamme de la colère. Tout le monde en possédait une, invisible, mais une fois qu'elle s'embrasait et que l'on ne pouvait plus la contenir, on mourait!
 
-Au-dessus de la flamme de la colère se trouvait également le feu ardent, doté d'une puissance capable de terrasser la terre. Le feu ardent était le feu lui-même, permettant à la flamme de brûler une seconde fois, produisant ainsi un pouvoir incroyable!
+Au-dessus de la flamme de la colère se trouvait également le feu ardent, doté d'une puissance capable d'ébranler ciel et terre. Le feu ardent était le feu lui-même, permettant à la flamme de brûler une seconde fois, produisant ainsi un pouvoir incroyable!
 
 Pourtant, au-delà du feu ardent, subsistait encore le feu du Dao. Si Wang Lin parvenait à atteindre ce royaume, il pourrait brûler directement le domaine d'autrui. Il ne s'agirait plus d'un sort ou d'une capacité, mais de quelque chose infiniment proche d'un sort du Dao!
 
@@ -46,9 +46,9 @@ Le tonnerre!
 
 L'essence du Tonnerre Céleste!
 
-Il avait dévoré la moitié de l'âme originelle d'un ancien dragon de tonnerre, transformé son âme originelle pendant plus de mille ans et absorbé le tonnerre du clan antique du Tonnerre Dispersé. Cela lui permettait d'exercer le droit sur le tonnerre en lieu et place des cieux; mais s'il franchissait une étape supplémentaire, il pourrait remplacer ce « en lieu et place » pour commander son propre tonnerre!
+Il avait dévoré la moitié d'un ancien dragon de tonnerre, transformé son âme originelle pendant plus de mille ans et absorbé le tonnerre du clan antique du Tonnerre Dispersé. Cela lui permettait d'exercer le droit sur le tonnerre en lieu et place des cieux; mais s'il franchissait une étape supplémentaire, il pourrait remplacer ce « en lieu et place » pour commander son propre tonnerre!
 
-Ensuite, s'il atteignait l'illumination et dévorait les neuf types de tonnerre nés à l'ouverture du ciel et de la terre, il pourrait devenir le maître du tonnerre et parfaire son Dao du tonnerre, lui conférant un pouvoir incroyable!
+Ensuite, s'il atteignait l'illumination et dévorait les neuf types de tonnerre nés à l'ouverture du ciel et de la terre, il pourrait devenir le maître du tonnerre et parfaire son Dao du tonnerre, lui conférant le pouvoir d'agir selon la Voie!
 
 D'autres agiraient en lieu et place des cieux, mais Wang Lin agirait selon sa propre volonté!
 
@@ -70,13 +70,13 @@ Les yeux de Wang Lin étaient d'un calme absolu. À ce stade, il avait tout lâc
 
 Il ne voulait pas les perdre; il n'en était pas capable. Il allait simplement... tout emporter avec lui et marcher vers la mort ensemble!
 
-Le feu de la mort peut être plus éclatant que n'importe quelle étoile. Si l'on meurt sans personne dans le cœur, sa mort est solitaire et froide.
+Le feu de la mort peut être plus éclatant que n'importe quelle nébuleuse. Si l'on meurt sans personne dans le cœur, sa mort est solitaire et froide.
 
-Mais s'il reste des sentiments persistants dans le cœur, même la mort peut être aussi brillante qu'une étoile et rayonner aux quatre coins du monde.
+Mais s'il reste des sentiments persistants dans le cœur, même la mort peut être aussi brillante qu'une étoile et rayonner de mille feux.
 
 « Tu veux me tuer? Alors... mourons ensemble! » Alors que l'immense planète de culture s'écrasait, Wang Lin ouvrit les bras. Les trois vortex s'agitèrent frénétiquement et les essences de feu et de tonnerre à l'intérieur de son corps jaillirent!
 
-Cette attaque dépassait les cent coups de la vie, elle était plus puissante que le Char de Guerre Divin. C'était une attaque utilisant les essences que Wang Lin venait de comprendre pour lancer le sortilège le plus fulgurant de sa vie, son ultime sort!
+Cette attaque dépassait les cent coups de la vie, elle était plus puissante que le Char de Guerre Divin et que tous les pouvoirs divins qu'il avait déployés de sa vie. C'était une attaque utilisant les essences que Wang Lin venait de comprendre pour lancer le sortilège le plus fulgurant de sa vie, son ultime sort!
 
 Le ciel et la terre grondèrent tandis que le brouillard stellaire s'effondrait et se dissipait. Toute la région de rang 5 vola en éclats et cinq gigantesques fissures spatiales apparurent dans la région de rang 6, devenant une ligne de démarcation éternelle dans la Mer des Nuages!
 

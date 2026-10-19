@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1772 - Xuan Luo Acts!"
 slug: xuan-luo-agit
 ---
-Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets lorsqu'il avait emprunté la puissance du Daoïste aux Sept Couleurs pour sauver Miao Yin et sa compagnie.
+Divers sorts convergèrent tandis que le Souverain s'avançait. Il se montrait extrêmement prudent. Bien qu'il ne connaisse pas grand-chose de la Tombe Antique, il avait appris certains de ses secrets auprès de Miao Yin, et il avait emprunté la puissance du Daoïste aux Sept Couleurs pour sauver Miao Yin et sa compagnie.
 
 C'est ce qui lui avait permis d'arriver si rapidement. Il avait été témoin de la féroce bataille dans la deuxième fleur et avait vu Wang Lin utiliser l'arc à trois reprises. Fort de sa compréhension de Wang Lin et de ses propres analyses, il était certain que ce dernier n'avait plus la force de bander l'arc une fois de plus!
 

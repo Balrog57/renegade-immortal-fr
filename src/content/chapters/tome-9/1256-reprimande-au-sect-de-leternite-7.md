@@ -20,7 +20,7 @@ Qu'ils résistent ou non, qu'ils y consentent ou non, ils étaient tous aspirés
 
 Beaucoup ignoraient l'existence de ce sort capable d'extraire l'âme d'une planète, mais tous éprouvèrent le sentiment inexplicable de fusionner avec la terre et de voir leur âme être arrachée par Wang Lin!
 
-Le mouvement ébranlait les cieux et la terre; le calme scellait l'étoile pour en extraire l'âme!
+Le mouvement ébranlait les cieux et la terre; le calme arrachait l'âme à l'étoile!
 
 « C’est l'extraction de l'âme planétaire! » Seules quelques personnes dans la région de rang 7 connaissaient ce sort. Le cultivateur qui s'exclama fut l'un d'eux, et il se redressa brusquement, les yeux écarquillés par l'incrédulité!
 
@@ -46,7 +46,7 @@ Bien que l'extraction de l'âme planétaire paraisse simple, très peu de gens p
 
 Toutes les montagnes devinrent grises, et plus aucune énergie spirituelle ne subsistait, tout ayant été aspiré! Même l'eau des rivières devint trouble jusqu'à ce qu'elles s'assèchent, révélant leur lit.
 
-Même la mer, qui occupait 20 % de la planète, sembla bouillir en déchaînant des vagues monstrueuses. Le grondement des flots semblait avoir été transmis jusqu'ici pour que chacun puisse l'entendre.
+Même la mer de l'ouest, qui occupait 20 % de la planète, sembla bouillir en déchaînant des vagues monstrueuses. Le grondement des flots semblait avoir été transmis jusqu'ici pour que chacun puisse l'entendre.
 
 Plus choquant encore, l'aura antique semblait incarner le temps lui-même. En se rassemblant, l'âme de la planète fut violemment agitée au sein de cette brume blanche qui jaillissait de la terre!
 
@@ -70,7 +70,7 @@ Wang Lin demeura calme alors que sa main droite s'élançait comme l'éclair. La
 
 L'aura antique contenue dans cette sphère semblait capable de provoquer la décomposition du monde et de rendre tout cultivateur insignifiant. Pourtant, cette sphère terrifiante flottait désormais dans la paume droite de Wang Lin. La manière dont il la tenait avec autant de désinvolture fit haleter les cultivateurs alentour.
 
-C’était la première fois que Wang Lin extrayait l'âme d'une planète! Mais pour être plus exact, c'était la deuxième!
+C’était la troisième fois que Wang Lin extrayait l'âme d'une planète! Mais pour être plus exact, c'était la deuxième!
 
 La première fois, c'était lorsque le démon dispersé avait pris possession de son corps lors du combat à Luotian! La seconde fut lorsque Wang Lin avait extrait l'âme planétaire pour aider à la transformation de la planète Suzaku; mais à l'époque, il ne maîtrisait pas encore cette technique, n'en ayant qu'une compréhension superficielle.
 

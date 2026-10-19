@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 158 - The Fog Turns to Sea
 slug: le-brouillard-se-transforme-en-mer
 ---
-L'auberge fut soudainement plongée dans le silence. Tous les regards étaient braqués sur le vieil homme aux robes vertes. Ce dernier tenait le jeune homme fermement et lançait un regard glacial à l'assemblée.
+L'auberge fut soudainement plongée dans le silence. Tous les regards étaient braqués sur le vieil homme à la robe verte. Ce dernier tenait le jeune homme fermement et lançait un regard glacial à l'assemblée.
 
 « Regard comme l'éclair »: ces quatre mots traversèrent l'esprit des cultivateurs environnants. Ils eurent la sensation que leur être tout entier était scruté, comme si une immense quantité d'eau glacée venait de leur être déversée sur la tête.
 

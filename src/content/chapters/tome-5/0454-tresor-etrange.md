@@ -10,7 +10,7 @@ Wang Lin réfléchit un instant avant de s'élancer vers l'horizon. Il déploya 
 
 Ces deux derniers jours, Wang Lin avait survolé de nombreux lieux dévastés par les failles. Il aperçut au loin un bassin dont les auras d'épée perçaient le ciel comme des lames tranchantes.
 
-Il scanna la zone avec son sens divin et découvrit qu'elle comptait plus de 10 000 bassins. Ils couvraient une superficie si vaste qu'il ne parvenait même pas à en voir les limites.
+Il scanna la zone avec son sens divin et découvrit qu'elle comptait au moins plusieurs dizaines de milliers de bassins. Ils couvraient une superficie si vaste qu'il ne parvenait même pas à en voir les limites.
 
 Une longue épée était plantée dans chaque bassin. Bien que la moitié des lames fussent enfouies sous terre, Wang Lin pouvait clairement ressentir leur puissante intention de l'épée.
 
@@ -124,6 +124,6 @@ Wang Lin recula promptement et, dans le même mouvement, abattit son épée, cr�
 
 Dans un fracas retentissant, l'énergie de l'épée heurta la lame, mais celle-ci ne fut aucunement endommagée. Au contraire, elle brilla d'un éclat plus vif et plus froid, tout en transmettant un message par sens divin:
 
-« Laissez derrière... son âme... vous, partez... »
+« Laisse son âme derrière... toi, pars... »
 
 Une fois le message transmis, la lame de demi-lune grandit soudainement jusqu'à atteindre une trentaine de mètres de haut et projeta une vague d'énergie capable de fendre les cieux.

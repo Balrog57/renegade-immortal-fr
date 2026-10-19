@@ -42,7 +42,7 @@ Il semblait que ce vent destructeur n'était pour lui qu'une légère brise.
 
 « Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Nirvana Vide, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
 
-Néanmoins, il avait des impératifs aujourd'hui. Sauver Qing Shui et obtenir l'esprit du Dao étaient des objectifs absolus. Wang Lin prit une décision.
+Néanmoins, il avait des impératifs aujourd'hui. Sauver Qing Shui et obtenir le fruit du Dao étaient des objectifs absolus. Wang Lin prit une décision.
 
 « Je vais ignorer la force de rejet pour le moment. Même si cela réduit le temps pendant lequel je peux la contenir, je dois tout donner cette fois! » Après avoir tranché, Wang Lin n'utilisa aucun sortilège. À l'instant même où les trois dragons noirs se rapprochèrent, ses yeux projetèrent un éclat doré!
 
@@ -82,7 +82,7 @@ C'était comme si une lignée extrêmement noble coulait dans les veines de Wang
 
 Tant qu'on était un cultivateur, on ne pouvait résister à ce sentiment d'effroi sacré qui émanait de l'âme. À cet instant, ils semblèrent oublier la distinction entre les Royaumes Intérieur et Extérieur. Ils ne voyaient plus que Wang Lin, debout au-dessus d'eux tel un roi!
 
-Les dix mille et quelques cultivateurs étaient agenouillés et les dragons noirs avaient été vaincus! Demandez aux Cieux qui contrôle la vie et la mort!
+Les dix mille et quelques cultivateurs étaient agenouillés et les dragons noirs s'étaient prosternés! Demandez aux Cieux qui contrôle la vie et la mort!
 
 Wang Lin, l'expression sereine, marcha vers l'Estimé Maître Tian Zhao.
 
@@ -94,7 +94,7 @@ La bataille entre les Royaumes, l'honneur personnel, l'ordre du Conseil Souverai
 
 « C'est impossible. C'est... C'est... Cette lumière dorée est... »
 
-La silhouette de Wang Lin restait calme, dégageant l'aura d'un maître souverain. Il fit un pas vers l'Estimé Maître Tian Zhao qui reculait frénétiquement et lança un coup de poing.
+La silhouette de Wang Lin restait calme, dégageant l'aura d'un grand maître de son temps. Il fit un pas vers l'Estimé Maître Tian Zhao qui reculait frénétiquement et lança un coup de poing.
 
 Des grondements tonitruants résonnèrent, et une tempête dorée sembla se condenser pour former un poing géant de lumière. Celui-ci perça le vide avec rapidité pour frapper le corps de l'Estimé Maître Tian Zhao.
 

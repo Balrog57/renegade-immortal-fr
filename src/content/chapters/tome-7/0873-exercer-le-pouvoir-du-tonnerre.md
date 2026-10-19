@@ -60,7 +60,7 @@ Si les vieux monstres réagissaient ainsi, il n'était même pas nécessaire de 
 
 Les yeux de Shengong Hu étaient remplis d'excitation. Il ne pouvait plus se retenir, et l'admiration qu'il éprouvait pour Wang Lin devint encore plus intense.
 
-Zhan Konglie fut également stupéfait un instant. Pour la première fois, ses yeux furent eux aussi empreints de fascination et de respect, tout comme ceux de Shengong Hu!
+Zhan Konglie fut également stupéfait un instant. Pour la première fois, ses yeux furent eux aussi empreints d'une vénération fanatique, tout comme ceux de Shengong Hu!
 
 Quant au garçon à la grosse tête et au cultivateur aux six doigts, leurs esprits tremblèrent et leurs yeux se remplirent de terreur. Ils décidèrent sur-le-champ que ce Xu Mu ne devait pas être provoqué! Cet homme avait osé dévorer un esprit du tonnerre et avait pris le commandement de tout le lac de tonnerre d'un seul rugissement. Ce prodige leur glaçait le sang!
 

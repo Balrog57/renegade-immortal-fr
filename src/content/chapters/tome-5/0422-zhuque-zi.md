@@ -16,9 +16,9 @@ Il était le seul cultivateur au stade avancé de l'Ascendant sur la planète Su
 
 Le véritable souverain de la planète Suzaku!
 
-Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte de Raffinement des Âmes. Si le pays de Suzaku est en danger, vous devez nous prêter le Drapeau d'Âmes au Milliard d'Âmes. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
+Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte de l'Affinement de l'Âme. Si le pays de Suzaku est en danger, vous devez nous prêter le Drapeau d'Âmes au Milliard d'Âmes. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
 
-« Absurde! » Du Tian serra fermement le Drapeau d'Âmes au Milliard d'Âmes et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord auprès de mes ancêtres? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
+« Foutaises! » Du Tian serra fermement le Drapeau d'Âmes au Milliard d'Âmes et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
 
 Zhu Quezi regarda Du Tian, secoua légèrement la tête et soupira. « Cette affaire fut décidée entre la première génération de Suzaku et votre ancêtre fondateur, il est donc naturel que tu l'ignores, mais je l'ai découverte dans de vieux registres. Aujourd'hui, je ne suis pas venu pour voler, mais pour emprunter! » Sur ces mots, il tendit la main. Le ciel changea de teinte et une lumière rouge convergea de toutes les directions. Cette lueur forma une main gigantesque qui s'abattit sur Du Tian.
 
@@ -36,7 +36,7 @@ Du Tian eut un rire moqueur. « Emprunter? Combien de temps comptes-tu le garder
 
 L'expression de Zhu Quezi devint grave: « Prête-le au pays de Suzaku pour 10 000 ans. Une fois ces 10 000 ans passés, nous le rendrons naturellement. »
 
-« Vieux voleur Zhuque, ma Secte de Raffinement des Âmes a une devise: tant que l'étendard demeure, la secte subsiste. Si tu le veux, essaie donc de le prendre! » Les yeux de Du Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
+« Vieux voleur Zhuque, ma Secte de l'Affinement de l'Âme a une devise: tant que l'étendard demeure, la secte subsiste. Si tu veux l'emprunter, tu n'as qu'à frapper! » Les yeux de Du Tian devinrent glacials; ses mains formèrent un sceau qu'il pointa ensuite vers Zhu Quezi.
 
 « Condensez! »
 
@@ -50,11 +50,11 @@ Il projeta la plume en avant; celle-ci se mit soudainement à brûler, dégagean
 
 La plume ardente trembla puis se désintégra subitement. Une vague de feu jaillit du centre de la plume et recouvrit instantanément les 50 kilomètres environnants.
 
-La puissance de cette flamme était inimaginable. Les trois montagnes de la Secte de Raffinement des Âmes furent transformées en un liquide noir et visqueux qui se volatilisa rapidement en gaz.
+La puissance de cette flamme était inimaginable. Les trois montagnes de la Secte de l'Affinement de l'Âme furent transformées en un liquide noir et visqueux qui se volatilisa rapidement en gaz.
 
 Même la grotte où se trouvait Wang Lin disparut, emportant le jeune homme avec elle.
 
-La totalité de la Secte de Raffinement des Âmes fut rayée de la carte de la planète Suzaku. Les centaines de disciples, et même les trois anciens de la Formation de l'Âme cachés dans les trois anneaux dorés, ne purent échapper à cette calamité.
+La totalité de la Secte de l'Affinement de l'Âme fut rayée de la carte de la planète Suzaku. Les centaines de disciples, et même les trois anciens de la Formation de l'Âme cachés dans les trois anneaux dorés, ne purent échapper à cette calamité.
 
 Les 35 fragments d'âmes primaires qui étaient sur le point de fusionner furent également encerclés par les flammes. Une vapeur noire s'échappait de leurs corps tandis qu'ils affichaient des expressions de douleur indicible.
 
@@ -88,9 +88,9 @@ Le fragment d'âme de stade avancé de l'Ascendant n'avança pas directement; il
 
 Ce corps, fait de brume et de nuages, ne semblait, à première vue, guère différent d'un mortel.
 
-Le fragment d'âme fit un pas en avant et fusionna avec l'être de nuages. Cette silhouette ouvrit ses yeux spectraux et fixa Zhu Quezi.
+Le fragment d'âme fit un pas en avant et fusionna avec l'être de nuages. Cette silhouette ouvrit les yeux, au regard insondable, et fixa Zhu Quezi.
 
-« Former un corps à partir des nuages... c'est là une prouesse que seuls les cultivateurs de stade avancé de l'Ascendant peuvent accomplir! Cependant, tu n'es qu'une création issue d'une fusion. Je veux voir combien de temps tu pourras tenir! » L'expression de Zhu Quezi était mécontente.
+« Former un corps à partir des nuages... c'est là une prouesse que seuls les cultivateurs de stade avancé de l'Ascendant peuvent accomplir! Cependant, tu n'es qu'une création issue d'une fusion. Je veux voir combien de temps tu pourras tenir! » L'expression de Zhu Quezi était sombre.
 
 Sur ces mots, il agita la main. Une lueur rouge apparut devant lui et se mua en une courte épée rouge.
 

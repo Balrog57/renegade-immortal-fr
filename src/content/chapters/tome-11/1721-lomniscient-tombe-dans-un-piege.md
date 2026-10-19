@@ -20,7 +20,7 @@ Au moment où son corps original émergea, la main droite de son avatar s'élan�
 
 Un hurlement résonna à travers le système stellaire et les yeux de l'avatar de Wang Lin s'illuminèrent d'une étrange lueur. Le bout de son doigt sembla se poser directement sur l'âme du corps original.
 
-En un instant, la Voile Fantôme se mit soudainement en mouvement et se transforma en un nuage gigantesque qui se contracta vers Wang Lin.
+En un instant, la Voile Fantôme se mit soudainement en mouvement et se transforma en un nuage gigantesque à l'image d'un visage fantomatique, qui se contracta vers Wang Lin.
 
 De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensait, la majeure partie s'accumula entre les sourcils du corps original de Wang Lin, tandis qu'une partie se divisa pour se répandre sur sa peau et recouvrir entièrement son corps.
 
@@ -40,7 +40,7 @@ En progressant, cette goutte d'eau et cette poignée de terre apparurent dans sa
 
 « Mon corps original cherchera le corps originel de l'Omniscient; je dois aussi faire quelques préparatifs ici... Une fois qu'il sera anxieux, l'Omniscient invoquera probablement tous ses avatars d'un coup pour l'emporter avant que je ne trouve son véritable corps. J'espère qu'il fera cela. » Wang Lin réfléchissait tout en survolant les étoiles. Sa main droite traça un sceau qu'il pressa contre sa poitrine.
 
-À ce moment, un changement s'opéra dans l'âme de Wang Lin. Par le passé, son âme était devenue une âme dévoreuse, capable de tout dévorer, y compris elle-même.
+À ce moment, un changement s'opéra dans l'âme de l'avatar de Wang Lin. Son âme originelle était, depuis longtemps, devenue une âme dévoreuse, capable de tout dévorer, y compris elle-même.
 
 L'âme de l'avatar était le point de convergence de toutes ses essences, et même son âme originelle entretenait un lien profond avec cette âme. Si l'âme mourait, tout disparaîtrait.
 
@@ -66,7 +66,7 @@ Au même instant, dans le Vide Brillant, alors que des ondulations résonnaient 
 
 À l'instant même, ils fixèrent tous la Rivière Invoquée!
 
-Simultanément, des ondes de choc parcoururent Luotian et la Mer des Nuages. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
+Simultanément, des ondulations parcoururent Luotian et la Mer des Nuages. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
 
 C'étaient les 3 000 avatars de l'Omniscient, tous les corps qu'il avait acquis par sa dévoration constante au cours de ses 98 éveils!
 

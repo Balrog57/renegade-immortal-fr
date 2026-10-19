@@ -8,11 +8,11 @@ slug: reprimander-la-secte-eternelle-2
 ---
 Lu Yuncong prit une profonde inspiration et hocha la tête à Lu Yanfei avant de se diriger vers les gradins sans dire un mot. Lu Yanfei, plongée dans ses pensées, s'envola avec la grâce d'un papillon vers l'estrade.
 
-Parmi les deux, le mâle était gracieux et magnifique; la femelle était frêle, mais déterminée et belle. À cet instant, leur mouvement conjoint dégageait une certaine puissance visuelle.
+Parmi les deux, l'homme était gracieux et magnifique; la jeune femme, frêle mais déterminée, était d'une beauté incomparable. À cet instant, leur mouvement conjoint dégageait une certaine puissance visuelle.
 
-Même Mu Bingmei ne put s'empêcher de soupirer. Que ce soit par sa culture ou par ses paroles, Lu Yuncong pouvait être considéré comme une élite dans la Mer des Nuages! À ses côtés, les yeux magnifiques de Wang Shanshan balayèrent la silhouette de Lu Yuncong.
+Même Mu Bingmei ne put s'empêcher de soupirer. Sans même parler de sa culture, rien qu'à l'entendre, Lu Yuncong pouvait être considéré comme une élite de la Mer des Nuages! À ses côtés, les yeux magnifiques de Wang Shanshan balayèrent la silhouette de Lu Yuncong.
 
-Lu Yuncong arriva rapidement sur l'estrade. Après une brève pause, il déclara: « Le disciple Lu Yuncong salue le Maître de la Secte et les Anciens. » En parlant, son regard parcourut l'assemblée et s'arrêta sur Mu Bingmei, aux côtés de Wang Shanshan. Il tomba dans un état second pendant un instant, comme si tout le monde avait disparu, ne laissant derrière elle que cette femme froide mais sublime.
+Lu Yuncong arriva rapidement sur l'estrade. Après une brève pause, il déclara: « Le disciple Lu Yuncong salue le Maître de la Secte et les Anciens. » En parlant, son regard parcourut l'assemblée et s'arrêta sur Mu Bingmei, aux côtés de Wang Shanshan. Il tomba dans un état second pendant un instant, comme si tout le monde avait disparu, ne laissant plus que cette femme froide mais sublime.
 
 Lu Yanfei se tenait aux côtés de Lu Yuncong; elle s'inclina respectueusement et dit doucement: « La disciple Lu Yanfei salue le Maître de la Secte et les Anciens. »
 
@@ -46,7 +46,7 @@ Les yeux de Wang Shanshan s'animèrent alors qu'elle écoutait Lu Yuncong: « Je
 
 En entendant cela, tous comprirent pourquoi Li Qianmei était venue en aide à la Secte de l'Origine.
 
-« Je ne m'attendais pas à ce qu'un tel individu apparaisse au sein de la Secte de l'Origine! » Feng Hai ressentit une pointe de mélancolie en regardant la silencieuse Lu Yanfei.
+« Je ne m'attendais pas à ce qu'un tel individu apparaisse au sein de la Secte de l'Origine! » Feng Hai laissa paraître son admiration en regardant la silencieuse Lu Yanfei.
 
 « Lu Yanfei, cet homme est-il vraiment l'ancêtre de votre Secte de l'Origine? » La question vint de l'homme en robe blanche, le Maître de la Secte Éternelle.
 
@@ -70,7 +70,7 @@ Tandis que Mu Bingmei écoutait les paroles de Lu Yuncong, elle réfléchissait 
 
 Lu Yuncong regarda Mu Bingmei, le cœur battant la chamade. Dès qu'il entendit sa question, il ne put cacher son admiration et hocha la tête: « Cet homme a les cheveux blancs et aime porter des vêtements blancs... »
 
-Après avoir dit cela, Lu Yuncong afficha un sourire et agita la main, ouvrant une fente dans son espace de stockage. Un morceau de jade vola dans sa main et il y imprima rapidement l'image de Wang Lin.
+Après avoir dit cela, Lu Yuncong afficha un sourire et saisit le vide de la main droite, ouvrant une fente dans son espace de stockage. Un morceau de jade vola dans sa main et il y imprima rapidement l'image de Wang Lin.
 
 Puis, il y injecta son énergie originelle et le jade explosa. Alors que les fragments se dispersaient, une silhouette émergea!
 

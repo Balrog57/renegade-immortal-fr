@@ -16,7 +16,7 @@ Personne n'y échappa!
 
 Ta Shan n'avait tué personne. D'un simple revers de main, il s'était contenté de blesser les deux cultivateurs ainsi que la foule.
 
-En voyant cette scène, le jeune homme fut immédiatement stupéfait. Cependant, son expression devint plus féroce encore et il hurla: « Je suis un membre de la famille Wang! Vous osez blesser mes hommes? Vous êtes tous morts! »
+En voyant cette scène, le jeune prince fut immédiatement stupéfait. Cependant, son expression devint plus féroce encore et il hurla: « Je suis un membre de la famille Wang! Vous osez blesser mes hommes? Sur la planète Suzaku, vous êtes tous morts! »
 
 Wang Lin leva la main droite et gifla le jeune homme. Il n'utilisa aucune culture, se contentant d'un simple geste de mortel. Après tout, ce jeune homme n'était pas un cultivateur; s'il avait utilisé le moindre pouvoir, il aurait brisé tous les os du corps de l'adolescent.
 
@@ -78,7 +78,7 @@ Des filaments de gaz noir se rassemblèrent dans l'air au-dessus de la place et,
 
 Une fois apparus, ils ne daignèrent même pas regarder le palais impérial. Ils se transformèrent en trois traînées de gaz noir et foncèrent vers l'avant.
 
-Alors que Wang Lin avançait, son regard se fit plus froid. La rune devant lui était devenue plus dense, et il se trouvait désormais devant les portes du palais impérial. Les innombrables soldats à l'intérieur affichaient des visages graves en fixant le groupe de Wang Lin.
+Alors que Wang Lin avançait, son regard se fit plus froid. La rune devant lui était devenue plus dense, et il se trouvait désormais devant les portes du palais impérial. Les innombrables soldats à l'extérieur affichaient des visages graves en fixant le groupe de Wang Lin.
 
 À cet instant précis, les trois filaments de gaz noir arrivèrent et chargèrent Wang Lin. Avant même qu'ils ne soient sur lui, une vague de pression surgit et un hurlement spectral déchira les cieux et la terre.
 
@@ -98,7 +98,7 @@ Après en avoir tué un, la main gauche de Wang Lin frappa le vide; une vibratio
 
 Après avoir tué deux adversaires d'affilée, Wang Lin se retourna brusquement, ses yeux brillant de l'éclat du tonnerre. La dernière femme trembla violemment alors que la foudre surgissait de son propre corps, provoquant son explosion.
 
-Le regard de Wang Lin devint plus glacial encore. Il s'éleva dans les airs et se dirigea vers le palais impérial.
+Le regard de Wang Lin devint plus glacial encore. Il s'éleva dans les airs et se dirigea vers le palais impérial. Les nombreux soldats au sol le regardaient, figés, l'esprit vide.
 
 En marchant sur les airs, il pénétra dans l'enceinte du palais et atteignit directement la cour royale. Il vit immédiatement les soldats impériaux sur la place et les descendants des Wang dans la salle principale.
 

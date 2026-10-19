@@ -64,13 +64,13 @@ Wang Lin remit Xu Liguo, qui était toujours dans un état second, absorbant l'h
 
 « L'aura du précédent esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de la Richesse?! » Le cœur de Wang Lin trembla.
 
-Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme des Marées. L'endroit consistait en un immense corridor sinueux débouchant sur un gouffre sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
+Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme des Marées. L'endroit consistait en un immense corridor débouchant sur un gouffre noir et sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
 
 De légers courants d'aspiration émanaient du trou géant. Bien qu'ils fussent ténus, ils étaient constants.
 
 Debout sur le sentier au bord de la faille, une petite quantité de terre roula vers l'abîme et fut aspirée dans le gouffre profond.
 
-Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa ruse habituelle, il devina presque immédiatement que la phase de marée se produisant à l'extérieur était causée par ce gouffre profond.
+Wang Lin prit une profonde inspiration en contemplant l'abîme. Avec sa perspicacité habituelle, il devina presque immédiatement que la phase de marée se produisant à l'extérieur était causée par ce gouffre profond.
 
 Dans son esprit, il semblait voir l'éruption du gouffre créer une force d'aspiration inimaginable tous les 5 000 ans. Puis, via un canal mystérieux, cette force affectait le monde extérieur et aspirait d'innombrables choses dans ces terres.
 

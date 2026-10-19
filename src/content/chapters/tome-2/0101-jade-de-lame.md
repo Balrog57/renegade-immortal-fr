@@ -60,7 +60,7 @@ Après avoir conduit Wang Lin, Mu Rong observa l'assemblée d'un regard complexe
 
 Wang Lin fronça les sourcils. Il avait le sentiment que quelque chose clochait. Après avoir inspecté attentivement les présents, il devint encore plus vigilant. Presque tous ici venaient tout juste d'atteindre le stade de l'Établissement des Fondations et semblaient tous dépourvus d'intelligence.
 
-Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondations, mais quelques-uns se trouvaient au stade avancé. Ces derniers étaient radicalement différents des autres, comme la différence entre un mort et un vivant.
+Il n'y avait aucun cultivateur du milieu du stade de l'Établissement des Fondations, mais trois d'entre eux se trouvaient au stade avancé. Ces derniers étaient radicalement différents des autres, comme la différence entre un mort et un vivant.
 
 Les pupilles de Wang Lin se rétractèrent légèrement. Au même instant, les seize boules de feu alentour s'assombrirent brusquement, puis la silhouette de Ye Zizai apparut sans un bruit en plein air. Wang Lin remarqua qu'à son apparition, les yeux de la plupart des occupants de la grotte se remplirent d'une ferveur fanatique.
 

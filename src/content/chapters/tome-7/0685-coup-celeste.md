@@ -66,9 +66,9 @@ La famille Huan était plongée dans un silence de mort. Le regard de Huan Wuqin
 
 « Cependant, l'écart entre la première et la seconde étape est trop vaste. Si tu avais déployé cet art de l'épée avec une culture de la seconde étape, cela aurait été intéressant, mais pour l'instant, c'est inutile! Aujourd'hui, tu as brisé la formation de ma famille Huan, alors tu mourras sans aucun doute! »
 
-« Je vous en prie, Jade Ancestral! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment d'unité, se propagea comme un vent céleste pour envelopper la famille.
+« Je vous en prie, Jade Ancestral! » L'ancêtre de la famille Huan poussa un cri puissant. Une force colossale jaillit soudainement du domaine ancestral des Huan. Cette force, empreinte d'un sentiment de sérénité, se propagea comme un vent céleste pour envelopper la famille.
 
-Un jade doré s'éleva lentement dans les airs depuis la salle ancestrale, au loin. C'était de ce jade que procédait cette force d'unité.
+Un jade doré s'éleva lentement dans les airs depuis la salle ancestrale, au loin. C'était de ce jade que procédait cette force de sérénité.
 
 À l'instant où le jade apparut, c'était comme si un monde distinct avait été sculpté au sein même de la planète. Il permit au domaine ancestral de la famille Huan de devenir son propre royaume.
 
@@ -92,7 +92,7 @@ Au sein du domaine ancestral des Huan, au moment où le jade apparut, Huan Fengs
 
 Voyant que Huan Wuqing s'apprêtait à activer le sort sur le jade, Huan Fengshen eut un regard résolu. Il fit un pas en avant et déclara d'un ton grave: « Ancêtre, je ne permettrai pas que la famille Huan soit mêlée à cette affaire. Je retire la lignée des Huan de ce conflit. Si l'Ancêtre souhaite protéger cette Huan Mei, c'est votre problème personnel. Ne traînez pas toute la famille avec vous! »
 
-Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Camarade cultivateur, je suis le chef de la famille Huan, Huan Fengshen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous comprendrez que nous ne sommes pas alliés! »
+Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Camarade cultivateur, je suis le chef de la famille Huan, Huan Fengshen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous saurez distinguer le juste du tort! »
 
 L'ancêtre des Huan lança un regard glacial à Huan Fengshen. Un rictus sinistre étira ses lèvres alors qu'il se tourna vers les descendants directs: « Et vous autres? »
 
@@ -114,7 +114,7 @@ L'ancêtre des Huan ricana: « Jeune homme, je veux voir quels autres moyens tu 
 
 Le regard de Wang Lin était d'un calme absolu. S'il avait osé venir seul, s'il avait osé fouler le sol de la planète Mille Illusions et se frayer un chemin jusqu'aux Huan, c'était à cause de cette idée folle qui l'habitait. Et en cet instant, il s'apprêtait à utiliser son coup mortel le plus puissant.
 
-En pensant à l'esprit vengeur logé dans la perle défiant le ciel, le cœur de Wang Lin fut traversé par une vague de douleur.
+En pensant à l'esprit vengeur logé dans la Perle Défiant le Ciel, le cœur de Wang Lin fut traversé par une vague de douleur.
 
 « Les choses de ce monde ne peuvent échapper au karma. La cause karmique d'hier sera l'effet karmique d'aujourd'hui. Ce n'est qu'en réglant son karma, en laissant la poussière à la poussière et la terre à la terre, que le cycle pourra s'accomplir. » Wang Lin ferma lentement les yeux.
 

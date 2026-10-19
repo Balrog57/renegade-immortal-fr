@@ -24,7 +24,7 @@ Les yeux du Grand Empyréen Wu Feng s'illuminèrent également alors qu'il conte
 
 « On dirait qu'il est déterminé à briser l'Ascendant Empyréen Ming Dao! »
 
-Quant à l'Empereur Céleste, son expression était extrêmement sombre. D'un revers de manche, il fit mine de ne plus vouloir regarder. Son ombre autour de l'Ascendant disparut progressivement et il quitta l'Épreuve Empyrée.
+Quant à l'Empereur Céleste, son expression était extrêmement sombre. D'un revers de manche, il fit mine de ne plus vouloir regarder. Son ombre autour de l'Exalté Empyréen disparut progressivement et il quitta l'Épreuve Empyrée.
 
 Dans le palais impérial de la capitale, un rire glacial résonna!
 
@@ -48,7 +48,7 @@ L'Ascendant Empyréen Ming Dao endura tout cela, les yeux fixés sur le 17e pala
 
 Plus le temps passait, plus son attente grandissait. Finalement, cette attente atteignit un paroxysme pour devenir sa seule foi!
 
-« Si je n'ai pas réussi, alors il ne pourra certainement pas réussir non plus! S'il n'atteint pas le palais, alors je n'aurai pas perdu! » Cette attente était suffisante pour briser n'importe quel cultivateur. Les cheveux de l'Ascendant Ming Dao étaient en désordre et ses yeux injectés de sang tandis qu'il fixait le 17e palais.
+« Si je n'ai pas réussi, alors il ne pourra certainement pas réussir non plus! S'il ne franchit pas le palais, alors je n'aurai pas perdu! » Cette attente était suffisante pour briser n'importe quel cultivateur. Les cheveux de l'Ascendant Ming Dao étaient en désordre et ses yeux injectés de sang tandis qu'il fixait le 17e palais.
 
 Le temps s'écoula à nouveau. Une demi-heure, une heure... Bientôt, une demi-heure entière s'était écoulée!
 
@@ -72,7 +72,7 @@ Le Grand Empyréen Wu Feng affichait également une expression complexe en obser
 
 « Je l'ai aidé auparavant. Cette aide peut être jugée mineure ou non, mais même lorsqu'il était opprimé, je lui ai tendu la main... Par conséquent, il me choisira certainement! »
 
-« Ce Dao Yi hésite. C'est lié à sa personnalité. Ce genre de tempérament n'attire que les faibles. Les êtres dotés d'une véritable force ont leur propre fierté; à moins que nous ne fassions preuve de noblesse, comment accepteraient-ils de nous suivre? »
+« Ce Dao Yi hésite. C'est lié à sa personnalité. Ce genre de tempérament n'attire que les faibles. Les êtres dotés d'une véritable force ont leur propre fierté; à moins que nous ne leur accordions quelque faveur, comment accepteraient-ils de nous suivre? »
 
 « Cependant, si ce Wang Lin franchit réellement le 17e palais, il sera très difficile pour moi de le recruter... S'il n'y a pas d'imprévu, il aura 80 % de chances de devenir un Grand Empyréen à l'avenir! »
 

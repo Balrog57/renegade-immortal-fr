@@ -10,7 +10,7 @@ slug: etat-du-jeu
 
 La loi en ce lieu ressemblait fort à une partie d'échecs: il fallait séparer une portion de son sens divin pour en faire un soldat, tout en utilisant le corps d'un mortel pour affronter ce massacre d'un million de combattants!
 
-Leur culture serait totalement supprimée, les rendant incapables de l'utiliser.
+Leur culture serait totalement supprimée, les rendant incapables de la déployer pleinement.
 
 « Le Général Tigre Blanc est devenu un général, tandis que l'homme de la Planète des Cinq Éléments est devenu un soldat. C'est là l'avantage que le Général Tigre Blanc croit posséder! Les trois cents mondes détruits ne peuvent pas sceller les lignées, mais si la puissance se concentre sur seulement deux ou trois individus, elle peut en supprimer la lignée. Et si la lignée est supprimée, il ne sert à rien de parler de culture. Le Général Tigre Blanc n'est pas seulement un être céleste, il possède aussi un corps puissant. Bien que sa lignée céleste soit entravée, son corps demeure robuste. Malgré la suppression qui affecte sa constitution, il reste assez fort pour agir en tant que général!
 
@@ -28,7 +28,7 @@ Peut-être pense-t-il que je possède un héritage du Dao Antique et le corps d'
 
 D'un seul pas, il pénétra dans le domaine, et un grondement tonnerre résonna à travers le monde dévasté. Simultanément, une force puissante s'engouffra, comme pour déchirer le monde et affaiblir la loi établie par le Général Tigre Blanc!
 
-Exactement comme Wang Lin l'avait prévu, alors que le monde entier supprime deux individus, l'efficacité de cette suppression est d'environ 90 %. Cependant, si une troisième personne possédant une lignée entrait en scène, l'effet de la loi pourrait être réparti et ainsi atténué.
+Exactement comme Wang Lin l'avait prévu, alors que le monde entier supprime deux individus, l'efficacité de cette suppression est de plus de 90 %. Cependant, si une troisième personne possédant une lignée entrait en scène, l'effet de la loi pourrait être réparti et ainsi atténué.
 
 Dès l'instant où Wang Lin entra dans ce monde, l'homme d'âge moyen de la Planète des Cinq Éléments sentit la pression sur sa lignée faiblir. Au même moment, le soldat formé par son sens divin brilla intensément!
 
@@ -42,13 +42,13 @@ Le corps de Wang Lin pénétra le monde détruit, se déforma et disparut. Lorsq
 
 À l'instant de son arrivée, une fraction de son sens divin se détacha de son contrôle pour plonger vers la planète. Elle fusionna avec un soldat situé à l'opposé du Général Tigre Blanc.
 
-Ce soldat maniait une lame et tranchait un ennemi, sans réaliser que le Général Tigre Blanc chargeait vers lui sur un destrier. Le Général Tigre Blanc poussa un rugissement et lança sa lance sur le soldat avec lequel le sens divin de Wang Lin avait fusionné.
+Ce soldat maniait une lame et tranchait un ennemi, sans réaliser que, loin derrière lui, le Général Tigre Blanc tirait une lance de sa selle. Le Général Tigre Blanc poussa un rugissement et lança sa lance sur le soldat avec lequel le sens divin de Wang Lin avait fusionné.
 
 Le soldat marqua un temps d'arrêt lorsque le sens divin de Wang Lin pénétra en lui. Ses yeux s'illuminèrent et ses cheveux blanchirent. Son visage devint flou pour prendre les traits de Wang Lin!
 
 Soudain, il fit volte-face et abattit sa lame dans un rugissement. La lame entra en collision avec la lance lancée.
 
-La lance fut tranchée en deux par Wang Lin et passa son chemin, perçant le soldat ennemi situé derrière lui.
+La lance fut tranchée en deux par Wang Lin et passa son chemin, perçant le soldat ennemi situé derrière lui et le clouant au sol.
 
 Après avoir brisé la lance, le soldat avec lequel Wang Lin avait fusionné leva les yeux. Il fixa le général sur son cheval blanc au loin!
 
@@ -60,15 +60,15 @@ L'expression du Général Tigre Blanc devint sombre alors qu'il contemplait Wang
 
 Les yeux du général en armure blanche étaient empreints de froideur. Il pointa du doigt Wang Lin, au loin, et une brume noire apparut. Cette brume se mua en dix soldats en armures noires qui se précipitèrent vers Wang Lin.
 
-Wang Lin éclata de rire. Sur ce champ de bataille, le son du massacre emplissait l'univers. Les cris, les rugissements et tous ces bruits divers se mêlaient pour composer la musique la plus spectaculaire au monde!
+Wang Lin esquissa un sourire féroce. Sur ce champ de bataille, le son du massacre emplissait l'univers. Les cris, les rugissements et tous ces bruits divers se mêlaient pour composer la musique la plus spectaculaire au monde!
 
 Devant cette mélodie, le sang bouillonnait. Wang Lin lécha le sang de sa lame et chargea. Bien qu'il portât l'armure d'un soldat ordinaire, il tranchait les soldats ennemis d'un seul coup à chaque mouvement!
 
 Chaque fois qu'il tuait un homme, celui-ci se transformait en un filet de gaz qui venait nourrir Wang Lin. Peu à peu, il fut entouré de filaments de brume noire, lui donnant l'apparence d'un dieu maléfique.
 
-Wang Lin savait que tous ces soldats étaient des simulacres, créés par la loi établie par le Général Tigre Blanc. Ils n'étaient que les pièces de l'échiquier pour ce duel entre les trois protagonistes!
+Wang Lin savait que tous ces soldats étaient des simulacres, créés par la loi établie par le Général Tigre Blanc. Ils n'étaient que l'échiquier de ce duel entre les trois protagonistes!
 
-Tuer, tuer et encore tuer! Wang Lin chargea, agrippa sa lame de fer et balaya les soldats qui lui faisaient face. Dans un rugissement, il bondit par-dessus un combattant et utilisa la force de sa chute pour écraser le premier soldat en armure noire!
+Tuer, tuer et encore tuer! Wang Lin chargea, agrippa sa lame d'une poigne de fer et balaya les soldats qui lui faisaient face. Dans un rugissement, il bondit en prenant appui sur la tête d'un combattant et utilisa la force de sa chute pour écraser le premier soldat en armure noire!
 
 Le soldat noir, terrifié, leva les yeux. Pour lui, la lune de sang semblait suspendue derrière Wang Lin, comme si ce dernier avait remplacé la lune elle-même!
 
@@ -76,7 +76,7 @@ L'homme en armure noire leva précipitamment son bouclier pour parer la lame ter
 
 La lame jaillit et un cri déchirant résonna. Ce bruit fit sursauter tous les témoins alentour. La lame de Wang Lin fendit le bouclier, le pulvérisant, avant de trancher le soldat en armure noire en deux!
 
-Une immense quantité de gaz noir s'échappa du cadavre pour se rassembler autour de Wang Lin. Après avoir massacré cent hommes et l'un des soldats créés par le Général Tigre Blanc, la brume noire entourant Wang Lin était devenue monstrueuse.
+Une immense quantité de gaz noir s'échappa du cadavre pour se rassembler autour de Wang Lin. Après avoir massacré près d'une centaine d'hommes et l'un des soldats créés par le Général Tigre Blanc, la brume noire entourant Wang Lin était devenue dense, comme une flamme noire.
 
 C'est alors que des craquements retentirent. Le gaz noir se condensa autour de lui pour former une armure sombre. Contrastant avec ses cheveux blancs, le spectacle était saisissant!
 

@@ -19,19 +19,19 @@ Le sens divin de Wang Lin continua de fouiller l'esprit de Sima Yan. Les souveni
 
 Six mois après son départ, Treize et Hu Pao eurent une dispute. Hu Pao décida de ne plus attendre et retourna à la tribu, tandis que Treize était déterminé à rester ici pour attendre Wang Lin.
 
-Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, gaspilla sa culture avant de le jeter dans la Prison Obscure. Trois mois plus tard, Hu Pao disparut mystérieusement!
+Finalement, Hu Pao partit, mais sa fuite fut un échec. Sima Yan l'attrapa facilement et, sous prétexte d'une violation des règlements militaires, gaspilla sa culture avant de le jeter dans la Prison des Ténèbres. Trois mois plus tard, Hu Pao disparut mystérieusement!
 
-La Prison Obscure était si bien gardée que même Sima Yan ignorait comment Hu Pao avait pu disparaître.
+La Prison des Ténèbres était si bien gardée que même Sima Yan ignorait comment Hu Pao avait pu disparaître.
 
 Quant à Treize, il tenta d'aider Hu Pao, mais finit par ne pas être de taille face à Sima Yan. Ce dernier broya tous les méridiens et les os de Treize, s'apprêtant à le jeter au cachot pour qu'il meure comme Hu Pao. Cependant, le commandant en chef fut témoin de la scène et emmena Treize.
 
 Ces divers souvenirs traversèrent le regard de Wang Lin. Ses yeux devinrent encore plus froids alors qu'il laissait échapper un rire furieux et répéta trois fois le mot: « Bien! »
 
-La froideur dans son regard s'intensifia tandis qu'il fixait les yeux exorbités de Sima Yan. Il activa l'art du massacre céleste, et le corps de Sima Yan commença immédiatement à dépérir.
+La froideur dans son regard s'intensifia tandis qu'il fixait les yeux exorbités de Sima Yan. Il activa l'Art du Massacre Céleste, et le corps de Sima Yan commença immédiatement à dépérir.
 
 Après quelques respirations, le corps de Sima Yan explosa dans un fracas retentissant, projetant des lambeaux de chair tout autour. Des brins de gaz gris s'échappèrent de certains morceaux de chair pour se rassembler entre les doigts de Wang Lin.
 
-L'art du massacre céleste était extrêmement difficile à maîtriser, mais cette fois, dans un accès de colère, Wang Lin réussit à raffiner un sceau de vie à partir de Sima Yan en un instant.
+L'Art du Massacre Céleste était extrêmement difficile à maîtriser, mais cette fois, dans un accès de colère, Wang Lin réussit à raffiner un sceau de vie à partir de Sima Yan en un instant.
 
 Après avoir tué Sima Yan, Wang Lin tourna son regard vers l'homme costaud qui se tenait non loin de lui. D'après les souvenirs de Sima Yan, c'était lui qui avait emmené Treize, alors qu'il était au bord de la mort!
 
@@ -49,9 +49,9 @@ L'homme costaud avait lancé ces paroles dans un moment de désespoir. Ayant ét
 
 Levant la tête, il regarda la fumée verte que Wang Lin était devenu à l'horizon. Il hésita un instant et dit: « Il y a six mois, le général démon est entré en culture de méditation et a verrouillé tous les tableaux de transfert. Si tu veux entrer, la seule façon est de forcer le passage! » Il porta la main à sa poitrine en s'éloignant. Gravement blessé, il devait retourner à son palais pour se rétablir.
 
-Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité Démoniaque menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'autre côté et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
+Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il déploya son sens divin pour balayer la zone. Tous les tableaux de transfert à l'intérieur de la Cité du Démon Antique menant au palais du général démon étaient fermés. Ces tableaux avaient été verrouillés de l'autre côté et n'avaient rien à voir avec le mécanisme des tableaux eux-mêmes. À moins que le général démon ne les ouvre lui-même, il était impossible de les utiliser.
 
-« Treize et Hu Pao ont été amenés dans cette Cité Démoniaque par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
+« Treize et Hu Pao ont été amenés dans cette Cité du Démon Antique par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
 « Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au Pays du Démon Céleste pour eux signifie défier ces deux puissances!
 
@@ -139,7 +139,7 @@ Le pouce de Wang Lin percuta le python d'énergie spirituelle démoniaque. Wang 
 
 Wang Lin fit un pas et franchit directement la quatrième porte. Outre les innombrables soldats démons devant lui, il y avait aussi un vieil homme aux cheveux blancs!
 
-Wang Lin n'était pas étranger à cet homme. C'était celui qui était venu au camp militaire avec le majordome il y a plus d'un an!
+Wang Lin n'était pas étranger à cet homme. C'était celui qui était venu au camp militaire avec l'intendant de l'armée il y a plus d'un an!
 
 Le visage du vieil homme était livide et empreint d'incrédulité. Il avait vu Wang Lin il y a plus d'un an, et à l'époque, leurs niveaux de culture étaient approximativement les mêmes. Pourtant, en se revoyant aujourd'hui, le niveau de culture de Wang Lin avait augmenté de façon prodigieuse. S'il n'avait pas puisé dans la puissance des soldats démons, ouvert tous ses sceaux internes et lancé une attaque surprise, Wang Lin n'aurait même pas reculé d'un seul pas!
 
@@ -147,7 +147,7 @@ Wang Lin pénétra dans la zone et utilisa à nouveau le pouvoir du Doigt de la 
 
 « Puisque le Seigneur général démon refuse de me recevoir, ne me blâmez pas si je dois me frayer un chemin dans le sang! » Les yeux de Wang Lin devinrent froids tandis que le gaz gris de massacre apparaissait entre ses doigts et se propageait rapidement.
 
-Ses yeux commencèrent soudainement à briller d'un rouge sinistre, chargés d'une intention meurtrière monstrueuse. À cet instant, Wang Lin utilisa l'art du massacre céleste sans aucune retenue!
+Ses yeux commencèrent soudainement à briller d'un rouge sinistre, chargés d'une intention meurtrière monstrueuse. À cet instant, Wang Lin utilisa l'Art du Massacre Céleste sans aucune retenue!
 
 L'aura de massacre recouvrit les cieux et la terre. Wang Lin ne combattit pas le python, mais plongea au cœur de la légion de soldats démons. À chaque mouvement de sa main, un sort jaillissait et des soldats démons périssaient.
 
@@ -161,7 +161,7 @@ Face à cette marée de soldats, Wang Lin comprit qu'un homme seul n'avait pas a
 
 Il pouvait tuer un homme, dix, cent, mille ou dix mille individus. Mais une fois ce massacre achevé, toute son énergie spirituelle céleste serait épuisée!
 
-Ses trésors magiques — l'épée céleste, la lame en croissant, le drapeau des restrictions et les fourreaux d'épée — étaient contrôlés par son sens divin pour orchestrer un carnage incessant. Cependant, comparé à ces trésors, l'art du massacre céleste possédait l'avantage ultime: chaque fois qu'il tuait quelqu'un, il gagnait en puissance. Bien qu'il se puisse qu'aucune victime sur cent ne produise de gaz gris, l'écart se réduisait à mesure que le nombre de morts augmentait.
+Ses trésors magiques — l'épée céleste, la lame en croissant, le drapeau des restrictions et les fourreaux d'épée — étaient contrôlés par son sens divin pour orchestrer un carnage incessant. Cependant, comparé à ces trésors, l'Art du Massacre Céleste possédait l'avantage ultime: chaque fois qu'il tuait quelqu'un, il gagnait en puissance. Bien qu'il se puisse qu'aucune victime sur cent ne produise de gaz gris, l'écart se réduisait à mesure que le nombre de morts augmentait.
 
 Les yeux de Wang Lin étaient injectés d'une intention meurtrière alors qu'il lançait divers sorts.
 
@@ -169,7 +169,7 @@ Toutefois, les soldats démons étaient trop nombreux et, en fusionnant leur én
 
 Wang Lin frappa sa sacoche de rangement et une grande quantité de jades célestes s'en échappa pour graviter autour de lui. Il aspira rapidement toute l'énergie des jades pour restaurer sa propre énergie spirituelle céleste; ce cycle se répéta, consommant une quantité massive de ressources.
 
-« Doigt démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le doigt de la mort, et, dans un rayon de 330 mètres, l'énergie perça les soldats démons, faisant exploser leurs corps.
+« Doigt Démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le roi des enfers venu réclamer des vies, et, dans un rayon de 330 mètres, l'énergie perça les soldats démons, faisant exploser leurs corps.
 
 Des éclats de lumière rouge sang couvrent le ciel et la terre. Wang Lin s'élança, ouvrant une voie à travers des dizaines de milliers de soldats pour charger directement vers la troisième porte.
 
@@ -191,7 +191,7 @@ Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus pui
 
 « Si j'avais dix millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 
-« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
+« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, de grands généraux démons et des généraux démons. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
 
 Wang Lin soupira face à cette armée et aux cinq anciens dont la puissance égalait celle de cultivateurs au stade avancé de la Transformation de l'Âme. Il leva alors son petit doigt droit et traça lentement un cercle!
 

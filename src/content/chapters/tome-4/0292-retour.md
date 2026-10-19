@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 292 - Return
 slug: retour
 ---
-Le soleil était haut dans le ciel. Sun Wen, vêtu d'une robe bleue, les mains derrière le dos, trônait sur un siège de dragon qui flottait dans les airs. À ses côtés se tenaient deux magnifiques jeunes filles: l'une lui offrait de l'ombre sous un grand parasol, tandis que l'autre tenait un bol en porcelaine bleue contenant une soupe de prunes glacée.
+Le soleil était haut dans le ciel. Sun Wen, vêtu d'une robe bleue, les mains derrière le dos, trônait sur un siège de dragon qui flottait dans les airs. À ses côtés se tenaient deux magnifiques jeunes filles: l'une lui offrait de l'ombre sous un grand parasol, tandis que l'autre tenait un bol en porcelaine céladon contenant une soupe de prunes glacée.
 
 Au sol, d'innombrables cultivateurs de ce pays attendaient, concentrés, l'ouverture du champ de bataille étranger.
 

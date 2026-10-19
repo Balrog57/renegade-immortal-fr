@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 358 - Situ Nan
 slug: situ-nan
 ---
-« Le Pays de Xue Yu... » Wang Lin sortit calmement de la vallée et vit un jeune homme vêtu de bleu l'attendre à l'extérieur. Bien qu'il ne fût pas beau, sa robe bleue lui donnait un air glacial.
+« Le Pays de Xue Yu... » Wang Lin sortit calmement de la vallée et vit un jeune homme vêtu de bleu l'attendre à l'extérieur. Bien que son apparence fût ordinaire, sa robe bleue lui donnait un air glacial.
 
 Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de 330 mètres, une brise froide capable d'emporter toute chaleur.
 

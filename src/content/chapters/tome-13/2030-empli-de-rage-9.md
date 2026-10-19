@@ -40,7 +40,7 @@ S'il réprimait encore cette intention meurtrière, c'était pour Xuan Luo... Ca
 
 « Oh? Dis-moi donc ce que tu comptes échanger. » L'Empereur du Dao Antique sourit.
 
-Wang Lin regarda Song Zhi, puis sa main droite plongea dans le vide pour en extraire une âme. Les yeux de cette âme étaient clos, mais elle émettait une lumière dorée. Cette lumière était impure et l'âme semblait souffrir.
+Wang Lin regarda Song Zhi, puis sa main droite plongea dans le vide pour en extraire une âme. Les yeux de cette âme étaient clos, mais elle émettait une lumière dorée d'une ampleur démesurée. Cette lumière était impure et l'âme semblait souffrir.
 
 « L'âme de l'Empereur Céleste du clan céleste est-elle suffisante...? » demanda Wang Lin en fixant l'Empereur du Dao Antique.
 
@@ -98,7 +98,7 @@ Même l'Empereur du Dao Antique pâlit et cracha une bouchée de sang. Il leva l
 
 « Xuan Luo, oses-tu me blesser? N'as-tu pas peur de la colère du Grand Empyréen Gu Dao?! »
 
-« Ye Dao, lève cette restriction. Tu peux prendre la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste. Ce vieil homme fera comme si de rien n'était. Mais si tu refuses, alors ce vieil homme se battra contre le Grand Empyréen Gu Dao pour te tuer aujourd'hui! » Le cœur de Xuan Luo était déchiré. Il regarda l'expression presque suppliante et le visage livide de Wang Lin. Son cœur ne pouvait le supporter.
+« Ye Dao, lève cette restriction. Tu peux prendre la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste. Ce vieil homme fera comme si de rien n'était. Mais si tu refuses, alors ce vieil homme, quitte à subir la punition du Grand Empyréen Gu Dao, te tuera aujourd'hui! » Le cœur de Xuan Luo était déchiré. Il regarda l'expression presque suppliante et le visage livide de Wang Lin. Son cœur ne pouvait le supporter.
 
 Il comprenait que Wang Lin n'agissait ainsi que pour lui. Son disciple ne voulait pas lui compliquer la tâche et ne voulait pas le décevoir, alors il endurait tout cela en silence.
 

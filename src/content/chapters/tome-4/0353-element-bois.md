@@ -57,17 +57,17 @@ Wang Lin ressentait une profonde amertume. Il savait que si cette poursuite se p
 
 Il effleura son sac de rangement. À l'intérieur se trouvait une tablette de jade que le Grand Ancien de la Secte des Cadavres lui avait offerte; elle permettait de le faire venir en renfort une fois, pour sauver une vie. Cependant, il ignorait où il se trouvait actuellement; comment pourrait-il appeler le Grand Ancien à sa rescousse?
 
-Après une réflexion, son regard devint glacial. Au cours de ses 500 ans de culture, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
+Après une réflexion, son regard devint glacial. Au cours de ses près de 500 ans de culture, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
 
 « Le plus important maintenant est d'éliminer ce tatouage! » Wang Lin se calma et commença à étudier le phénomène.
 
 Il réfléchit: « Ce tatouage provient de la plante située entre mes sourcils. Tous les sauvages possèdent également une plante entre les deux yeux... Puisqu'il s'agit d'une plante, quel que soit le pouvoir du tatouage, il doit impérativement contenir un élément bois! »
 
-Il avait déjà affronté un danger similaire lorsqu'il était au stade de l'Établissement des Fondations, lors de sa rencontre avec l'esprit de feu désolé à Huo Fen. Cet esprit dévorait les cultivateurs pour croître. Au dernier moment, la Perle Défiant le Ciel était apparue pour absorber l'esprit et avait ainsi complété l'exigence de l'élément feu.
+Il avait déjà affronté un danger similaire lorsqu'il était au stade de l'Établissement des Fondations, lors de sa rencontre avec l'esprit de feu désolé à Huo Fen, dans le magma souterrain. Cet esprit dévorait les cultivateurs pour croître. Au dernier moment, la Perle Défiant le Ciel était apparue pour absorber l'esprit et avait ainsi complété l'élément feu.
 
-Fort de cette pensée, Wang Lin décida de tenter sa chance. Il prit une profonde inspiration, pointa son front et s'écria: « Défi au ciel! »
+Fort de cette pensée, Wang Lin décida de tenter sa chance. Il prit une profonde inspiration, pointa son front et murmura: « Défi au ciel! »
 
-Une sphère grise jaillit soudainement de son front. On pouvait distinguer l'image de quelques feuilles sur la perle, mais en dehors de cela, rien ne semblait anormal. En voyant ces feuilles, Wang Lin poussa un rugissement et fit affluer l'énergie spirituelle de son corps pour accélérer encore la boussole stellaire.
+Une sphère grise s'éleva lentement de son front. On pouvait distinguer l'image de quelques feuilles sur la perle, mais en dehors de cela, rien ne semblait anormal. En voyant ces feuilles, Wang Lin lança un cri bref et fit affluer l'énergie spirituelle de son corps pour accélérer encore la boussole stellaire.
 
 Il retira immédiatement son énergie spirituelle. Il savait que le temps était compté et que la boussole pouvait glisser un certain temps par simple inertie. Bien que cette durée fût très courte, c'était sa seule option.
 
@@ -77,9 +77,9 @@ Le vieil homme remarqua aussitôt que Wang Lin avait ralenti. Il eut un reniflem
 
 Les lignes noires se mouvaient mystérieusement sur le corps de Wang Lin. Parfois, elles se rétractaient vers son front, parfois elles s'étendaient davantage. À chaque mouvement des tatouages, le corps de Wang Lin tremblait et la douleur sur son visage s'intensifiait. La plante entre ses sourcils devenait de plus en plus distincte. Une première feuille s'ouvrit, et une seconde était sur le point de le faire.
 
-Wang Lin ouvrit brusquement les yeux; l'étincelle de clarté qui subsistait dans son regard disparut lentement. Il poussa un cri et fixa la Perle Défiant le Ciel. La clarté de ses yeux oscillait, disparaissant puis revenant soudainement. Ce cycle se répéta jusqu'à ce que Wang Lin soit trempé de sueur.
+Wang Lin ouvrit brusquement les yeux; une lueur de folie passa dans son regard, et l'étincelle de clarté qui subsistait s'éteignit rapidement. Il poussa un cri et fixa la Perle Défiant le Ciel. La clarté de ses yeux oscillait, disparaissant puis revenant soudainement. Ce cycle se répéta jusqu'à ce que Wang Lin soit trempé de sueur.
 
-Il pariait que, bien que la plante fût issue du pouvoir des tatouages, elle contenait une trace d'élément bois. Et tant qu'il y aurait du bois, la Perle Défiant le Ciel pourrait l'absorber! S'il échouait, il utiliserait alors toute sa force pour supprimer les tatouages.
+Il pariait que, bien que la plante fût issue du pouvoir des tatouages, elle contenait une trace d'élément bois. Et si c'était de l'élément bois, la Perle Défiant le Ciel pourrait l'absorber! S'il échouait, il utiliserait alors toute sa force pour supprimer les tatouages.
 
 Le vieil homme sembla percevoir quelque chose et laissa échapper un ricanement tout en poursuivant sa course. Il était certain que quiconque n'était pas au moins un royaume au-dessus de lui ne pourrait jamais extraire la graine.
 
@@ -97,4 +97,4 @@ Le temps passa lentement. Wang Lin avait perdu toute notion du temps, chaque ins
 
 Cependant, ce qui réjouissait Wang Lin, c'était que le vieil homme ralentissait progressivement. Si cela continuait, il ne lui faudrait pas longtemps pour perdre définitivement sa trace.
 
-« Une fois les pilules épuisées, j'aurai encore des pierres spirituelles de qualité supérieure. Avec elles, je pourrai tenir jusqu'à ce que ce vieux sac d'os soit totalement exténué », pensa Wang Lin avec un ricanement en regardant en arrière. « Je devrais remercier ce vieux sac d'os. Sans lui, je n'aurais jamais su que la boussole stellaire possédait une technique de mouvement intégrée. » En touchant la boussole, il ne put s'empêcher d'admirer ce trésor.
+« Une fois les pilules épuisées, j'aurai encore des pierres spirituelles de qualité supérieure. Avec elles, je pourrai tenir jusqu'à ce que ce vieux sac d'os soit totalement exténué », pensa Wang Lin avec un ricanement en regardant en arrière. « Je devrais remercier ce vieux sac d'os. Sans lui, je n'aurais jamais su que la boussole stellaire possédait une technique de téléportation intégrée. » En touchant la boussole, il ne put s'empêcher d'admirer ce trésor.

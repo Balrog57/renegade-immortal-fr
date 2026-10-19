@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: Chapter 2067 - Can’t Find Her
 slug: je-ne-peux-pas-la-trouver
 ---
-Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le continent nordique, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
+Pendant que Ji Du et les autres utilisaient le sort secret pour observer la bataille, Wang Lin arriva au clan céleste. Dans le Continent Nord, il contempla ce paysage légèrement familier et fut envahi par l'émotion.
 
-« Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
+« Il y a des centaines d'années, je quittais cet endroit pour me diriger vers le clan Ancien... Me voici de retour. » Wang Lin laissa échapper un soupir tandis que son regard balayait les environs. Son Sens Divin se déploya vers les 72 continents et, un instant plus tard, il couvrait l'intégralité des 72 continents du clan céleste.
 
 À mesure que son Sens Divin s'étendait, un sourire apparut progressivement sur son visage. Avec son niveau de culture précédent, il n'aurait pu utiliser cette méthode pour retrouver ses anciens amis.
 
@@ -20,7 +20,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « Il devrait être Maître Hong Shan... Après sa réincarnation, il est resté le même. »
 
-« Zhou Ru... Cet enfant n'a pas suivi le chemin de la culture. J'ignore combien de fois elle a été réincarnée au cours de ces centaines d'années... » Wang Lin regardait au loin d'un regard empreint de tendresse.
+« Zhou Ru... Cet enfant n'a pas suivi le chemin de la culture. J'ignore combien de fois elle a été réincarnée au cours de ces centaines d'années, presque un millénaire... » Wang Lin regardait au loin d'un regard empreint de tendresse.
 
 « Treize... Il a toujours été excellent, et voilà que sa culture est désormais extraordinaire. À en juger, il progresse très rapidement... »
 
@@ -36,7 +36,7 @@ Le sourire de Wang Lin s'élargit, comme s'il venait de distinguer quelque chose
 
 « Si la marque du Senior Frère Qing Shui avait totalement disparu, même en balayant tout le monde avec mon Sens Divin, je ne pourrais pas le trouver... Heureusement, une trace de sa marque subsiste encore. »
 
-Wang Lin murmura tandis que son Sens Divin continuait de sonder les 72 continents du clan céleste. Il avait procédé de la même manière dans le clan ancien, mais il n'y avait trouvé aucune trace de ses amis.
+Wang Lin murmura tandis que son Sens Divin continuait de sonder les 72 continents du clan céleste. Il avait procédé de la même manière dans le clan Ancien, mais il n'y avait trouvé aucune trace de ses amis.
 
 Dans son cœur, une ombre persistante lui causait un sentiment complexe. Cette ombre était celle d'une femme nommée Li Qianmei.
 
@@ -44,9 +44,9 @@ Dans son cœur, une ombre persistante lui causait un sentiment complexe. Cette o
 
 « Toujours rien... » Wang Lin ne savait plus combien de fois il avait cherché. Il cherchait encore et encore, mais aucune trace de Li Qianmei n'apparaissait.
 
-Tout comme lorsqu'il avait cherché dans le clan ancien, il ne parvenait pas à la trouver...
+Tout comme lorsqu'il avait cherché dans le clan Ancien, il ne parvenait pas à la trouver...
 
-« Comment est-ce possible qu'il n'y ait aucune trace? » Wang Lin ne pouvait rester calme; son Sens Divin explosa. Non seulement il couvrit le clan céleste, mais avec son niveau de culture actuel, il engloba également le vaste bassin et le clan ancien.
+« Comment est-ce possible qu'il n'y ait aucune trace? » Wang Lin ne pouvait rester calme; son Sens Divin explosa. Non seulement il couvrit le clan céleste, mais avec son niveau de culture actuel, il engloba également le vaste bassin et le clan Ancien.
 
 Il chercha sans relâche, son Sens Divin s'étendant à nouveau et encore, mais Li Qianmei restait introuvable.
 
@@ -108,7 +108,7 @@ De nombreuses années s'étaient désormais écoulées, et un lien de maître et
 
 Wang Shi n'en connaissait pas la raison, mais il avait toujours le sentiment que l'homme devant lui n'était pas son véritable maître. Quant à savoir qui il était, il restait perplexe.
 
-« Peu importe. Prépare-toi et descends la montagne dans trois jours. Rends-toi à la Secte Dao Yun pour que je puisse y envoyer les cadeaux de félicitations. » La figure illusoire secoua la tête et disparut.
+« Peu importe. Prépare-toi et descends la montagne dans trois jours. Rends-toi en mon nom à la Secte Dao Yun pour y porter les cadeaux de félicitations. » La figure illusoire secoua la tête et disparut.
 
 Wang Shi acquiesça respectueusement. Une fois la silhouette disparue, ses yeux se remplirent de confusion et, après un long moment, il poussa un soupir. Alors qu'il s'asseyait pour reprendre sa culture, un autre soupir retentit derrière lui.
 

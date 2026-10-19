@@ -12,27 +12,27 @@ Il leva sa main droite et pointa le ciel. Un vortex gigantesque apparut, aspiran
 
 Une étincelle d'intention meurtrière traversa le regard de Wang Lin; sa main droite se serra en un poing et il lança un coup dévastateur!
 
-Un fracas assourdissant retentit et l'âme originelle de l'Ancêtre Sanguin vacilla un instant. Profitant de cette hésitation, Wang Lin utilisa davantage d'énergie originelle céleste pour accélérer le vortex et accroître sa force de succion. L'âme de l'Ancêtre Sanguin poussa un cri de désespoir alors qu'elle était aspirée à nouveau vers l'abîme.
+Un fracas assourdissant retentit et l'âme originelle de l'Ancêtre Sanguin vacilla un instant. Profitant de cette hésitation, Wang Lin utilisa davantage d'énergie originelle céleste pour accélérer le vortex et accroître sa force de succion. L'âme de l'Ancêtre Sanguin, débordant de ressentiment, rugit de fureur avant d'être aspirée de force.
 
-Le vortex parmi les étoiles disparut lentement avant de se contracter en un rayon de lumière qui fut englouti par Wang Lin. Dans les dix-huit couches de l'enfer, une âme supplémentaire venait d'être ajoutée à la treizième couche!
+Le vortex parmi les étoiles disparut lentement avant de se contracter en un rayon de lumière qui fut englouti par Wang Lin. Dans les dix-huit couches de l'enfer de son âme originelle, une âme supplémentaire venait d'être ajoutée à la treizième couche!
 
-Bien que ce fragment d'âme fût destiné à la treizième couche, il en représentait le sommet. C'était Zhou Tian!
+Bien que ce fragment d'âme se trouvât dans la treizième couche, il en était le sommet. C'était Zhou Tian!
 
 Après avoir tué Zhou Tian, Wang Lin lança un regard calme à Xi Zifeng avant de détourner les yeux pour poursuivre sa route. Ta Shan le suivait, et le garçon à la grosse tête ne trouvait plus rien de singulier à tout cela.
 
 Quant à Lei Ji, il suivit rapidement Wang Lin dans l'immensité des étoiles lointaines.
 
-Tandis que Xi Zifeng réfléchissait, elle finit par les suivre également.
+En silence, Xi Zifeng finit par les suivre également.
 
 Au fil de leur progression, Wang Lin commença à méditer.
 
-« La bataille entre l'Alliance et Luotian a atteint son paroxysme. C'est le moment idéal pour accumuler des exploits afin d'apaiser le cœur du Maître Yan Leizi. Je dois gagner davantage de prestige parmi les cultivateurs de Luotian. De cette façon, si je rencontre l'Omniscient ou si Tuo Sen s'échappe de la Terre de l'Ancien Dieu, alors le Maître Yan Leizi sera contraint de m'aider. »
+« La bataille entre l'Alliance et Luotian a atteint son paroxysme. C'est le moment idéal pour accumuler des exploits afin d'apaiser le cœur du Maître Yan Leizi. Je dois gagner davantage de prestige parmi les cultivateurs de Luotian. De cette façon, si je rencontre l'Omniscient et les autres, ou si Tuo Sen s'échappe de la Terre de l'Ancien Dieu, alors le Maître Yan Leizi sera contraint de m'aider. »
 
 Les yeux de Wang Lin s'illuminèrent et il prit une décision. Toutefois, il n'était pas optimiste quant à l'offensive de Luotian contre l'Alliance. Après avoir réfléchi un instant, Wang Lin frappa son sac de rangement, et un petit drapeau apparut.
 
 Un motif de tigre volant ornait ce drapeau. Dès que Wang Lin le leva, le tigre s'en échappa dans un rugissement qui fit trembler les étoiles.
 
-En activant le Drapeau du Tigre Volant et en libérant la créature, Wang Lin venait d'annoncer sa présence. Peu de temps après, tandis qu'il avançait, des dizaines de rayons d'énergie d'épée apparurent au loin. Deux groupes s'affrontaient, et il était évident que le camp de Luotian était en train de perdre.
+En activant le Drapeau du Tigre Volant et en libérant la créature, Wang Lin venait d'annoncer sa présence. Peu de temps après, tandis qu'il avançait, plus d'une dizaine de rayons d'énergie d'épée apparurent au loin. Deux groupes s'affrontaient, et il était évident que le camp de Luotian était en train de perdre.
 
 L'autre faction était empreinte d'une intention meurtrière et multipliait les sorts. En l'espace de quelques respirations seulement, un cultivateur de Luotian venait de périr!
 
@@ -42,9 +42,9 @@ C'est à ce moment précis qu'un rugissement de tigre retentit au loin et qu'un 
 
 « Le Céleste du Tonnerre, Xu Mu! »
 
-« C'est le Céleste du Tonnerre, Xu Mu! »
+« C'est le véritable Céleste du Tonnerre, Xu Mu! »
 
-Les cultivateurs de l'Alliance avaient reçu des informations de la part de leurs Anciens. L'un d'eux avait apparemment eu vent de l'existence de Xu Mu.
+Les cultivateurs de l'Alliance avaient reçu des informations de la part de leurs Anciens. L'un d'eux, un vieillard, avait manifestement vu le nom de Xu Mu dans ces documents.
 
 L'expression de l'homme changea et une lueur de froideur apparut dans ses yeux. Il recula sans hésiter et cria: « Ce Xu Mu est un cultivateur du Scruteur du Nirvana. Nous ne sommes pas de taille. Retraite rapide! »
 
@@ -70,7 +70,7 @@ L'effondrement de la région occidentale avait plongé la grande majorité des c
 
 Parallèlement, l'apparition des cultivateurs de l'Alliance aggravait la situation pour Luotian! À présent, le Drapeau du Tigre Volant de Wang Lin était devenu leur unique point d'ancrage moral!
 
-Les rugissements du Tigre Volant faisaient vibrer les esprits des membres de Luotian!
+Les rugissements du Tigre Volant ravivaient le moral des cultivateurs de Luotian!
 
 L'attitude de Wang Lin changea également. Désormais, s'il rencontrait deux camps en plein combat, il attaquait immédiatement. Une masse considérable de cultivateurs de Luotian se rassembla autour de lui.
 
@@ -78,7 +78,7 @@ Ces hommes formaient une force redoutable. La plupart du temps, Wang Lin n'avait
 
 De plus en plus de combattants rejoignaient les rangs de Wang Lin. Les énergies d'épée sous leurs pieds leur donnaient l'apparence d'une épée gigantesque transperçant la région occidentale!
 
-Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Céleste du Tonnerre, les 108 autres cieux et certaines familles de culture faisaient de même.
+Le groupe de Wang Lin n'était pas le seul dans cette région. Les messagers du Temple Céleste du Tonnerre, les 108 Célestes et certaines familles de culture faisaient de même.
 
 Cependant, l'équipe menée par Wang Lin était la plus imposante!
 
@@ -92,7 +92,7 @@ Une aura capable de bouleverser l'esprit émanait de ces ondes. Même les lueurs
 
 Wang Lin plissa les yeux et déploya son Sens Divin. Malgré sa puissance mentale, il ne put s'empêcher d'être frappé de stupeur.
 
-Des grondements assourdissants retentirent. Au loin, un morceau de bois gigantesque, long de 100 000 pieds et large de 10 000 pieds, transportant une force capable de terrasser n'importe quel cultivateur ordinaire, s'élançait avec une puissance inimaginable.
+Des grondements assourdissants retentirent. Au loin, un morceau de bois gigantesque, long de 100 000 pieds et large de 10 000 pieds, dans un sifflement violent capable d'ébranler l'âme de n'importe quel cultivateur ordinaire, s'élançait avec une puissance inimaginable.
 
 D'innombrables cultivateurs de Luotian entouraient ce bois colossal, dégageant une intention meurtrière puissante. Ce qui choqua Wang Lin, c'est l'odeur de sang si dense qu'il pouvait percevoir, même à cette distance.
 

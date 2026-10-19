@@ -22,7 +22,7 @@ Les sept autres affichèrent des expressions d'exaltation.
 
 En revanche, les membres de la famille Wang arborèrent des expressions étranges; seuls quelques-uns manifestèrent leur excitation.
 
-À ce moment précis, la masse de brume noire qui émanait du vieil homme fusionna pour former un gigantesque python de plusieurs centaines de pieds de long. Il poussa un rugissement et chargea vers Wang Lin.
+À ce moment précis, la masse de brume noire qui émanait des huit vieillards fusionna pour former un gigantesque python de plusieurs centaines de pieds de long. Il poussa un rugissement et chargea vers Wang Lin.
 
 Cette fois, Ta Shan fit directement un pas en avant et décocha un coup de poing droit. Un bruit fracassant retentit et le python s'effondra instantanément. Ta Shan retira son poing et se replia derrière Wang Lin, conservant une expression glaciale du début à la fin.
 
@@ -30,7 +30,7 @@ Une intention meurtrière traversa les yeux de Wang Lin. Il leva la main droite 
 
 Le torse de cet homme était nu et ses longs cheveux flottaient au vent. Ses pupilles se rétractèrent lorsqu'il aperçut Wang Lin suspendu dans les airs.
 
-« Tu oses invoquer des esprits vengeurs parmi les descendants de ma famille Wang? Meurs! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
+« Tu oses nourrir des esprits vengeurs parmi les descendants de ma famille Wang? Meurs! » La voix de Wang Lin était d'une froideur absolue tandis qu'il avançait. Des éclairs jaillirent de son bras droit et foncèrent sur l'homme.
 
 L'expression de l'homme changea radicalement. Il pensait s'être parfaitement dissimulé, mais il avait été découvert et tentait désormais de battre en retraite. Son niveau de culture était bien supérieur à celui de quiconque sur la planète Suzaku; il se trouvait au stade de l'Yin Illusoire. Pourtant, à cet instant, son cœur trembla. Il jeta un regard vers la salle, vers la femme en robe colorée qui se tenait aux côtés de l'homme d'âge mûr.
 
@@ -44,7 +44,7 @@ Quant à la femme en robe colorée, elle fut également surprise, mais son expre
 
 Ce doigt, chargé de la puissance du tonnerre, s'abattit en plein milieu du dos de la femme!
 
-Le corps de la femme trembla violemment et elle cracha une large bouffée de sang. Un python gigantesque s'enroulait au-dessus de sa tête, mais dès son apparition, il s'effondra, laissant la femme livide. Alors que le tonnerre était sur le point de détruire son corps et son âme originelle, un cri perçant de phénix retentit. Un phénix aux cinq couleurs apparut et intercepta le tonnerre de Wang Lin pour la protéger.
+Le corps de la femme trembla violemment, entouré d'une lumière aux cinq couleurs, et elle cracha une large bouffée de sang. Un python gigantesque s'enroulait au-dessus de sa tête, mais dès son apparition, il s'effondra, laissant la femme livide. Alors que le tonnerre était sur le point de détruire son corps et son âme originelle, un cri perçant de phénix retentit. Un phénix aux cinq couleurs apparut et intercepta le tonnerre de Wang Lin pour la protéger.
 
 Elle recula pour lancer un sortilège, mais Wang Lin fut encore une fois plus rapide qu'elle. Il réapparut à ses côtés et son doigt chargé d'éclairs descendit à nouveau.
 
@@ -68,7 +68,7 @@ De nombreux membres de la famille Wang étaient présents ici, et Wang Lin vit q
 
 Autrement, dès l'apparition de Wang Lin, il l'aurait tuée immédiatement au lieu de forcer celui qui se cachait sous terre à sortir et d'attaquer alors qu'elle était distraite.
 
-À l'instant même de sa mort, une partie des membres de la famille Wang cracha du sang. Puis leurs yeux s'obscurcirent et ils rendirent l'âme.
+À l'instant même de sa mort, un peu moins de la moitié des membres de la famille Wang cracha du sang. Puis leurs yeux s'obscurcirent et ils rendirent l'âme.
 
 La brume noire disparut du reste des membres de la famille Wang, qui retrouvèrent leur lucidité. Ils regardèrent Wang Lin avec exaltation avant de s'agenouiller, empreints de honte.
 
@@ -92,13 +92,13 @@ Une fois les choses réglées, le Sens Divin de Wang Lin se projeta aux alentour
 
 « Planète Feng Luan, Secte des Cadavres... Vous osez songer à nuire aux descendants de ma famille Wang? Ne me reprochez pas mon absence de pitié! » Les yeux de Wang Lin étaient saturés d'intention meurtrière. Cette fois, il était véritablement furieux!
 
-Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi une membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
+Grâce aux souvenirs de la femme, Wang Lin savait qu'elle était bel et bien l'un des sept phénix. Cependant, elle était aussi un membre de la Secte des Cadavres envoyée ici pour occuper le poste de Grand Ancien. Elle avait le même rang que Sun Tai, mais son niveau de culture était bien plus élevé.
 
 La Secte des Cadavres. Wang Lin avait appris certains secrets sur elle par Sun Tai avant sa mort. L'une de leurs tâches consistait à collecter le ressentiment pour nourrir les esprits vengeurs.
 
 D'après les souvenirs de la femme, Wang Lin comprit que dans la Grande Dynastie Wang, presque chaque ville abritait des membres de la Secte des Cadavres. C'était comme un immense filet jeté sur la dynastie, engendrant et récoltant constamment du ressentiment pour nourrir ces esprits.
 
-Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang; il allait déraciner la Secte des Cadavres de la planète Suzaku. Et en raison de ce qui était arrivé à ses descendants, il allait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
+Ce que Wang Lin allait faire, c'était d'anéantir ces gens. Mais il ne s'arrêterait pas à la Grande Dynastie Wang; il allait déraciner la Secte des Cadavres de la planète Suzaku. Et même sans ce qui était arrivé à ses descendants, il comptait rendre visite à la Secte elle-même. Ce cadavre géant et ce faible Sens Divin étaient autant de choses qui attisaient sa curiosité.
 
 Il ignorait simplement si ce corps de Démon Géant subsistait encore après des centaines d'années.
 
@@ -108,6 +108,6 @@ Au loin, le garçon à la grosse tête revint, tenant une personne dans sa main.
 
 Ta Shan le suivit rapidement.
 
-Le cultivateur à la grosse tête se lécha les lèvres et serra le poing droit. La tête de la victime fut broyée, et le garçon, tenant l'âme originelle, partit à la suite de Wang Lin.
+Le cultivateur à la grosse tête se lécha les lèvres et serra le poing droit. Le corps de la victime éclata dans un bruit sourd, et le garçon, tenant l'âme originelle, partit à la suite de Wang Lin.
 
 Un changement titanesque était en train de s'opérer sur la planète Suzaku avec le retour de Wang Lin.

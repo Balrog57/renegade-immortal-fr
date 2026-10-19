@@ -12,9 +12,9 @@ Il semblait qu'aucune force en ce monde ne puisse résister aux cent coups de po
 
 Ces cent coups contenaient la vitalité infinie de Wang Lin, ses deux mille ans de culture, toute son énergie originelle et toute la puissance issue du sang mystérieux de l'épée de fer!
 
-C'était l'apogée de la vie de Wang Lin. C'était l'attaque la plus puissante qu'il ait jamais lancée, avec l'intention même de mourir. Ces cent coups étaient Wang Lin lui-même. Tel un papillon de nuit se jetant dans les flammes, ces coups chargeaient vers le Shui Daozi!
+C'était l'apogée de la vie de Wang Lin. C'était l'attaque la plus puissante qu'il ait jamais lancée, avec l'intention même de mourir. Ces cent coups étaient Wang Lin lui-même. Tel un papillon de nuit se jetant dans les flammes, ces coups chargeaient vers le Shui Daozi dans un élan qui ébranlait ciel et terre!
 
-Un papillon de nuit fonçant sur la flamme pour l'éteindre! Utilisant son propre corps pour consumer cette flamme antique!
+Un papillon de nuit fonçant sur la flamme pour l'éteindre! Utilisant son propre corps pour éteindre cette flamme antique!
 
 Les yeux du Shui Daozi devinrent graves, empreints d'incrédulité. Il ne pouvait croire ce qu'il voyait. La fourmi devant lui avait réussi à porter cent coups en utilisant sa vitalité!
 
@@ -30,7 +30,7 @@ Les yeux du Shui Daozi s'illuminèrent; ses mains formèrent un sceau et il poin
 
 Des tonnerres résonnèrent. Ces fracas incessants faillirent provoquer l'effondrement de la région de rang 6. La brume stellaire disparut, comme si un gouffre géant s'était ouvert au sein de celle-ci!
 
-Alors que le rugissement grondait, le corps entier de Wang Lin fut couvert de sang. Son cœur battit faiblement avant de se briser soudainement. La lumière vacilla dans ses yeux.
+Alors que le rugissement grondait, Wang Lin avait déjà perdu tout son sang. Son cœur battit faiblement avant de se briser soudainement, et il fut projeté en arrière. La lumière vacilla dans ses yeux.
 
 L'effondrement provoqué par les cent coups était assez puissant pour tout détruire. Même un être au stade du Fléau Céleste en mourrait! L'onde de choc se propagea dans toutes les directions, balayant la Mer des Nuages!
 
@@ -62,7 +62,7 @@ Une fois frappé par cela, Wang Lin serait détruit cent fois, sans aucune chanc
 
 Il scruta soudainement le vide, l'expression sombre.
 
-« Vieux compagnon, tu veux m'arrêter? Tu as été scellé dans une pierre par le Royaume Céleste Antique. Ils t'ont emprisonné pendant cent mille ans pour te raffiner en trésor magique. Actuellement, tu ne fais que survivre en empruntant la puissance du système stellaire extérieur aux bêtes-moustiques, et pourtant tu veux intervenir? Tu veux m'empêcher de faire? De quelle légitimité disposes-tu pour m'arrêter? » Le Shui Daozi laissa échapper un renâclement froid. Sans plus hésiter, sa main droite s'abattit sur Wang Lin.
+« Vieux fou, tu veux m'arrêter? Tu as été scellé dans une pierre par le Royaume Céleste Antique. Ils t'ont emprisonné pendant cent mille ans pour te raffiner en trésor magique. Actuellement, tu ne fais que survivre en empruntant la puissance du système stellaire extérieur aux bêtes-moustiques, et pourtant tu veux intervenir? Tu veux m'empêcher de faire? De quelle légitimité disposes-tu pour m'arrêter? » Le Shui Daozi laissa échapper un renâclement froid. Sans plus hésiter, sa main droite s'abattit sur Wang Lin.
 
 Cependant, à cet instant même, le vent se mua en une main gigantesque qui s'élança vers le cycle de réincarnation!
 
@@ -80,7 +80,7 @@ Les pupilles du Shui Daozi se rétractèrent violemment tandis qu'il s'exclamait
 
 « Tu as fait preuve de perspicacité! » La voix antique laissa échapper un ricanement froid alors que la main de vent tendait vers le Shui Daozi.
 
-Le Shui Daozi poussa un cri et, ses mains formant un sceau, il pointa sa poitrine. Sa culture explosa soudainement et une planète de culture gigantesque apparut derrière lui!
+Le Shui Daozi poussa un cri, recula aussitôt et, ses mains formant un sceau, pointa sa poitrine. Sa culture explosa soudainement et une planète de culture gigantesque apparut derrière lui!
 
 Cette planète de culture regorgeait d'une énergie originelle dense et dégageait une vitalité puissante. Une vitalité suffisante pour égaler celle d'un Dieu Ancien de rang 5!
 

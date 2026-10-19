@@ -58,7 +58,7 @@ Après avoir atterri, Wang Lin recula de quelques pas, le regard empreint de ter
 
 « Ce n'est pas de l'énergie originelle formée naturellement; elle provient d'un sort lancé par quelqu'un. Quelqu'un ne veut pas que je parte! » Les yeux de Wang Lin devinrent froids.
 
-Bien qu'il fût blessé lors de son impact, il avait une idée assez précise de son environnement. Bien que le sol fût plus dur que la normale, cela n'aurait pas dû empêcher les sorts de traverser la terre. Cependant, la nature même de cette terre avait été modifiée, ce qui choqua immédiatement Wang Lin.
+Bien qu'il fût blessé lors de son impact, il avait tout de même perçu quelques éléments de son environnement. Bien que le sol fût plus dur que la normale, cela n'aurait pas dû empêcher les sorts de traverser la terre. Cependant, la nature même de cette terre avait été modifiée, ce qui choqua immédiatement Wang Lin.
 
 « Est-ce l'œuvre d'un sort ou un changement dû à la violence du tonnerre céleste...? » Wang Lin réfléchit un instant et, d'une simple pensée, le gardien céleste s'élança. Il tenta de percer la terre en plusieurs points.
 

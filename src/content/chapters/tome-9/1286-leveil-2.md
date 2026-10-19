@@ -80,7 +80,7 @@ Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontr�
 
 L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'était la première fois qu'il apprenait ce qui s'était réellement passé pour Li Qianmei au sein de la Secte Brise-Ciel.
 
-« Savais-tu que pour te sauver, Li Qianmei a rompu ses liens avec son maître, qui était pour elle comme un père, en échange d'une chance de partir? Elle est alors devenue une errante, sans secte et sans foyer!
+« Savais-tu que pour te sauver, Li Qianmei a rompu ses liens avec son maître, qui était pour elle comme un père, au péril de sa vie, pour obtenir une chance de partir? Elle est alors devenue une errante, sans secte et sans foyer!
 
 « Savais-tu que pour permettre ton éveil, Li Qianmei a couvert ton corps de son propre sang pendant ces dix dernières années? Une fois son sang épuisé, elle a utilisé son sang essentiel, et quand cela ne suffit plus, elle a puisé dans son propre domaine!
 
@@ -90,7 +90,7 @@ L'esprit de Wang Lin vacilla. Il était au courant de la situation, mais c'étai
 
 « Savais-tu qu'en dix ans, elle n'a pas seulement utilisé son sang, mais aussi sa vitalité, son être tout entier? Elle a consommé sa propre vie pour te couvrir de sang, devenant ainsi extrêmement faible!
 
-« Savais-tu que lorsque son domaine ne fut plus suffisant, elle s'est rendue à la Secte Démon? Puis, à un prix que j'ignore, elle a récupéré son sang d'âme et a supplié cette vieille femme de te l'apporter!
+« Savais-tu que lorsque son domaine ne fut plus suffisant, elle s'est rendue à la Secte Démon? Puis, à un prix que j'ignore, elle a récupéré son sang d'âme et a chargé cette vieille femme de te l'apporter!
 
 « Savais-tu que même en partant, elle a laissé son jade d'âme pour nourrir ton corps? Tout cela, tu l'ignores? Tu l'ignores vraiment??? »
 
@@ -102,7 +102,7 @@ Il baissa la tête vers le jade autour de son cou. Sa lueur était très faible,
 
 « Sais-tu où elle se trouve en ce moment? » La voix de la vieille femme était empreinte de chagrin.
 
-« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Démon pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa sœur aînée et si elle ne m'avait pas forcée à tout lui arracher à la Secte Démon, moi non plus je ne le saurais pas... »
+« Tu ne le sais pas... tu ne peux imaginer les conditions qu'elle a acceptées à la Secte Démon pour récupérer son sang d'âme. Comment pourrais-tu le savoir? Si je n'avais pas vu grandir cette enfant, si je n'étais pas sa sœur aînée et si je ne l'avais pas forcée à tout me dire à la Secte Démon, moi non plus je ne le saurais pas... »
 
 Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle...? »
 

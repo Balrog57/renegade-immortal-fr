@@ -116,7 +116,7 @@ Le regard de Wang Lin se fit plus froid encore et son Doigt de la Mort percuta l
 
 L'écart entre un cultivateur au sommet du stade avancé de la Transformation de l'Âme et un cultivateur ordinaire de ce même stade était un gouffre infranchissable! Sans parler de la puissance phénoménale de son sort, la force du doigt approchait celle d'un cultivateur Ascendant!
 
-Le corps de la tortue noire vola en éclats et l'armure du colosse se brisa. Il cracha une bouchée de sang avant d'être projeté en arrière, finissant à genoux sur un pied.
+Le corps de la tortue noire vola en éclats et l'armure du colosse se brisa. Il cracha une bouchée de sang avant d'être projeté en arrière, finissant un genou à terre.
 
 « Les sorts démoniaques possèdent bel et bien des pouvoirs extraordinaires! » lança froidement Wang Lin. S'il s'était agi d'un cultivateur classique, son niveau de culture aurait chuté, mais ce ne fut pas le cas pour l'homme. Bien que ses blessures fussent graves, sa fondation était restée intacte!
 

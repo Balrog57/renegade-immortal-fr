@@ -112,6 +112,6 @@ Une onde annulaire se propagea en cercle autour du zombie. Tous les arbres envir
 
 En un éclair, la cloche passa d'un état semi-transparent à une forme plus solide, couverte de motifs anciens.
 
-Lorsque l'onde frappa Teng Li, la cloche trembla violemment. Elle ne tint que quelques secondes avant de se fissurer.
+Lorsque l'onde frappa Teng Li, la cloche trembla violemment. Elle ne tint que quelques secondes avant de se briser.
 
 Profitant du temps gagné par la cloche, Teng Li lança un trésor après l'autre. À mesure que la cloche se brisait, des couches défensives s'érigeaient une à une devant lui.

@@ -18,11 +18,11 @@ Il était impossible de distinguer le visage de chaque cultivateur, mais on pouv
 
 Gloire à la Mer des Nuages!
 
-En cet instant, ces cinq mots prirent vie! Ils devinrent l'aura même de la Mer des Nuages! C'était tragique, mais galvanisant!
+En cet instant, ces quatre caractères prirent vie! Ils devinrent l'aura même de la Mer des Nuages! C'était tragique, mais galvanisant!
 
 Nul ne pouvait rester insensible à cette aura. Même les êtres les plus malveillants et vils, s'il restait en eux une trace d'attachement pour leur terre natale, verraient ce sentiment amplifié à l'infini et leur sang bouillir!
 
-Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la tempête dorée du Shui Daozi ait été dévorée par la Bête des Limbes, empêchant ainsi la destruction de la Formation de Scellement du Royaume, son état d'esprit avait changé à cet instant précis. La guerre avait déjà commencé dans son esprit, et il était prêt à se battre jusqu'à la mort depuis lors!
+Maître Hong Shan arriva dans sa robe rouge, l'expression solennelle. Bien que la tempête dorée du Shui Daozi ait été dévorée par la Bête des Limbes, empêchant ainsi la destruction de la Formation de Scellement du Royaume, il s'était déjà préparé à combattre jusqu'à la mort. La guerre avait déjà commencé dans son esprit!
 
 Bien que la bataille contre le Royaume Extérieur ait soudainement éclaté, Maître Hong Shan n'avait aucune crainte. Il s'avança avec un sourire!
 
@@ -48,7 +48,7 @@ Cette force est très différente de l'énergie spirituelle des cultivateurs du 
 
 En d'autres termes, chaque cultivateur du Vide Spirituel est comme un monde! Ils sont chacun leur propre univers distinct!
 
-Un coup porté par un cultivateur du Vide Spirituel, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait toute sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
+Un coup porté par un cultivateur du Vide Spirituel, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait une part de sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
 
 À cet instant, l'Estimé Nan Zhao sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
 
@@ -94,7 +94,7 @@ Cette pulsion devint de plus en plus forte, atteignant instantanément son parox
 
 Ses cheveux blancs volaient en arrière sous la force du choc. Il n'était plus qu'à moins de 10 000 pieds!
 
-« Je suis un Dieu Ancien, je suis le Dao! » La tête de Wang Lin se redressa brusquement et il agita sa main droite. Le gant du Dieu Ancien apparut. Face à cette crise, Wang Lin choisit d'utiliser ce sort salvateur sans la moindre hésitation!
+« Je suis un Dieu Ancien, je suis le Dao Ancien! » La tête de Wang Lin se redressa brusquement et il agita sa main droite. Le gant du Dieu Ancien apparut. Face à cette crise, Wang Lin choisit d'utiliser ce sort salvateur sans la moindre hésitation!
 
 Alors que des grondements tonitruants résonnaient, un géant Dieu Ancien surgit devant Wang Lin et utilisa son dos pour bloquer la paume qui semblait être l'effondrement même du ciel!
 
@@ -102,13 +102,13 @@ Le ciel s'écroula et la paume descendit. La masse noire percuta le dos du Dieu 
 
 Un fracas de tonnerre retentit violemment lorsque la paume noire frappa le dos du géant. Le dos se brisa, mais sans que chair ni sang ne soient projetés. Le dos du Dieu Ancien continua de s'enfoncer, comme si même lui ne pouvait résister!
 
-« Comment pourrais-je vénérer un être comme toi?! » rugit Wang Lin, le visage empreint d'une fureur sauvage. Le Dieu Ancien qui le portait se retourna soudainement et décocha un coup de poing!
+« Comment pourrais-je vénérer des êtres comme vous?! » rugit Wang Lin, le visage empreint d'une fureur sauvage. Le Dieu Ancien qui le portait se retourna soudainement et décocha un coup de poing!
 
 Un autre fracas tonitruant éclata lorsque le poing du Dieu Ancien entra en collision avec la paume noire. Une onde de choc puissante se propagea, repoussant la paume noire de 100 000 pieds!
 
 Le Dieu Ancien sembla pousser un soupir avant de se dissiper progressivement. Il redevint un gant sur le bras droit de Wang Lin. Un craquement sec retentit et plusieurs nouvelles fissures apparurent sur l'armure!
 
-Alors que le coup du Dieu Ancien avait repoussé la paume sombre, Wang Lin chargea en avant. Il ferma le poing et lança une attaque! Une tête fantomatique apparut et fusionna avec ce coup!
+Alors que le coup du Dieu Ancien avait repoussé la paume sombre, Wang Lin chargea en avant. Il ferma le poing et lança une attaque! La tête fantomatique du Dao Ancien apparut et fusionna avec ce coup!
 
 « Brise pour moi!! » cria Wang Lin. Son corps sembla ne faire qu'un avec ce coup de poing. Un éclair de foudre et des flammes dévorantes jaillirent alors qu'il s'élançait comme une météorite. Il percuta à nouveau la paume sombre!
 

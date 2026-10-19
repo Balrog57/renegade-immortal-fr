@@ -12,7 +12,7 @@ De toutes les rétributions divines qu'il avait subies, c'était la première fo
 
 Les nuages multicolores se rassemblèrent rapidement, dégageant une puissance céleste colossale. Sous cette pression, des craquements sinistres résonnèrent depuis le fragment sous les pieds de Wang Lin.
 
-Les bords du fragment s'effondrèrent à nouveau. Sa taille fluctuait sans cesse, mais plus il rétrécissait, plus sa densité devenait terrifiante.
+Les bords du fragment s'effondrèrent à nouveau. Sa taille fluctuait sans cesse, mais plus il rétrécissait, plus sa solidité devenait terrifiante.
 
 Les yeux de Wang Lin brillèrent intensément tandis qu'une quantité phénoménale d'énergie originelle affluait dans son corps.
 
@@ -78,7 +78,7 @@ Il se mua en une ombre de sang et fonça droit sur Wang Lin au cœur des nuages.
 
 « Ancêtre Sanguin! » ricana Wang Lin en se repliant dans les nuages.
 
-L'Ancêtre Sanguin afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de dragon de tonnerre ancien comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette rétribution divine.
+L'Ancêtre Sanguin afficha une expression sombre à l'extérieur des nuages, serra les dents et chargea. Dès son entrée, il ressentit la puissance écrasante des cieux. Ne possédant pas d'âme originelle de tonnerre comme celle de Wang Lin et sa culture étant grandement affaiblie, il éprouva un profond sentiment de crainte face à cette rétribution divine.
 
 Pourtant, aucun sentiment ne pouvait surpasser son envie irrépressible de tuer Wang Lin. Il laissa échapper un grognement froid et chargea. Un instant plus tard, il vit Wang Lin être frappé par d'innombrables éclairs au sein des nuages.
 
@@ -96,7 +96,7 @@ L'Ancêtre Sanguin laissa échapper un grognement froid et forma un nouveau scea
 
 Les yeux de Wang Lin restaient calmes tandis qu'il se cachait et reculait rapidement dans la brume. Simultanément, il dévorait d'immenses quantités de nuages, forçant d'innombrables éclairs à pénétrer son corps. L'énergie du vieil homme se dissipait rapidement.
 
-L'Ancêtre Sanguin verrouilla sa cible et chargea. Deux sphères de sang se formèrent dans sa main avant qu'il ne fonce droit sur Wang Lin. Il voulait en finir le plus vite possible. Il ressentait un sentiment de crise au sein de ces nuages, et plus la lutte durerait, plus il craignait un imprévu.
+L'Ancêtre Sanguin verrouilla sa cible et chargea. Deux sphères de sang se formèrent, une dans chacune de ses mains, avant qu'il ne fonce droit sur Wang Lin. Il voulait en finir le plus vite possible. Il ressentait un sentiment de crise au sein de ces nuages, et plus la lutte durerait, plus il craignait un imprévu.
 
 S'il n'avait pas été à l'intérieur des nuages de la rétribution divine, l'objectif de l'Ancêtre Sanguin aurait été facile à atteindre, sa culture étant toujours supérieure. Mais dans ce chaos de foudre, tuer Wang Lin deviendrait une tâche ardue!
 

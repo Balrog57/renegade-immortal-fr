@@ -22,7 +22,7 @@ Sa cadence n'était pas rapide, mais chaque pas déclenchait des grondements ton
 
 Wang Lin fronça les sourcils. Il ne souhaitait pas détruire ce bras. Il leva la tête et pointa le membre du doigt.
 
-« Arrête! »
+« Fige-toi! »
 
 Le bras vert géant s'immobilisa net dans les airs.
 

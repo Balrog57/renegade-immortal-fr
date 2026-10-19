@@ -64,7 +64,7 @@ Wang Lin ignora Xu Liguo et saisit la roue du trésor. De son pouce gauche, il p
 
 Soudain, dans une série de craquements, d'innombrables fissures parcoururent la roue. Dans un fracas, le trésor vola en éclats.
 
-Instantanément, une lumière rouge aveuglante jaillit des débris. Un rire cristallin, empreint d'une puissance démoniaque capable de faire trembler les cœurs, émana de cette lueur.
+Instantanément, une lumière rouge aveuglante jaillit des débris. Un rire cristallin, empreint d'une puissance démoniaque capable de faire chavirer les cœurs, émana de cette lueur.
 
 Ce son était imprégné d'un pouvoir mystérieux. La force qui retenait Xu Liguo sembla fondre comme la glace face au soleil brûlant, lui rendant aussitôt sa liberté.
 
@@ -74,7 +74,7 @@ La lumière se mua en une femme extrêmement séduisante. Elle ne portait qu'une
 
 Sur ces mots, elle leva sa main délicate et pointa Xu Liguo du doigt. Son expression était celle d'une femme flirtant avec son amant.
 
-Le regard de Wang Lin se glaça. À l'apparition de cette femme, même son propre cœur fut affecté. Heureusement, il avait cultivé la technique de scellement des âmes, laquelle liait son âme au drapeau aux un milliard d'âmes, lui permettant de reprendre rapidement ses esprits.
+Le regard de Wang Lin se glaça. À l'apparition de cette femme, même son propre cœur fut affecté. Heureusement, il avait cultivé la technique de scellement des âmes, laquelle liait son âme au drapeau d'un milliard d'âmes, lui permettant de reprendre rapidement ses esprits.
 
 Mais cet incident le choqua: s'il s'était laissé distraire ainsi en plein combat, il se serait retrouvé dans une position désastreuse.
 
@@ -110,7 +110,7 @@ L'expression de Wang Lin resta imperturbable. Sans même regarder les fragments 
 
 Ses yeux retrouvèrent leur clarté. Cette fois, c'était sa peur de Wang Lin qui l'emporta sur le charme de la femme.
 
-Il jura intérieurement. Pourquoi avait-il attaqué ce monstre? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan des Démons Géants s'était envolé.
+Il jura intérieurement, le visage défait. Pourquoi avait-il attaqué ce fléau? Bravo, maintenant tout le mérite qu'il avait acquis en tuant l'ancêtre du Clan des Démons Géants s'était envolé.
 
 Plus Xu Liguo y pensait, plus il bouillonnait de rage, et finit par hurler à la femme: « Espèce de coquine, c'est ta faute si tu m'as charmé! »
 

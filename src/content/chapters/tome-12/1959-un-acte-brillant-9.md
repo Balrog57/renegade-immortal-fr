@@ -14,7 +14,7 @@ Cependant, cette attention ne serait plus l'apanage exclusif de l'Ascendant Ming
 
 Désormais, dans l'histoire du clan céleste, le nom de Wang Lin brillerait avec éclat et serait connu de tous ceux qui en étaient dignes!
 
-Dans un avenir proche, il était même probable que le Clan Ancestral entende parler de cela!
+Dans un avenir proche, il était même probable que le clan ancien entende parler de cela!
 
 Le 49e Ascendant du clan céleste. Après être devenu un Ascendant, il avait franchi les 11e et 12e palais et tentait à présent le 13e!
 
@@ -84,7 +84,7 @@ Ce test d'illumination du Dao pouvait être ardu pour d'autres, mais Wang Lin av
 
 « Un seul acte pour entrer dans l'histoire... Je devrais avoir presque atteint ce but. Après le 13e palais, je devrais m'arrêter. Même si les Grands Empyréens savent que je possède l'armure de l'âme, cela devrait suffire. » Wang Lin réfléchit et prit une décision.
 
-Alors que la voix résonnait, l'esprit de Wang Lin était limpide. Il songea à son rêve sur la planète Suzaku et déclara lentement: « La vie et la mort sont des chaînes, voilà le Dao. Les chaînes s'entrelacent pour former un cercle qui est le karma, voilà le Dao! Les êtres possèdent une barrière onirique; ils ne peuvent distinguer l'éveil du rêve. Cette barrière empêche toute vie de percevoir la réalité du monde. Ils sont immergés dans le vrai et le faux, incapables de s'en extirper. Le pouvoir de briser la barrière du rêve et d'ouvrir les yeux est le vrai et le faux, voilà le Dao! »
+Alors que la voix résonnait, l'esprit de Wang Lin était limpide. Il songea à son rêve de soixante ans sur la planète Suzaku et déclara lentement: « La vie et la mort sont des chaînes, voilà le Dao. Les chaînes s'entrelacent pour former un cercle qui est le karma, voilà le Dao! Les êtres possèdent une barrière onirique; ils ne peuvent distinguer l'éveil du rêve. Cette barrière empêche toute vie de percevoir la réalité du monde. Ils sont immergés dans le vrai et le faux, incapables de s'en extirper. Le pouvoir de briser la barrière du rêve et d'ouvrir les yeux est le vrai et le faux, voilà le Dao! »
 
 À mesure que ses paroles résonnaient, la brume qui recouvrait la zone se dissipa, révélant l'intégralité du système stellaire...
 

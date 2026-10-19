@@ -70,7 +70,7 @@ Lorsqu'il mentionna avoir trouvé les fragments de l'âme de Li Muwan, des larme
 
 Il raconta tout, jusqu'au moment où il quitta le clan Antique pour retourner auprès du clan céleste.
 
-Le vieux général écoutait chaque mot. Il ne parvenait pas à imaginer l'identité de cet homme. Si ses propos étaient vrais, il devait posséder un statut stupéfiant au sein du clan céleste!
+Le vieux général écoutait chaque mot. Il ne parvenait pas à imaginer l'identité de cet homme. Si ses propos étaient vrais, il devait être un personnage stupéfiant sur le Continent Astral Immortel!
 
 Pourtant, pourquoi être apparu ainsi en pleine nuit pour boire et discuter... Dans l'esprit du vieux général, cet homme devenait peu à peu familier. C'était comme si une sensation de reconnaissance tapie dans les tréfonds de sa mémoire refaisait surface.
 

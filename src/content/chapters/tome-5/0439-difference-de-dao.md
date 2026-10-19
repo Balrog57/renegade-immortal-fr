@@ -10,7 +10,7 @@ slug: difference-de-dao
 
 Wang Lin fronça les sourcils. Il regarda le garçon devant lui et dit calmement: « Non! »
 
-Ce garçon était Situ Nan. Après avoir possédé ce corps, il avait réduit son temps d'adaptation en dévorant l'ancêtre de quatrième génération. Bien qu'il ne se soit pas encore complètement remis, son niveau de culture était déjà au stade Ascendant.
+Ce garçon était Situ Nan. Après avoir possédé ce corps, il avait réduit son temps d'adaptation en dévorant l'ancêtre de quatrième génération. Bien qu'il n'ait pas encore complètement fusionné avec ce corps, son niveau de culture était déjà au stade Ascendant.
 
 Situ Nan roula des yeux et dit: « Tu es trop ennuyeux. Tout ce que tu fais, c'est cultiver, cultiver. Mais quel est l'intérêt de la culture?! Sais-tu pourquoi ce vieux a commencé à cultiver? »
 

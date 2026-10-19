@@ -8,7 +8,7 @@ slug: incapable-dencaisser-un-seul-coup
 ---
 Wang Lin utilisait son Dao du Vrai et du Faux pour créer une illusion de rétribution divine. Les innombrables silhouettes au sein de la brume laissaient échapper des rugissements de lutte, toutes dirigées vers la faille surplombant Wang Lin.
 
-Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et s'avançait calmement vers elle.
+Un grondement de tonnerre résonna à travers tout le Vide Brillant. La faille, frappée par la rétribution divine de Wang Lin, trembla violemment. Les cheveux blancs de Wang Lin flottaient alors qu'il fixait froidement la brèche et, d'un ample revers de manche, s'avançait calmement vers elle.
 
 Son pas n'était pas rapide, mais chaque enjambée provoquait un fracas tonitruant qui intensifiait les grondements provenant de la faille.
 
@@ -18,7 +18,7 @@ Wang Lin ne craignait pas la rétribution divine. Il possédait le cœur d'un gr
 
 « Tout a une origine. Aujourd'hui, je veux voir pourquoi la rétribution divine existe, comment elle est apparue et d'où elle vient! » Les yeux de Wang Lin s'illuminèrent tandis qu'il se rapprochait inexorablement de la faille.
 
-Lorsqu'il fut à moins de 100 000 pieds de la brèche, une lumière aveuglante en jaillit.
+Lorsqu'il fut à moins de 100 000 pieds de la brèche, une lumière aveuglante en jaillit, se répandit alentour et illumina entièrement le brouillard obscur de cet espace étoilé.
 
 Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un pinceau à queue de cheval d'apparence très ordinaire, ne mesurant que sept pouces de long. Il possédait un manche en bois violet et des poils blancs pour le pinceau. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
 
@@ -34,11 +34,11 @@ Simultanément, un deuxième poil blanc se sépara du pinceau pour devenir un se
 
 Le troisième suivit rapidement, se muant en une aura de massacre. Il devint l'aura meurtrière d'une épée de carnage.
 
-Le quatrième, le cinquième, le sixième... En un éclair, des centaines de poils blancs s'envolèrent, se transformant en le Doigt de la Mort, le Doigt de l'Autre Monde, le Doigt Démoniaque et bien d'autres sorts que Wang Lin avait vus lors de sa première étape de culture.
+Le quatrième, le cinquième, le sixième... En un éclair, des centaines de poils blancs s'envolèrent, se transformant en le Doigt de la Mort, le Doigt des Enfers, le Doigt Démoniaque et bien d'autres sorts que Wang Lin avait vus lors de sa première étape de culture.
 
 Certains de ces sorts étaient ceux qu'il maîtrisait, d'autres étaient des techniques qu'il n'avait vues que chez autrui.
 
-Après ces centaines de poils, les restants des 3 000 suivirent, se transformant en une multitude de sorts divers. On y trouvait les sorts de Qing Shui, ceux de Situ, et même l'Appel du Vent, l'Invocation de la Pluie, l'Effondrement de la Montagne et le Naufrage des Terres de Bai Fan.
+Après ces centaines de poils, les restants des 3 000 suivirent, se transformant en une multitude de sorts divers. On y trouvait les sorts de Qing Shui, ceux de Situ, et même l'Appel du Vent, l'Invocation de la Pluie, l'Effondrement de la Montagne et la Fracture des Terres de Bai Fan.
 
 Tout cela se produisit en un instant. Les 3 000 poils s'étaient transformés en 3 000 sorts différents que Wang Lin avait croisés au cours de sa vie.
 
@@ -46,13 +46,13 @@ Il y avait aussi les sorts de Qing Lin, du Shui Daozi et du Maître Lu Fu. On y 
 
 3 000 poils, 3 000 Grands Daos, 3 000 sorts! La majorité des sortilèges gravés dans la mémoire de Wang Lin apparaissaient devant lui.
 
-Ces 3 000 sorts fusionnèrent parfaitement. À chaque mouvement du pinceau, les sortilèges encerclèrent l'espace autour de Wang Lin pour se refermer sur lui.
+Ces 3 000 sorts fusionnèrent parfaitement. D'un seul balayage du pinceau, les sortilèges encerclèrent l'espace autour de Wang Lin pour se refermer sur lui.
 
 Peut-être que quelques-uns, ou même une centaine, n'auraient posé aucun problème, et même les 3 000 n'auraient été rien pour Wang Lin. Cependant, ces 3 000 sorts étaient formés par les poils de ce pinceau qui dégageait une aura familière. Cette aura était de l'énergie céleste!
 
 Par conséquent, sa puissance était suffisante pour ébranler le monde.
 
-Cette énergie céleste n'était pas l'énergie spirituelle céleste des Royaumes Célestes du Royaume Intérieur, mais la véritable énergie céleste, semblable à cette goutte de sang doré. S'il n'avait pas rencontré le fou et obtenu le Corps Céleste Immortel, il n'aurait pas pu reconnaître l'énergie céleste utilisée pour créer ces 3 000 sorts.
+Cette énergie céleste n'était pas l'aura de jade céleste contenue dans les quatre Royaumes Célestes du Royaume Intérieur, mais la véritable énergie céleste, semblable à cette goutte de sang doré. S'il n'avait pas rencontré le fou et obtenu le Corps Céleste Immortel, il n'aurait pas pu reconnaître l'énergie céleste utilisée pour créer ces 3 000 sorts.
 
 À cet instant, il la sentit immédiatement, ce qui fit se rétracter ses pupilles. Il fixa les 3 000 sorts qui convergeaient vers lui, et une intention meurtrière embrasa son regard.
 
@@ -118,8 +118,8 @@ Le chaos régnait dans la pagode. Le corps de Wang Lin était entravé par les 3
 
 Cependant, la rétribution divine ignorait qu'entre les sourcils de Wang Lin résidait la lignée céleste la plus pure!
 
-« Les prétendues rétributions divines ne sont que ces sorts... Si c'est le cas, cette rétribution est... trop faible! » Enveloppé par les 3 000 poils, Wang Lin secoua la tête et se débattit. Les étoiles de Dieu Ancien entre ses sourcils commencèrent à tourner rapidement; alors que la puissance du Dieu Ancien déferlait dans son corps, celui-ci grandissait à une vitesse fulgurante.
+« Les prétendues rétributions divines ne sont que ces sorts... Si c'est le cas, cette rétribution est... trop faible! » Enveloppé par les 3 000 poils, Wang Lin secoua la tête, et tout son corps se gonfla brusquement. Les étoiles de Dieu Ancien entre ses sourcils commencèrent à tourner rapidement; alors que la puissance du Dieu Ancien déferlait dans son corps, celui-ci grandissait à une vitesse fulgurante.
 
 100 pieds, 300 pieds, 1 000 pieds... Jusqu'à ce qu'il atteigne des milliers de pieds de haut, tel un géant. Les poils autour de lui furent tendus à l'extrême, certains finissant par rompre. Une fois que Wang Lin prit sa forme de Dieu Ancien, son pouvoir divin se propagea et tous les poils s'effondrèrent!
 
-« Incapable d'encaisser un seul coup... » Wang Lin secoua une nouvelle fois la tête, puis il s'élança vers le haut. Sa main droite se crispa en un poing et il lança un coup de poing dévastateur vers le sommet de la pagode!
+« Incapable d'encaisser un seul coup... » Wang Lin secoua une nouvelle fois la tête, puis il fit un pas vers le haut. Sa main droite se crispa en un poing et il lança un coup de poing dévastateur vers le sommet de la pagode!

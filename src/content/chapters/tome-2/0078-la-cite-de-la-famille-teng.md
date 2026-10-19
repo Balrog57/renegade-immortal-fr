@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 78 - Teng Family City
 slug: la-cite-de-la-famille-teng
 ---
-Wang Lin examinait les trésors lorsqu'il entendit soudain un murmure derrière lui. Il projeta une lueur dorée dans son épée volante et se retourna. Zhang Hu ouvrit les yeux et, en voyant Wang Lin, fut saisi de stupeur. Il regarda autour de lui, aperçut l'épée volante et le fourreau entre les mains de Wang Lin, puis un air de joie illumina son visage lorsqu'il demanda: « Est-ce qu'il... est mort? »
+Wang Lin examinait les trésors lorsqu'il entendit soudain un murmure derrière lui. Il projeta une lueur dorée sur son épée volante et se retourna. Zhang Hu ouvrit les yeux et, en voyant Wang Lin, fut saisi de stupeur. Il regarda autour de lui, aperçut l'épée volante et le fourreau entre les mains de Wang Lin, puis un air de joie illumina son visage lorsqu'il demanda: « Est-ce qu'il... est mort? »
 
 Wang Lin eut un léger rire et hocha la tête. « Oui. Zhang Hu, si tu ne m'as pas reconnu tout à l'heure, c'est sans doute à cause de lui, n'est-ce pas? »
 
@@ -16,7 +16,7 @@ Sur ces mots, il leva la main droite et trois boules de feu apparurent.
 
 Les personnes aux alentours restèrent pétrifiées. Ce qu'elles venaient de voir dépassait l'entendement. En voyant les boules de feu dans la main de Zhang Hu, leurs visages se décomposèrent de terreur. Quant aux hommes vêtus de noir, ils observaient également Zhang Hu avec effroi.
 
-Wang Lin fronça les sourcils. Alors qu'il s'apprêtait à intervenir, Zhang Hu fit un pas en avant et lança les boules de feu. Cependant, sa cible n'était pas le groupe de Liu San, mais celui des hommes en noir.
+Wang Lin fronça les sourcils. Alors qu'il s'apprêtait à intervenir, Zhang Hu le devança et lança les boules de feu. Cependant, sa cible n'était pas le groupe de Liu San, mais celui des hommes en noir.
 
 Face à une puissance absolue, le sort de ces mortels était celui de fourmis. Sans aucune capacité de riposte, les hommes en noir, y compris Song Xing, furent frappés par les flammes et réduits à néant en un instant. Le plus étrange était que plusieurs gouttes de sang doré ne se dissipèrent pas avec les cadavres; elles s'élevèrent dans les airs et furent aussitôt englouties par Zhang Hu.
 
@@ -58,11 +58,11 @@ Un regard d'envie passa sur le visage de Zhang Hu lorsqu'il dit: « Wang Lin, no
 
 Wang Lin secoua la tête. « Je n'ai pas encore atteint l'Établissement des Fondations. Sais-tu d'où vient cette épée volante? »
 
-Zhang Hu parut surpris, mais n'insista pas. Après une réflexion attentive, il répondit: « Je crois qu'il en a parlé une fois. Il disait l'avoir trouvée dans une grotte, grâce à une opportunité exceptionnelle. Il la considérait comme un trésor suprême. De plus, ce fourreau est lui aussi un trésor; mon maître le chérissait bien plus que l'épée elle-même. J'ai entendu dire qu'à part lui, à moins d'atteindre le stade de la Formation du Noyau, personne ne peut la raffiner. »
+Zhang Hu parut surpris, mais n'insista pas. Après une réflexion attentive, il répondit: « Je crois qu'il en a parlé une fois. Il disait l'avoir trouvée dans une grotte, grâce à une opportunité exceptionnelle. Il la considérait comme un trésor précieux. De plus, ce fourreau est lui aussi un trésor; mon maître le chérissait bien plus que l'épée elle-même. J'ai entendu dire qu'à part lui, à moins d'atteindre le stade de la Formation du Noyau, personne ne peut la raffiner. »
 
 Wang Lin s'assit sur un rocher. Après un moment de réflexion, il demanda: « Parle-moi du vieux Jimo, afin que nous puissions au moins nous prémunir contre lui. »
 
-Zhang Hu avala sa bouchée et répondit: « Le vieux Jimo est un cultivateur indépendant. On dit qu'il a déjà atteint la Formation du Noyau. Il protège farouchement les siens; il ne tardera pas à nous traquer dès qu'il apprendra la mort de Bai Zhan. Tu ferais mieux de retourner à la Secte Heng Yue. Quant à moi, je peux me réfugier dans la Cité de la Famille Teng. Même le vieux Jimo n'osera s'y montrer arrogant. Tant que je reste dans la cité, je devrais être en sécurité. »
+Zhang Hu avala sa bouchée et répondit: « Le vieux Jimo est un cultivateur indépendant. On dit qu'il a déjà atteint la Formation du Noyau. Il protège farouchement les siens; il ne tardera pas à nous traquer dès qu'il apprendra la mort de Bai Zhan. Tu ferais mieux de retourner immédiatement à la Secte Heng Yue. Quant à moi, je peux me réfugier dans la Cité de la Famille Teng. Même le vieux Jimo n'osera s'y montrer arrogant. Tant que je reste dans la cité, je devrais être en sécurité. »
 
 Wang Lin eut un sourire amer. « La Secte Heng Yue n'existe plus que de nom désormais. »
 

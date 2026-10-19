@@ -24,7 +24,7 @@ Zhang Hu eut un sourire amer. Il dit: « Tu as dû t'attirer les foudres de la B
 
 Une rage sourde monta en Wang Lin, mais il pensa aux yeux de ses parents, empreints d'espoir, et réprima son emportement. Il se coucha, le cœur bouillonnant de colère.
 
-Le second jour, alors que l'obscurité régnait encore, Wang Lin sortit de son lit. Zhang Hu ronflait toujours. Wang Lin enfila sa tenue grise et se dirigea rapidement vers le local des corvées. Dès son arrivée, le soleil émergea peu à peu de l'est. Le jeune homme vêtu de jaune ouvrit la porte et lança à Wang Lin un regard en coin. Il dit d'un ton narquois: « Au moins, tu es à l'heure. Entre prendre des seaux, puis sors par la porte est. Il y a une source dans la montagne, va y chercher de l'eau. »
+Le second jour, alors que l'obscurité régnait encore, Wang Lin sortit de son lit. Zhang Hu ronflait toujours. Wang Lin enfila sa tenue grise et se dirigea rapidement vers le local des corvées. Dès son arrivée, le soleil émergea peu à peu de l'est. Le jeune homme vêtu de jaune ouvrit la porte et lança à Wang Lin un regard en coin. Il dit d'un ton narquois: « Au moins, tu es à l'heure. Entre prendre les seaux, puis sors par la porte est. Il y a une source dans la montagne, va y chercher de l'eau. »
 
 L'homme ne prêta plus attention à Wang Lin. Il s'assit en tailleur sur le sol et respirait lentement face au lever du soleil. Une brume blanche presque invisible s'échappait de son nez, s'enroulant comme deux dragons.
 
@@ -36,7 +36,7 @@ Il n'eut cependant pas le temps d'apprécier cette beauté. Une fois le seau ple
 
 Wang Lin poursuivit ainsi jusqu'au crépuscule. Il ne parvint à remplir qu'une seule jarre. S'il n'avait pas eu ces patates douces pour remplir son estomac, il n'aurait pas eu la force de continuer. Ses bras et ses jambes étaient douloureux et engourdis; chaque mouvement lui causait une souffrance aiguë.
 
-Wang Lin réfléchit un instant, puis transporta un demi-seau d'eau vers une zone déserte. Il scruta les environs pour s'assurer que personne ne se trouvait à proximité. Il lâcha la perle de pierre dans le seau et remua l'eau. Puis, il retira la perle et but l'eau. Il sentit immédiatement une chaleur envahir son estomac et ses douleurs musculaires disparurent.
+Wang Lin réfléchit un instant, puis transporta un demi-seau d'eau vers une zone déserte. Il scruta les environs pour s'assurer que personne ne se trouvait à proximité. Il lâcha la perle de pierre dans le seau et remua l'eau. Puis, il retira la perle et but l'eau. Il sentit immédiatement une chaleur envahir son estomac et ses douleurs musculaires s'estompèrent peu à peu.
 
 Bien que l'effet fût inférieur à celui de la rosée, Wang Lin était transporté par l'excitation. Il toucha sa poitrine pour ajuster la position de la perle. Il décida de ne révéler ce trésor à personne.
 
@@ -54,11 +54,11 @@ D'après lui, les disciples honoraires devaient accomplir des corvées pendant d
 
 Les disciples intérieurs n'étaient pas dans leur situation. Ils avaient leur propre maître, ne faisaient aucune corvée et disposaient de leurs propres chambres. Leur seule occupation était la culture.
 
-De plus, il existait une classe intermédiaire entre les disciples intérieurs et les honoraires, comme Wang Hao qui était devenu un assistant, bien qu'il ne fût en réalité qu'un serviteur. Ces personnes n'avaient pas de corvées à effectuer et pratiquaient également quelques techniques de bas niveau; elles devaient simplement accomplir le travail assigné par leur maître. Cependant, ces individus possédaient très peu de talent et passaient toute leur vie à n'être que des assistants.
+De plus, il existait une classe intermédiaire entre les disciples intérieurs et les honoraires, comme Wang Hao qui était devenu un assistant, bien qu'il ne fût en réalité qu'un serviteur. Ces personnes n'avaient pas de corvées à effectuer et pratiquaient également quelques techniques de bas niveau; elles devaient simplement accomplir le travail assigné par leur maître. Cependant, ces individus possédaient très peu de talent et passaient toute leur vie à n'être que des serviteurs.
 
 Quant au prétendu « talent », Wang Lin apprit par Zhang Hu qu'il ne s'agissait rien d'autre que des racines spirituelles. Tout le monde en possédait, mais en quantités variables. Si l'un en disposait suffisamment, il pouvait apprendre une technique immortelle en un an; si l'on en manquait, cela pouvait prendre dix ans, voire cent ans.
 
-La vie d'un homme est limitée. Celui qui possède un talent médiocre ne parviendra jamais à rien de notable de son vivant. C'est pourquoi la secte accordait une telle importance aux racines spirituelles.
+La vie d'un homme est limitée. Celui qui possède un talent médiocre ne parvient souvent à rien de notable de son vivant. C'est pourquoi la secte accordait une telle importance aux racines spirituelles.
 
 Ce mois-ci, alors qu'il allait chercher de l'eau, Wang Lin en avait bu une grande quantité dans laquelle la perle de pierre avait trempé, ce qui avait considérablement renforcé son corps. Auparavant, il lui fallait six jours pour remplir les dix jarres; désormais, cela ne lui prenait plus que trois jours.
 

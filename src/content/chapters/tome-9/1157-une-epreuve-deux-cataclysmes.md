@@ -16,15 +16,15 @@ Il existait même une infime fraction d'anciens dieux qui affrontaient leur prem
 
 Quant à la troisième épreuve et aux trois derniers cataclysmes, ils représentaient l'ultime défi qu'un ancien dieu puisse affronter. Quant à leur nature exacte, Tu Si l'ignorait.
 
-Les souvenirs de Tu Si ne contenaient rien concernant une première épreuve survenant à cinq étoiles. Chaque fois que Wang Lin y pensait, il souriait avec amertume. L'arrivée précoce de sa première épreuve était liée à son corps d'ancien dieu incomplet et au fait qu'il avait trop puisé dans ses pouvoirs d'ancien dieu dans le Territoire des Esprits Démoniaques.
+Les souvenirs de Tu Si ne contenaient rien concernant une première épreuve survenant à cinq étoiles. Chaque fois que Wang Lin y pensait, il souriait avec amertume. L'arrivée précoce de sa première épreuve était liée à son corps d'ancien dieu incomplet et au fait qu'il avait trop puisé dans ses pouvoirs d'ancien dieu dans le Terre des Esprits Démoniaques.
 
 Tout cela fit de lui le premier ancien dieu à subir la première épreuve dès cinq étoiles.
 
 L'épreuve qu'un ancien dieu de 8 étoiles avait franchie sans difficulté représentait pour Wang Lin une question de vie ou de mort.
 
-L'un des cataclysmes de la première épreuve était la catastrophe corporelle. Autrefois, au sein de la Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os. Désormais, après son arrivée dans le Système Stellaire de la Mer des Nuages, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
+La première épreuve consistait en une destruction corporelle continue. Autrefois, au sein de la Secte Divine de l'Oiseau Vermillon, la moitié inférieure de Wang Lin n'était plus que des os. Désormais, après son arrivée dans le Système Stellaire de la Mer des Nuages, cela s'était intensifié: tout ce qui se trouvait sous sa poitrine était devenu osseux.
 
-Ce n'était que le début, l'avènement du premier cataclysme. Le corps continuerait à se désagréger jusqu'à ce qu'il ne reste plus ni chair ni sang. Alors, la première catastrophe prendrait fin et la seconde commencerait.
+Ce n'était que le début, l'avènement de la première épreuve. Le corps continuerait à se désagréger jusqu'à ce qu'il ne reste plus ni chair ni sang. Alors, la première épreuve prendrait fin et les deux cataclysmes approcheraient.
 
 En l'absence de changement, son corps original mourrait sans aucun doute. Heureusement, Wang Lin avait obtenu le sang du cœur de Tu Si, ce qui lui donnait une chance de lutter.
 
@@ -42,9 +42,9 @@ Au cours de ces trois jours, la taille du corps original avait décuplé!
 
 À cet instant, sous la Secte de l'Origine, un squelette de cent pieds de haut reposait calmement. Des éclats de lumière sanglante jaillissaient tandis que le sang sous le film circulait plus rapidement.
 
-Après trois jours supplémentaires, le squelette de Wang Lin finit sa croissance pour atteindre plus de 3 000 pieds de hauteur. La faible quantité de sang circulait toujours dans les os, chacun étant plus grand qu'un homme. Cependant, le flux sanguin ralentit jusqu'à finir par se dissiper.
+Après trois jours supplémentaires, le squelette de Wang Lin finit sa croissance pour atteindre plus de 3 000 pieds de hauteur. La faible quantité de sang circulait toujours dans les os, chacun étant plus épais qu'un homme. Cependant, le flux sanguin ralentit jusqu'à finir par se dissiper.
 
-Ce sang était celui du cœur de Tu Si. Durant ces jours, le sang du cœur avait été lentement absorbé par les os du corps original. Une fois tout le sang absorbé, la première catastrophe prit fin.
+Ce sang était celui du cœur de Tu Si. Durant ces jours, le sang du cœur avait été lentement absorbé par les os du corps original. Une fois tout le sang absorbé, la première épreuve prit fin.
 
 À cet instant précis, les yeux du corps original brillèrent intensément, comme si son regard pouvait percer la terre pour contempler le ciel bleu! Simultanément, une vague de craquements résonna sous terre.
 
@@ -96,7 +96,7 @@ Les cultivateurs de la Secte de l'Origine accordèrent une importance capitale �
 
 Li Xiangdong et Lu Yanfei, accompagnés de deux autres Anciens, flottaient dans les airs en observant la terre. Grâce à leur niveau de culture, ils sentaient clairement l'origine de ces rugissements.
 
-Li Xiangdong voulut descendre vérifier, mais Lu Yanfei l'en empêcha. Cependant, les rugissements s'intensifièrent encore, devenant presque capables de secouer le ciel.
+Li Xiangdong avait voulu descendre vérifier quelques jours plus tôt, mais Lu Yanfei l'en avait empêché. Cependant, les rugissements s'intensifièrent encore, devenant presque capables de secouer le ciel.
 
 Si cela s'était arrêté là, ce n'aurait pas été un problème, mais toute l'énergie d'origine du continent commença à s'agiter, comme si un vortex invisible aspirait l'énergie de toutes les directions.
 
@@ -104,7 +104,7 @@ Ce qui terrifiait davantage les quatre individus, c'est qu'une quantité massive
 
 En songeant aux conséquences, les quatre hommes en eurent le vertige.
 
-Ce qui les choqua encore plus fut l'apparition de bêtes féroces dans le brouillard au-delà du continent. Pour une raison inconnue, d'immenses hordes de bêtes féroces étaient attirées vers le continent de Mo Luo. Elles fixaient férocement la terre, tout en faisant preuve d'hésitation.
+Ce qui les choqua encore plus fut l'apparition de bêtes féroces dans le brouillard au-delà du continent. Pour une raison inconnue, depuis une demi-lune, d'immenses hordes de bêtes féroces étaient attirées vers le continent de Mo Luo. Elles fixaient férocement la terre, tout en faisant preuve d'hésitation.
 
 Elles tentèrent de charger à plusieurs reprises, mais furent repoussées. C'était comme si quelque chose d'extrêmement attractif se trouvait ici, mais que leur instinct de conservation les empêchait d'oser. Cela provoquait une hésitation constante.
 

@@ -10,7 +10,7 @@ Maître Simo partit... Le Grand Maître Yun Luo l'accompagna, et tous deux dispa
 
 Cette bataille n'avait mené à aucun résultat. C'était inattendu pour tous les cultivateurs présents, y compris pour le Vieux Oiseau Vermillon. Cependant, grâce à sa puissante culture, il avait vaguement perçu certaines choses.
 
-Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues! Aux yeux des cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau!
+Quoi qu'il en soit, cela n'entraverait en rien l'ascension de la réputation de Wang Lin dans les Terres Déchues! Aux yeux des dizaines de milliers de cultivateurs présents, le simple déroulement du combat suffisait à faire de Wang Lin quelqu'un capable de rivaliser avec un cultivateur du troisième niveau!
 
 La sélection des Anciens des Terres Déchues, qui avait été interrompue, reprit son cours, mais plus rien de tout cela ne concernait Wang Lin.
 
@@ -22,7 +22,7 @@ En fouillant avec soin, le Clan des Moineaux de Feu finit par trouver Liu Jinbia
 
 Après un combat acharné, Liu Jinbiao fut capturé et secrètement extrait des Terres Déchues pour être présenté à l'ancêtre du Clan des Moineaux de Feu, qui l'attendait à l'extérieur.
 
-L'expression de Liu Jinbiao était sombre et il restait totalement silencieux. Pourtant, il dégageait l'aura d'un maître de sa génération; une aura invisible propre à celui qui a exercé le pouvoir durant de longues années et qui pourrait tuer des milliers de personnes d'un seul mot.
+L'expression de Liu Jinbiao était sombre et il restait totalement silencieux. Pourtant, il dégageait l'aura d'un maître de sa génération; une aura invisible propre à celui qui a exercé le pouvoir durant de longues années et qui pourrait tuer dix mille personnes d'un seul mot.
 
 Lorsque Liu Jinbiao fut amené hors des Terres Déchues, l'ancêtre du Clan des Moineaux de Feu, qui était resté prudemment en retrait sans oser entrer, afficha un regard d'extase.
 
@@ -44,7 +44,7 @@ L'ancêtre recueillit ce sang et le condensa en une sphère. Après l'avoir sent
 
 Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan des Moineaux de Feu.
 
-Un oiseau de feu colossal déploya ses ailes, et devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après un combat acharné, l'oiseau de feu dévora l'Oiseau Vermillon.
+Un oiseau de feu colossal déploya ses ailes, et devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après une brève lutte, l'oiseau de feu dévora l'Oiseau Vermillon.
 
 Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à l'Oiseau Vermillon originel.
 
@@ -114,6 +114,6 @@ Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête: �
 
 Wang Lin resta interdit un instant, fixant le Vieux Oiseau Vermillon. Laissant sans voix, il ne put que hocher la tête avec un sourire amer.
 
-L'Ancien poussa un profond soupir intérieur. Il avait placé tous ses espoirs en Wang Lin. Voyant ce dernier acquiescer, il toussa et reprit: « Le sort de ce vieil homme ne peut déployer toute sa puissance que s'il est utilisé par quelqu'un ayant préservé le Yang de son âme originelle. Ce n'est pas par penchant particulier. Je ne te donnerai rien sans contrepartie, je vais t'enseigner un sort! »
+L'Ancien poussa intérieurement un long soupir de soulagement. Il avait placé tous ses espoirs en Wang Lin. Voyant ce dernier acquiescer, il toussa et reprit: « Le sort de ce vieil homme ne peut déployer toute sa puissance que s'il est utilisé par quelqu'un ayant préservé le Yang de son âme originelle. Ce n'est pas par penchant particulier. Je ne te donnerai rien sans contrepartie, je vais t'enseigner un sort! »
 
 « C'est l'un des trois sorts les plus puissants de mon Clan de l'Oiseau Vermillon. Il fut transmis par l'Ancien Souverain Céleste. Bien que ton Yang d'âme originelle soit brisé, tu peux tout de même le pratiquer. Ce sort est si puissant qu'il brûlera ta durée de vie; ne l'utilise donc pas avec légèreté, mais il sera capable de te sauver la vie! »

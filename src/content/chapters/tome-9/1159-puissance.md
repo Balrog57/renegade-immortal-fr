@@ -14,7 +14,7 @@ Ce vortex gigantesque remuait toute l'énergie originelle et le brouillard stell
 
 1 500 kilomètres, 2 500 kilomètres, 5 000 kilomètres, 15 000 kilomètres… 50 000 kilomètres, 150 000 kilomètres… 500 000 kilomètres!!
 
-Le brouillard et l'énergie originelle dans un rayon de 500 000 kilomètres autour du continent de Mo Luo devinrent fous et se précipitèrent vers le continent!
+Le brouillard et l'énergie originelle dans un rayon de 500 000 kilomètres autour du continent de Mo Luo devinrent fous et se précipitèrent vers le continent, jusque dans les profondeurs de la Secte de l'Origine!
 
 Très peu de personnes dans la Mer des Nuages savaient d'où venait le brouillard stellaire. C'était comme si ce brouillard avait toujours été là. Si l'on remontait le temps, on découvrirait que ce brouillard existait déjà avant l'effondrement du Royaume Céleste, alors que l'Ancien Royaume Céleste était encore en place.
 

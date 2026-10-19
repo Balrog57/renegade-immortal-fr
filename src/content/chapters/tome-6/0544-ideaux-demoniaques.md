@@ -24,7 +24,7 @@ Seule la moitié d'un sceau de vie, formé par l'Art du Massacre Céleste, subsi
 
 L'éclat doré dans les yeux du général de l'aile gauche s'estompa et il déclara calmement: « Il est déjà très difficile de résister à la puissance du quatrième effondrement avec ta culture de Transformation de l'Âme au stade intermédiaire. Tu peux te retirer! Il t'est impossible d'obtenir le poste de commandant en chef, tu ne pourras même pas devenir simple commandant. Le seul rang qui te soit réservé est celui d'Ancien! » Bien que son expression n'affichât aucun mépris, ses paroles étaient cinglantes.
 
-Les yeux de Wang Lin brillèrent intensément. L'intention du poing contenue dans les dix effondrements représentait l'apogée de l'esprit du général. Pour un cultivateur, c'était la mesure de la pureté de son cœur Dao. Le cœur Dao fusionne avec l'âme originelle et provoque ainsi l'évolution de cette dernière. Dès lors, une seule foi demeure dans le corps d'un individu. Cette foi est si puissante qu'elle peut bouleverser les cieux et la terre!
+Les yeux de Wang Lin brillèrent intensément. L'intention du poing contenue dans les dix effondrements représentait l'apogée de l'esprit du général. Pour un cultivateur, c'était l'élévation de son cœur Dao. Le cœur Dao fusionne avec l'âme originelle et provoque ainsi l'évolution de cette dernière. Dès lors, une seule foi demeure dans le corps d'un individu. Cette foi est si puissante qu'elle peut bouleverser les cieux et la terre!
 
 C'était un sortilège de foi!
 

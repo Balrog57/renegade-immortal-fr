@@ -24,8 +24,7 @@ Ce corps véritable possédait sa propre volonté, mais la majeure partie de cel
 
 Même Wang Lin ne s'attendait pas à ce que son action involontaire provoque un tel bouleversement dans son corps véritable d'essence de tonnerre!
 
-L'essence de massacre était une essence spéciale. Sa puissance était invisible. Elle était composée d'un massacre sans fin, mais non point aveugle; il s'agissait d'un massacre avec un dessein. C'est ce qui faisait sa singularité.
-
+L'essence de massacre était une essence spéciale. Sa puissance était invisible. Elle était composée d'un massacre sans fin, mais non point aveugle; il s'agissait d'un massacre avec un dessein.
 L'essence de massacre contenait une intention meurtrière inimaginable et pouvait altérer le fonctionnement même du monde. Elle était bien plus puissante que les essences ordinaires.
 
 En son temps, l'essence de massacre de Qing Shui lui permettait de combattre des êtres aux niveaux de culture supérieurs, ce qui témoignait de sa puissance phénoménale.
@@ -38,7 +37,7 @@ Plus important encore, ce massacre avait une mission. Une mission qui débuterai
 
 Les légendes antiques racontent que lorsque les cieux étaient en colère, ils utilisaient le tonnerre pour détruire le monde. Le tonnerre existait depuis les temps primordiaux pour punir les êtres vivants. Ce n'est que lors de la destruction du monde que ce tonnerre de massacre apparaîtrait.
 
-Après que le corps véritable d'essence de tonnerre de Wang Lin eut fusionné avec l'essence de massacre, laquelle exigeait sa propre volonté, le tonnerre changea. Leur intégration donna naissance à une chose qui ne devrait pas exister, ou du moins, qu'aucun cultivateur ne pourrait contrôler: la colère des cieux, le tonnerre de massacre!
+Après que le corps véritable d'essence de tonnerre de Wang Lin eut fusionné avec l'essence de massacre, qui ne se formait que par des massacres animés d'une conviction, le tonnerre changea. Leur intégration donna naissance à une chose qui ne devrait pas exister, ou du moins, qu'aucun cultivateur ne pourrait contrôler: la colère des cieux, le tonnerre de massacre!
 
 Wang Lin contemplait avec stupeur le corps véritable d'essence devant lui. Il ne percevait aucune trace de tonnerre sur ce corps, mais grâce à son Sens Divin, il sentait un éclair de tonnerre terrifiant circuler lentement en son sein.
 

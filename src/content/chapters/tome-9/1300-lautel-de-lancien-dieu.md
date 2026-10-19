@@ -18,7 +18,7 @@ Même Wang Lin en eut le frisson.
 
 En quelques respirations seulement, le corps du scorpion se dessécha, vidé de son sang. Même sa compréhension du Dao fut dispersée et aspirée par la nuée de moustiques.
 
-Le roi des moustiques poussa un sifflement d'extase. Son corps trembla tandis que son niveau de culture augmentait considérablement. Et il n'était pas le seul: les 5 000 autres bêtes moustiques poussèrent toutes des rugissements exaltés!
+Le roi des moustiques poussa un sifflement d'extase. Son corps trembla tandis que son niveau de culture augmentait considérablement. Et il n'était pas le seul: les 5 000 autres bêtes moustiques poussèrent toutes des sifflements exaltés!
 
 Après avoir goûté au sang des bêtes et absorbé leurs essences, elles traversaient une phase de croissance fulgurante. Elles se dispersèrent alors pour traquer les bêtes féroces; dès qu'une proie était capturée, elles attaquaient en masse pour la vider de toute substance.
 
@@ -34,7 +34,7 @@ Tandis que la femme était terrifiée, Wang Lin ramassa le noyau noir, le regard
 
 Wang Lin vit progressivement le cours de sa vie. Il découvrit qu'il y a des éons, ce scorpion n'était que de rang 7 lorsqu'elle avait rencontré une femme par hasard. Cette dernière avait pointé le scorpion de sa main droite pour y laisser une marque et lui avait dit:
 
-« Quelle petite bête intelligente. Je te nomme Sang Pourpre. Deviens l'une de mes généraux de bêtes et aide-moi à guérir. »
+« Quelle petite bête intelligente. Je te nomme Sang Pourpre. Deviens l'un de mes généraux de bêtes, aide-moi à guérir et protège-moi. »
 
 La silhouette de la femme était floue, impossible à distinguer clairement. Dans les souvenirs du scorpion, elle manifestait un respect infini envers cette femme.
 

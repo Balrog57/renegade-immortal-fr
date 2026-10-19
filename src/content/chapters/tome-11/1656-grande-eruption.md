@@ -8,7 +8,7 @@ slug: grande-eruption
 ---
 L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui, ternes et sur le point de se fermer, s'ouvrirent soudain. Hagard, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
 
-Cette aura familière appartenait à son frère, à son frère cadet!
+Cette aura familière appartenait à son frère, à son Junior!
 
 La femme en rose qui le soutenait leva également la tête. Ses yeux brillaient comme jamais auparavant alors qu'elle fixait l'horizon.
 
@@ -26,7 +26,7 @@ Il y avait aussi cette autre planète de culture où se trouvaient d'innombrable
 
 C'était une flèche longue d'environ cent mille pieds, dotée du pouvoir de détruire les cieux eux-mêmes. La pointe de la flèche était circulaire; elle hurlait à travers l'espace, provoquant l'effondrement du vide sur son passage. Rien ne pouvait l'arrêter!
 
-Une silhouette se tenait à la pointe de la flèche. Un homme vêtu de blanc aux cheveux d'un blanc immaculé! On pouvait également distinguer faiblement deux roues gigantesques et immobiles suivant de près sa course.
+Une silhouette se tenait à la pointe de la flèche. Un homme vêtu de blanc aux cheveux d'un blanc immaculé! On pouvait également distinguer faiblement deux roues gigantesques et immobiles, l'une au-dessus de l'autre, suivant de près sa course.
 
 À cet instant, Qing Lin, Maître Hong Shan et la femme en violet de la Rivière Invoquée que Wang Lin ne connaissait pas, contemplaient tous cette flèche terrifiante qui fonçait depuis l'horizon!
 
@@ -64,7 +64,7 @@ Des grondements tonitruants résonnèrent avec fureur, créant une onde de choc 
 
 Alors que l'empreinte se désintégrait, la flèche fulgurante la traversa, et son impact parut s'intensifier encore davantage. Elle coupa le souffle à tous et dissipa le danger qui pesait sur le Royaume Intérieur. Elle fonça droit vers le palais qui émergeait de la faille.
 
-Sur le palais, la robe noire du Souverain fut fouettée par le vent, révélant son corps desséché. À cet instant, un spasme parcourut son visage et ses yeux s'emplirent d'une trace rare de folie.
+Sur le palais, la robe noire du Souverain fut fouettée par le vent, révélant son visage desséché et imberbe. À cet instant, un spasme parcourut son visage et ses yeux s'emplirent d'une trace rare de folie.
 
 « Ce vieil homme ne croit pas que l'arc de Li Guang entre tes mains puisse générer assez de puissance pour me tuer! » Le Souverain poussa un rugissement et s'élança pour affronter la flèche!
 
@@ -88,15 +88,15 @@ Finalement, un grondement monstrueux retentit et le soleil explosa dans un impac
 
 Le Souverain cracha du sang et sa robe noire vola en éclats, dévoilant son corps desséché. Repoussé, il fut projeté contre son propre palais.
 
-Des grondements sourds résonnèrent tandis que des fissures apparaissaient sur l'édifice. Simultanément, la flèche se rapprochait; juste avant qu'elle ne frappe le palais, le Souverain traça un sceau. Un puits gigantesque apparut soudainement devant lui. Ce puits contenait son propre univers; il abritait un espace infini!
+Des grondements sourds résonnèrent tandis que des fissures apparaissaient sur l'édifice. Simultanément, la flèche se rapprochait; juste avant qu'elle ne frappe le palais, le Souverain traça un sceau. Un puits gigantesque apparut soudainement devant lui. Ce puits contenait le ciel et la terre, le soleil et la lune, ainsi qu'un firmament d'étoiles sans fin!
 
 Ce puits était le second domaine de Flamme Joss du Souverain! C'était un trésor que le fou lui avait remis sur le Continent des Immortels Célestes! Au moment où il le déploia, la flèche frappa!
 
 Ce puits n'était pas posé à plat mais disposé verticalement. À la surface de l'eau, des ondulations se formèrent et, à cet instant précis, une copie exacte de la flèche apparut!
 
-Cette flèche illusoire jaillit de l'eau pour charger la Flèche de Li Guang. Au moment de leur collision, l'impact fut tel que le Souverain recracha du sang, les yeux écarquillés d'incrédulité.
+Cette flèche illusoire jaillit de l'eau pour charger la Flèche de Li Guang. Au moment de leur collision, la flèche illusoire vola en éclats et le Souverain recracha du sang, les yeux écarquillés d'incrédulité.
 
-« Tu utilises le Corps Immortel du Maître!!! Le Corps Immortel est précieux et on n'a qu'une seule chance dans une vie pour l'obtenir... Tu l'as abandonné et gaspillé ainsi... Mais combien de fois pourras-tu tirer cette flèche? Je dirais deux au maximum!! Après deux tirs, tu ne pourras plus jamais devenir un Céleste de ta vie. Sans le sang céleste, tu n'es rien d'autre qu'une fourmi!! » Les paroles du Souverain furent interrompues par l'impact de la flèche qui se transféra dans son corps. Son corps s'effondra, et le palais derrière lui s'écroula avec lui!
+« Tu utilises le Corps Céleste Immortel du Maître!!! Le Corps Céleste Immortel est précieux et on n'a qu'une seule chance dans une vie pour l'obtenir... Tu l'as abandonné et gaspillé ainsi... Mais combien de fois pourras-tu tirer cette flèche? Je dirais deux au maximum!! Après deux tirs, tu ne pourras plus jamais devenir un Céleste de ta vie. Sans le sang céleste, tu n'es rien d'autre qu'une fourmi!! » Les paroles du Souverain furent interrompues par l'impact de la flèche qui se transféra dans son corps. Son corps s'effondra, et le palais derrière lui s'écroula avec lui!
 
 Ce palais existait depuis des temps immémoriaux et constituait le pilier spirituel du Royaume Extérieur. Pour les cultivateurs du Royaume Extérieur, ce lieu était un sanctuaire sacré qu'on ne pouvait détruire!
 
@@ -124,4 +124,4 @@ Il y avait aussi ces deux concubines impériales célestes. Malgré leur haut ra
 
 Au loin, la Grande Maîtresse Yun Luo tremblait de façon incontrôlable. De sa position, elle ne pouvait voir que le dos de Wang Lin. Elle connaissait cette silhouette, et elle en avait peur. C'était le dos de l'être qui, selon ses divinations, détruirait le monde!
 
-« Bien qu'elle ne soit pas mon amante, elle est la mère de mon fils, Wang Ping. Qu'as-tu dit à l'instant?! » Wang Lin se retourna. Son regard était tranchant comme une épée alors qu'il fixait Dao Feishan, qui se tenait à cent pieds de Mu Bingmei.
+« Bien qu'elle ne soit pas mon amante, elle est la mère de mon fils, Wang Ping. Qu'as-tu dit à l'instant?! » Wang Lin se retourna. Son regard était tranchant comme une épée alors qu'il fixait Dao Feishan, pétrifié de terreur à cent pieds de Mu Bingmei.

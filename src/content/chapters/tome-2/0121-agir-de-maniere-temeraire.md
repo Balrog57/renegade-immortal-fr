@@ -30,11 +30,11 @@ En réalité, ce sort touche presque tous les pays de culture de rang 3.
 
 C'est la sélection naturelle. Un monde où la loi du plus fort fait rage. L'ordre d'un puissant est une sentence que le faible doit suivre sans pouvoir s'y opposer. Peut-être est-ce parce qu'ils doivent survivre dans ce monde cruel que les cultivateurs deviennent plus opportunistes que les mortels.
 
-Ou peut-être, aux yeux de ceux qui siègent au sommet de l'Union, cet univers n'est qu'un immense chaudron de raffinage. Que ce soient les mortels ou les cultivateurs, tous sont raffinés sans pitié. Dans l'Antiquité, la culture se concentrait sur la compréhension des cieux et la poursuite du propre Dao de chacun. Les cultivateurs dégageaient une aura d'élégance et de divinité.
+Ou peut-être, aux yeux de ceux qui siègent au sommet de l'Union, cet univers n'est qu'un immense chaudron de raffinage. Que ce soient les mortels ou les cultivateurs, tous sont raffinés sans pitié. Dans l'Antiquité, la culture se concentrait sur la compréhension des cieux, la culture du cœur du Dao et la poursuite d'un seul Dao. Les cultivateurs dégageaient une aura d'élégance et de divinité.
 
 Mais le monde antique de la culture s'est soudainement effondré lors d'un grand désastre. L'Union de la Culture a alors surgi pour prendre sa place. C'est à ce moment-là que le concept même de Dao s'est brisé.
 
-Il est désormais prouvé qu'une culture dépourvue de désir mène à la destruction. Ce n'est qu'en suivant les lois de la nature que l'on parcourt le véritable chemin de la culture. Bien qu'ils en ignorent le résultat final, du moins pour l'instant, sous la direction de l'Union, les cultivateurs actuels sont bien plus puissants que ceux des temps anciens. Et cela suffit amplement.
+Il est désormais prouvé qu'une culture dépourvue de désir mène à la destruction : c'était une voie erronée. Seule la voie où règnent la loi du plus fort et la sélection naturelle permet réellement de survivre. Bien qu'ils en ignorent le résultat final, du moins pour l'instant, sous la direction de l'Union, les cultivateurs actuels sont bien plus puissants que ceux des temps anciens. Et cela suffit amplement.
 
 À cet instant, un événement étrange se produisait dans l'un des champs de bataille étrangers appartenant au Clan du Démon Géant. Chaque cultivateur ayant acquis le Sens Divin au cours des trois dernières années fut pris de panique. Une immense pluie de météores semblait recouvrir le champ de bataille alors que chaque fragment de Sens Divin convergeait vers un point unique.
 

@@ -18,7 +18,7 @@ Chuter dans l'abîme depuis le sommet de sa gloire, passer du pic de la respecta
 
 Il ne permettrait jamais qu'une telle chose arrive! Même face à l'Empereur Céleste, il allait se battre!
 
-« Le 15e palais, très bien. Puisque vous pensez tous que ma limite est le 13e palais, alors aujourd'hui, je vais faire preuve d'une arrogance totale et m'illustrer. Empereur Céleste, à voir ta bassesse, je peux lire la turpitude dans ton sang!
+« Le 15e palais, très bien. Puisque vous pensez tous que ma limite est le 13e palais, alors aujourd'hui, je vais faire preuve d'une arrogance totale et éclater une bonne fois pour toutes. Empereur Céleste, à voir ta bassesse, je peux lire la turpitude dans ton sang!
 
 Nul étonnement que la personne scellée sous le bassin de Dong Lin ait conservé une rancœur telle qu'elle ne s'est pas dissipée après sa mort. Nul étonnement qu'il ait traité Lian Yunjue de méprisable! » Les yeux de Wang Lin devinrent glacials. Il dépassa instantanément le 13e palais et fonça tel un dragon vers le 14e palais.
 
@@ -38,7 +38,7 @@ Il pénétra dans le 14e palais!
 
 Après l'entrée de Wang Lin dans le 14e palais, tous les cultivateurs en contrebas furent plongés dans le silence. Ce changement fut tout aussi soudain que lorsqu'ils apprirent qu'il avait utilisé l'armure de l'âme pour franchir le 13e palais.
 
-« Parmi les Ascendants Empyréens actuels, seuls Cai Wei et Ming Dao ont franchi le 14e palais... Ce Wang Lin n'est qu'un tricheur, il lui est impossible de réussir! »
+« Parmi les Ascendants Empyréens actuels, seuls Cai Wei et Ming Dao ont franchi le 14e palais... Ce Wang Lin n'est qu'un imposteur, il lui est impossible de réussir! »
 
 « La raison pour laquelle il agit ainsi est probablement la colère née de l'humiliation. Il va tout risquer pour tenter sa chance. »
 
@@ -58,7 +58,7 @@ L'Ascendant Empyréen Ming Dao continuait de ricaner, comme si c'était sa seule
 
 « D'après ce que je sais de lui, il fait rarement des choses pour lesquelles il n'est pas certain de réussir... Pourtant, franchir le 14e palais sans l'armure de l'âme est extrêmement difficile. Sinon, il n'aurait pas choisi de partir plus tôt.
 
-Il ne fait que creuser sa propre tombe! »
+Il ne fait que s'humilier pour rien! »
 
 Cependant, alors même que l'Empereur Céleste songeait à cela, à peine neuf respirations s'étaient-elles écoulées lorsqu'une lumière dorée et éblouissante jaillit du ciel!
 
@@ -80,7 +80,7 @@ Le Grand Empyréen Dao Yi fut stupéfait et s'éleva dans les airs pour observer
 
 Dans les cieux, la silhouette de Wang Lin réapparut devant le 14e palais. Sans même marquer de pause pour reprendre son souffle, il fonça droit vers le 15e palais!
 
-Lorsqu'il pénétra dans le 15e palais au cœur de l'éclat doré, une immense onde de choc parcourut la foule en contrebas.
+Lorsqu'il pénétra dans le 15e palais au cœur de l'éclat doré, un vif bourdonnement agita la foule en contrebas.
 
 « Il est entré dans le 15e palais immédiatement après avoir franchi le 14e en neuf respirations. Nous sommes-nous trompés sur lui? »
 
@@ -128,7 +128,7 @@ L'expression de Wu Feng devint également sérieuse. Chaque étape de l'Épreuve
 
 L'Empereur Céleste observait la scène de loin, le visage extrêmement sombre. Les paroles qu'il venait d'énoncer avaient été balayées par Wang Lin, lui infligeant une gifle invisible. À cet instant, un froid glacial envahit son regard alors qu'il scrutait le ciel.
 
-En un éclair, neuf respirations passèrent. À peine la neuvième achevée, le 16e palais, resté éteint durant d'innombrables années, libéra une lumière dorée éblouissante!
+En un éclair, neuf respirations passèrent. À peine la neuvième entamée, le 16e palais, resté éteint durant d'innombrables années, libéra une lumière dorée éblouissante!
 
 « Une lumière dorée, c'est le 16e palais! Le 16e palais a été franchi! Avant aujourd'hui, aucun Ascendant Empyréen n'avait réussi le 16e palais! »
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 687 - Devour
 slug: devorer
 ---
-Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Cupidité extraire l'âme d'une montagne céleste.
+Ce n'était pas la première fois que Wang Lin assistait à un sort d'extraction d'âme. Dans la Terre des Esprits Démoniaques, il avait vu Cupidité sortir un trésor en forme de montagne céleste et en extraire l'âme.
 
 La scène de l'époque l'avait profondément marqué. Un tel sort était extrêmement puissant; ce n'était pas une technique que des cultivateurs ordinaires pouvaient contrôler ou maîtriser.
 
@@ -80,7 +80,7 @@ Des fissures apparurent sur l'écran, mais celui-ci ne céda pas. Sous la protec
 
 Huan Fengshen déclara d'un ton grave: « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
 
-L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen, qui s'était séparé de lui et se tenait non loin, puis détourna les yeux pour fixer tristement Liu Mei. Il hésita un instant avant de dire lentement: « Liu Mei... »
+L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen, qui s'était séparé de lui et se tenait non loin, puis détourna les yeux pour fixer Liu Mei d'un air sombre. Il hésita un instant avant de dire lentement: « Liu Mei... »
 
 Cependant, avant qu'il n'ait pu achever sa phrase, Liu Mei leva ses beaux yeux vers lui. Elle écarta les mèches de cheveux qui retombaient sur sa tête et dit doucement: « Maître, si Liu Mei part, je mourrai certainement. »
 

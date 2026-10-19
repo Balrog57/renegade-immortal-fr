@@ -8,7 +8,7 @@ slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
 ---
 Le continent du Taureau Céleste faisait partie du Continent Oriental, la terre appartenant aux êtres célestes. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
 
-La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête céleste maléfique que l'Ancêtre Céleste avait tuée avant de la placer ici. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
+La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête maléfique venue d'au-delà du ciel, que l'Ancêtre Céleste avait tuée, et dont le corps s'était transformé en ce continent. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!
 
 Même les 36 États des pays antiques possédaient des légendes similaires. Cependant, tant de temps avait passé que nul ne savait si ces récits étaient vrais. Peut-être seuls des êtres tels que les Neuf Soleils et les familles royales des deux races en détenaient la vérité.
 
@@ -46,7 +46,7 @@ Lorsqu'on le compara alors aux quatre génies célestes du Continent Oriental, i
 
 « Cependant, j'ai rencontré un cultivateur qui n'avait pratiqué que depuis un peu plus de 2 000 ans dans ce monde, et lorsque je me suis tenu devant lui... je n'osais même pas dégainer mon épée! »
 
-« Oubliez-moi, même ces quatre génies ne méritent pas qu'on les appelle ainsi! À mon avis, dans la nouvelle génération, personne n'est à sa hauteur! »
+« Sans parler de moi, même ces quatre génies ne méritent pas qu'on les appelle ainsi! À mon avis, dans la nouvelle génération, personne n'est à sa hauteur! »
 
 Ces paroles provoquèrent une onde de choc et un immense tumulte. Quiconque les entendait restait stupéfait, tous pensant à la même chose.
 
@@ -84,7 +84,7 @@ Outre l'utilisation de bois spécial ou de mécanismes, des cadavres de bêtes o
 
 L'art des marionnettes n'était pas si mystérieux; les cultivateurs d'autres sectes en connaissaient les rudiments. Cependant, le sortilège de la Secte du Dragon Bleu possédait une particularité unique: il permettait de convertir son propre corps en marionnette afin d'atteindre l'immortalité.
 
-La rumeur disait que le premier membre de la secte à avoir atteint le stade du Tribulant du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
+La rumeur disait que le premier membre de la secte à avoir atteint le stade de la Tribulation du Vide, le Grand Ancien Du Qing, était un être fait de bois. En apparence, il ressemblait à un homme ordinaire, mais dès qu'il utilisait ses sorts, son corps ligneux devenait visible.
 
 Sur le continent du Taureau Céleste, la Secte du Dragon Bleu jouissait d'une réputation sinistre. Ses disciples, et même ses anciens, utilisaient tous les moyens pour obtenir ce qu'ils désiraient, y compris le massacre pour s'emparer de trésors.
 

@@ -82,13 +82,13 @@ Ce dernier s'empressa de dire: « Maître, le disciple a seulement vu que Wang L
 
 À cet instant précis, l'Omniscient ouvrit soudainement les yeux et regarda vers l'est.
 
-« Il veut partir! » La main de l'Omniscient bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays du Démon d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
+« Il veut partir! » La main de l'Omniscient bougea avec une rapidité fulgurante, son regard semblant percer l'horizon. Il se fixa sur l'entrée de l'Abîme des Marées dans le Pays des Démons d'Eau et plongea jusqu'au fond de la faille. Cependant, sa vision ne s'arrêta pas là et s'enfonça plus profondément encore dans le gouffre.
 
 Alors qu'il descendait, Wang Lin le remarqua immédiatement. Il se laissa porter par la force d'aspiration pour accélérer sa chute. L'Omniscient sentit que son regard était perturbé par cette force; il hésita un instant avant de percer l'aspiration pour continuer sa descente.
 
 Le sortilège de l'Omniscient attira aussitôt l'attention de Ling Tianhou et des autres. Même le Couple Céleste des Nuages manifesta sa surprise. Tous ces vieux monstres déployèrent leurs sens divins, suivant la vision de l'Omniscient au plus profond de l'Abîme des Marées.
 
-L'expression de Wang Lin resta impassible tandis qu'il frappait son sac de rangement pour libérer la formation d'épée des sept étoiles. La formation tourbillonna autour de lui, décuplant sa vitesse.
+L'expression de Wang Lin resta impassible tandis qu'il frappait son sac de rangement pour libérer la formation d'épée des sept étoiles. La formation tourbillonna autour de lui, accroissant sa vitesse.
 
 Wang Lin fonça droit vers le fond du gouffre et atteignit bientôt le vortex. À cet instant, l'Omniscient et les sens divins de tous les vieux monstres descendirent vers lui!
 
@@ -110,13 +110,13 @@ Son expression devint extrêmement sombre et il hurla: « Wang Lin, où est ma f
 
 Là où d'autres n'auraient rien compris, l'Ancêtre Sanguin saisit immédiatement le sens de ses paroles. La quatrième fausse grotte était un secret que lui seul et Yao Xixue partageaient. C'était une chose que Yao Xixue n'aurait révélée à personne d'autre!
 
-C'était là le pari de Wang Lin. Bien qu'il fût sur le point de partir, il allait semer le chaos! Si l'Ancêtre Sanguin n'avait pas remarqué la présence de Yao Xixue, cela aurait été une chose de moins. Mais puisque le secret était découvert, Wang Lin devait contre-attaquer. Son but était d'empêcher l'Ancêtre Sanguin de le poursuivre personnellement à cause de sa fille! Il savait qu'avec l'esprit de ces vieux monstres, ses paroles les pousseraient à mille interprétations.
+C'était là le pari de Wang Lin. Bien qu'il fût sur le point de partir, il allait semer le chaos! Si l'Ancêtre Sanguin n'avait pas remarqué la présence de Yao Xixue, cela aurait été une chose de moins. Mais puisque le secret était découvert, Wang Lin devait contre-attaquer. Son but était d'empêcher l'Ancêtre Sanguin de le poursuivre personnellement à cause de sa fille! Il savait qu'avec l'esprit de ces vieux monstres, ses paroles les pousseraient à une infinité d'interprétations.
 
 Wang Lin avait disparu.
 
 Le silence retomba autour du vortex. Tous ces vieux monstres affichaient des visages lugubres. Ils avaient chacun leurs propres desseins, mais après avoir entendu les paroles de Wang Lin et vu la réaction de l'Ancêtre Sanguin, tous tournèrent leurs regards vers ce dernier.
 
-L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Après une réflexion rapide, il déclara: « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte! »
+L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Après un bref silence, il déclara: « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte! »
 
 « Nous savions déjà que ce vortex était une porte vers le système stellaire Luotian, mais la puissance à l'intérieur était trop forte. Ce Wang Lin a eu je ne sais quelle chance extraordinaire qui lui a permis d'y pénétrer! »
 

@@ -16,7 +16,7 @@ Enfin, le cultivateur dont le corps avait été perdu ouvrit la bouche pour crac
 
 Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une idée en tête: tuer Wang Lin pour s'emparer du sort céleste du neuvième étage. Leurs attaques étaient fulgurantes, et leurs sorts ainsi que leurs trésors magiques convergeaient rapidement vers Wang Lin et, en un instant, furent sur lui.
 
-Wang Lin était encore en état de transe, son esprit captivé par la scène prodigieuse qu'il avait contemplée avec le vent. Alors que les trois assaillants approchaient, il leva presque inconsciemment la main droite, dos aux trois hommes, et murmura: « Appeler le Vent. »
+Wang Lin était encore en état de transe, son esprit restait captivé par les changements prodigieux du sort "Invoquer le Vent". Alors que les trois assaillants approchaient, il leva presque inconsciemment la main droite, dos aux trois hommes, et murmura: « Invoquer le Vent. »
 
 À l'instant même où il prononça ces mots, un vent noir jaillit de la main de Wang Lin. Ce souffle s'amplifia aussitôt pour envelopper toute la zone. Tandis que ce vent glacial soufflait, le ciel s'obscurcit comme s'il se repliait sur lui-même.
 
@@ -40,7 +40,7 @@ Quant au cultivateur nommé Lu, l'éventail qu'il tenait se désintégra dès qu
 
 À cet instant, le vent noir disparut soudainement, comme s'il n'avait jamais existé. Les yeux de Wang Lin quittèrent leur état de transe pour retrouver toute leur clarté.
 
-« Ainsi donc, c'est cela, le sort céleste "Appeler le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant le cultivateur Lu.
+« Ainsi donc, c'est cela, le sort céleste "Invoquer le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant le cultivateur Lu.
 
 De son côté, le regard de Wang Lin devint glacial; il cracha un grain de sable qui se mua en un sceau pour poursuivre le cultivateur Song. L'artefact le rattrapa instantanément et s'abattit sur lui sans merci.
 
@@ -62,9 +62,9 @@ Après un long moment, ses traits retrouvèrent progressivement leur normalité,
 
 « Quel sort céleste redoutable! Je n'en ai saisi qu'une infime partie, et pourtant, lors de son usage, je n'ai pu le contrôler. La consommation d'énergie originelle fut si intense qu'elle faillit vider toute l'énergie originelle qui enveloppait le Royaume Ji dans mon corps. Si je ne m'étais pas rétabli assez vite, les conséquences auraient été inimaginables! »
 
-« Cependant, peu importe comment on le regarde, cela ressemble moins à un sort céleste qu'à un sort démoniaque! De plus, ce sort exige trop d'énergie... Pour l'utiliser, je devrai préparer les âmes originelles de plusieurs cultivateurs yin et yang. »
+« Cependant, peu importe comment on le regarde, cela ressemble moins à un sort céleste qu'à un sort démoniaque! De plus, ce sort exige trop d'énergie... Pour l'utiliser, je devrai préparer les âmes originelles de plusieurs cultivateurs des stades Yin Illusoire et Corporel Yang. »
 
-Wang Lin se leva et ramassa les sacs de contenance des défunts. Il contempla le Pavillon des Collections en marmonnant: « Hélas, ce pavillon ne peut être emporté... Autrement, les quatre grandes familles l'auraient déjà arraché de force au Royaume Céleste. Mais je n'ai pas l'intention de le laisser ici sans rien faire. Si seulement je pouvais l'emporter... »
+Wang Lin se leva et ramassa les sacs de rangement des défunts. Il contempla le Pavillon des Collections en marmonnant: « Hélas, ce pavillon ne peut être emporté... Autrement, les quatre grandes familles l'auraient déjà arraché de force au Royaume Céleste. Mais je n'ai pas l'intention de le laisser ici sans rien faire. Si seulement je pouvais l'emporter... »
 
 Alors qu'il réfléchissait, les yeux de Wang Lin s'illuminèrent soudainement en repensant aux paroles entendues à l'intérieur du tableau.
 
@@ -72,6 +72,6 @@ Alors qu'il réfléchissait, les yeux de Wang Lin s'illuminèrent soudainement e
 
 « Lorsque j'ai utilisé ces sceaux auparavant, j'ai senti le pavillon trembler... » Le cœur de Wang Lin fit un bond. Il se précipita immédiatement auprès du Pavillon des Collections.
 
-Il prit une profonde inspiration et forma les sceaux appris du garçon. En un instant, le Pavillon des Collections se mit à luire. Sous les yeux de Wang Lin, l'édifice rétrécit de plus en plus jusqu'à atteindre une taille tenant dans la paume d'une main, avant de voler vers lui.
+Il prit une profonde inspiration et forma les sceaux appris du garçon. En un instant, le Pavillon des Collections, de forme carrée, se mit à luire. Sous les yeux de Wang Lin, l'édifice rétrécit de plus en plus jusqu'à atteindre une taille tenant dans la paume d'une main, avant de voler vers lui.
 
 Tenant le Pavillon des Collections dans sa main, malgré sa force mentale, Wang Lin laissa échapper un rire. Un rire empreint d'une joie pure!

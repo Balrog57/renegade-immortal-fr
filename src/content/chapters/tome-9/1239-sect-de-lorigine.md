@@ -34,15 +34,15 @@ Cependant, en voyant l'opportunité parfaite offerte par l'effondrement des deux
 
 « Cette âme d'origine n'est pas puissante, elle se situe seulement au début du stade Briseur du Nirvana. Tant que je peux asservir cette âme au sein du roi moustique, je pourrai contrôler le roi lui-même! » Song Luohai serra les dents, produisant des craquements sinistres dans son corps. Il jaillit soudainement de sa cachette comme un éclair, traversant l'onde de choc des deux bêtes blanches pour charger la créature de Wang Lin.
 
-Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Briseur du Nirvana de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut derrière lui; il engagea son attaque la plus dévastatrice! Membre de la Secte de l'Âme Silencieuse, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
+Son timing était impeccable. Bien que sa cupidité ait supplanté son bon sens, il n'en demeurait pas moins réfléchi. Dès qu'il s'élança, ses mains formèrent un sceau et sa puissance de Briseur du Nirvana de stade intermédiaire se propagea avec fureur. L'illusion d'un soleil et d'une lune apparut entre ses mains; il engagea son attaque la plus dévastatrice! Membre de la Secte de l'Âme Silencieuse, il appartenait à une faction spécialisée dans les sorts de l'esprit. Ils ne cherchaient pas à endommager le corps, mais visaient directement l'âme!
 
 Alors que son sort se déployait, Song Luohai poussa un rugissement. Ce cri portait en lui un sortilège ciblant les âmes d'origine. Sous cette onde sonore, une âme d'origine vacillait et pouvait être frappée de vertiges instantanés.
 
 Ses actions et ses calculs étaient parfaits, mais... l'homme qu'il affrontait n'était autre que Wang Lin!
 
-Wang Lin avait déjà détecté la présence de Song Luohai sans pour autant lui accorder d'importance. Mais maintenant que les deux bêtes blanches s'étaient effondrées et que Song Luohai surgissait, l'étoile de la loi qui résidait en Wang Lin commença à scintiller.
+Wang Lin avait déjà détecté la présence de Song Luohai sans pour autant lui accorder d'importance. Mais maintenant que les deux bêtes blanches s'étaient effondrées et que Song Luohai surgissait, l'Étoile de la Loi qui résidait en Wang Lin commença à scintiller.
 
-Dès que l'adversaire chargea, la bête moustique de Wang Lin recula aussitôt. Le corps de Song Luohai franchit l'onde de choc et, alors qu'il était sur le point de rattraper sa proie, l'étoile de la loi se mit à pivoter et l'âme d'origine de Wang Lin prit forme. Un sourire moqueur étira les lèvres de Wang Lin tandis qu'il agitait sa main droite.
+Dès que l'adversaire chargea, la bête moustique de Wang Lin recula aussitôt. Le corps de Song Luohai franchit l'onde de choc et, alors qu'il était sur le point de rattraper sa proie, l'Étoile de la Loi se mit à pivoter et l'âme d'origine de Wang Lin prit forme. Un sourire moqueur étira les lèvres de Wang Lin tandis qu'il agitait sa main droite.
 
 Une bourrasque, soudainement transformée en tempête, s'abattit sur Song Luohai. Elle percuta le sortilège de l'homme et provoqua un fracas assourdissant.
 
@@ -70,7 +70,7 @@ Certains puissants cultivateurs du secteur avaient même été invités pour ass
 
 Une plateforme monumentale, occupant une partie de la planète, servait de lieu de compétition. Tout autour, d'innombrables gradins s'élevaient vers le ciel, remplis de cultivateurs.
 
-La Secte de l'Origine occupait une petite zone à la lisière nord. Comparé aux autres sectes qui comptaient des centaines de membres, la Secte de l'Origine n'en comptait que dix, ce qui lui donnait un air particulièrement dérisoire.
+La Secte de l'Origine occupait une petite zone à la lisière nord. Comparé aux autres sectes qui comptaient des centaines de membres, la Secte de l'Origine n'en comptait que moins de dix, ce qui lui donnait un air particulièrement dérisoire.
 
 Lu Yanfei restait assise en silence. Il ne restait que quelques jours avant la fin de la compétition entre les sectes de rang 4, après quoi viendrait le tour des sectes de rang 5.
 

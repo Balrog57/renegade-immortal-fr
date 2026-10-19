@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 608 - Blood Soul Pill
 slug: pilule-de-lame-sanguine
 ---
-La faux était façonnée à partir de l'énergie démoniaque de l'armure que portait le vieil homme. Ce dernier n'étant pas un démon, l'énergie qu'il avait aidé à créer n'était pas pure, ce qui signifiait que la faux ainsi apparue n'était pas parfaite. Cependant, l'illusion émanant de son front faisait partie d'une véritable âme démoniaque. Avec une telle âme, même un métal ordinaire pouvait être transformé en lame démoniaque, sans parler de cette faux forgée à partir d'énergie démoniaque.
+La faux était façonnée à partir de sa propre énergie démoniaque. Ce dernier n'étant pas un véritable démon, son énergie n'était pas pure, ce qui signifiait que la faux ainsi apparue n'était pas parfaite. Cependant, l'illusion émanant de son front faisait partie d'une véritable âme démoniaque. Avec une telle âme, même un métal ordinaire pouvait être transformé en lame démoniaque, sans parler de cette faux forgée à partir d'énergie démoniaque.
 
 Une fois l'âme démoniaque fusionnée avec la faux, celle-ci se transforma en une véritable faux démoniaque! Elle portait désormais en elle le dao du démon!
 
@@ -118,7 +118,7 @@ La silhouette de Wang Lin, telle une météorite, chargea le vieil homme, dont l
 
 « Explose! » Les flammes autour du corps de Wang Lin s'intensifièrent brutalement. Il fixa le vieil homme alors que son propre corps était soudainement anéanti par l'énergie spirituelle céleste qu'il contenait. Son âme originelle fut détruite en même temps que son corps, créant une onde de choc inimaginable.
 
-Si un cultivateur Ascendant normal s'était auto-détruit, le vieil homme n'aurait été qu'égratigné. Mais Wang Lin portait quatre gouttes de liquide céleste en lui; la différence était colossale!
+Si un cultivateur Ascendant normal s'était auto-détruit, le vieil homme aurait été blessé sans mourir. Mais Wang Lin portait quatre gouttes de liquide céleste en lui; la différence était colossale!
 
 La puissance de l'explosion se propagea avec une violence folle. Le corps du vieil homme fut le premier touché et il cracha immédiatement du sang. L'armure sur son corps se transforma instantanément en fils pour former un bouclier devant lui afin de résister à la déflagration!
 
@@ -126,7 +126,7 @@ Cependant, ce bouclier ne dura que trois respirations avant de se condenser sous
 
 Privé de protection, le vieil homme fut frappé de plein fouet par l'onde de choc et son corps s'effondra!
 
-Au moment même où il explosait, Wang Lin lança un coup de poing vers la tour noire. Ce coup était forgé par son dao, sa vie et son âme originelle; il contenait même la volonté de l'Ancien Dieu. Toutes les forces de son être furent concentrées dans ce seul geste.
+Au moment même où il explosait, Wang Lin lança un coup de poing vers la tour noire. Ce coup était forgé par son dao, sa vie et son âme originelle; il contenait même la volonté de l'Ancien Dieu de son corps principal. Toutes les forces de son être furent concentrées dans ce seul geste.
 
 Ce coup de poing généra une bourrasque puissante qui percuta la tour noire. La structure trembla et les fissures laissées par l'énergie de l'épée de Ling Tianhou s'élargirent. En un clin d'œil, toute la tour noire s'effondra!
 

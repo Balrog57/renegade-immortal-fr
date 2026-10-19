@@ -8,7 +8,7 @@ slug: wang-lin-aux-cheveux-noirs
 ---
 Le rugissement de la boucherie et de la destruction fusionna pour former un tonnerre massacre qui effacerait toute vie!
 
-Ce tonnerre portait en lui la destruction et constituait l'essence même de l'anéantissement. Son existence était la source de toutes les ténèbres du monde, l'expression de toute mort et de tout déclin.
+Ce tonnerre portait en lui la destruction et constituait l'essence même de l'anéantissement. Son existence était la source de toutes les ténèbres du monde, l'expression de toute mort et de toute destruction.
 
 Lorsque Wang Lin ouvrit les yeux, ils ne contenaient aucune lumière; ils étaient d'une obscurité totale. Cette noirceur remplaça ses pupilles, et ses cheveux devinrent entièrement noirs!
 

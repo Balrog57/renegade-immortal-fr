@@ -40,7 +40,7 @@ Dans un village au pied de la montagne Heng Yue, tous les villageois s'effondrè
 
 Peu de temps après, une tour de têtes apparut devant la demeure de la famille Wang. Sous cette tour, Wang Lin s'agenouilla et se prosterna, les larmes coulant sur ses joues.
 
-Il resta ainsi à contempler sa maison jusqu'à la tombée de la nuit. Puis, dans un soupir, Wang Lin frappa la tour de sa main, et celle-ci se changea en poussière.
+Il resta ainsi à contempler sa maison jusqu'à la tombée de la nuit. Puis, dans un soupir, Wang Lin frappa la tour de sa main, et celle-ci se changea en poussière que le vent dispersa.
 
 « J'ai vengé notre famille. Mère, Père, votre fils va désormais suivre son propre chemin... » Wang Lin se leva silencieusement et quitta le village.
 
@@ -104,12 +104,12 @@ Wang Lin ressentit un péril mortel durant le processus de transfert. Il perceva
 
 L'impact du Royaume Ji fit vaciller le Sens Divin un instant. À cet instant précis, une lumière apparut à l'autre extrémité et Wang Lin chargea vers elle avec précipitation.
 
-En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cinquante kilomètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il sortit un fil rouge de son sac de rangement.
+En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cinquante kilomètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il leva la main droite, un fil rouge flottant au creux de sa paume.
 
 Wang Lin savait que, peu importe ses efforts, il ne pourrait jamais échapper à la vitesse de cet individu. De plus, son Âme Naissante était trop endommagée. S'il continuait à courir, l'adversaire n'aurait même pas besoin d'agir: il mourrait de l'éclatement de son Âme Naissante.
 
 C'était là l'arme la plus puissante dont il disposait actuellement.
 
-Au moment où il sortit l'Éclair de la Rétribution Divine, il avala également une poignée de pilules.
+Au moment où il lança le fil de rétribution divine, il vida entièrement une fiole de pilules dans sa bouche.
 
 Le jeune homme au visage maléfique apparut à trente-trois mètres de Wang Lin. En voyant le fil que ce dernier tenait à la main, son expression devint troublée.

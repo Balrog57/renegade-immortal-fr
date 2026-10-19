@@ -52,7 +52,7 @@ Tout cela parut extrêmement lent à Wang Lin, mais en réalité, la scène s'é
 
 « Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Royaume Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, mon corps véritable ne peut venir en ce moment et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
 
-À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que 3,3 mètres de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, décuplant sa force.
+À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que 3,3 mètres de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, multipliant sa force.
 
 Pendant un instant, ce fut comme si le monde entier était enveloppé par la lumière des flammes. On pouvait voir l'éclat du brasier colorer le ciel, même à une grande distance.
 

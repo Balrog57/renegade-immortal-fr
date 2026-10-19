@@ -14,7 +14,7 @@ Wang Lin était habitué à ce que les regards se fixent sur lui lors de ce genr
 
 « Cet homme est très inconnu... »
 
-Des murmures s'élevèrent parmi la foule alors que Wang Lin passait devant des milliers de personnes, les 108 Jins, les 72 Saints, les 36 Zhangs...
+Des murmures s'élevèrent parmi la foule alors que Wang Lin passait devant des milliers de tables, les 108 Jins, les 72 Saints, les 36 Zhangs...
 
 À mesure qu'il progressait, les regards se concentraient de plus en plus sur lui, et le bourdonnement de la foule devenait de plus en plus intense.
 
@@ -56,7 +56,7 @@ Dès qu'il prit place, un immense tumulte éclata sur toute la place.
 
 Ceux qui reconnurent Wang Lin appartenaient à la famille royale, comme le Prince Ji Du. Les membres de l'Ancien Dao en savaient davantage car ils connaissaient sa réputation; cependant, les membres des autres clans affichaient des expressions extrêmement complexes en le regardant, avec des traces cachées de peur dans les yeux.
 
-En vérité, ils n'ignoraient pas totalement qui était Wang Lin. Xuan Luo l'avait conduit auprès des Anciens Ji et Shi. Outre le fait de venir présenter leurs cadeaux de félicitations, ils étaient venus observer la puissance de l'Ancien Dao.
+En vérité, ils n'ignoraient pas totalement qui était Wang Lin. Xuan Luo l'avait conduit sur les terres de l'Ancien Shi et de l'Ancien Ji. Outre le fait de venir présenter leurs cadeaux de félicitations, ils étaient venus observer la puissance de l'Ancien Dao.
 
 Parmi les regards tournés vers Wang Lin, l'un d'eux était empreint d'excitation. Ce regard provenait de l'une des plateformes flottantes où se trouvait le Prince Ji Du.
 
@@ -118,7 +118,7 @@ Wang Lin avança silencieusement de quelques pas et joignit à nouveau les mains
 
 Après un long moment, tout le monde remarqua cette anomalie et les regards convergèrent vers Wang Lin.
 
-Parmi ces nombreux regards, l'un d'eux provenait du Prince Ji Du. Il réprimait l'excitation dans son cœur. Il attendait le jour où Wang Lin serait expulsé de l'Ancien Dao!
+Parmi ces nombreux regards, l'un d'eux provenait du Prince Ji Du. Il réprimait l'excitation dans son cœur. Il attendait le jour où Wang Lin trahirait l'Ancien Dao!
 
 « Empereur, je suis venu remettre un cadeau de félicitations au nom de mon Maître. J'ai des affaires importantes à régler, je prends donc congé. » Wang Lin n'avait plus aucune patience, car il était extrêmement irrité; il regarda froidement l'Empereur. Il ne savait pas pourquoi, mais en revoyant cet homme, il ressentait une intention meurtrière et un dégoût indicibles!
 

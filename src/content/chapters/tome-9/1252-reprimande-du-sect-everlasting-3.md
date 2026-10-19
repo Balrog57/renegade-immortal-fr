@@ -24,7 +24,7 @@ Li Qianmei ne partit pas et s'assit suite à l'invitation de Wang Shanshan. Dès
 
 Les deux femmes se croisèrent un instant, Wang Shanshan faisant office d'intermédiaire. Alors que Wang Shanshan tentait de les présenter, elle fut soudain prise d'un frisson. Elle recula légèrement pour qu'aucun obstacle ne vienne entraver leurs regards.
 
-Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale: « Dame Li est bel et bien un génie; votre culture est extraordinaire. »
+Mu Bingmei fixa Li Qianmei longuement avant de détourner les yeux et de dire d'une voix douce mais glaciale: « Dame Li est en effet d'une beauté naturelle, et votre culture est extraordinaire. »
 
 Li Qianmei était quelque peu confuse de voir cette étrange et belle femme la dévisager ainsi. Lorsqu'elle soutint son regard, Li Qianmei répondit doucement: « En termes de beauté, je ne peux vraiment pas rivaliser avec la Compagnonne Cultivatrice Mu. »
 
@@ -96,7 +96,7 @@ Lu Yuncong détourna également son regard du ciel, comme s'il attendait lui aus
 
 Lu Yanfei esquissa un sourire tragique mais afficha une détermination qui la rendait étrangement belle. Elle hocha doucement la tête et recula de quelques pas. Ses mains formèrent un sceau et son énergie originelle commença à circuler.
 
-Cette énergie forma un vortex dans l'air, provoquant un grondement tonitruant. Cependant, à cet instant précis, le vortex devint incontrôlable, comme si une force étrange surgissait du vide pour le déchaîner!
+Cette énergie forma un vortex dans l'air, provoquant un grondement tonitruant. Cependant, à cet instant précis, le vortex devint incontrôlable, comme si une force étrange surgissait du vide, s'infiltrait dans le tourbillon et soulevait les vents et les nuages!
 
 Le ciel changea soudain de couleur. Pour une raison inconnue, le vortex continua de croître. Il échappa au contrôle de Lu Yanfei et s'élança vers les cieux!
 
@@ -104,7 +104,7 @@ Lu Yanfei fut totalement stupéfaite, mais son corps se mit aussitôt à tremble
 
 Non seulement elle, mais à cet instant, Lu Yuncong sentit son propre corps chanceler et son âme originelle vibrer. C'était comme si une pression indescriptible émanait du lointain. Une pression cataclysmique qui, une fois étendue sur la zone, lui ôta toute capacité de résistance.
 
-Il connaissait cette aura... il la connaissait très bien!
+Il connaissait cette volonté... il la connaissait très bien!
 
 Soudain, il leva la tête et fixa le ciel!
 

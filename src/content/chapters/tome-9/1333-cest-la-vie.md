@@ -66,7 +66,7 @@ C'était comme une demeure mortelle dont on aurait retiré le toit. À l'intéri
 
 L'homme d'âge moyen fixa le trône, abasourdi. L'imposante structure exerçait sur lui une pression colossale. Il déglutit difficilement et s'inclina respectueusement en joignant les mains: « Ce junior remettra tout. »
 
-Xu Liguo rit de bon cœur. Il regarda l'homme et sourit: « Bien. Désormais, suivez Grand-père Xu. Je veux savoir, où puis-je trouver des cultivatrices? »
+Xu Liguo rit de bon cœur. Il regarda l'homme et sourit d'un air mauvais: « Bien. Désormais, suivez Grand-père Xu. Je veux savoir, où puis-je trouver des cultivatrices? »
 
 L'homme sentit son cuir chevelu picoter sous le regard de Xu Liguo; un mauvais pressentiment l'assaillit, mais il ne savait que faire. Entendant la question, il répondit précipitamment: « S'il s'agit de cultivatrices, il existe, à plus de 100 000 kilomètres d'ici, une secte appelée Lei Xian Dao. Elle regorge de femmes et sa maîtresse est d'une beauté extrême! Cependant, son niveau de culture est très élevé... On dit qu'elle entretient des liens avec un membre éminent du clan... »
 
@@ -92,6 +92,6 @@ Grand Rouge ricana tout en dirigeant ses hommes pour piller plusieurs grottes. D
 
 Pendant que Xu Liguo et Grand Rouge collectaient leurs ressources, Wang Lin était assis dans la Secte du Tonnerre Céleste, une pierre de jade devant lui. Celle-ci contenait un ensemble de méthodes de culture propres au Clan du Tonnerre Dispersé.
 
-Cette technique s'appelait le Grand Sceau du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
+Cette technique s'appelait le Sceau de Rassemblement du Tonnerre. Elle permettait de compresser tout le tonnerre de son corps pour déclencher une attaque explosive dévastatrice! Toutefois, cela ne fonctionnait qu'avec l'aide de la marque du clan, et sa pratique prolongée aidait à éveiller lentement cette fameuse marque.
 
 Wang Lin étudiait cette méthode afin de comprendre la marque du Clan du Tonnerre Dispersé. Il pressentait que cet apprentissage serait crucial pour parvenir à absorber le tonnerre éternel!

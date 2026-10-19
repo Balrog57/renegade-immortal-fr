@@ -12,7 +12,7 @@ Les tremblements de la Formation de Scellement du Royaume se propageaient dans l
 
 En voyant cela, l'expression de Wang Lin changea radicalement!
 
-À cet instant, le Royaume Intérieur n'était pas prêt pour la bataille, et les Sept Royaumes Colorés n'avaient pas encore été trouvés. Mais la guerre était là. Wang Lin comprit immédiatement que les changements étranges de la formation étaient dus au Royaume Extérieur utilisant diverses méthodes pour déchirer le sceau!
+À cet instant, le Royaume Intérieur n'était pas prêt pour la bataille, et les Royaumes aux Sept Couleurs n'avaient pas encore été trouvés. Mais la guerre était là. Wang Lin comprit immédiatement que les changements étranges de la formation étaient dus au Royaume Extérieur utilisant diverses méthodes pour déchirer le sceau!
 
 La Formation de Scellement du Royaume était une arme à double tranchant! Elle isolait les Flammes Joss du Royaume Intérieur afin que ses cultivateurs ne puissent pas rivaliser avec ceux du Royaume Extérieur. C'était comme sectionner leurs racines!
 
@@ -20,7 +20,7 @@ Cependant, elle jouait un rôle protecteur direct; il était extrêmement diffic
 
 À ce moment précis, la Formation de Scellement du Royaume trembla violemment, comme si les esprits de la formation étaient sur le point d'être extraits. Cela était encore plus flagrant depuis le Royaume Extérieur!
 
-Cependant, Wang Lin n'avait pas de temps à perdre. Il n'était pas nécessaire qu'il prévienne les autres, car les cultivateurs du troisième niveau devaient déjà s'en être rendu compte. Pourtant, il était la personne la plus proche; bien qu'il ne puisse empêcher l'effraction de la formation, il devait se préparer au pire!
+Cependant, Wang Lin n'avait pas de temps à perdre. Il n'était pas nécessaire qu'il prévienne les autres, car les cultivateurs de la troisième étape devaient déjà s'en être rendu compte. Pourtant, il était la personne la plus proche; bien qu'il ne puisse empêcher l'effraction de la formation, il devait se préparer au pire!
 
 Une lueur d'intention meurtrière traversa ses yeux. L'intention meurtrière qu'il avait manifestée en tuant le Shui Daozi s'était un peu dissipée, mais elle resurgit ici avec force. Son essence de massacre augmentait rapidement!
 
@@ -82,7 +82,7 @@ Tandis que le tonnerre résonnait, la formation trembla violemment et les esprit
 
 À l'annonce de cette voix, le monde trembla. L'épée de cristal jaillit dans un hurlement assourdissant, suivie par tous les trésors environnants.
 
-Ce n'était pas une seule personne qui tentait de briser cette formation, mais la force combinée de six individus: deux concubines impériales célestes, trois puissances du troisième niveau et le Souverain!
+Ce n'était pas une seule personne qui tentait de briser cette formation, mais la force combinée de six individus: deux concubines impériales célestes, trois puissances de la troisième étape et le Souverain!
 
 Au moment où l'âme de la formation allait être extraite par le Souverain et que les esprits de la formation s'apprêtaient à attaquer, ces cinq trésors se précipitèrent. Ils lancèrent une attaque frénétique contre les esprits de la formation!
 
@@ -118,7 +118,7 @@ La Formation de Scellement du Royaume vibrait alors que les esprits de la format
 
 La Formation de Scellement du Royaume trembla, et l'âme née au sein de la formation depuis des dizaines de milliers d'années fut extraite. Cette âme était invisible, mais les cultivateurs extérieurs pouvaient ressentir son aura antique!
 
-L'âme était d'une taille colossale. Tandis qu'elle était tirée, il semblait que ce pouvoir mystérieux ne puisse la soutenir; elle ne parvint à la soulever que de quelques pieds avant de faiblir!
+L'âme était d'une taille colossale. Tandis qu'elle était tirée, il semblait que ce pouvoir mystérieux ne puisse la soutenir; elle ne parvint à la soulever que de plusieurs dizaines de pieds avant de faiblir!
 
 Un soupir résonna à travers le Système Stellaire Antique. La force mystérieuse se déchira soudainement sur le côté! Un fracas de tonnerre retentit et une brèche fut déchirée dans l'âme!
 

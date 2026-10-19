@@ -10,7 +10,7 @@ Cette mer de sang noire bougeait au rythme du vortex. De loin, elle ressemblait 
 
 Cette fontaine de sang était semblable à une immense gueule béante qui ne cessait de s'élever. En un instant, plus de la moitié de la distance de 10 000 pieds séparant le vortex de Wang Lin fut parcourue.
 
-Wang Lin tenait Situ Nan dans ses bras alors que son énergie originelle bouillonnait frénétiquement et que des flammes infinies enveloppaient son corps. Sa main traça un sceau, et la douzaine de grandes épées plongea dans les flammes. La rotation des lames attisait le feu pour repousser la mer de sang et son odeur infecte.
+Wang Lin tenait Situ Nan dans ses bras alors que son énergie originelle bouillonnait frénétiquement et que des flammes infinies enveloppaient son corps. Sa main traça un sceau, et les plus de dix grandes épées plongèrent dans les flammes. La rotation des lames attisait le feu pour repousser la mer de sang et son odeur infecte.
 
 Alors que la mer de flammes brûlait en craquant, l'aura maléfique était constamment consumée, l'empêchant de s'approcher.
 
@@ -88,7 +88,7 @@ Cent millions de brins d'énergie de la boucherie apparurent au-dessus du Vortex
 
 Wang Lin retint son souffle devant ce spectacle inimaginable. Il lui sembla entendre de nouveau, à son oreille, la voix calme mais autoritaire de l'Omniscient en robe grise d'autrefois:
 
-« Si j'avais cent millions de brins d'énergie de la boucherie, je serais serein même si une planète explosait! »
+« Si j'avais cent millions de brins d'énergie de la boucherie, je pourrais me protéger même si une planète explosait! »
 
 Wang Lin n'avait jamais vu une telle concentration d'énergie de la boucherie. En être le témoin direct lui infligea un choc indescriptible.
 
@@ -110,7 +110,7 @@ Maître du Vide prit une profonde inspiration en fixant l'Omniscient en robe gri
 
 « Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
 
-« C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa longévité et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
+« C'est uniquement parce que ce Senior Frère craignait cet homme qu'il a sacrifié sa longévité et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser le cœur Dao de cet homme. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
 Sinon, l'Omniscient aurait atteint un niveau terrifiant aujourd'hui. Même s'il n'égalait pas la troisième étape, il n'en serait certainement pas loin! »
 
@@ -124,7 +124,7 @@ L'Omniscient en robe grise lança un regard froid vers son corps originel. Cepen
 
 Puis l'Omniscient s'éleva du vortex et flotta dans les airs. Hormis ceux qui avaient été aspirés plus tôt, tous étaient encore là. Pourtant, le silence régnait; tous les regards étaient rivés sur la femme qui émergeait lentement du vortex!
 
-À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. Le Blaireau Marqué par les Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
+À mesure qu'elle approchait, Wang Lin vit clairement que ses pieds étaient fermement retenus par une sorte de tendon écarlate. Tandis qu'elle s'élevait vers le ciel, ce tendon se tendait droit. Le Blaireau Marqué d'Étoiles, qui avait disparu, surgit du vortex et atterrit sur le tendon entourant les pieds de la femme. Elle renifla quelques fois avant de s'allonger par-dessus sans bouger, ses yeux brillant d'une lueur vive.
 
 La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides comme pour sonder l'assemblée. Du sang noir s'écoulait encore de ses yeux et coulait le long de son menton.
 

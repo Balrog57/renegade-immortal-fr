@@ -18,7 +18,7 @@ Alors que Wang Lin laissait échapper un reniflement glacial, sa main droite se 
 
 Le visage de ce dernier devint livide. Il savait qu'il ne pouvait pas s'échapper. S'il voulait survivre, il devait se battre! Pourtant, son cœur était amer. Même en combattant, quelles étaient ses chances de survie... Il l'ignorait.
 
-S'il s'était trouvé à l'extérieur et qu'il avait combattu un membre de son propre clan, il aurait pu au moins se rendre. Cependant, cet homme était un cultivateur du Royaume Scellé et aussi un ancien dieu, un ancien dieu royal. D'après les archives de sa famille, son clan avait trahi les anciens dieux. Même s'il se rendait, il ne pourrait échapper à la mort ni à l'exploration de son âme.
+S'il s'était trouvé à l'extérieur et qu'il avait combattu un membre d'un autre clan, il aurait pu au moins se rendre. Cependant, cet homme était un cultivateur du Royaume Scellé et aussi un ancien dieu, un ancien dieu royal. D'après les archives de sa famille, son clan avait trahi les anciens dieux. Même s'il se rendait, il ne pourrait échapper à la mort ni à l'exploration de son âme.
 
 « Qu'est-ce que ce fichu endroit? Pourquoi des cultivateurs du Royaume Scellé apparaissent-ils ici?! »
 
@@ -32,13 +32,13 @@ Le visage de Wang Lin resta imperturbable. Il ricana et leva sa main droite pour
 
 L'impact entre le poing de Wang Lin et celui formé par le croissant lunaire provoqua un rugissement assourdissant.
 
-« Comment le sort d'un clan esclave peut-il défier un ancien dieu? » Wang Lin chargea et son poing droit enchaîna les coups contre le vortex. Le fracas se poursuivait tandis que le jeune homme, prisonnier du tourbillon, était repoussé sans cesse. Chaque pas en arrière faisait trembler violemment son corps.
+« Comment le sort d'un clan esclave peut-il défier un ancien dieu? » Wang Lin chargea et son poing droit enchaîna les coups contre le vortex. Le fracas se poursuivait tandis que le jeune homme, prisonnier du tourbillon, était repoussé sans cesse. Chaque pas en arrière lui arrachait du sang et faisait trembler violemment son corps.
 
 À cet instant, Wang Lin ressemblait à un dieu de la guerre. Empli d'une intention de combat infinie, il progressait pas à pas!
 
 L'un attaquait, l'autre reculait, et chaque choc générait une Force de Rebond Lunaire. À cet instant précis, tous les autres sons étaient étouffés par ces grondements.
 
-« Brise-toi! » La voix de Wang Lin était calme, mais empreinte d'une pression invisible. À ce moment, son corps pivota et son pied droit frappa le vortex.
+« Brise-toi! » La voix de Wang Lin était calme, mais empreinte d'une pression écrasante. À ce moment, son corps pivota et son pied droit, tel une tempête, frappa le vortex.
 
 Dans un déluge de craquements, le vortex s'effondra. Le croissant de lune à l'intérieur se fragmenta et explosa!
 
@@ -48,7 +48,7 @@ La vue du jeune homme était trouble, mais il lutta pour réciter un sort extrê
 
 « Sort de la Lune Interdit, Colère Divine! » Ce jeune homme savait que son Clan Dévorant la Lune possédait un ancien sort interdit. Il ne devait l'utiliser qu'en dernier recours, car cela était humiliant pour son clan!
 
-Alors qu'il rugissait, il s'agenouilla au sol. Wang Lin se rapprocha. La main du jeune homme traça un sceau étrange et il commença à pratiquer une adoration.
+Alors qu'il rugissait, il s'agenouilla au sol. Wang Lin se rapprocha. Ses mains traçaient un sceau étrange et il commença à pratiquer une adoration.
 
 « Prêtez la puissance des âmes des dieux aux membres de mon Clan Dévorant la Lune! »
 

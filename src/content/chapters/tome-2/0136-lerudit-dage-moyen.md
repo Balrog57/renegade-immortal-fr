@@ -48,7 +48,7 @@ La femme observa l'armée des cultivateurs qui progressait. Elle réfléchit un 
 
 Profitant de cette opportunité, l'armée de cultivateurs chargea à travers l'ouverture, brisant la ligne des quelque 20 000 bêtes de feu qui poursuivaient Wang Lin.
 
-Les épées volantes s'engouffrèrent une à une dans la brèche. Une fois le passage ouvert, la déroute des bêtes de feu devenait inévitable; après tout, leur but n'était pas d'exterminer les bêtes de feu, mais de s'échapper.
+Les épées volantes s'engouffrèrent une à une dans la brèche. Une fois le passage ouvert, la déroute des bêtes de feu devenait inévitable; après tout, le but de l'armée n'était pas d'exterminer les bêtes de feu, mais de s'échapper.
 
 Feng Luan fixa le champ de bataille. Le char du phénix chargea soudainement et perça également la ligne ennemie.
 

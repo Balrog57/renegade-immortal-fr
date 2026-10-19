@@ -72,7 +72,7 @@ Elle enroula les cheveux de Zhou Ru et y inséra personnellement l'épingle. Mu 
 
 « Maîtresse! » Des larmes coulèrent sur les joues de Zhou Ru. Elle avait le pressentiment que sa maîtresse et son oncle se connaissaient; mais qu'ils n'étaient pas amis, plutôt ennemis. Elle craignait qu'une fois partie, elle ne reverrait jamais sa maîtresse.
 
-Wang Lin affichait un regard tourmenté. Avec sa sagesse, il percevait que le lien entre Mu Bingmei et Zhou Ru n'était pas feint, mais il n'osait pourtant s'y fier si facilement. Pensant au Dao impitoyable de Liu Mei, il dit: « Zhou Ru. »
+Wang Lin affichait un regard tourmenté. Avec son expérience, il percevait que le lien entre Mu Bingmei et Zhou Ru n'était pas feint, mais il n'osait pourtant s'y fier si facilement. Pensant au Dao impitoyable de Liu Mei, il dit: « Zhou Ru. »
 
 Zhou Ru regarda Mu Bingmei, recula de quelques pas et s'agenouilla. Elle effectua trois prosternations et pleura: « Maîtresse, la disciple s'en va. »
 
@@ -92,7 +92,7 @@ Durant ces années, la douleur dans son cœur l'avait torturée jusqu'au bord de
 
 Liu Mei avait voulu graver son image dans le cœur Dao de Wang Lin. Elle avait réussi, et même aujourd'hui, elle y parvenait encore!
 
-« Je suis désolée... Je suis désolée... » Le visage de Mu Bingmei devint livide tandis que les larmes coulaient sur ses traits magnifiques. Lorsque ses larmes touchèrent le sol, elles semblèrent produire le bruit d'un effondrement.
+« Je suis désolée... Je suis désolée... » Le visage de Mu Bingmei devint livide tandis que les larmes coulaient sur ses traits magnifiques. Lorsque ses larmes touchèrent le sol, elles semblèrent produire le bruit de l'effondrement d'une vie antérieure.
 
 Wang Lin ouvrit silencieusement la formation. Alors que le grondement du réseau résonnait et que la lumière devenait intense, il sembla prendre une décision. Il interrompit la formation et murmura doucement:
 

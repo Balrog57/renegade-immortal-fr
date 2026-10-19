@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1275 - The Four Void Realms
 slug: les-quatre-royaumes-du-vide
 ---
-Les Chars de Guerre Divins avaient été perfectionnés par le célèbre forgeron excentrique du Royaume Céleste de la Pluie. Il venait de les fabriquer et ils n'étaient pas encore totalement activés; il cherchait encore les matériaux nécessaires lorsque la grande calamité du Royaume Céleste s'est abattue!
+Les Chars de Guerre Divins avaient été fabriqués par le célèbre forgeron excentrique du Royaume Céleste de la Pluie. Il venait de les fabriquer et ils n'étaient pas encore totalement activés; il cherchait encore les matériaux nécessaires lorsque la grande calamité du Royaume Céleste s'est abattue!
 
 Lors de cette calamité, il était mort dans un regret monstrueux. Il avait consacré tout son savoir et toute sa culture à la création de ces chariots de guerre. N'hésitant pas à parcourir le monde pour trouver les matériaux requis, il y avait dépensé toutes ses forces, ce qui avait provoqué le flétrissement rapide de sa longévité infinie. Vers la fin, il était aux cheveux blancs et presque dépourvu de vitalité. Même si la calamité ne s'était pas produite, il serait mort une fois les Chars de Guerre Divins achevés.
 
@@ -14,19 +14,19 @@ Son rêve était de créer le trésor le plus puissant du monde. Pour tuer même
 
 Son regret était resté gravé dans le jade, et finalement, il était tombé entre les mains de Wang Lin. Aujourd'hui, à cet instant précis, c'est entre les mains de Wang Lin que ce trésor révélait son pouvoir terrifiant capable de terrasser les dieux!
 
-Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le disciple du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
+Même si Shui Daozi avait vécu des dizaines de milliers d'années, même s'il était le serviteur du Seigneur du Royaume Scellé et l'Ancien en chef de la Secte Divine, il n'aurait pu connaître tout ce qui s'était passé dans les quatre Royaumes Célestes. Et encore moins un être céleste ayant créé un trésor défiant le ciel, capable de menacer des cultivateurs du troisième niveau!
 
 « Ce n'est pas un Trésor du Vide Nirvana. Il est impossible d'en déterminer le rang. Ceci... Quel genre de trésor est-ce là? » L'expression du garçon aux cheveux blancs changea. Il était venu pour tuer Wang Lin, et il en était absolument certain. La seule chose qui l'inquiétait était la Perle Défiant le Ciel. Il ne pensait pas que Wang Lin posséderait un trésor aussi terrifiant.
 
-Il n'avait pas le temps de réfléchir, car la lance de la Bête du Tonnerre fendit le ciel. Elle divisa la région de niveau 5 en deux et chargea droit sur Shui Daozi.
+Il n'avait pas le temps de réfléchir, car la lance de la Bête du Tonnerre fendit le ciel. Elle divisa la région de rang 5 en deux et chargea droit sur Shui Daozi.
 
 Il n'y avait aucun rugissement, seulement une intention meurtrière indescriptible. C'était comme si la lance possédait sa propre volonté. Une fois lancée, elle ne devait que tuer!
 
-Après être entré dans le troisième niveau, Shui Daozi utilisait rarement toute sa puissance pour combattre un ennemi. Cependant, à cet instant, son visage devint grave. Au moment où la lance approcha, il agita ses mains devant lui. Sa main droite prit la forme d'une griffe et frappa impitoyablement vers l'avant!
+Après être entré dans le troisième niveau, Shui Daozi utilisait rarement toute sa puissance pour combattre un ennemi. Cependant, à cet instant, son visage devint grave. Au moment où la lance approcha, il agita ses mains devant lui, ses larges manches fouettant l'air. Sa main droite prit la forme d'une griffe et frappa impitoyablement vers l'avant!
 
 « Dao de Découpe Insouciante! » Alors que les paroles de Shui Daozi résonnaient à travers le monde, sa main droite sembla forger le plus puissant dao de découpe. Lorsqu'il fit ce mouvement, des bruits de craquement éclatèrent, et il semblait même que le vide devant lui soit tranché.
 
-Le vide effondré s'étendit soudainement en une forme dentelée et se propagea. Les craquements atteignirent instantanément un paroxysme et résonnèrent à travers le monde comme un rugissement. La déchirure percuta rapidement la lance, créant un fracas assourdissant. Ce rugissement violent se propagea rapidement dans les régions de niveau 5 et 6. D'innombrables cultivateurs crachèrent du sang, leurs yeux remplis d'horreur.
+Le vide effondré s'étendit soudainement en une forme dentelée et se propagea. Les craquements atteignirent instantanément un paroxysme et résonnèrent à travers le monde comme un rugissement. La déchirure percuta rapidement la lance, créant un fracas assourdissant. Ce rugissement violent se propagea rapidement dans les régions de rang 5 et 6. D'innombrables cultivateurs crachèrent du sang, leurs yeux remplis d'horreur.
 
 La lance fut encerclée par le vide dentelé. Des grondements de tonnerre résonnèrent, de plus en plus forts. Le son de la friction se propagea, d'une acuité extrême. Lorsqu'il atteignit les oreilles de Wang Lin, il lui fit saigner ses orifices, comme si son corps était lui-même découpé. Une douleur intense envahit son être et il recula rapidement en crachant du sang.
 
@@ -46,9 +46,9 @@ Quant à la lance, elle trembla lorsque la fissure spatiale la traversa, avant d
 
 Après avoir détruit la lance, Shui Daozi ne se relâcha pas pour autant. Son regard devint encore plus austère. Une fois la lance anéantie, un rayon de lumière aux sept couleurs jaillit vers Shui Daozi!
 
-C'était le troisième Char de Guerre Divin, le plus puissant des trois!
+C'était le troisième Char de Guerre Divin, le plus puissant qu'il ait jamais créé!
 
-Cette lumière vive et multicolore était ce qui inquiétait véritablement Shui Daozi. Il la sentait d'une puissance terrifiante! La lumière aux sept couleurs était trop rapide; pour la première fois, Shui Daozi recula de trois pas tout en agitant sa main droite. La fissure spatiale s'élança pour trancher la lumière.
+Comparée à la lance, cette lumière vive et multicolore était ce qui inquiétait véritablement Shui Daozi. Il la sentait d'une puissance terrifiante! La lumière aux sept couleurs était trop rapide; pour la première fois, Shui Daozi recula de trois pas tout en agitant sa main droite. La fissure spatiale s'élança pour trancher la lumière.
 
 Cependant, au moment où la fissure toucha la lueur septicolore, elle commença à se rétracter rapidement. Il ne fallut qu'un instant pour qu'elle se referme complètement, comme si elle n'avait jamais existé.
 
@@ -56,7 +56,7 @@ Ce changement soudain fit pâlir l'expression de Shui Daozi, qui recula encore d
 
 Ce brouillard était noir, et un rugissement terrassant émana de son sein. Neuf spectres hideux et massifs se trouvaient à l'intérieur. Ils chargèrent immédiatement la lumière aux sept couleurs en rugissant.
 
-Chaque spectre était l'équivalent de la pleine puissance d'un cultivateur du troisième niveau du Fléau Céleste. Oubliez les deux sorts du Dao Insouciant, ces neuf spectres seuls lui permettraient de faire ce qu'il voulait dans n'importe quel système stellaire, rencontrant rarement la moindre résistance!
+Chaque spectre était l'équivalent de la pleine puissance d'un cultivateur du troisième Fléau Céleste. Oubliez les deux sorts du Dao Insouciant, ces neuf spectres seuls lui permettraient de faire ce qu'il voulait dans n'importe quel système stellaire, rencontrant rarement la moindre résistance!
 
 À cet instant, ces neuf spectres poussèrent des hurlements monstrueux et se rapprochèrent pour dévorer la lumière aux sept couleurs. Ils tremblèrent sous l'éclat intense de la lueur. Les spectres poussèrent des cris lugubres et reculèrent précipitamment, n'osant pas tenter de l'arrêter. Deux d'entre eux, trop lents, furent percutés par la lumière aux sept couleurs. Ils se désintégrèrent instantanément en une immense force du ciel et de la terre qui se dissipa.
 
@@ -64,7 +64,7 @@ L'expression de Shui Daozi était sombre alors qu'il reculait une fois de plus. 
 
 À ce moment, le visage de Wang Lin était livide, mais une intention meurtrière brûlait dans ses yeux. D'un geste de sa main droite, le trident apparut et son corps grandit rapidement pour devenir un dieu antique de milliers de pieds de haut. Il fit un pas en avant et lança le trident vers Shui Daozi.
 
-Tandis qu'il avançait, sa main gauche forma un sceau et pointa vers le ciel. *Invoquer le Vent* apparut soudainement, se transformant en dragons noirs. Alors que le vent destructeur s'intensifiait, les dragons noirs se changèrent en une lance perçant les cieux qui chargea Shui Daozi.
+Tandis qu'il avançait, sa main gauche forma un sceau et pointa vers le ciel. *Invoquer le Vent* apparut soudainement, se transformant en dragons noirs. Alors que le vent destructeur s'intensifiait, les dragons noirs se changèrent en lances noires perçant les cieux qui chargèrent Shui Daozi.
 
 *Invoquer la Pluie* apparut également. Les gouttes de pluie se transformèrent en épées de glace qui jaillirent.
 
@@ -82,7 +82,7 @@ Shui Daozi ferma les yeux et les rouvrit aussitôt. En un court laps de temps, i
 
 Rumble, rumble, rumble, rumble!
 
-Ce sort sans nom fit s'effondrer brusquement certaines des sept lumières, n'en laissant que trois. Elle n'était plus qu'à cent pieds. Vu sa vitesse, on ne pouvait même pas qualifier cela d'instantané.
+Ce sort sans nom fit s'effondrer brusquement certaines des sept lumières, n'en laissant que trois. Elle n'était plus qu'à moins de cent pieds. Vu sa vitesse, on ne pouvait même pas qualifier cela d'instantané.
 
 Face à ce danger imminent, les yeux de Shui Daozi brillèrent d'une lueur étrange et il prononça: « Sort d'Arrêt! »
 
@@ -100,4 +100,4 @@ Les trois couleurs restantes — rouge, jaune et bleu — libérèrent un gronde
 
 La différence de niveau de culture entre les deux était comme un gouffre infranchissable. Wang Lin regarda la scène, stupéfait, mais une flamme d'indignation brûlait dans son cœur.
 
-« Je refuse! J'ai encore trois atouts mortels! Même si je dois mourir, je veux que cet homme paie un prix irrécupérable! »
+« Je ne m'y résigne pas! J'ai encore trois atouts mortels! Même si je dois mourir, je veux que cet homme paie un prix irrécupérable! »

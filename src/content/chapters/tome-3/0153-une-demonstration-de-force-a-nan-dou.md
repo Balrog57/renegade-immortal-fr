@@ -34,7 +34,7 @@ Wang Lin jeta un bref regard au démon avant de porter son attention sur Li Muwa
 
 Wang Lin détourna le regard et fixa froidement le démon. Ce dernier s'éloigna rapidement en pensant: « Qui veut bien rester près de vous? Plus vous êtes loin, mieux c'est. Le mieux serait de ne plus jamais vous revoir. Le monde est vaste; quelle liberté ce serait! »
 
-Mais lui-même savait que cela était trop beau pour être vrai. Le démon marmonnait entre ses dents tout en poursuivant les cultivateurs. Alors qu'il affichait un sourire maléfique, sur le point de dévorer une proie, une lueur cristalline transperça la poitrine du cultivateur. Il jura de rage. Mais alors qu'il s'apprêtait à bondir sur une autre victime, un autre éclair cristallin jaillit.
+Mais lui-même savait que cela était trop beau pour être vrai. Le démon marmonnait entre ses dents tout en poursuivant les cultivateurs. Alors qu'il affichait un sourire maléfique, sur le point de dévorer une proie, une lueur cristalline transperça la poitrine du cultivateur. Il resta un long moment à fixer le cadavre, puis lança des injures avant de poursuivre une autre victime. Il finit par la rattraper, sur le point de la dévorer, lorsqu'un autre éclair cristallin jaillit.
 
 Une fois le démon parti, le cœur de Li Muwan se calma peu à peu. Elle hésita un instant avant de se tourner vers Wang Lin: « Il... il est? »
 
@@ -52,7 +52,7 @@ La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guan
 
 Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la Mer des Démons.
 
-Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de la Lutte contre le Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
+Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de la Lutte contre le Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon, et il leur faudrait bientôt présenter un gage d'allégeance. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
 
 Shang Guanmo aperçut l'un des adversaires et éclata de rire: « Ha ha! Si ce n'est pas le vieux Ouyang. Cela faisait longtemps que nous ne nous étions pas vus, retrouvons nos vieux souvenirs! » En même temps, d'un geste de la main droite, il fit sortir de son fourreau l'épée noire dans son dos, qui fila droit sur le vieil homme en laissant une traînée de lumière tranchante.
 
@@ -72,7 +72,7 @@ Li Muwan soupira intérieurement: « Pourquoi ne partez-vous pas plus vite? À q
 
 Les deux autres cultivateurs firent demi-tour et s'enfuirent sans dire un mot. Wang Lin les fixa et projeta soudain son Sens Divin du Royaume Ji, laissant une marque sur chacun d'eux.
 
-À cet instant, le cultivateur qui combattait Shang Guanmo poussa un cri misérable et tenta de fuir. Mais alors qu'il s'échappait, l'épée cristalline du démon apparut soudainement devant lui. Le démon grogna: « Arrête de me voler! Celui-ci est à moi! À MOI! »
+À cet instant, le cultivateur qui combattait Shang Guanmo poussa un cri misérable et tenta de fuir. Mais alors qu'il s'échappait, l'épée cristalline de Wang Lin apparut soudainement devant lui, et la lueur rouge du démon surgit en même temps. Le démon grogna: « Tu me voles encore! Celui-ci est à moi! À MOI! »
 
 Toutefois, il fut un instant trop tard. Après un éclair cristallin, un large trou apparut dans la poitrine du cultivateur.
 
@@ -84,4 +84,4 @@ Wang Lin savait que pour s'imposer ici, il devait faire étalage de sa puissance
 
 À cet instant, Mu Nan et Mu Bei éprouvèrent un respect profond pour Wang Lin. En particulier Mu Bei, dont le regard exprimait une déférence totale tandis qu'il guidait rapidement le groupe vers la Secte de la Lutte contre le Mal.
 
-Devant Wang Lin, la masse de cadavres dégageait une aura mortelle. Cette démonstration était plus efficace que n'importe quel discours. De nombreux cultivateurs aux intentions malveillantes, en voyant ces milliers de corps, pâlirent et reculèrent, craignant d'être entraînés dans ce carnage.
+Derrière Wang Lin, la masse de cadavres dégageait une aura mortelle. Cette démonstration était plus efficace que n'importe quel discours. De nombreux cultivateurs aux intentions malveillantes, en voyant ces milliers de corps, pâlirent et reculèrent, craignant d'être entraînés dans ce carnage.

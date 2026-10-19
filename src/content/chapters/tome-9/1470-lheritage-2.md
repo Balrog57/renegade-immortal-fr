@@ -22,7 +22,7 @@ En ce jour, une silhouette vêtue d'une robe taoïste aux sept couleurs apparut 
 
 « Je tiendrai ma promesse envers vous... Une fois que le Dao Céleste aura grandi, je renverrai cet arc à votre secte... » Le cultivateur aux sept couleurs prit l'arc prodigieux des mains de Li Guang. Cependant, à cet instant précis, son expression changea et il fit un pas en avant sans réfléchir. Il se déplaçait avec une rapidité fulgurante, atteignant ses limites!
 
-« Dao Ancien, sans Céleste! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
+« Ancien Dao, aucun Céleste! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
 
 Cette simple phrase, ces quatre mots épurés, firent une fois de plus changer l'expression du cultivateur aux sept couleurs.
 
@@ -48,7 +48,7 @@ En seulement trois respirations, Wang Lin sentit son corps atteindre ses limites
 
 Parce qu'il s'était éveillé, le nombre d'étoiles de Dieu Ancien entre ses sourcils était redevenu six. Pourtant, alors qu'il absorbait l'aura, une septième étoile apparut vaguement!
 
-La puissance du Diable Ancien se rassembla dans son œil droit, laissant présager la formation d'étoiles démoniaques!
+La puissance du Diable Ancien se rassembla dans son œil droit, laissant présager la formation d'étoiles de Diable Ancien!
 
 Quatrième respiration!
 
@@ -104,7 +104,7 @@ Sixième respiration!
 
 Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains formèrent un sceau et sa main droite pressa le trône. Il commença à invoquer les Flammes Joss de son corps, tandis que sa main gauche appuyait sur Wang Lin pour l'aider à compenser la force de rejet.
 
-Les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
+Les cheveux et les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
 
 Zhou Jin, du Clan du Loup Céleste, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
 
@@ -120,7 +120,7 @@ Huitième respiration!
 
 La force de rejet du trône atteignit un niveau capable de faire trembler les cieux. Des craquements retentirent dans le corps de Wang Lin et le sang coula du coin de sa bouche, mais son expression restait extrêmement féroce.
 
-« Je ne le permettrai pas!! » rugit Wang Lin alors que sa puissance de Dieu Ancien emplissait son corps pour entrer en collision avec la force de rejet du trône.
+« Je refuse d'y croire!! » rugit Wang Lin alors que sa puissance de Dieu Ancien emplissait son corps pour entrer en collision avec la force de rejet du trône.
 
 Le sang jaillit du coin de la bouche de Ling Dong. Son corps tremblait et son visage était d'une pâleur mortelle.
 
@@ -138,4 +138,4 @@ Cependant, à cet instant précis, un changement majeur survint!
 
 « Ce dieu a enfin trouvé cet endroit grâce à mon intuition, c'est ici!! Ce maudit Tu Si rêvait de venir ici!! » Un rire résonna dans le palais vide. Une distorsion apparut dans le vide et le corps de Tuo Sen s'apprêtait à surgir de la faille!
 
-Alors qu'il chargeait, la distorsion fut compressée en une forme convexe et un grondement de tonnerre retentit lorsqu'il frappa la déchirure spatiale!
+Alors qu'il chargeait, la distorsion fut compressée en une forme convexe et un grondement de tonnerre retentit lorsqu'il frappa la déchirure spatiale, poing après poing!

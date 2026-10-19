@@ -6,19 +6,19 @@ bookTitle: Light of the coming end
 en: Three Losses, Two Calamities
 slug: troisieme-epreuve-deuxieme-calamite
 ---
-Il n'existait que trois temples ancestraux dans tout le clan Ancien. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de la statue de chaque pays.
+Il n'existait que trois temples ancestraux dans tout le clan Ancien. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de chacune des statues de l'Ancêtre.
 
 Chaque membre adulte du clan Ancien se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
 
 Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une culture en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empyréens, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
-Wang Lin se tenait au centre de la cité impériale des Anciens Shi. Il se trouvait sous l'antique statue, le regard fixé silencieusement vers l'horizon.
+Wang Lin se tenait au centre de la cité impériale des Anciens Shi. Il se trouvait sous l'antique statue, qui semblait soutenir le ciel, et la regardait en silence.
 
-Cette statue était identique à celle de l'Ancien Dao. L'Ancêtre regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans l'Ancien Dao.
+Cette statue était identique à celle de l'Ancien Dao. L'Ancêtre, les mains dans le dos, regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans l'Ancien Dao.
 
 Cependant, à cet instant précis, cette statue lui apparut sous un jour nouveau.
 
-Le dédain et le mépris n'étaient qu'une façade. Au plus profond, Wang Lin percevait une pointe de tristesse. Une tristesse dirigée vers lui-même, mais aussi envers tous les êtres vivants.
+Le dédain et le mépris n'étaient qu'une façade. Au plus profond, Wang Lin percevait une profonde tristesse. Une tristesse dirigée vers lui-même, mais aussi envers tous les êtres vivants.
 
 Wang Lin demanda lentement: « Qui a sculpté la statue de l'Ancêtre? »
 
@@ -50,7 +50,7 @@ La lumière sombre sur la statue de l'Ancêtre s'estompa progressivement. Elle r
 
 Song Tian resta là un long moment avant de laisser échapper un soupir et de partir.
 
-Les membres des Anciens Shi avaient tous remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur des Anciens Shi, et les gens finirent par oublier l'événement.
+La plupart des membres des Anciens Shi avaient remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur des Anciens Shi, et les gens finirent par oublier l'événement.
 
 L'ensemble des Anciens Shi ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
 
@@ -78,7 +78,7 @@ En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l
 
 Ce n'était pas le couronnement de Ji Du, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
 
-Ce grand festival dura plusieurs mois, durant lesquels les membres des deux autres clans arrivèrent. Un homme d'âge mûr vint de l'Ancien Dao; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
+Ce grand festival dura plusieurs mois, durant lesquels les membres et les familles royales des deux autres clans arrivèrent. Un homme d'âge mûr vint de l'Ancien Dao; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
 
 Une fois le festival terminé et les invités repartis, Ji Du amena sa femme devant le temple ancestral sous la lumière de la lune.
 

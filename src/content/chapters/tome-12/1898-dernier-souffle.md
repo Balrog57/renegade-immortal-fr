@@ -114,7 +114,7 @@ La folie de Wang Lin insuffla une terreur extrême à l'âme du scorpion. Déjà
 
 Décidant de battre en retraite, l'âme du scorpion poussa un rugissement silencieux et recula rapidement. Cependant, Wang Lin la poursuivit et continua de dévorer comme un possédé. Cela ne fit qu'accroître la terreur du scorpion.
 
-Elle battit en retraite précipitamment et finit par quitter la tête de Wang Lin. Juste au moment où elle allait sortir du corps de celui-ci, Wang Lin en prit une énorme bouchée, ce qui lui arracha un cri. Elle s'échappa rapidement du corps de Wang Lin, mais son corps gigantesque avait diminué de moitié. Une fois dehors, elle s'enfuit dans le ciel, paniquée.
+Elle battit en retraite précipitamment et finit par quitter la tête de Wang Lin. Juste au moment où elle allait sortir du corps de celui-ci, Wang Lin en prit une énorme bouchée, ce qui lui arracha un cri. Elle s'échappa rapidement du corps de Wang Lin, mais son corps gigantesque semblait avoir rétréci. Une fois dehors, elle s'enfuit dans le ciel, paniquée.
 
 Le vieil homme aux robes vertes vit cela. Il fut stupéfait et ses yeux trahirent sa confusion.
 

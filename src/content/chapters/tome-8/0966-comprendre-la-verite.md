@@ -78,7 +78,7 @@ Sa main droite forma un sceau, il pointa le ciel et ordonna: « Invoquez la plui
 
 Peu après, une force invisible sembla émaner du doigt de Wang Lin. En un instant, toute la pluie située dans un rayon de dizaines de milliers de kilomètres fut enveloppée par cette force et s'immobilisa.
 
-Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à 3,3 centimètres du sol, elles demeuraient immobiles.
+Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à 3,3 centimètres du sol ou d'un avant-toit, elles demeuraient immobiles.
 
 Chaque goutte de pluie contenait une force étrange.
 

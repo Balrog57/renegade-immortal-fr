@@ -74,7 +74,7 @@ Toutefois, une fois qu'il aurait réussi sa propre Formation du Noyau, les tuer 
 
 Sous la pression des trois poursuivants, Wang Lin s'enfuit pendant un jour et une nuit. Au cours de cette course, les trois lancèrent d'innombrables trésors et, peu à peu, Wang Lin sentit ses forces décliner. Après l'attaque surprise de l'épée cristalline, ils étaient devenus plus vigilants, rendant ses tentatives suivantes moins efficaces.
 
-Le regard de Wang Lin devint de plus en plus froid. Son sens divin se verrouilla sur les trois adversaires et le tonnerre rouge du Royaume Ji jaillit. Les trois cultivateurs de la Formation du Noyau ne virent qu'un éclair rouge avant d'avoir l'impression que des marteaux leur fracassaient le crâne. Le sang coula de leurs bouches et de leurs nez, et après avoir titubé, ils affichèrent une terreur qu'ils n'avaient jamais manifestée auparavant.
+Le regard de Wang Lin devint de plus en plus froid. Son sens divin se verrouilla sur les trois adversaires et l'éclair rouge du Royaume Ji jaillit. Les trois cultivateurs de la Formation du Noyau ne virent qu'un éclair rouge avant d'avoir l'impression que des marteaux leur fracassaient le crâne. Le sang coula de leurs bouches et de leurs nez, et après avoir titubé, ils affichèrent une terreur qu'ils n'avaient jamais manifestée auparavant.
 
 Le cultivateur déjà blessé toussa une nouvelle fois un sang épais. Ses yeux étaient injectés de sang et la douleur le faisait hurler intérieurement. S'il n'avait pas été soutenu par son compagnon, il serait tombé de son épée volante.
 
@@ -92,7 +92,7 @@ S'il n'y avait eu qu'un seul adversaire, en utilisant toute sa puissance et l'ai
 
 Wang Lin soupira intérieurement tout en accélérant sa course.
 
-Huit heures plus tard, alors que la nuit était tombée, il avait utilisé son Royaume Ji à plusieurs reprises, mais cela ne servait qu'à les ralentir. Il déploya son sens divin et s'arrêta brusquement. Il se retourna pour faire face aux ennemis qui le traquaient depuis deux jours et une nuit.
+Seize heures plus tard, alors que la nuit était tombée, il avait utilisé son Royaume Ji à plusieurs reprises, mais cela ne servait qu'à les ralentir. Il déploya son sens divin et s'arrêta brusquement. Il se retourna pour faire face aux ennemis qui le traquaient depuis deux jours et une nuit.
 
 Les trois hommes étaient épuisés, mais ils ne pouvaient pas renoncer. S'ils laissaient Wang Lin s'échapper et atteindre le stade de la Formation du Noyau, leur mort serait certaine. En voyant Wang Lin s'arrêter soudainement, ils furent frappés de confusion.
 

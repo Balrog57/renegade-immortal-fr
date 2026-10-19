@@ -14,7 +14,7 @@ Peu après, l'âme originelle du dragon de tonnerre ancestral de Wang Lin apparu
 
 « Tu cherches la mort! » L'expression de l'Ancêtre Sanguin était sombre alors qu'il reculait rapidement. Il lança les deux boules de sang qu'il tenait en main et cria: « Explosion de sang! »
 
-Dans un bang fracassant, les boules de sang explosèrent et une force puissante se propagea. L'âme originelle du dragon de tonnerre ancestral de Wang Lin se dissipa immédiatement.
+Dans un fracas retentissant, les boules de sang explosèrent et une force puissante se propagea. L'âme originelle du dragon de tonnerre ancestral de Wang Lin se dissipa immédiatement.
 
 Cependant, l'Ancêtre Sanguin ne se détendit pas pour autant et devint encore plus prudent.
 
@@ -30,7 +30,7 @@ L'Ancêtre Sanguin fut stupéfait. Son expression changea lorsqu'il réalisa que
 
 « De plus, votre pavillon de sang est assez intéressant! » La voix de Wang Lin surgit du vide.
 
-« Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin pour la première fois après son réveil, il n'avait pas aperçu la moindre trace de Yao Xixue. Il était impossible de la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
+« Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin pour la première fois après son réveil, il n'avait pas aperçu la moindre trace de Yao Xixue. Même l'Ancêtre Sanguin n'aurait sans doute pas pu la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
 
 Les paroles de Wang Lin furent comme une rétribution divine invisible frappant le cœur de l'Ancêtre Sanguin. Son âme originelle ayant déjà été endommagée auparavant, il fut profondément ébranlé dans cet état instable.
 
@@ -84,9 +84,9 @@ Hormis quelques rares individus, personne ne pouvait rivaliser avec Wang Lin dan
 
 Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume Céleste et les os de bête — face à un cultivateur du début du stade Scruteur du Nirvana venant tout juste d'entrer au second niveau, l'issue resterait incertaine, mais il avait désormais les moyens de se battre.
 
-La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Tout-Ciel disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
+La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Luotian disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
 
-« Éliminer la racine pour ne laisser aucun problème à l'avenir! » Les yeux de Wang Lin s'illuminèrent. Sa culture du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois.
+« Éliminer la racine pour ne laisser aucun problème à l'avenir! » Les yeux de Wang Lin s'illuminèrent. Sa culture du Yang Corporel s'activa, multipliant sa vitesse par plusieurs fois par rapport au sommet de l'Ascendant.
 
 Il était tel une météorite traversant le vide.
 
@@ -110,6 +110,6 @@ Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et u
 
 Parmi les trois se trouvaient deux hommes et une femme. La femme était magnifique et ses yeux dégageaient un charme séduisant. Elle tenait actuellement l'une des épées célestes que Li Yuan avait récupérées dans l'espace de stockage céleste!
 
-Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement: « Cet homme en possède encore huit autres. Puisque la Sœur Junior Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La culture de cet homme se situait également au sommet du stade avancé tardif de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
+Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement: « Cet homme en possède encore huit autres. Puisque la Sœur Junior Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La culture de cet homme se situait également au sommet du stade avancé de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
 
 Si Wang Lin avait été présent, il aurait immédiatement compris que ce vieil homme se trouvait au sommet du stade de l'Yin Illusoire.

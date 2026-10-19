@@ -30,9 +30,9 @@ Au cours de sa vie, Wang Lin avait parcouru de nombreux lieux étrangers, et la 
 
 C'était un jour qu'il ne pouvait oublier. Chaque année, à cette même date, il le passait seul, que ce soit en massacrant pour s'oublier, en fuyant pour enfouir ses souvenirs au plus profond de son cœur, ou en culture de porte close où il laissait passer les années en silence.
 
-Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la mélancolie, la solitude et la perte emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer!
+Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa gorge, mais il n'en ressentait pas le piquant, car la nostalgie, la solitude et la désolation emplissaient son cœur. Peu importe la force de l'alcool, rien ne parvenait à les effacer!
 
-« Wan Er, j'ai accepté Li Qianmei, je suis désolé... » Wang Lin songeait silencieusement. Il sortit une cruche de vin de sous la Voile Fantôme et but une gorgée.
+« Wan Er, j'ai accepté Li Muwan, je suis désolé... » Wang Lin songeait silencieusement. Il sortit une cruche de vin de sous la Voile Fantôme et but une gorgée.
 
 « Cette bonté est une dette que je ne pourrai jamais rembourser... Wan Er... Je ne veux plus aimer dans cette vie, car ton départ m'a fait connaître le prix de l'amour... Je ne peux pas le supporter. »
 
@@ -46,7 +46,7 @@ Le cœur de Wang Lin fut pris d'une douleur lancinante; il vida la cruche de vin
 
 Non loin de là, le Grand Empyréen Xuan Luo était assis et contemplait le dos de Wang Lin. La tristesse et la solitude qui émanaient de cet homme émurent jusqu'à lui.
 
-« Wan Er, attends, attends-moi... Ce ne sera pas long avant que je puisse le faire! » Wang Lin but une gorgée de vin, laissant le liquide déborder du coin de sa bouche. D'un revers de manche, il fit apparaître le Cercueil d'Évasion Céleste devant lui.
+« Wan Er, attends, attends-moi... Ce ne sera pas long avant que je puisse le faire! » Wang Lin but une gorgée de vin, laissant le liquide déborder du coin de sa bouche. D'un revers de manche, il fit apparaître le Cercueil Évitant le Ciel devant lui.
 
 En regardant Li Muwan endormie à l'intérieur du cercueil, il esquissa un sourire tendre. Mais ce sourire ressemblait à une aiguille transperçant son cœur.
 
@@ -104,7 +104,7 @@ En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha
 
 Au loin, le Grand Empyréen Xuan Luo avait tout observé en silence, et son propre cœur ressentit une pointe de douleur. Il regarda Wang Lin, contempla son sourire et médita intérieurement:
 
-« Quelle solitude et quelle tristesse peuvent pousser un homme à chercher la joie dans un rêve? » soupira Xuan Luo.
+« Quelle nostalgie et quelle tristesse peuvent pousser un homme à chercher la joie dans un rêve? » soupira Xuan Luo.
 
 Wang Lin resta là, le sourire aux lèvres, jusqu'à ce que la silhouette de Li Muwan disparaisse. Il ferma ensuite lentement les yeux et tout son environnement s'évanouit. Lorsqu'il rouvrit les paupières, il était de retour dans le Royaume Céleste, sur la montagne, contemplant Li Muwan qui dormait à l'intérieur du cercueil.
 

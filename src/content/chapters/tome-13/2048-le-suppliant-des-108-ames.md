@@ -18,7 +18,7 @@ La porte était close et non ouverte.
 
 « Le Piétinement du Ciel... Suis-je en train de piétiner le ciel en ce moment même... » Wang Lin ne pouvait plus ressentir sa propre existence alors qu'il contemplait la terre en contrebas. Il médita silencieusement tout en tournant son regard vers la direction du clan céleste. Les 72 continents se transformèrent soudainement en 72 bêtes féroces et monstrueuses hurlant vers les cieux.
 
-Cela incluait le Taureau Céleste, le Scorpion Démon Vert et de nombreuses bêtes scellées dont il avait lu l'existence. Les bêtes semblèrent remarquer le regard de Wang Lin et poussèrent toutes un rugissement. Wang Lin pouvait clairement ressentir leur peur, mais il percevait aussi une autre intention derrière cette crainte.
+Cela incluait le Taureau Céleste, le Scorpion Démon Vert et de nombreuses bêtes scellées qu'il avait vues dans l'Épreuve Empyréenne. Les bêtes semblèrent remarquer le regard de Wang Lin et poussèrent toutes un rugissement. Wang Lin pouvait clairement ressentir leur peur, mais il percevait aussi une autre intention derrière cette crainte.
 
 Au moment même où Wang Lin pénétrait dans ce royaume légendaire après la Tribulation du Vide, les 72 continents du clan céleste commencèrent à trembler. Ces secousses s'intensifièrent et furent ressenties par tous les cultivateurs. Tous étaient confus, ne comprenant pas ce qui se produisait.
 
@@ -30,7 +30,7 @@ Sur le continent du Taureau Céleste, un gigantesque Taureau Céleste apparut, e
 
 Il implorait l'existence étrange qu'il sentait dans les cieux de lui accorder la liberté!
 
-À l'instar du Taureau Céleste, de plus en plus des 72 âmes supprimées au sein du clan céleste apparurent l'une après l'autre. Même certaines de celles que l'on croyait mortes se manifestèrent. Bien que leurs silhouettes fussent d'un bleu éthéré, leur supplication terrifiée vers le ciel était tout aussi bouleversante.
+À l'instar du Taureau Céleste, de plus en plus des 72 âmes supprimées au sein du clan céleste apparurent l'une après l'autre. Même certaines de celles que l'on croyait mortes se manifestèrent. Bien que leurs silhouettes fussent floues, leur supplication terrifiée vers le ciel était tout aussi bouleversante.
 
 Presque tous les cultivateurs du clan céleste furent témoins de cette scène qui déchirait le firmament. Ils étaient plongés dans la panique et le désarroi. La terre tremblait de plus belle tandis que les âmes apparues continuaient de rugir; on aurait dit qu'une calamité était sur le point de s'abattre!
 
@@ -38,11 +38,11 @@ Presque tous les cultivateurs du clan céleste furent témoins de cette scène q
 
 Il fixa l'arbre imposant émergeant du Continent de la Mer des Montagnes. L'arbre s'agita en poussant des rugissements stridents.
 
-Dao Yi contempla l'arbre géant et eut un haut-le-cœur. « Bon sang, cet arbre monstrueux n'était-il pas mort?! Pourquoi son âme est-elle encore là?! Que s'est-il passé? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais?! »
+Dao Yi contempla l'arbre géant et eut le souffle coupé. « Bon sang, cet arbre monstrueux n'était-il pas mort?! Pourquoi son âme est-elle encore là?! Que s'est-il passé? Se pourrait-il qu'il y ait un problème avec Lian Daofei, qui les supprime sous le palais?! »
 
 Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
-Dans la Secte Yang Violet, le Grand Empyréen Gémeaux s'élança, observa la terre et fronça les sourcils.
+Dans la Secte Yang Violet, les Grands Empyréens Gémeaux s'élancèrent, observèrent la terre et froncèrent les sourcils.
 
 Dans la Cité Ancestrale, le Grand Empyréen Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 
@@ -88,7 +88,7 @@ La terre tremblait alors que les 36 âmes des 36 pays apparaissaient toutes. Cel
 
 Le Luo Hou se manifesta dans sa totalité. Sa tête était une immense masse de chair semblable à une planète de culture. Sa queue ressemblait à celle d'un dragon, et il n'en possédait pas une, mais neuf. Il hurla vers le ciel en implorant de l'aide.
 
-Xuan Luo sortit de sa méditation en porte close. Il observa la scène et eut un haut-le-cœur.
+Xuan Luo sortit de sa méditation en porte close et s'élança aussitôt dans les airs. Il observa la scène, le souffle coupé.
 
 L'Ancien Shi Song Tian fixa les changements dans les 36 pays, stupéfait.
 

@@ -10,7 +10,7 @@ Il ne fallut que peu de réflexion à Wang Lin pour comprendre pourquoi les cult
 
 En vérité, cela confirmait les soupçons de Wang Lin. Le cultivateur aux grandes oreilles, Zhou Wutai, éprouvait une immense gratitude envers Wang Lin pour lui avoir permis d'accéder au rang de Suzaku. Cependant, après le départ de Wang Lin, il n'avait jamais eu l'occasion de lui témoigner sa reconnaissance.
 
-Zhou Wutai était un homme de parole; il n'oubliait jamais ce que Wang Lin avait fait pour lui.
+Zhou Wutai savait distinguer les bienfaits des offenses; il n'oubliait jamais ce que Wang Lin avait fait pour lui.
 
 Par conséquent, qu'il s'agisse des descendants de Wang Lin, de la secte qu'il avait laissée derrière lui ou même du pays de Zhao, tous avaient progressivement prospéré sous la protection de Zhou Wutai.
 
@@ -28,11 +28,11 @@ Une vaste cité apparut au loin. Cette ville, semblable à un dragon enroulé, e
 
 Avant même de s'en approcher, Wang Lin perçut la présence de nombreuses restrictions puissantes à l'intérieur de la ville. Elles étaient si nombreuses que, si elles étaient toutes activées, elles représenteraient une menace réelle, même pour des cultivateurs Ascendants.
 
-C'était la seule cité impériale mortelle de la planète Suzaku en dehors des terres occupées par le Clan Immortel Abandonné!
+C'était la seule cité impériale mortelle de la planète Suzaku en dehors des terres occupées par le Clan des Immortels Délaissés!
 
 La Grande Dynastie Wang!
 
-Fondée il y a 437 ans, elle était devenue la force mortelle la plus puissante de la planète Suzaku après le Clan Immortel Abandonné.
+Fondée il y a 437 ans, elle était devenue la force mortelle la plus puissante de la planète Suzaku après le Clan des Immortels Délaissés.
 
 La famille royale Wang possédait une lignée séculaire. Plus de 400 ans de consolidation avaient permis à la dynastie d'amasser une armée colossale et d'attirer d'innombrables artistes martiaux. Cependant, ce qui faisait la véritable puissance de la dynastie, c'était l'immense nombre de cultivateurs!
 
@@ -80,7 +80,7 @@ Ce n'est que lorsque tout fut terminé que la foule recommença à bavarder et q
 
 — Hélas, quelle malchance! Qui a été assez aveugle pour provoquer le 16e Prince cette fois? Je crains qu'il ne soit traîné dans toute la capitale avant de recevoir l'autorisation de mourir!
 
-— Bien sûr, dans notre Grande Dynastie Wang, la famille Wang est le ciel même. Même les immortels sont leurs serviteurs; qui oserait les défier?
+— Bien sûr, dans notre Grande Dynastie Wang, la famille Wang est le ciel même. Même les immortels leur prêtent main-forte; qui oserait les défier?
 
 — Ne parlons pas de ça. Il y a quelques mois, le Professeur National contemplait le ciel nocturne et a perçu un signe funeste venant du nord-ouest. En conséquence, des centaines de milliers de personnes y ont été massacrées. On dit que même aujourd'hui, le nord-ouest est jonché de cadavres.
 

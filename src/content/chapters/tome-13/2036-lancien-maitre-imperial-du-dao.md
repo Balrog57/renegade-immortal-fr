@@ -60,7 +60,7 @@ Avec son corps véritable des cinq éléments et ses six Extrêmes du Dao, Wang 
 
 Cependant, au moment où ce coup frappa la brume, il sembla être bloqué par une gigantesque créature marine à huit tentacules qui émergea des profondeurs. Ses huit membres s'enroulèrent autour du bras de l'ombre de l'Ancien Dao avant qu'elle ne pousse un rugissement strident.
 
-Peu après, trois autres bêtes apparurent successivement de la brume. L'une était un roc qui déploya ses ailes pour s'élancer dans le ciel. Il y avait aussi un phénix violet colossal qui, dès son apparition, propagea une lumière pourpre et fit résonner son cri à travers le monde.
+Peu après, trois autres bêtes apparurent successivement de la brume. L'une était un roc qui déploya ses ailes pour s'élancer dans le ciel. Il y avait aussi un phénix violet colossal qui, dès son apparition, propagea une lumière violette et fit résonner son cri à travers le monde.
 
 La dernière bête était une créature humanoïde: un géant à deux têtes. Ses mains frappaient sa poitrine tandis qu'il ouvrait la gueule pour charger Wang Lin.
 
@@ -68,7 +68,7 @@ Au total, neuf bêtes étaient sorties de la brume pour empêcher l'entrée de W
 
 « Il doit encore en rester une dixième! » ricana Wang Lin en levant la main gauche vers le roc dans le ciel. L'espace autour de la créature sembla se détacher du monde avant d'être brusquement compressé. Un éclat jaillit de son doigt: c'était le Doigt de l'Ancêtre Ancien!
 
-Simultanément, une ombre superposée apparut sur le corps de Wang Lin et son corps véritable de la Foudre de Massacre sortit. Les cheveux de cette essence véritable devinrent noirs, dégageant une intention meurtrière terrifiante tout en affichant un sourire cruel. Ses yeux étaient froids et impitoyables alors qu'il avançait, se transformant en d'innombrables fils noirs qui transpercèrent le phénix pourpre. Le phénix poussa un cri déchirant avant d'exploser, laissant place au corps véritable de la Foudre de Massacre. Ce dernier lécha ses lèvres et chargea une autre bête.
+Simultanément, une ombre superposée apparut sur le corps de Wang Lin et son corps véritable de la Foudre de Massacre sortit. Les cheveux de cette essence véritable devinrent noirs, dégageant une intention meurtrière terrifiante tout en affichant un sourire cruel. Ses yeux étaient froids et impitoyables alors qu'il avançait, se transformant en d'innombrables fils noirs qui transpercèrent le phénix violet. Le phénix poussa un cri déchirant avant d'exploser, laissant place au corps véritable de la Foudre de Massacre. Ce dernier lécha ses lèvres et chargea une autre bête.
 
 Quant à la neuvième bête, le géant à deux têtes n'était plus qu'à quelques centaines de pieds de Wang Lin. Une odeur nauséabonde l'assaillit alors que la créature chargeait férocement.
 

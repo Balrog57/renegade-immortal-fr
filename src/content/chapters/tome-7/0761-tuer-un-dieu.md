@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 761 - Killing God
 slug: tuer-un-dieu
 ---
-L'Ancêtre Sanguin lança un regard glacial à Wang Lin. Son doigt ne s'arrêta pas et continua de presser vers le bas, s'arrêtant à peine à 3,3 centimètres du visage de Wang Lin.
+L'Ancêtre Sanguin lança un regard glacial à Wang Lin. Son doigt ne s'arrêta pas et continua de presser vers le bas, s'arrêtant à peine à 9,9 centimètres du visage de Wang Lin.
 
 Un fracas assourdissant résonna dans le ciel. Wang Lin cracha une bouchée de sang et son corps fut projeté tel un cerf-volant brisé. Dans les airs, il effectua plusieurs rotations avant de s'écraser au sol, faisant craqueler la terre sous lui.
 
@@ -20,7 +20,7 @@ Du sang coula davantage du coin de la bouche de Wang Lin; de nombreux os de son 
 
 Ce sourire était d'une noirceur extrême.
 
-« Je pensais que l'Ancêtre Sanguin allait vraiment laisser ce doigt frapper, sans se soucier de la mort de Yao Xixue, et tout détruire! » Wang Lin n'avait aucune crainte. Bien que l'Ancêtre Sanguin fût puissant, il n'était pas aussi invincible que les Cieux. Wang Lin était un cultivateur défiant les cieux; si lui osait se rebeller contre les cieux, qu'était donc un simple Ancêtre Sanguin?
+« Je pensais que l'Ancêtre Sanguin allait vraiment laisser ce doigt frapper, sans se soucier de la mort de Yao Xixue, et détruire ce clone! » Wang Lin n'avait aucune crainte. Bien que l'Ancêtre Sanguin fût puissant, il n'était pas aussi invincible que les Cieux. Wang Lin était un cultivateur défiant les cieux; si lui osait se rebeller contre les cieux, qu'était donc un simple Ancêtre Sanguin?
 
 Si le doigt de l'Ancêtre Sanguin avait porté son coup, Wang Lin était certain que la garde céleste mourrait sans aucun doute et que son sens divin à l'intérieur s'effondrerait instantanément.
 
@@ -66,13 +66,13 @@ La chaîne de tonnerre sous les pieds de Wang Lin s'effondra instantanément, se
 
 « Affine! » Dans un rugissement, la mer de sang environnante sembla bouillir avant de se ruer sur Wang Lin. La vague fut si rapide qu'elle pénétra le corps de Wang Lin en un instant, envahissant la garde céleste et encerclant son sens divin à l'intérieur.
 
-Une douleur indicible se propagea instantanément dans tout son être. Le sens divin logé dans la garde céleste ressentit une souffrance extrême, comme si on le déchiquetait morceau par morceau.
+Une douleur indicible se propagea instantanément dans tout son être. L'âme originelle logée dans la garde céleste ressentit une souffrance extrême, comme si on la déchiquetait morceau par morceau.
 
 La puissance du corps de la garde céleste brilla à cet instant précis; elle parvint à résister à l'affinement de la mer de sang, ralentissant ainsi le processus.
 
 Mais ce n'était pas fini. Un rayon de lumière sanguine jaillit et disparut dans le vide. Il ne s'était pas réellement volatilisé, mais utilisait un étrange pouvoir céleste pour percer l'espace et traquer l'endroit où le corps de Wang Lin se dissimulait.
 
-La haine de l'Ancêtre Sanguin avait atteint son paroxysme. Il voulait affiner le clone de Wang Lin ainsi que le sens divin qu'il contenait. Par son sortilège, il pouvait même tenter d'affiner jusqu'à la mort le corps originel caché quelque part.
+La haine de l'Ancêtre Sanguin avait atteint son paroxysme. Il voulait affiner le clone de Wang Lin ainsi que l'âme originelle qu'il contenait. Par son sortilège, il pouvait même tenter d'affiner jusqu'à la mort le corps originel caché quelque part.
 
 Le fragment où se cachait le corps originel de Wang Lin fut immédiatement baigné de rouge. Le sol, tel une mer de sang, se mit à converger vers lui. La lumière rouge pénétra la terre et se condensa en une aiguille écarlate qui fonça sur Wang Lin.
 
@@ -80,7 +80,7 @@ Si cette aiguille l'atteignait, l'âme originelle de Wang Lin s'effondrerait et 
 
 Caché sous terre, Wang Lin ouvrit soudainement les yeux. Il sortit la sphère de restriction que Li Yuan lui avait donnée et, sans hésiter, utilisa son énergie spirituelle céleste pour provoquer l'effondrement de la moitié des restrictions de l'espace de stockage! Au même instant, il jaillit de sous terre tandis que l'aiguille le poursuivait de près.
 
-« Ancêtre Sanguin, j'ignore si l'âme originelle de votre fille pourra rester en sécurité quand cet espace s'effondrera! » L'âme originelle de Wang Lin, dans la marionnette du garde céleste, laissa échapper un gémissement étouffé, prononçant ces derniers mots avant de se briser.
+« Ancêtre Sanguin, j'ignore si votre fille pourra rester en sécurité quand cet espace s'effondrera! » L'âme originelle de Wang Lin, dans la marionnette du garde céleste, laissa échapper un gémissement étouffé, prononçant ces derniers mots avant de se briser.
 
 L'expression de l'Ancêtre Sanguin changea radicalement lorsqu'il ressentit presque aussitôt les fluctuations de l'espace qui s'effondrait provenant du cristal. Il n'eut pas le temps de s'occuper de Wang Lin ou de la marionnette à moitié raffinée. Il lâcha le cristal et posa un sceau pour tenter de le stabiliser.
 

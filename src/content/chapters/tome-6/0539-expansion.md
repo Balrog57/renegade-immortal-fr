@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 539 - Expansion
 slug: expansion
 ---
-Toute la population de la zone d'un rayon de cinq kilomètres fut absorbée par la tribu installée dans la vallée. Même le vieil homme aux robes grises accepta ce sort et ne manifesta aucune intention de résistance.
+Toute la population de la zone d'un rayon de cinq kilomètres fut absorbée par la tribu installée dans la vallée. Même le vieil homme en robe grise accepta ce sort et ne manifesta aucune intention de résistance.
 
-De plus en plus de personnes commencèrent à étudier le sort de affinement de l'âme, un sujet qui intéressait vivement le vieil homme aux robes grises.
+De plus en plus de personnes commencèrent à étudier le sort de affinement de l'âme, un sujet qui intéressait vivement le vieil homme en robe grise.
 
 La taille de la tribu augmenta considérablement. En incluant les nouveaux captifs, le nombre d'hommes au sein de la tribu dépassait désormais les 500 individus. Cela faisait d'elle une tribu de taille moyenne parmi celles des environs.
 
@@ -80,11 +80,11 @@ Plutôt que d'enseigner aux gens comment les entretenir, il choisit d'utiliser l
 
 Dès l'apparition de ces nuages, une onde de choc parcourut la Tribu du Affinement de l'Âme. De nombreux membres se précipitèrent dehors, tandis que les plus puissants s'enveloppèrent dans leurs propres drapeaux d'âme pour tenter de s'élever et comprendre ce qui se passait.
 
-« Libérez vos fragments d'âme dans les nuages noirs pendant une durée déterminée chaque jour. Cela rendra les fragments d'âme encore plus puissants! » La voix de Wang Lin résonna à travers les 20 kilomètres de territoire.
+« Libérez vos fragments d'âme dans les nuages noirs un nombre fixe de fois chaque jour. Cela rendra les fragments d'âme encore plus puissants! » La voix de Wang Lin résonna à travers les 20 kilomètres de territoire.
 
 À l'instant même où sa voix fut entendue, chaque membre de la tribu s'agenouilla au sol. Leurs visages étaient empreints de respect, et ils se prosternaient tous vers la vallée où résidait Wang Lin.
 
-Une fois les nuages noirs apparus, les fragments d'âme des tribalisés hurlèrent et s'agitèrent dans l'obscurité tout au long de la journée.
+Une fois les nuages noirs apparus, les âmes d'hommes et de bêtes hurlèrent et s'agitèrent dans l'obscurité tout au long de la journée.
 
 Les habitants de la Tribu du Affinement de l'Âme finirent par s'habituer à libérer leurs fragments pour qu'ils soient nourris dans ces nuages, lesquels devinrent le symbole unique de la tribu.
 

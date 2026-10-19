@@ -12,7 +12,7 @@ slug: des-intrus
 
 « Ce passage ne devrait pas exister. Quelqu'un a ouvert ce passage directement dans la grotte du Souverain Céleste aux Sept Couleurs... Qui a pu ouvrir un tel passage... » Les yeux de Wang Lin s'illuminèrent et son esprit se mit en ébullition. Il fouilla rapidement sa mémoire, cherchant la moindre trace d'indice.
 
-Grâce à ces indices, Wang Lin commença à déduire ce qui s'était passé autrefois!
+Grâce à ces indices, Wang Lin commença à déduire ce qui s'était passé il y a des éons!
 
 « Qui est-ce... Est-ce le fou... Ou quelqu'un d'autre... » Wang Lin recula jusqu'à l'endroit où la bête moustique absorbait les œufs. Ignorant les pensées de Wang Lin, la créature continuait son festin avec joie. Son corps brillait tandis qu'elle digérait lentement ce qu'elle avait absorbé.
 
@@ -20,7 +20,7 @@ Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il
 
 « Au sein du Clan du Tonnerre Dispersé, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
 
-« Il y avait aussi le Fouet d'Âmes. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait à Na Duo! »
+« Il y avait aussi le Fouet d'Âme. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
 
 « D'après les nouvelles du Clan du Tonnerre Dispersé, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 
@@ -48,7 +48,7 @@ Diverses images défilèrent dans l'esprit de Wang Lin. Ce n'étaient que des vi
 
 « Puisqu'ils ne sont pas partis, où sont-ils? Sur la Planète des Cinq Éléments! Ils n'ont pas encore trouvé ce qu'ils cherchent. Peut-être que leur but est le même que celui du Daoïste aux Sept Couleurs et du Vieux Fantôme Zhan! »
 
-« La mante guette la cigale, ignorant l'oiseau moqueur qui rôde derrière elle! Ces personnes doivent avoir cette idée en tête! » Le corps de Wang Lin s'anima et sa main droite se tendit vers le moustique. Il comptait emporter la créature avec lui hors de la faille.
+« La mante guette la cigale, ignorant le moineau jaune qui rôde derrière elle! Ces personnes doivent avoir cette idée en tête! » Le corps de Wang Lin s'anima et sa main droite se tendit vers le moustique. Il comptait emporter la créature avec lui hors de la faille.
 
 Cependant, les bêtes moustiques affichèrent un regard de regret en contemplant tous les œufs. La créature poussa un sifflement vers Wang Lin.
 
@@ -76,7 +76,7 @@ L'effondrement du Royaume Céleste du Vent n'était pas irréversible et, grâce
 
 Quant au Royaume Céleste de la Foudre, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
 
-« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de la Foudre est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel jaillit dans son Sens Divin qui enveloppait tout le royaume.
+« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de la Foudre est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel intermédiaire jaillit dans son Sens Divin qui enveloppait tout le royaume.
 
 Les fragments du Royaume Céleste du Vent convergèrent de toutes parts, comme poussés par une force invisible vers le centre!
 
@@ -102,7 +102,7 @@ Le continent flottait là, émettant d'immenses quantités d'énergie céleste. 
 
 Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre continents pour recueillir les Flammes Joss. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
 
-Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler en suivant le mouvement du continent.
+Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler, tapies au sol, en suivant le mouvement du continent.
 
 Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de la Foudre!
 

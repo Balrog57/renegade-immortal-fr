@@ -50,7 +50,7 @@ C'était le Royaume Céleste Antique, le cœur de cette grotte. Si cela s'était
 
 Pourtant, Wang Lin ne recula pas face au vent et aux grondements. Il resta calme et ferma les yeux. Dès qu'il les ferma, le monde entier devint une illusion.
 
-Cette fausseté était une création de son esprit; elle n'était pas réellement réelle, mais Wang Lin avait compris la Voie du Vrai et du Faux. S'il décidait que tout était faux, alors son corps, son âme originelle, son esprit et tout son être percevraient le monde extérieur comme une illusion!
+Cette fausseté était une création de son esprit; elle n'était pas réellement réelle, mais Wang Lin avait compris l'essence du Vrai et du Faux. S'il décidait que tout était faux, alors son corps, son âme originelle, son esprit et tout son être percevraient le monde extérieur comme une illusion!
 
 L'essence du Vrai et du Faux était une essence éthérée; elle naissait du cœur!
 

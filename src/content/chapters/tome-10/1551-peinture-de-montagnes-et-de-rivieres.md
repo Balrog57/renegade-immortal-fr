@@ -10,7 +10,7 @@ Wang Lin accordait une importance capitale à ceux qui l'avaient aidé!
 
 Même si le monde se dégradait sous le poids du temps, la bonté de Qing Shui ne s'effacerait jamais! Wang Lin n'oubliait jamais ceux qui lui avaient tendu la main.
 
-Grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un frère cadet d'une génération différente et lui avait enseigné l'intégralité de ses techniques. Il avait également été un pilier inébranlable pour Wang Lin lorsque ce dernier était encore faible!
+Cette affection n'avait rien de sentimental: grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un frère cadet d'une génération différente et lui avait enseigné l'intégralité de ses techniques. Il avait également été un pilier inébranlable pour Wang Lin lorsque ce dernier était encore faible!
 
 « Tu es mon frère cadet, je ne laisserai personne te faire du mal! » Cette simple phrase suffisait à réchauffer le cœur de Wang Lin pendant des millénaires.
 
@@ -44,7 +44,7 @@ Le dragon noir des Flammes Joss fut percuté par le rugissement de Qing Shui alo
 
 Wang Lin fit un pas en avant en riant. Il saisit le dragon noir et le projeta derrière lui.
 
-« Je te laisse partir! Mais si tu tues ne serait-ce qu'une seule personne dans le Royaume Intérieur, je te détruirai! »
+« Je te laisse partir! Mais si tu tues ne serait-ce qu'une seule personne dans le Royaume Intérieur, je détruirai ton âme! »
 
 Le corps du dragon noir frémit, puis il manifesta une joie inimaginable. Il inclina la tête devant Wang Lin avant de disparaître sans laisser de trace.
 
@@ -70,7 +70,7 @@ Ils ressemblaient à deux branches; si un parchemin avait été placé entre ell
 
 « Peinture de Montagnes et de Rivières, protégez l'Alliance! » Une voix antique s'échappa de la bouche du vieil homme. À cet instant, des ondulations apparurent dans l'espace entre les deux montagnes!
 
-De loin, cela ressemblait à un tableau vivant!
+De loin, cela ressemblait bel et bien à un tableau!
 
 Lorsque la peinture se manifesta, toute la planète frémit. Des ondulations résonnèrent et l'encre commença à s'élever comme si elle était douée d'une âme. Elle convergea devant le vieil homme pour former une peinture fantomatique de plus de 100 000 pieds!
 
@@ -108,4 +108,4 @@ Dans la Rivière Invoquée, bien qu'elle soit tombée dans le royaume extérieur
 
 « Ceci... c'est... c'est de l'énergie spirituelle céleste!! Elle est si pure que même Maître-Oncle Ma ne pourrait l'égaler!! C'est un Royal Céleste! Qui est-ce? Qui est descendu?! Bon sang, comment un Royal Céleste a-t-il pu arriver ici? Comment ont-ils trouvé l'endroit?! »
 
-Le mystérieux Vieux Fantôme Zhan et le noble Royaume Céleste Antique furent également frappés de stupeur par cette énergie spirituelle céleste...
+Le mystérieux Vieux Fantôme Zhan et le Royaume Céleste Antique, haut perché et scellé, furent également frappés de stupeur par cette énergie spirituelle céleste...

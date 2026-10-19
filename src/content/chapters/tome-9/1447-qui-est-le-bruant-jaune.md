@@ -42,11 +42,11 @@ Les restrictions lancées par l'homme au début auraient effectivement pu briser
 
 Pour éviter les soupçons, il avait pris le risque, par on ne sait quelle méthode, de se cacher dans la brume. Il avait poussé des cris déchirants pour que tous le croient mort.
 
-Il avait réussi à éliminer la plupart des présents et à chasser les autres. Il avait également fait en sorte que la brume rouge scelle toutes les failles spatiales, empêchant quiconque d'entrer par elles. Après toutes ses manigances, il était le seul survivant. Un tel acte demandait un courage immense. Wang Lin regarda le corps au sourire étrange et agita sa main droite. Le corps s'effrita en poussière et se dissipa.
+Il avait réussi à éliminer la plupart des présents et à chasser les autres. Il avait également fait en sorte que la brume rouge scelle toutes les failles spatiales, empêchant quiconque d'entrer par elles. Après toutes ses manigances, il était le seul survivant. Un tel calcul et un tel courage faisaient de lui un homme d'exception. Wang Lin regarda le corps au sourire étrange et agita sa main droite. Le corps s'effrita en poussière et se dissipa.
 
 « De cette façon, même si tu triches, tu n'as aucune chance de ressusciter! » Il avait depuis longtemps percé à jour les intentions de l'érudit, c'est pourquoi il avait laissé une restriction pour pouvoir téléporter un retour ici.
 
-Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de culture. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Ancienne et de la Restriction du Temps, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
+Grâce à sa maîtrise des restrictions, il ne craignait pas que l'homme ne découvre son piège, compte tenu de son niveau de culture. Après avoir traversé une faille céleste, Wang Lin était revenu via la restriction. Il n'avait pas tué l'érudit, mais celui-ci n'avait pas remarqué qu'en plus de la Restriction de l'Âme Ancienne et de la Restriction Temporelle, la Restriction de la Vie et de la Mort était également présente dans la brume. Quant à la simulation de sa mort, Wang Lin l'avait bien vue, mais elle était sans effet face à lui.
 
 Wang Lin s'approcha de la brume rouge. Cette simple restriction avait coûté tant de vies. Il ressentit une fois de plus la cruauté du monde de la culture.
 
@@ -58,7 +58,7 @@ Une fine ligne noire apparut au cœur de la brume rouge. Cette ligne noire, entr
 
 Après une observation attentive, les mains de Wang Lin formèrent rapidement des sceaux et une restriction apparut entre ses paumes. Il prit une profonde inspiration et poussa délicatement la restriction vers le vortex de brume rouge. Des craquements retentirent et la brume sembla absorber l'artifice de Wang Lin. La ligne noire devint plus nette. Les yeux de Wang Lin s'illuminèrent et, sans hésiter, il tendit la main pour saisir la ligne noire et l'extraire.
 
-Wang Lin tira la ligne noire comme on attrape un serpent, puis elle se dissipa. À cet instant, la brume rouge s'effondra telle de la neige sous l'effet d'une eau bouillante. De vastes pans de brouillard se dissipèrent, ouvrant un passage vers le centre de la plateforme. « Il y a encore... » À l'apparition du passage, les pupilles de Wang Lin se contractèrent un bref instant avant de retrouver leur calme habituel. Un élan de joie avait surgi, mais il le réprima aussitôt. Il s'apprêtait à s'élancer dans le passage.
+Wang Lin tira la ligne noire comme on attrape un serpent, puis elle se dissipa. À cet instant, la brume rouge s'effondra telle de la neige sous l'effet d'une eau bouillante. De vastes pans de brouillard se dissipèrent, ouvrant un long passage qui semblait relier à la plateforme de 10 000 pieds. « Il y a encore... » À l'apparition du passage, les pupilles de Wang Lin se contractèrent un bref instant avant de retrouver leur calme habituel. Un élan de joie avait surgi, mais il le réprima aussitôt. Il s'apprêtait à s'élancer dans le passage.
 
 « Arrête! » Au moment où Wang Lin allait charger, une voix glaciale déchira l'air.
 

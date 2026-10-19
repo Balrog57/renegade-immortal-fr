@@ -20,7 +20,7 @@ Wang Lin leva la main droite et effectua un léger mouvement vers l'avant. Une o
 
 La bête émit un sifflement excité lorsqu'elle atteignit Wang Lin. Elle commença à frotter sa gueule contre lui, et au plus profond de son regard exalté perçait un sentiment d'attachement profond.
 
-Wang Lin était certes son maître, mais il était pour elle comme un parent. Cette pensée était déjà profondément gravée dans l'âme de la bête moustique et ne s'effacerait jamais.
+Wang Lin était son maître, et plus encore, un parent pour elle. Cette pensée était déjà profondément gravée dans l'âme de la bête moustique et ne s'effacerait jamais.
 
 Tout en se frottant contre lui, la créature laissa échapper un gémissement, comme si elle lui reprochait d'avoir mis tant de temps à venir la retrouver.
 

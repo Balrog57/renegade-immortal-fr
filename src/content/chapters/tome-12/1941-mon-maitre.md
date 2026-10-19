@@ -50,7 +50,7 @@ Les cultivateurs ordinaires ne pouvaient pas la détecter, mais Wang Lin pouvait
 
 Et Liu Jinbiao était au centre de ce processus.
 
-« Quelqu'un est en train de diviner l'emplacement de Liu Jinbiao! » Une lueur de froideur passa dans ses yeux. Il fixa les ondulations et son regard les perça, empruntant la puissance de divination de l'autre côté. Il vit alors un magnifique palais où sept ou huit cultivateurs de seconde étape se tenaient respectueusement. Un garçon était là, les yeux fermés, tandis qu'un vieil homme posait sa main sur sa tête. L'autre main du vieillard formait des sceaux.
+« Quelqu'un est en train de diviner l'emplacement de Liu Jinbiao! » Une lueur de froideur passa dans ses yeux. Il fixa les ondulations et son regard les perça, empruntant la puissance de divination de l'autre côté. Il vit alors un magnifique palais où sept ou huit cultivateurs de seconde étape s'inclinaient respectueusement. Un jeune garçon inconnu était là, les yeux fermés, tandis qu'un vieil homme posait sa main sur sa tête. L'autre main du vieillard formait des sceaux.
 
 Un instant plus tard, le vieil homme ouvrit soudainement les yeux, révélant une lueur glaciale.
 

@@ -10,7 +10,7 @@ Chaque fois que le pouvoir de l'Ancien Dieu de Wang Lin atteignait le moment cri
 
 Cette douleur intense aurait suffi à rendre n'importe qui fou. Si Wang Lin avait été inconscient, cela n'aurait pas été si terrible, mais il avait repris connaissance depuis longtemps. Pourtant, à son réveil, son corps était saturé du sang de ce fou.
 
-Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de l'Ordre Antique pouvait rivaliser avec lui en puissance.
+Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » lancé par Ye Mo, qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de l'Ordre Antique pouvait rivaliser avec lui en puissance.
 
 Cependant, ce pouvoir ne pouvait être maîtrisé par Wang Lin. Il restait tapi au sein de son sang et circulait dans ses veines. Tandis qu'il entrait en conflit avec le pouvoir de l'Ancien Dieu, il fusionnait lentement avec les os et le sang de Wang Lin.
 
@@ -28,7 +28,7 @@ Bien qu'éveillé, Wang Lin était terrifié par ce sang, mais il percevait éga
 
 Les murmures du fou provoquaient des vagues monstrueuses dans l'esprit de Wang Lin.
 
-Cependant, Wang Lin ne pouvait approfondir ses réflexions en raison de la douleur atroce qui le torturait. La souffrance qu'il ressentait était plusieurs fois plus intense que lorsqu'il avait affronté jadis la Tribulation Stellaire de l'Ancien Dieu!
+Cependant, Wang Lin ne pouvait approfondir ses réflexions en raison de la douleur atroce qui le torturait. La souffrance qu'il ressentait était d'innombrables fois plus intense que lorsqu'il avait affronté jadis la Tribulation Stellaire de l'Ancien Dieu!
 
 Il ne pouvait ni bouger, ni même ouvrir les yeux. Son âme originelle était clouée sur place par le sang, le laissant totalement impuissant.
 
@@ -54,13 +54,13 @@ Alors qu'il grommelait, le fou sembla s'emporter. Il se leva et fit plusieurs fo
 
 « Si ce roi était dans ton état, il serait déjà guéri! Depuis combien d'années cela fait-il? Pourquoi dois-tu être aussi stupide?! »
 
-Le fou s'emportait de plus en plus. Après avoir donné quelques coups de pied, le visage rouge de colère, il commença à sauter sur le corps de Wang Lin. Il continuait de bondir et de hurler comme un aliéné; vu de loin, on aurait dit un singe furieux... « Mon grand frère a dit que le sang de mon clan pouvait guérir toutes les blessures du monde! Ce roi t'en a tant donné, mais ton corps ne s'est toujours pas rétabli! Toi, toi, toi, toi!!! » Le fou bondit sur le côté et fixa Wang Lin, sa bouche ne cessant de s'agiter. « Ce roi refuse de croire que cela ne fonctionnera pas! Attends un peu! » murmura-t-il en levant la main droite pour frapper sa propre poitrine. Au moment de l'impact, une étrange marque apparut sur sa main droite, qui s'écrasa contre son corps.
+Le fou s'emportait de plus en plus. Après avoir donné quelques coups de pied, le visage rouge de colère, il commença à sauter sur le corps de Wang Lin. Il continuait de bondir et de hurler comme un aliéné; vu de loin, on aurait dit un singe furieux... « Mon grand frère a dit que le sang de mon clan pouvait guérir la plupart des blessures du monde! Ce roi t'en a tant donné, mais ton corps ne s'est toujours pas rétabli! Toi, toi, toi, toi!!! » Le fou bondit sur le côté et fixa Wang Lin, sa bouche ne cessant de s'agiter. « Ce roi refuse de croire que cela ne fonctionnera pas! Attends un peu! » murmura-t-il en levant la main droite pour frapper sa propre poitrine. Au moment de l'impact, une étrange marque apparut sur sa main droite, qui s'écrasa contre son corps.
 
 Le corps du fou trembla et son visage devint écarlate. Il expulsa alors une bouchée de sang qui éclaboussa le corps de Wang Lin.
 
 « Ce roi a amplement de sang. Rétablis vite ton corps pour jouer avec ce roi! »
 
-Cette bouchée de sang n'avait rien à voir avec le mince filet provenant de son doigt. C'était la différence entre un ruisseau et un fleuve impétueux. Ce sang était doré, saturé d'une énergie pure. Dès qu'il toucha Wang Lin, celui-ci fut parcouru de tremblements.
+Cette bouchée de sang n'avait rien à voir avec le mince filet provenant de son doigt. C'était la différence entre un ruisseau et un fleuve, comme entre un fleuve et la mer. Ce sang était doré, saturé d'une énergie pure. Dès qu'il toucha Wang Lin, celui-ci fut parcouru de tremblements.
 
 Tous les pores de sa peau s'ouvrirent pour absorber frénétiquement ce liquide. En un instant, tout le sang fut absorbé.
 

@@ -34,7 +34,7 @@ Un rouge sang!
 
 La lumière rouge dans ses yeux devint encore plus intense, et une intention meurtrière monstrueuse se propagea. Le Royaume Ji descendit!
 
-Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie divine rétribution. Après que son corps eut absorbé toutes les rétributions, un fragment du Royaume Ji naquit. Wang Lin avait enfin retrouvé le Royaume Ji qu'il avait perdu il y a si longtemps!
+Par un immense sacrifice et avec la détermination d'un homme prêt à mourir, il affronta l'infinie divine rétribution. Après que son corps eut absorbé toutes les rétributions, le Royaume Ji renaquit. Wang Lin avait enfin retrouvé le Royaume Ji qu'il avait perdu il y a si longtemps!
 
 À cet instant précis, le Royaume Ji formé par les Neuf Palais et les Deux Rites dans le vide se transforma en éclairs rouges et fonça droit sur Wang Lin.
 
@@ -64,7 +64,7 @@ Wang Lin n'hésita pas à réduire la taille de son corps d'Ancien Dieu pour ret
 
 Ce qui apparut devant lui fut un espace étranger: le Système Stellaire Antique! Il y avait aussi quelques centaines de cultivateurs étrangers vêtus d'habits bizarres, le regardant avec des expressions stupéfaites!
 
-Ces cultivateurs étaient des gens du Royaume Céleste Antique!
+Ces cultivateurs étaient des gens du Système Stellaire Antique!
 
 Cependant, au moment où il surgit, la hache géante de l'Ancien Dieu, entravée par les fils verts, se libéra. Elle s'abattit impitoyablement sur Wang Lin!
 
@@ -96,7 +96,7 @@ C'était un combat entre deux races différentes, où seule l'une pouvait surviv
 
 Les habitants du Système Stellaire Antique étaient animés par une intention meurtrière monstrueuse. Leurs yeux étaient impitoyables et cruels alors qu'ils chargeaient Wang Lin!
 
-Ces cultivateurs du Royaume Extérieur possédaient des niveaux de culture variés. Le plus bas était celui de Purificateur Nirvana, et le plus élevé, celui de Briseur Nirvana au sommet!
+Ces cultivateurs du Royaume Extérieur possédaient des niveaux de culture variés. Le plus bas était celui de Purificateur du Nirvana, et le plus élevé, celui de Briseur du Nirvana au sommet!
 
 Des centaines de cultivateurs convergèrent!
 
@@ -128,6 +128,6 @@ Le cauchemar ne faisait que commencer pour les cultivateurs du Royaume Extérieu
 
 Wang Lin, désormais entré dans le Royaume Extérieur et capable d'utiliser la Distorsion Spatiale ainsi que ce sort céleste dévorant, était devenu leur pire cauchemar!
 
-Un brouillard noir apparut soudainement derrière un cultivateur Purificateur Nirvana de stade intermédiaire du Royaume Extérieur. Il n'eut pas le temps de se retourner qu'il ressentit une douleur fulgurante dans le dos. Le brouillard noir s'engouffra dans son corps, lequel commença à gonfler frénétiquement tandis qu'il hurlait de terreur. En un instant, son corps explosa!
+Un brouillard noir apparut soudainement derrière un cultivateur Purificateur du Nirvana de stade intermédiaire du Royaume Extérieur. Il n'eut pas le temps de se retourner qu'il ressentit une douleur fulgurante dans le dos. Le brouillard noir s'engouffra dans son corps, lequel commença à gonfler frénétiquement tandis qu'il hurlait de terreur. En un instant, son corps explosa!
 
 Le sang éclaboussa tout autour. Le cauchemar avait commencé.

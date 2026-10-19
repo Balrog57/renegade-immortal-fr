@@ -52,7 +52,7 @@ Toute la morosité qui l'habitait disparut et il joignit les mains. « Le camara
 
 La plupart des cultivateurs du Royaume Intérieur ignoraient l'existence de la Formation de Scellement du Royaume. Seule une infime minorité en était informée, mais ils n'osaient pas sortir. Durant des dizaines de milliers d'années, toutes les informations avaient été bloquées, ce qui serait fatal pour la guerre imminente!
 
-Les paroles de Maître Lu Fu dissipèrent toute tension et Wang Lin rit.
+Les paroles de Wang Lin dissipèrent toute tension et Maître Lu Fu éclata de rire.
 
 Wang Lin sourit et dit: « J'ai effectivement quelques informations sur le Royaume Extérieur. »
 

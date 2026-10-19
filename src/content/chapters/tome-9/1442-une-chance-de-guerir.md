@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1442 - Opportunity to Heal!"
 slug: une-chance-de-guerir
 ---
-Des milliers de bêtes humanoïdes ne semblaient pas si impressionnantes en apparence, mais si vous les aviez vues de vos propres yeux, surgissant du brouillard en poussant des hurlements stridents, le spectacle aurait été terrifiant. Leurs expressions féroces, leur vitesse fulgurante et leur apparence monstrueuse leur conféraient un élan redoutable.
+Dit ainsi, « des milliers de bêtes humanoïdes » ne paraît peut-être pas grand-chose, mais si vous les aviez vues de vos propres yeux, surgissant du brouillard en poussant des hurlements stridents, le spectacle aurait été terrifiant. Leurs expressions féroces, leur vitesse fulgurante et leur apparence monstrueuse leur conféraient un élan redoutable.
 
-Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs dont faisait partie Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur du Nirvana.
+Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs dont faisait partie Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient presque le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur du Nirvana.
 
 Individuellement, elles n'étaient pas si redoutables, mais leur nombre et leur vitesse étrange les rendaient difficiles à affronter. Bien que la tâche fût périlleuse, les cultivateurs présents n'étaient pas de faibles esprits. À cet instant, tous commencèrent à lancer des sorts et à déployer leurs trésors. La bataille était engagée.
 
@@ -24,7 +24,7 @@ L'esprit de Wang Lin frémit. Toutes les bêtes n'avaient pas eu le temps de s'a
 
 Non loin de là, les autres cultivateurs tentaient de résister, mais certains furent pris au dépourvu par les autodestructions. Ils crachèrent du sang, furent repoussés puis encerclés. Au moment où ils s'apprêtaient à riposter, les bêtes environnantes explosèrent de nouveau, et la puissance libérée les pulvérisa.
 
-La femme en blanc était la plus sereine. Son expression restait imperturbable et nul ne pouvait voir ses sorts, mais chaque bête s'approchant d'elle dégageait un gaz noir qui la faisait hurler de peur et reculer.
+La femme en blanc était la plus sereine. Son expression restait imperturbable et nul ne pouvait voir ses sorts, mais chaque bête qui s'approchait d'elle dégageait un gaz noir, saignait par les sept orifices et s'enfuyait en hurlant.
 
 Wang Lin se déplaçait avec la rapidité de l'éclair. Il fut le premier des vingt-cinq à quitter sa plateforme pour s'enfoncer dans la meute et massacrer les bêtes! Ce geste attira l'attention des autres cultivateurs. Ignorant leurs regards, il franchit en un pas un groupe de créatures. D'un revers de main, ses dix millions de rayons d'énergie d'épée déchirèrent les corps des bêtes. Une partie fut tuée avant de pouvoir exploser, et l'énergie blanche libérée afflua dans le corps de Wang Lin.
 
@@ -60,4 +60,4 @@ Soudain, les plateformes se mirent à trembler. Après une brève pause, elles s
 
 « Ces bêtes sont essentielles à ma guérison; personne ne me les volera! » Bien que Wang Lin se tienne immobile et impassible sur sa plateforme, une lueur de froideur traversa ses yeux. Une puissante force vitale émanant du Fourneau Impérial afflua dans son corps pour réparer ses blessures.
 
-« Il est temps de montrer ma puissance... » La flamme illusoire dans son œil gauche commença à brûler de plus en plus intensément.
+« Il est temps d'affirmer ma puissance... » La flamme illusoire dans son œil gauche commença à brûler de plus en plus intensément.

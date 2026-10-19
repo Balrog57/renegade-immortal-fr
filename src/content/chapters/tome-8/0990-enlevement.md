@@ -10,7 +10,7 @@ Le regard de Wang Lin restait calme tandis que ses mains formaient un sceau pour
 
 Cette dernière poussa un cri strident qui provoqua un impact puissant. De nombreuses restrictions s'effondrèrent sous la force de ce hurlement.
 
-L'anxiété se lut dans les yeux de la femme morte, qui recula promptement. Une lumière bleue jaillit une fois de plus de l'œil droit de Wang Lin et se mua en un bouclier, lui barrant la route. L'onde de choc puissante émanant du bouclier la força à battre en retraite à nouveau.
+L'anxiété se lut dans les yeux de la femme morte, qui recula promptement. Une lumière bleue jaillit une fois de plus de l'œil droit de Wang Lin et se mua en un bouclier, lui barrant la retraite. L'onde de choc puissante émanant du bouclier la força à battre en retraite à nouveau.
 
 Alors que Wang Lin pointait du doigt, toutes les restrictions convergèrent vers la femme morte.
 
@@ -30,7 +30,7 @@ En luttant désespérément, la femme morte se mit à hurler, et son cri striden
 
 Wang Lin atterrit et observa la femme morte qui se débattait. Le regard froid, il tendit impitoyablement la main et extirpa la chaîne qui lui transperçait l'omoplate.
 
-Affaiblie, la femme morte poussa un cri immédiat, son corps secoué de tremblements. Ses yeux intelligents fixèrent Wang Lin avec une haine profonde.
+Affaiblie, la femme morte vit aussitôt ses cris faiblir, son corps secoué de tremblements. Ses yeux intelligents fixèrent Wang Lin avec une haine profonde.
 
 Une fois extraite, la chaîne se mua en un serpent noir qui mordit férocement le bras droit de Wang Lin de ses crocs. Wang Lin ne chercha même pas à esquiver et laissa le serpent s'abattre sur lui. Au moment où le reptile mordit son bras, les crocs se brisèrent net; le bras de Wang Lin n'était absolument pas blessé!
 
@@ -42,13 +42,13 @@ D'un geste sec, il écrasa la chaîne!
 
 La femme morte s'effondra, se retrouvant à moitié assise sur le sol. Wang Lin cracha une bouffée de son âme originelle qui pénétra dans la boussole. Il s'assit ensuite sur le côté et ses mains commencèrent à former des sceaux. La boussole tourna lentement tandis que les restrictions s'insinuaient dans le corps de la femme.
 
-« L'Empereur Céleste Qing Lin possédait un sort appelé "Garde Cadavre". Il nécessitait le corps d'ennemis vaincus et divers autres matériaux pour créer un cadavre maléfique qui ne ressent aucune douleur et peut protéger son maître. Bien que je ne puisse trouver ces matériaux disparus pour raffiner une marionnette cadavérique, je peux utiliser cette méthode pour contrôler ce Garde Cadavre. »
+« L'Empereur Céleste Qing Lin possédait un sort appelé "Garde Cadavre". Il nécessitait le corps d'ennemis vaincus et divers autres matériaux pour créer un cadavre maléfique qui ne ressent aucune douleur et peut se briser à tout instant pour protéger son maître. Bien que je ne puisse trouver ces matériaux disparus pour raffiner un Garde Cadavre, je peux utiliser cette méthode pour contrôler celui-ci. »
 
 Wang Lin ferma les yeux, ses mains continuant de tracer des restrictions qui pénétraient le corps de la femme morte.
 
 Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un demi-mois s'écoula. Wang Lin avait passé trois mois sur la planète Esprit d'Eau. Durant cette période, hormis ses moments de méditation au sommet, il s'était consacré au raffinage de la femme morte.
 
-Le processus de raffinage était extrêmement complexe et exigeait toute sa concentration. En conséquence, Wang Lin ne sortit jamais, se contentant de poser une restriction de temps à autre.
+Le processus de raffinage était extrêmement complexe et exigeait toute sa concentration. En conséquence, Wang Lin ne sortit jamais, se contentant de former des sceaux à intervalles réguliers.
 
 À cet instant, la boussole d'une trentaine de mètres tournait toujours dans son palais, avec la femme assise au sommet. Tout son corps brillait d'un éclat argenté et un marquage scintillait entre ses sourcils.
 
@@ -62,7 +62,7 @@ En trois mois, presque toutes les disciples féminines des petites et moyennes s
 
 Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, plusieurs milliers de cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
 
-Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait avec une dignité feinte pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
+Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait, plein d'assurance, pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
 
 Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait dire que le nom de Situ Nan s'était répandu sur toute la planète Tian Yun.
 
@@ -84,7 +84,7 @@ Situ Nan observa l'homme. Bien qu'il paraisse joyeux, il devinait exactement ses
 
 Cependant, cela importait peu à Situ Nan.
 
-« Une racine spirituelle aquatique, c'est plutôt pas mal. Mon frère est un véritable bloc de bois et n'a probablement pas connu de femme en toutes ces années. Si ces deux filles sont douées, je les prendrai comme cadeau de bienvenue, quitte à devoir les voler. Racine spirituelle aquatique... pas mal, vraiment pas mal. » Situ Nan esquissa un sourire malicieux avant de pousser un soupir. Durant les mois passés sur la planète Tian Yun, il avait cherché Wang Lin sans succès. Il avait songé à se rendre à la Secte du Destin Céleste, mais une aura puissante scellait l'endroit; il lui serait difficile d'y pénétrer avec sa force actuelle.
+« Une racine spirituelle aquatique, c'est plutôt pas mal. Mon frère est un véritable bloc de bois et n'a probablement pas connu de femme en toutes ces années. Si ces deux filles sont douées, je les prendrai comme cadeau de bienvenue, quitte à devoir les voler. Racine spirituelle aquatique... pas mal, vraiment pas mal. » Situ Nan esquissa un sourire malicieux avant de pousser un soupir de dépit. Durant les mois passés sur la planète Tian Yun, il avait cherché Wang Lin sans succès. Il avait songé à se rendre à la Secte du Destin Céleste, mais une aura puissante scellait l'endroit; il lui serait difficile d'y pénétrer avec sa force actuelle.
 
 Ce phénomène avait surpris tous les cultivateurs de Tian Yun, qui n'en trouvaient aucune explication.
 

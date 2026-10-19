@@ -16,7 +16,7 @@ La peur envahit le regard de l'Ancien Démon Ta Jia. D'autres ignoraient peut-ê
 
 « Ceci... ceci est le trésor du Dao céleste primordial! » haleta l'Ancien Démon. L'ombre démoniaque au-dessus de lui gronda, incapable d'entraver la lame. L'épée fendit l'ombre en deux et fondit sur Ta Jia.
 
-À cet instant précis, l'Omniscient afficha un regard résolu. D'un revers de manche, il enveloppa son corps d'une lumière aux sept couleurs. Il prit une profonde inspiration avant de pointer le ciel et de hurler: « Sept couleurs de la destinée céleste, volonté des cieux... rouge! »
+À cet instant précis, l'Omniscient afficha un regard résolu. D'un revers de manche, il enveloppa son corps d'une lumière aux sept couleurs. Il prit une profonde inspiration avant de pointer le ciel et de hurler: « Sept couleurs de la destinée céleste, mandat du Ciel... rouge! »
 
 À peine eut-il parlé que son corps trembla; la lumière rouge se détacha de l'aura multicolore pour foncer vers la longue épée qui s'abattait sur l'Ancien Démon Ta Jia.
 
@@ -56,7 +56,7 @@ L'Omniscient cracha une bouchée de sang et recula frénétiquement.
 
 La longue épée, brisant tous les obstacles sur sa course, vint frapper le front de Ta Jia. À cet instant, une brume noire et dense se concentra entre les sourcils du démon, et son véritable corps d'Ancien Démon apparut. Il jaillit de l'espace entre ses sourcils avec l'intention même de renverser le ciel.
 
-Il était un Ancien Démon, membre de l'un des trois Ordres Anciens, un clan défiant les cieux. Tandis que l'épée s'abattait, le rugissement colérique du démon résonna à travers le monde.
+Il était un Ancien Démon, membre de l'un des trois Clans Anciens, un clan défiant les cieux. Tandis que l'épée s'abattait, le rugissement colérique du démon résonna à travers le monde.
 
 Cependant, au moment où son véritable esprit apparut, la longue épée brilla d'un éclat rouge. C'était la goutte de sang qui s'était fusionnée avec le Trésor Sacré. Elle s'échappa de l'épée de manière inattendue pour atterrir directement entre les sourcils du démon ancien.
 
@@ -127,7 +127,7 @@ Des cris de détresse retentirent immédiatement.
 
 Le sang perla sur la lèvre inférieure de Mu Bingmei face à l'indifférence de Wang Lin. Ses yeux emplis de douleur, elle hurla: « Wang Lin!!! Je veux le voir. Je t'en supplie, laisse-moi le voir!! »
 
-Wang Lin ne pouvait percevoir la douleur dans ses yeux, mais il savait que sa propre souffrance, elle, ne disparaîtrait jamais. Il ferma les yeux et dit calmement: « Je dois à cette femme une pilule salvatrice et une dette de vie. »
+Wang Lin ne pouvait percevoir la douleur dans ses yeux, mais il savait que sa propre souffrance, elle, ne disparaîtrait jamais. Il ferma les yeux et dit calmement: « Je dois à cette femme une pilule salvatrice, et elle m'a déjà sauvé la vie une fois. »
 
 L'Empereur Divin sourit: « Je trouverai un moyen de t'aider à rembourser cette dette et je m'assurerai que le Royaume du Vide Brillant soit satisfait! As-tu d'autres exigences? »
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 875 - Evolution of the Third Eye
 slug: evolution-du-troisieme-il
 ---
-À première vue, le mot « bataille » semblait tout à fait ordinaire, mais en y regardant de plus près, une intention meurtrière inimaginable, comme issue d'une guerre dévastatrice, s'abattit soudainement!
+À première vue, le mot « bataille » semblait tout à fait ordinaire, mais en y regardant de plus près, une intention meurtrière inimaginable, comme un pic montagneux, s'abattit soudainement!
 
 À cet instant, des illusions apparurent devant les yeux de Wang Lin. C'était comme si le ciel et la terre s'étaient effondrés. Tout disparut: la place, les cultivateurs environnants, et même le Temple Céleste du Tonnerre. La seule chose qui subsistait était le mot « bataille! »
 
@@ -58,7 +58,7 @@ L'énergie originelle se précipita dans le troisième œil apparu entre ses sou
 
 L'éclat rouge fit s'exclamer tous les cultivateurs environnants. Cette lumière en forme d'éventail enveloppa complètement le Parchemin de la Bataille.
 
-Dans un état de transe, Wang Lin entrevit une scène étrange dans le parchemin. C'était un système stellaire lointain, où un vieil homme vêtu de blanc agita son doigt dans l'espace pour écrire le mot « bataille! ». Le mot scintilla et se divisa en six parchemins distincts.
+Dans un état de transe, Wang Lin entrevit une scène étrange dans le parchemin. C'était un système stellaire lointain, où un vieil homme vêtu de blanc agita son index droit dans l'espace pour écrire le mot « bataille! ». Le mot scintilla et se divisa en six parchemins distincts.
 
 Une puissante énergie originelle émanait du vieil homme. Il était empreint de mélancolie, de regret et de réticence en contemplant le mot « bataille ». Il leva la tête vers les étoiles, ses yeux soudain remplis d'incrédulité.
 

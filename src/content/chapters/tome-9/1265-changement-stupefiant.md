@@ -22,11 +22,11 @@ Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maît
 
 Cette fissure, c'était Liu Mei, aussi Wang Lin, mais surtout Wang Ping! Cependant, à cet instant, forte de tout ce qu'elle avait vécu, Mu Bingmei ne cherchait plus à éviter cette faille. Elle choisit de l'affronter, de l'accepter.
 
-C'est grâce à ce changement que son dao commença à montrer des signes de complétion. L'impitoyabilité et l'affection étaient les deux faces d'une même pièce!
+C'est grâce à ce changement que son dao commença à montrer des signes de complétion. L'impitoyabilité et l'affection ne différaient que d'un seul caractère!
 
 Culture, culture... si l'on utilise l'impitoyabilité des cieux pour cultiver le dao, le résultat final ne sera pas assez noble pour être appelé un dao!
 
-Lorsqu'un cultivateur possède une once d'affection, il peut s'en servir pour défier le dao. Cela permet au cultivateur d'avoir un trésor précieux à protéger, ce qui le rend prêt à lutter contre le monde entier.
+Lorsqu'un cultivateur possède une once d'affection, il peut s'en servir pour défier le dao. Cela lui donne un appui pour se battre dans ce monde, ainsi qu'un trésor précieux à protéger.
 
 La fissure dans le cœur dao de Mu Bingmei contenait déjà la silhouette de Wang Lin. À mesure que sa pensée évoluait et que son dao se stabilisait, celle-ci devint une empreinte gravée sous son domaine impitoyable.
 
@@ -40,7 +40,7 @@ Trois jours plus tôt, Mu Bingmei avait quitté la Secte Éternelle avec Wang Sh
 
 Le Royaume du Vide Brillant avait été détruit, et elle seule en subsistait. Dès cet instant, elle n'appartenait plus à elle-même. Il lui incombait de cultiver pour restaurer le Royaume du Vide Brillant, d'assumer ses responsabilités de Saintesse. C'était une charge qu'elle avait fuie longtemps, mais elle choisissait désormais de l'affronter sans plus jamais s'en dérober.
 
-Sa conversation avec Wang Lin avait apaisé les tourments de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
+Sa conversation avec Wang Lin avait dénoué les attaches mortelles de son cœur. Elle enfouit ce souvenir au plus profond de son âme et le scella.
 
 Li Qianmei allait également partir. Elle avait reçu un appel urgent de son maître. Le message de jade ne précisait pas la nature du problème, mais d'un ton sévère, il ordonnait à Li Qianmei d'utiliser la formation de transfert de la Secte Éternelle pour regagner la Secte Briseur de Ciel!
 
@@ -48,7 +48,7 @@ On aurait dit que quelque chose de caché s'agitait.
 
 Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Briseur de Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
-Elle n'eut que le temps de dire adieu avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Briseur de Ciel.
+Elle n'eut que le temps de dire adieu, avec sa sérénité habituelle, avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Briseur de Ciel.
 
 Son cœur était troublé. Elle ignorait pourquoi son maître avait envoyé une telle requête empreinte d'anxiété. Dans ses souvenirs, son maître avait toujours été calme; il n'avait jamais agi ainsi. Elle ne savait pas pourquoi, mais elle pressentait que le malheur approchait.
 

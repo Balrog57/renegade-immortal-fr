@@ -56,7 +56,7 @@ Pour être plus précis, le temps que Wang Lin avait passé à percuter les fail
 
 Sept cents ans de collisions incessantes de la part de Wang Lin avaient précipité l'effondrement du champ de bataille étranger. Désormais, aucun cultivateur des pays de rang 4 ou 5 n'osait y mettre les pieds.
 
-Ils pouvaient seulement envoyer des messages aux occupants pour leur ordonner d'annuler le nettoyage et de chercher le sens divin de toutes leurs forces, après quoi la matrice de transfert serait ouverte en une seule fois pour évacuer tout le monde.
+Ils pouvaient seulement envoyer des messages aux cultivateurs de rang 3 présents à l'intérieur pour leur ordonner d'annuler le nettoyage et de chercher le sens divin de toutes leurs forces, après quoi la matrice de transfert serait ouverte en une seule fois pour évacuer tout le monde.
 
 Wang Lin avait perdu la notion du temps, son sens divin devenant de plus en plus faible et petit. Désormais, il n'avait plus besoin de sectionner son sens divin; il attendait une faille majeure.
 

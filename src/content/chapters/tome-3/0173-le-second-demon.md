@@ -34,7 +34,7 @@ Wang Lin s'assit en tailleur à l'intérieur de la tour noire et, après quelque
 
 Il jeta ensuite un regard au démon. Le visage de ce dernier était empreint de morosité, et il regardait avec regret la tornade s'éloigner, comme s'il ne pouvait s'en détacher.
 
-Sans donner d'explications, Wang Lin ordonna froidement: « Peu importe le nombre d'âmes que tu as dévorées; recrache la moitié pour moi. »
+Sans donner d'explications, Wang Lin ordonna froidement: « Peu importe le nombre de sens divins que tu as dévorés; recrache la moitié pour moi. »
 
 Le démon hésita. S'il s'échappait à l'instant, ce monstre le poursuivrait-il? Il hésita longuement, puis jeta un coup d'œil furtif à Wang Lin. Voyant son regard devenir hostile, il frissonna et se mit rapidement à recracher à grandes bouffées les âmes et les sens divins de ces petites bêtes.
 

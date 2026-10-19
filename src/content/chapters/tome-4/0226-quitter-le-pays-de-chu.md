@@ -166,7 +166,7 @@ S'il en avait été autrement, la Secte Ciel Nuageux ne serait pas dans l'état 
 
 L'usage répété du Royaume Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé plusieurs pilules, il finit par se stabiliser.
 
-Cette récupération dura sept jours entiers, bien qu'en réalité, un seul jour ne se fût écoulé.
+Cette récupération dura sept jours entiers, bien qu'en réalité, moins d'un jour se fût écoulé.
 
 En sortant de l'espace de la Perle Défiant le Ciel, les yeux de Wang Lin brillèrent. Bien que son Royaume Ji ait évolué vers une existence semblable à celle d'un trésor magique, il avait au moins réussi à franchir le stade de la Formation du Noyau pour atteindre celui de l'Âme Naissante.
 

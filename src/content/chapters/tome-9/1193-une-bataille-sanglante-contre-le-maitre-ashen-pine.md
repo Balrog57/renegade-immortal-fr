@@ -34,7 +34,7 @@ Au moment de sa rupture, elle se transforma en une ombre floue dans le ciel. Il 
 
 L'ombre leva sa main droite et pointa Wang Lin! D'un seul doigt, toute la lumière aux sept couleurs se concentra pour projeter vers lui un rayon d'énergie d'épée capable de percer les cieux.
 
-Peu après, une autre perle s'effondra. La terre trembla et une grande partie de la chaîne de montagnes, semblable à un mur, s'écroula. Un géant de pierre surgit des montagnes, faisant trembler le sol à chacun de ses pas. Le géant, drapé de lumière aux sept couleurs, chargea Wang Lin.
+Peu après, une autre perle s'effondra. La terre trembla et une grande partie de la chaîne de montagnes, semblable à un mur, s'écroula. Un géant de pierre d'environ mille pieds de haut surgit des montagnes, faisant trembler le sol à chacun de ses pas. Le géant, drapé de lumière aux sept couleurs, chargea Wang Lin.
 
 À cet instant, la troisième perle explosa. La lumière aux sept couleurs convergea frénétiquement pour former une boussole géante. Cette boussole éthérée tournait rapidement, créant une pression écrasante.
 
@@ -44,13 +44,13 @@ Une entité semblable à une Âme Naissante se trouvait dans cette lueur sanglan
 
 Cette Âme Naissante poussa un cri féroce et chargea Wang Lin dans une lueur rouge sang, arborant une férocité indicible sur son visage.
 
-Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré atteignit sa cible. Étant au stade intermédiaire du Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
+Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré fondit sur lui. Étant au stade intermédiaire du Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
 
 L'expression de Wang Lin resta calme, ses yeux brûlant d'intention de combat. Il saisit le trident et le projeta vers la boussole dans le ciel. De son point de vue, c'était l'objet le plus dangereux!
 
 Peu après, sa main droite forma un sceau et pointa vers l'avant. Le ciel aux sept couleurs fut envahi par un vent noir rugissant. De nombreux dragons noirs se formèrent, mais ils ne se dispersèrent pas; au contraire, ils foncèrent tous vers la silhouette floue aux sept couleurs dans le ciel.
 
-Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par le Maître Pin Cendré, tandis qu'une partie d'entre elles poursuivait le géant de pierre.
+Après avoir invoqué le Vent, Wang Lin fit venir la Pluie. Il agita ses manches et des milliers de gouttes de pluie cristalline apparurent dans un rayon de plusieurs dizaines de milliers de pieds. Elles foncèrent rapidement contre l'incommensurable énergie d'épée projetée par le Maître Pin Cendré, tandis qu'une partie d'entre elles poursuivait le géant de pierre.
 
 Des bruits de craquements résonnèrent alors que Wang Lin avançait, le poing serré. Il lança un coup vers l'énergie d'épée aux sept couleurs qui approchait.
 
@@ -58,15 +58,15 @@ Un grondement tonitruant retentit. L'énergie d'épée vacilla et six de ses cou
 
 Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer dans son bras, le faisant gémir. Sa main gauche forma un sceau et pointa vers le vide, puis il ouvrit la bouche pour laisser s'échapper le Sceau Céleste. Dès son apparition, des âmes de bataille surgirent les unes après les autres!
 
-Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
+Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent la féroce Âme Naissante sanglante.
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
 Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais il n'imaginait pas que celui-ci n'avait pas encore sorti beaucoup de trésors: les seules techniques déployées suffisaient déjà à terrifier des cultivateurs ordinaires.
 
-Un fracas tonitruant résonna dans ce monde aux sept couleurs. Le trident fonça sur la boussole céleste, mais à seulement sept pouces de sa cible, il fut stoppé par un écran de lumière aux sept couleurs.
+Un fracas tonitruant résonna dans ce monde aux sept couleurs. Le trident fonça sur la boussole céleste, mais à seulement sept pouces de sa cible, il fut stoppé par un écran d'éclairs aux sept couleurs.
 
-Les trois dragons du trident dévorèrent l'écran de lumière avec frénésie et continuèrent leur progression.
+Les trois dragons du trident dévorèrent l'écran d'éclairs avec frénésie et continuèrent leur progression.
 
 La silhouette floue qui flottait également dans le ciel se dissipa progressivement sous l'impact des dragons noirs générés par l'Invocation du Vent.
 
@@ -104,7 +104,7 @@ Le clou aux sept couleurs pulvérisa l'épée et s'enfonça directement dans l'�
 
 Une douleur atroce parcourut le corps de Wang Lin, le faisant trembler. Simultanément, bien que l'épée fût brisée, sa pointe avait pénétré la poitrine du Maître Pin Cendré avant de se planter dans le sol.
 
-Le Maître Pin Cendré cracha du sang. Gravement blessé, il fit volte-face et chargea vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de clouer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
+Le Maître Pin Cendré cracha du sang. Gravement blessé, il fit volte-face et s'enfuit vers les montagnes muraille! Le corps de Wang Lin trembla violemment; le clou aux sept couleurs semblait capable de clouer son âme d'origine. Ses yeux devinrent confus et son corps commença à rétrécir rapidement, comme s'il allait redevenir un humain ordinaire.
 
 Il serra les dents en fixant le Maître Pin Cendré qui s'échappait en crachant sans cesse du sang. L'Empreinte de l'Esprit Guerrier apparut dans son esprit et il poussa violemment sa paume en avant!
 

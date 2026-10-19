@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1710 - A Wisp of Soul
 slug: un-souffle-dame
 ---
-Cinq gouttes de sang et une goutte de Sang d'Âme violet brillèrent intensément devant la statue. Après que le Grand Empyréen Xuan Luo eut scellé l'aura avec le pouvoir de son Soleil Empyréen, ces six gouttes de sang s'envolèrent vers l'horizon.
+Cinq gouttes de sang et une goutte de Sang d'Âme violet brillèrent intensément devant la statue. Après que le Grand Empyréen Xuan Luo eut scellé l'aura avec le pouvoir de son Soleil Empyréen, ces six gouttes de sang s'envolèrent vers le ciel.
 
 Des ondulations apparurent dans le ciel, formant un vortex gigantesque dont le centre semblait se connecter au vide. Les six gouttes de sang furent aspirées par le vortex et disparurent sous les yeux de tous.
 
-La dernière à disparaître fut la goutte de Sang d'Âme violet. L'apparition de ce Sang d'Âme ébranla l'assistance; chacun fut saisi par l'incrédulité, l'horreur et l'admiration!
+La dernière à disparaître fut la goutte de Sang d'Âme violet. L'apparition de ce Sang d'Âme ébranla l'assistance; chacun fut saisi par l'incrédulité, l'horreur et la crainte respectueuse!
 
 Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme alors qu'elle s'évanouissait dans le vortex. Une fois le spectacle terminé, ils retrouvèrent leur lucidité, mais le choc ne fit que croître, telle une vague déferlant sur leurs corps et leurs âmes.
 
@@ -22,9 +22,9 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « Qui traverse ainsi la première calamité de la troisième épreuve? Je n'ai jamais entendu parler de Sang d'Âme durant cette calamité. Cette affaire... c'est absolument incroyable! Ce sera sans aucun doute un événement historique pour notre pays ancestral! »
 
-« La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancestral... quelle fortune obtiendra-t-il alors? »
+« La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancien... quelle fortune obtiendra-t-il alors? »
 
-« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancestral. S'il a obtenu une telle reconnaissance de l'Ancêtre, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancestral que nul n'a jamais obtenu? »
+« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancestral. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'il est un génie, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancestral que nul n'a jamais obtenu? »
 
 Les débats firent écho alors que tous restaient bouleversés par cette goutte de Sang d'Âme. Heureusement, cet endroit avait été scellé par le Grand Empyréen Xuan Luo qui, de sa puissance immense, empêcha quiconque de divulguer ce qui s'était produit ici.
 
@@ -46,7 +46,7 @@ Le Grand Empyréen Xuan Luo regarda au loin et s'élança sans hésiter, dispara
 
 Après le départ de Xuan Luo, la cité céleste resta silencieuse durant un long moment. Puis l'homme en robe royale s'en alla, le cœur profondément sombre. Les autres partirent lentement, encore sous le choc.
 
-Tout ce qui s'était produit ici fut enfoui au plus profond de leurs cœurs. En se dispersant, tous portèrent leur regard vers la direction empruntée par le Grand Empyréen Xuan Luo. Leurs yeux exprimaient la perplexité, l'envie et la jalousie, mais ce qui dominait tout le reste était l'attente!
+Tout ce qui s'était produit ici fut enfoui au plus profond de leurs cœurs. En se dispersant, tous portèrent leur regard vers la direction empruntée par le Grand Empyréen Xuan Luo. Leurs yeux exprimaient des sentiments mêlés, l'envie et la jalousie, mais ce qui dominait tout le reste était l'attente!
 
 Ils brûlaient d'impatience de voir le Grand Empyréen ramener celui qui les avait tant stupéfaits. Ils mouraient d'envie de découvrir l'apparence et l'identité de cet individu.
 
@@ -98,7 +98,7 @@ Le vieil homme agenouillé resta impassible et répondit:
 
 L'homme en robe royale réfléchit silencieusement un instant, puis contempla la perle rouge dans sa main, ses yeux brillant d'une lueur étrange.
 
-« Cette femme semble trop ordinaire pour que je lui accorde mon attention. Cependant, si elle est réellement ce que prétend l'Enseignant Impérial, alors je ferai d'elle mon impératrice! Continuez vos recherches parmi les Célestes. Si vous ne trouvez vraiment personne, choisissez parmi toutes les femmes de la terre du Dao Ancestral et voyez laquelle peut fusionner avec cette âme. »
+« Cette femme semble trop ordinaire pour que je lui accorde mon attention. Cependant, si elle est réellement ce que prétend l'Enseignant Impérial, alors je ferai d'elle mon impératrice! Continuez vos recherches parmi les Célestes. Si vous ne trouvez vraiment personne, choisissez parmi toutes les femmes de la terre du Dao Ancien et voyez laquelle peut fusionner avec cette âme. »
 
 « À vos ordres! » Le vieil homme en noir se leva, prêt à partir. Il hésita un instant, puis après une longue réflexion, il joignit les mains pour reprendre la parole.
 

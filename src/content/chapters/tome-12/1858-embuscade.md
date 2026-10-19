@@ -28,7 +28,7 @@ Simultanément, derrière Liu Zhiyuan, une lueur incandescente jaillit. Une empr
 
 Tout cela se déroula avec une rapidité extrême. Wang Lin avait orchestré ce plan plusieurs fois dans son esprit.
 
-Alors que l'empreinte de la paume se refermait et que l'esprit de Liu Zhiyuan était distrait par les pleurs, Yi Si poussa un rugissement et chargea de nouveau vers lui. L'épée de sang, qui avait été repoussée, se changea en un immense éclat de lumière sanglante et s'abattit sur Liu Zhiyuan pour le trancher!
+Alors que l'empreinte de la paume s'abattait et que l'esprit de Liu Zhiyuan était distrait par les pleurs, Yi Si poussa un rugissement et chargea de nouveau vers lui. L'épée de sang, qui avait volé en éclats, se changea en un immense éclat de lumière sanglante et s'abattit sur Liu Zhiyuan pour le trancher!
 
 Toutes les attaques convergeaient, profitant du fait que Liu Zhiyuan manquait presque d'énergie céleste.
 
@@ -40,11 +40,11 @@ Sa peau devint identique et, en un éclair, il se transforma en un être de sang
 
 Dès que l'énorme empreinte de paume toucha la tempête de sang, elle s'effondra. L'empreinte de feu derrière lui subit le même sort lors de la collision.
 
-L'épée de sang jaillit et s'enfonça dans la tempête, tandis que la marionnette Yi Si chargeait également dans le chaos avec un hurlement démentiel. Tout cela déclencha un fracas qui fit trembler les cieux.
+L'épée de sang s'abattit sur la tempête de sang, tandis que la marionnette Yi Si chargeait également dans le chaos avec un hurlement démentiel. Tout cela déclencha un fracas qui fit trembler les cieux.
 
 Au moment où le vacarme éclata, Wang Lin s'élança vers la tempête de sang. Cette tempête était manifestement le sort salvateur de Liu Zhiyuan; ayant résisté aux divers sorts de Wang Lin, elle montrait des signes d'effondrement. À l'intérieur, Liu Zhiyuan cracha du sang, le visage féroce, tout en reculant frénétiquement.
 
-Alors qu'il battait en retraite, son regard resta fixé sur Wang Lin, mais celui-ci disparut soudainement. Ses pupilles se contractèrent alors qu'il se retournait et que sa main droite balayait l'espace derrière lui.
+Alors qu'il battait en retraite, son regard resta fixé sur Wang Lin, mais celui-ci disparut soudainement. Ses pupilles se contractèrent alors qu'il se retournait et que sa main droite frappait l'espace derrière lui.
 
 La silhouette de Wang Lin surgit de ses arrières et décocha un coup de poing. Ce coup ne portait pas l'ombre du Dao Ancien, mais c'était un véritable coup de poing du Dao Ancien!
 
@@ -84,7 +84,7 @@ Dès que la silhouette prit forme, elle ouvrit la bouche pour tenter de dévorer
 
 À ce moment précis, la figure du neuvième ancêtre de la Secte de la Grande Âme, Luo Yunhai, sortit également du vortex de sang. Il leva la main et une intention meurtrière monstrueuse se matérialisa sous la forme d'une lance rouge. Il saisit la lance et la lança. Le projectile percuta la silhouette formée par les innombrables âmes tourmentées.
 
-Lors de l'impact, la lance libéra une lumière souveraine, comme pour les purifier. La silhouette gigantesque s'effondra instantanément tandis que les âmes à l'intérieur poussaient des sifflements stridents.
+Lors de l'impact, la lance libéra une lumière de commandement, comme pour les purifier. La silhouette gigantesque s'effondra instantanément tandis que les âmes à l'intérieur poussaient des sifflements stridents.
 
 Des grondements tonitruants résonnèrent. Le corps de Wang Lin trembla et il cracha du sang. Il recula de plus de 1 000 pieds alors que la route de sang derrière lui s'effondrait et que le neuvième ancêtre disparaissait. Simultanément, la figure géante se désintégra et du sang jaillit de Liu Zhiyuan. Ce dernier hurla et battit en retraite.
 

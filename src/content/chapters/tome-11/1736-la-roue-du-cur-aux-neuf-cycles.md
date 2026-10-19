@@ -22,7 +22,7 @@ Sur la planète des Cinq Éléments, le neuvième étage de la tour irradiait un
 
 D'importantes quantités de sang s'écoulaient de son bras droit pour perler sur le sol.
 
-« Un membre du Clan Ancien... la puissance de son corps appartient au Clan du Dao Ancien! Il ne semble pas être un descendant issu des 3 000 gouttes de sang de Ye Mo; un descendant de Ye Mo ne pourrait être aussi puissant que lui! Cette personne n'est probablement pas de cette grotte, elle provient du Continent Astral Immortel! Maudit soit, quelqu'un d'autre est ici en plus de ma Secte Gui Yi! » Les pupilles du vieil homme se rétractèrent et ses yeux se remplirent de douleur. Il regarda sa main droite avec horreur.
+« Un membre du Clan Ancien... la puissance de son corps appartient au Clan du Dao Antique! Il ne semble pas être un descendant issu des 3 000 gouttes de sang de Ye Mo; un descendant de Ye Mo ne pourrait être aussi puissant que lui! Cette personne n'est probablement pas de cette grotte, elle provient du Continent Astral Immortel! Maudit soit, quelqu'un d'autre est ici en plus de ma Secte Gui Yi! » Les pupilles du vieil homme se rétractèrent et ses yeux se remplirent de douleur. Il regarda sa main droite avec horreur.
 
 « Quel coup de pied vicieux... Si ce n'était pas pour l'armure, mon bras aurait été broyé et mon corps aurait même explosé... »
 
@@ -56,7 +56,7 @@ Cependant, dès que Wang Lin fit un mouvement, tous les arbres de la jungle trem
 
 Elles étaient si nombreuses qu'elles suffisaient à couvrir le ciel et la terre. Elles semblaient verrouillées sur Wang Lin, comme si elles cherchaient à lui arracher l'âme.
 
-L'expression de Wang Lin resta imperturbable alors qu'il reculait de trois pas. Sa main droite se crispa en un poing et une froideur glaciale envahit son regard. Soudain, il griffa l'espace devant lui!
+L'expression de Wang Lin resta imperturbable alors qu'il reculait de trois pas. Sa main droite se crispa en un poing et une froideur glaciale envahit son regard. Soudain, il déchira l'espace devant lui!
 
 Déchirure du Ciel!
 

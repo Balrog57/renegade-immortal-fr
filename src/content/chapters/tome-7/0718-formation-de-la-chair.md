@@ -16,7 +16,7 @@ Bien qu'aucune vie n'y fût, une puissante vitalité émanait de la planète. Ce
 
 Cependant, l'énergie spirituelle faisait ici défaut. Après tout, la moindre trace d'énergie spirituelle s'effondrerait instantanément sous la densité du tonnerre.
 
-Le monde entier était enveloppé par un tonnerre impétueux. D'innombrables éclairs descendaient du ciel; le sol absorbait ces foudres qui se propageaient ensuite dans les entrailles de la terre comme des serpents d'argent.
+Le monde entier était enveloppé par un tonnerre impétueux. D'innombrables éclairs descendaient du ciel; le sol absorbait ces foudres, qui se transformaient en serpents d'argent se répandant à la surface, comme un bassin de foudre.
 
 Les yeux de Wang Lin brillaient d'une lueur étrange. Cet endroit était tout simplement parfait pour lui.
 
@@ -36,7 +36,7 @@ Ses deux mains formèrent un sceau qu'il plaça sur ses genoux. Des éclairs jai
 
 Des craquements stridents retentirent de toutes parts et d'innombrables étincelles volèrent dans l'air. Chacune de ces étincelles aurait fait changer d'expression à un cultivateur du premier niveau, tant elle contenait la puissance du tonnerre céleste.
 
-Wang Lin ferma lentement les yeux et permit au tonnerre de pénétrer son âme originelle à sa guise. Le tonnerre dense s'accumula autour de lui, augmentant sans cesse, jusqu'à former une gigantesque sphère de foudre.
+Wang Lin ferma lentement les yeux et permit au tonnerre de pénétrer son âme originelle à sa guise. Le tonnerre dense s'accumula autour de lui, augmentant sans cesse, jusqu'à former une gigantesque sphère de foudre en forme de filet.
 
 Wang Lin se trouvait à l'intérieur, tandis que les éclairs descendaient sur lui. Le tonnerre circulait à travers son âme originelle avant de disparaître lentement.
 
@@ -72,7 +72,7 @@ Une aura antique jaillit soudainement de la main de Wang Lin et enveloppa le mon
 
 Les deux mains de Wang Lin touchèrent lentement la terre et il prononça quelques mots complexes. Ses yeux se mirent à briller d'une lueur mystérieuse.
 
-« Rassemblement! » lança Wang Lin en guise de dernier mot.
+« Condense! » lança Wang Lin en guise de dernier mot.
 
 Le tonnerre qui recouvrait la terre sembla se transformer en une véritable masse aqueuse. Le mouvement fut lent au début, mais il s'accéléra rapidement; tout le tonnerre se précipita vers Wang Lin.
 

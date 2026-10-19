@@ -20,7 +20,7 @@ Un fracas retentit. Après avoir percuté le sol, il se précipita vers un autre
 
 Wang Lin fixa ces quatre runes très spéciales. Son regard s'anima et une idée audacieuse lui traversa l'esprit.
 
-« Si je fusionne l'étendard des milliards d'âmes avec le Sceau Céleste... » Le cœur de Wang Lin rata un battement.
+« Si je fusionne le Drapeau des Âmes d'un Milliard avec le Sceau Céleste... » Le cœur de Wang Lin rata un battement.
 
 Des grondements continuèrent de résonner, et un instant plus tard, le Sceau Céleste revint. Le nombre de runes douées d'intelligence passa de quatre à sept!
 
@@ -94,7 +94,7 @@ Dans la jungle, le cultivateur aux six doigts se cachait dans un arbre gigantesq
 
 Zhan Konglie progressait dans la jungle lorsqu'il entendit ce cri. Son corps trembla et il s'assit immédiatement pour cultiver. Un instant plus tard, ses yeux brillèrent. Le visage illuminé par la joie, il se précipita vers la source du rugissement.
 
-À cet instant, tous les cultivateurs du champ de bataille entendirent le terrifiant grondement de la foudre. C'était comme si le firmament allait s'écrouler. Le ciel changea brusquement de couleur alors que des éclairs apparaissaient en haute altitude et convergeaient au loin.
+À cet instant, tous les cultivateurs du champ de bataille entendirent le terrifiant grondement de la foudre. C'était comme si le firmament allait s'écrouler. Le ciel changea brusquement alors que des dragons d'éclairs, longs de plusieurs dizaines de pieds, apparaissaient en haute altitude et convergeaient au loin.
 
 La terre tremblait violemment, comme si l'apocalypse avait sonné!
 

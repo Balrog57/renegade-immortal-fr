@@ -16,13 +16,13 @@ Une fois entré dans la région de rang 8, Wang Lin cessa d'agir avec autant d'a
 
 Bien qu'il ne fût pas totalement guéri, sa puissance, alliée à ses divers sorts et trésors, lui permettait d'être arrogant dans les régions de rang 6 et 7. Cependant, en région de rang 8, la prudence était de mise.
 
-Par conséquent, Wang Lin dissimula son aura et ralentit sa course. Simultanément, il étudia la route menant au Royaume Céleste du Vent. Il ne fonça pas en ligne droite, mais contourna certaines zones afin de progresser avec tact vers sa destination.
+Par conséquent, Wang Lin dissimula son aura et ralentit sa course. Simultanément, il étudia la route menant au Royaume Céleste du Vent. Il ne fonça plus à travers les sectes, mais les contourna et évita certaines zones afin de progresser avec tact vers sa destination.
 
 Face à l'immensité de la région de rang 8, Wang Lin n'était qu'un poisson dans l'océan. Il se dirigea progressivement vers le Royaume Céleste du Vent tout en veillant scrupuleusement à rester caché.
 
 Wang Lin vola ainsi durant plusieurs jours consécutifs. Cela faisait presque un mois qu'il avait entamé son périple dans la région de rang 5.
 
-Le Royaume Céleste du Vent avait été gravement endommagé autrefois, mais comme il était occupé par les Bêtes Moustiques, les ruines étaient restées largement intactes. Certains cultivateurs s'y aventuraient encore; de temps à autre, des groupes tentaient d'y pénétrer pour capturer quelques bêtes moustiques solitaires sur la périphérie.
+Le Royaume Céleste du Vent avait été gravement endommagé autrefois, mais comme il était occupé par les Bêtes Moustiques, les ruines étaient restées largement intactes. Peu de cultivateurs s'y aventuraient, mais il s'en trouvait toujours quelques-uns; de temps à autre, des groupes tentaient d'y pénétrer pour capturer quelques bêtes moustiques solitaires sur la périphérie.
 
 Il n'était pas nécessaire de posséder un Fourneau du Vent pour entrer dans le Royaume Céleste du Vent. Une immense faille spatiale existait et, pour peu que l'on ait le courage de traverser l'épais essaim de bêtes moustiques, l'accès était possible.
 
@@ -60,11 +60,11 @@ Lorsque Lu Yanfei arriva, chacun pénétra dans la formation. Au moment où cell
 
 « Quand tu reviendras, peut-être découvriras-tu que la Secte de l'Origine... n'existe plus... »
 
-Simultanément, dans la région de rang 9, après l'abattage de la dernière bête féroce à l'extérieur de la faille, la marée de bêtes semblait s'être apaisée. Cela permit aux cultivateurs de la Mer des Nuages de jouir d'un moment de répit.
+Simultanément, dans la région de rang 9, après l'abattage de vagues successives de bêtes féroces à l'extérieur de la faille, la marée de bêtes semblait s'être apaisée. Cela permit aux cultivateurs de la Mer des Nuages de jouir d'un moment de répit.
 
 Parmi eux, Li Qianmei, aux cheveux bleus, était le centre de toutes les attentions. Elle essuya le sang des bêtes sur son épée, conservant un calme imperturbable.
 
-Regardant au loin, Li Qianmei quitta silencieusement le champ de bataille et se dirigea vers l'antre que la Secte Démon avait établi ici.
+Regardant au loin, Li Qianmei quitta silencieusement le champ de bataille et se dirigea vers le portail de montagne de la branche locale de la Secte Démon.
 
 « Je m'absenterai pendant trois mois. » Dans la Secte Démon, Li Qianmei fixa la silhouette floue présente dans la salle. Bien que sa voix fût douce, elle était empreinte de résolution.
 
@@ -110,7 +110,7 @@ Tout en cultivant, Mu Bingmei repensait souvent à sa vie. Son existence était 
 
 Liu Mei était l'existence la plus singulière parmi ses avatars, et cela n'était dû qu'à une seule personne. Parfois, Mu Bingmei ne savait plus si elle était Liu Mei ou Mu Bingmei...
 
-Elle était comme une étrangère observant Liu Mei, s'égarant peu à peu, comme si un intrus s'était glissé en elle.
+Elle était comme une spectatrice extérieure observant Liu Mei et, peu à peu, s'y égarait, comme si elle passait du dehors au dedans.
 
 En y songeant, des larmes coulèrent aux coins de ses yeux. Cependant, ces larmes n'étaient pas réelles; elles n'étaient que le reflet de son cœur déchiré.
 

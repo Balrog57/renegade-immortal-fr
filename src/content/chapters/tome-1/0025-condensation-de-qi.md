@@ -42,7 +42,7 @@ Bientôt, ce liquide noir imprégna ses vêtements. Wang Lin n'y prêtait aucune
 
 Après un temps indéterminé, Wang Lin ouvrit les yeux. Une lueur nouvelle brillait dans son regard.
 
-Son esprit était clair et son cœur aussi calme qu'une eau sans la moindre ride. Les souvenirs de son enfance affluèrent: le regard affectueux de son père lorsqu'il apprenait à parler, les paroles encourageantes de sa mère durant ses nuits d'étude, l'espoir dans les yeux de ses parents lorsqu'il entra dans la Secte Heng Yue, les visages moqueurs de ses proches et les regards admiratifs des villageois. Il contemplait tout cela avec sérénité, comme s'il observait un étranger.
+Son esprit était clair et son cœur aussi calme qu'une eau sans la moindre ride. Les souvenirs de son enfance affluèrent: le regard affectueux de son père lorsqu'il apprenait à parler, les paroles encourageantes de sa mère durant ses nuits d'étude, l'espoir dans les yeux de ses parents lorsqu'il entra dans la Secte Heng Yue, les visages moqueurs de ses proches et les regards envieux des villageois. Il contemplait tout cela avec sérénité, comme s'il observait un étranger.
 
 Bien plus tard, il expira profondément. Son cœur était empreint d'amertume. En franchissant le premier niveau de la Condensation de Qi, il avait acquis une forme de compréhension.
 

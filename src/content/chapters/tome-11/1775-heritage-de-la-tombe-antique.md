@@ -14,7 +14,7 @@ Désormais, Wang Lin lui avait pris la moitié de son âme, le laissant dans un 
 
 Tout cela rappelait étrangement la manière dont le Souverain avait rassemblé les grands puissants du Royaume Extérieur pour encercler et tuer le Seigneur du Domaine Scellé, jusqu'à ce que ce dernier ne soit plus qu'un fragment d'âme à l'intérieur de la Perle Défiant le Ciel. C'était comme un cycle de réincarnation.
 
-Le tueur avait été tué!
+Celui qui tue sera toujours tué!
 
 Wang Lin poussa un soupir et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu et ses compagnons.
 
@@ -24,7 +24,7 @@ Le regard du Maître du Dao Rêve Bleu balaya le nain avant de se poser sur Wang
 
 Ses paroles pesaient lourdement sur les deux derniers mots.
 
-Tu Si ou Tuo Sen reprit une taille humaine et dit calmement: « Vous m'avez rendu mon héritage et avez permis que ma Technique Divine de Transformation à l'Encre Fluide soit complète. Je vous rendrai la pareille. »
+Tu Si ou Tuo Sen reprit une taille humaine et dit calmement: « Vous m'avez rendu mon héritage et avez permis que ma Technique Divine de Transformation à l'Encre Fluide soit complète. Je vous rendrai la pareille, et ce lien de cause à effet sera ainsi dénoué. »
 
 Wang Lin ne pouvait distinguer s'il s'agissait de Tuo Sen ou de Tu Si, mais il comprenait vaguement ce qui était arrivé à cet homme.
 
@@ -50,7 +50,7 @@ Tuo Sen réfléchit en silence et regarda Wang Lin. Sans mot dire, des bruits de
 
 « L'Oncle Ma interviendra aussi pour vous aider à gagner du temps », déclara Yun Yifeng avec un sourire amer en avalant une poignée de pilules. D'un revers de la main, il fit émaner des lueurs des cinq éléments de son corps, et une armure commença lentement à se matérialiser.
 
-Tang Shan agita sa main droite sans prononcer un mot. Sept portes dorées apparurent autour de l'assemblée. Elle prit une profonde inspiration et leva les yeux vers le ciel.
+Tang Shan agita sa main droite sans prononcer un mot. Sept portes dorées apparurent autour de chacun des présents. Elle prit une profonde inspiration et leva les yeux vers le ciel.
 
 Wang Lin ouvrit la bouche, mais les mots restèrent bloqués. Il ne pouvait contrôler la Poupée Yi Si que s'il était présent, et elle devait impérativement le suivre. Par conséquent, sans lui, la marionnette serait inutile.
 
@@ -70,7 +70,7 @@ Dans la dernière couche de la Tombe Antique, Wang Lin apparut. À l'instant mê
 
 Ce son pénétra son esprit sans pour autant synchroniser ses propres battements. Au contraire, cela plongea son cœur dans le chaos, comme si deux rythmes distincts résonnaient dans ses oreilles. Les yeux de Wang Lin s'illuminèrent alors qu'il inspectait les lieux. Cette dernière couche ne possédait ni terre ni ciel.
 
-Il n'y avait que des structures semblables à des vaisseaux sanguins, épais de mille pieds. À chaque battement de cœur, ces vaisseaux s'animaient violemment.
+Il n'y avait que des structures semblables à des vaisseaux sanguins d'un bleu-vert, épais de mille pieds. À chaque battement de cœur, ces vaisseaux s'animaient violemment.
 
 Grâce à son Sens Divin, Wang Lin vit clairement un cœur gigantesque vers lequel convergeaient tous les vaisseaux. À chaque pulsation, il ressentait une douleur fulgurante dans la poitrine, comme si son propre cœur était sur le point de se rompre.
 
@@ -98,7 +98,7 @@ Ce n'était ni un sort, ni une capacité, ni un pouvoir du Dao; c'était simplem
 
 Le visage de Wang Lin était d'une pâleur cadavérique et sa main droite pressait sa poitrine. Il sentait l'irrégularité de ses battements, et les vibrations faisaient trembler sa main!
 
-Titubant, les dents serrées, Wang Lin poussa un rugissement. Après avoir craché du sang, il apparut directement sur le cœur immense. Son corps oscillait au rythme des pulsations.
+Titubant, les dents serrées, Wang Lin poussa un grognement. Après avoir craché du sang, il apparut directement sur le cœur immense. Son corps oscillait au rythme des pulsations.
 
 Luttant contre la douleur, Wang Lin s'assit sur le cœur. Il ferma les yeux et concentra toute sa volonté sur son propre rythme cardiaque.
 
@@ -122,8 +122,8 @@ Simultanément, un message divin misérable, chargé d'un ressentiment monstrueu
 
 Wang Lin ouvrit brusquement les yeux et s'écria: « Je t'aiderai à retrouver ton œil gauche! C'est ma promesse! »
 
-À ces mots, le cœur ne chercha plus à lutter contre son rythme; il choisit de battre en parfaite symbiose avec Wang Lin.
+À ces mots, le cœur ne chercha plus à lutter contre son rythme; il choisit peu à peu de battre au rythme de Wang Lin.
 
-Une puissante aura du Dao Antique surgit et se précipita dans le corps de Wang Lin alors que les deux cœurs s'alignaient. Sous l'assaut de cette aura, ses vêtements claquèrent violemment comme sous l'effet d'un vent impétueux.
+Une puissante aura du Dao Antique surgit et se précipita dans le corps de Wang Lin alors que les deux cœurs s'alignaient. Sous l'assaut de cette aura, ses cheveux blancs se mirent à flotter violemment, comme sous l'effet d'un vent impétueux.
 
 Les huit étoiles divines antiques entre ses sourcils tournèrent frénétiquement, laissant présager la formation d'une neuvième étoile!

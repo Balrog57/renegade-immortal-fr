@@ -42,7 +42,7 @@ Une fois que le prince devint roi, ses tributs ne diminuèrent pas, ils augment�
 
 Au fil des ans, Wang Lin commença à éprouver une véritable admiration pour le prince. Après tout, c'était un souverain dans le monde mortel; être capable de baisser ainsi la tête demandait une immense détermination.
 
-Peut-être était-ce parce qu'il avait tant vécu qu'il avait réalisé qu'il existait des êtres capables de le tuer d'un simple geste du doigt sans que personne ne s'en soucie. L'une des raisons pour lesquelles il témoignait un tel respect à Wang Lin était de vouloir l'attirer à ses côtés afin de s'assurer une vie paisible.
+Peut-être était-ce parce qu'il avait tant vécu qu'il avait réalisé qu'il existait des êtres capables de le tuer d'un simple geste du doigt sans que personne ne s'en soucie. Son respect envers Wang Lin ne visait qu'à l'attirer à ses côtés afin de s'assurer une vie paisible.
 
 Cet hiver-là, la neige tomba avec une intensité rare. En plus de trente ans de présence ici, Wang Lin n'avait jamais vu une telle tempête. La neige recouvrait toute la capitale; sur les toits et les arbres, elle s'accumulait jusqu'à atteindre la hauteur d'un enfant de trois à cinq ans.
 

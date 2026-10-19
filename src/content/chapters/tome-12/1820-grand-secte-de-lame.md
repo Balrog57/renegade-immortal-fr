@@ -40,7 +40,7 @@ Il s'était déjà préparé à cela. Après tout, c'était comparable à la con
 
 À moins de pouvoir dévorer des pilules de qualité supérieure, telle que la volonté de ce principal filon de feu terrestre!
 
-Wang Lin ferma légèrement les yeux et son corps flotta silencieusement vers l'avant, sans le moindre bruit, en direction de la Secte de la Grande Âme.
+Wang Lin ferma légèrement les yeux et son corps flotta silencieusement depuis la Montagne Céleste vers l'avant, sans le moindre bruit, en direction de la Secte de la Grande Âme.
 
 Tout en avançant, son corps clignotait. Il franchissait de grandes distances comme s'il se téléportait.
 
@@ -110,7 +110,7 @@ Toutefois, ce Sens Divin se propageait comme un éventail dont la montagne rouge
 
 Alors que le Sens Divin balayait la zone, des ondulations résonnèrent à travers la formation de la Secte de la Grande Âme et celle-ci se scella. Cette scène choqua Wang Lin.
 
-« Me suis-je fait repérer? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui s'éloignaient au loin.
+« Me suis-je fait repérer? » Wang Lin n'eut pas le temps de réfléchir alors que le Sens Divin se rapprochait de lui. Il recula, mais il semblait ne plus avoir nulle part où se cacher. Il vola vers les trois rayons de lumière qui venaient de loin.
 
 Il se déplaça à sa vitesse maximale pour pénétrer dans le corps de l'homme. La raison n'était pas le niveau de culture de ce dernier, mais le fait que le Sens Divin appartînt à une femme. D'après l'expérience de Wang Lin, la plupart des femmes à ce stade de culture étaient hautaines et ne fouillaient pas trop minutieusement le corps d'un disciple masculin. Après tout, une fouille détaillée équivalait à regarder quelqu'un nu.
 

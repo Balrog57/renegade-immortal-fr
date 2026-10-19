@@ -16,7 +16,7 @@ Il était transporté par l'excitation en réalisant qu'une puissante aura de tr
 
 Il était convaincu que sa chance était immense et qu'il allait rencontrer une fortune prodigieuse. Son niveau de culture augmenterait et il n'aurait plus à craindre ce Wang Lin. Il comptait bien lui voler tous ses trésors en retour.
 
-Porté par ces ambitions, Cupidité suivit son instinct à l'intérieur de la grotte et découvrit un véritable autel antique.
+Porté par ces ambitions, Cupidité suivit son instinct à l'intérieur de la faille et découvrit un véritable autel antique.
 
 L'excitation de Cupidité atteignit des sommets lorsqu'il aperçut cet autel. Il vit également le monde contenu dans la faille sur laquelle l'un des coins de l'autel était ancré. Devant ce spectacle, il manqua de pousser un hurlement de loup.
 
@@ -52,7 +52,7 @@ En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux
 
 Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ruiner sa culture. À ses yeux, ces deux petites filles étaient tout simplement trop terrifiantes.
 
-— Je parlerai... Je parlerai! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Serpent aux yeux de lune... » Le ventre de Cupidité semblait brûler alors qu'il commençait à s'exprimer.
+— Je parlerai... Je parlerai! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Serpent aux yeux de lune... » La gorge de Cupidité semblait brûler alors qu'il commençait à s'exprimer.
 
 — Ce Wang Lin est trop méprisable! Comment peut-il être ainsi? » La petite fille en pourpre nommée Han Han fronça le nez et marmonna avec mécontentement.
 
@@ -62,7 +62,7 @@ Alors que Cupidité racontait douloureusement son histoire, à l'extérieur de l
 
 Derrière lui, l'espace lui-même semblait s'embraser alors que neuf oiseaux de feu le poursuivaient. Une puissante vague de chaleur émanait de ces créatures. Derrière elles, le Daoïste aux Sept Couleurs avançait d'un pas décontracté, mais imprégné d'une intention meurtrière.
 
-« Je veux voir jusqu'où tu pourras fuir. Je réduirai ton corps antique en cendres. Plus tu te rétabliras, plus tu souffriras. Je vais extraire ton âme originelle pour la raffiner en un trésor. Ce n'est qu'ainsi que je pourrai apaiser la haine dans mon cœur! »
+« Je veux voir jusqu'où tu pourras fuir. Je réduirai ton corps ancien en cendres. Plus tu te rétabliras, plus tu souffriras. Je vais extraire ton âme originelle pour la raffiner en un trésor. Ce n'est qu'ainsi que je pourrai apaiser la haine dans mon cœur! »
 
 Le corps de Wang Lin semblait brûler et une douleur intense enveloppait tout son être. Son sang semblait bouillir dans ses veines, lui infligeant des tourments atroces. Le sang qu'il crachait était brûlant; son corps était tel un immense fourneau lentement réduit en cendres.
 
@@ -94,13 +94,13 @@ Le visage de Cupidité changea une fois de plus. Ses yeux s'écarquillèrent et 
 
 Cependant, au même moment, le Daoïste aux Sept Couleurs leva sa main droite et pointa l'autel sur lequel se trouvait Wang Lin.
 
-« Est-ce là que tu comptes te réfugier? Alors laisse-moi te raffiner ici même! » Le Daoïste aux Sept Couleurs pointa du doigt et les neuf soleils volèrent vers Wang Lin. La vague de chaleur se précipita sur lui, incinérant tout ce qui se trouvait sur son passage.
+« Est-ce donc là la fin de ta fuite? Alors laisse-moi te raffiner ici même! » Le Daoïste aux Sept Couleurs pointa du doigt et les neuf soleils volèrent vers Wang Lin. La vague de chaleur se précipita sur lui, incinérant tout ce qui se trouvait sur son passage.
 
 Wang Lin s'assit sur l'autel et fixa les neuf soleils qui fonçaient sur lui. Il ignorait où résidait sa chance de survie, mais il aperçut la main dans l'autel!
 
 L'aura antique que dégageait ce bras lui était extrêmement familière. Wang Lin reconnut immédiatement qu'il s'agissait de l'un des bras de Ye Mo!
 
-« Ce bras pourrait-il être ma seule chance? » Sans hésiter, et sans même prendre le temps d'observer les alentours, il leva la main droite et la pressa sur ce bras. Si n'importe qui d'autre l'avait fait, il n'aurait pu fusionner avec lui, mais Wang Lin était différent. Il possédait un héritage antique authentique de Ye Mo. À cet instant, le bras émit une lueur éblouissante qui enveloppa complètement Wang Lin.
+« Ce bras pourrait-il être ma seule chance? » Sans hésiter, et sans même prendre le temps d'observer les alentours, il leva la main droite et la pressa sur ce bras. Si n'importe qui d'autre l'avait fait, il n'aurait pu fusionner avec lui, mais Wang Lin était différent. Il possédait un héritage antique authentique. À cet instant, le bras émit une lueur éblouissante qui enveloppa complètement Wang Lin.
 
 Au même instant, Cupidité se mit à hurler au milieu de la vague de chaleur. La moitié de son corps était déjà entrée dans la faille, mais il était trop tard pour y pénétrer totalement!
 
@@ -110,6 +110,6 @@ Alors que Cupidité rugissait de douleur, il sentit deux petites mains presser c
 
 Cette puissance fit briller le corps de Cupidité d'une lumière dorée infinie. Cette clarté se propagea et les mains de Cupidité bougèrent d'elles-mêmes jusqu'à former un motif circulaire.
 
-Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer des Nuages, la Rivière Invoquée et les autres systèmes stellaires, et secoua tout le Royaume Extérieur.
+Dès que ce motif fut complet, un soleil doré apparut dans sa main! Ce soleil ne faisait que la taille d'une paume, mais la puissance qu'il dégageait était telle qu'elle ébranla l'espace entier. Il fit trembler la Mer des Nuages, la Rivière Invoquée et les autres systèmes stellaires, et ébranla les astres antiques du Royaume Extérieur.
 
 Cependant, ce qui allait suivre serait encore plus terrifiant.

@@ -12,7 +12,7 @@ Ici, la glace n'a jamais fondu depuis l'arrivée des cultivateurs sur cette plan
 
 Cette brume glaciale est appelée la Brume de Jiuli. Cette mystérieuse puissance naturelle n'apparaît que dans les lieux d'extrême chaleur et d'extrême froid.
 
-Outre sa capacité à tout détruire, la Brume de Jiuli a un autre effet: elle aspire ce qu'elle ne peut pas absorber pour le raffiner lentement.
+Outre sa capacité à tout détruire, la Brume de Jiuli a un autre effet: elle aspire ce qu'elle ne peut pas détruire aussitôt pour le raffiner lentement.
 
 La Petite Terre des Flammes du Nord est immense. Lorsque Xue Yue était ici, ils n'ont pu explorer qu'un tiers de la région avant d'être incapables de progresser davantage; ils finirent par établir leur pays à la frontière de cette zone.
 
@@ -32,11 +32,11 @@ Le garçon était très beau, mais son visage exprimait une lutte constante. Il 
 
 Cependant, dès que la brume était repoussée, elle revenait aussitôt envelopper la glace de flammes et la raffiner lentement.
 
-Ce garçon était l'enfant démoniaque que le Grand Ancien Sun Tai de la Secte des Cadavres avait libéré contre l'ancêtre du Clan Démon Géant.
+Ce garçon était l'enfant démoniaque que le Grand Ancien Sun Tai de la Secte des Cadavres avait libéré contre l'ancêtre du Clan des Démons Géants.
 
-Cet enfant démoniaque était très étrange. Autrefois, le corps de l'ancêtre du Clan Démon Géant avait été détruit par lui. L'ancêtre avait alors été contraint de fuir avec son âme originelle, poursuivi par l'enfant démoniaque, et ce n'est qu'en ce lieu qu'il parvint à s'échapper de justesse.
+Cet enfant démoniaque était très étrange. Autrefois, le corps de l'ancêtre du Clan des Démons Géants avait été détruit par lui. L'ancêtre avait alors été contraint de fuir avec son âme originelle, poursuivi par l'enfant démoniaque, et ce n'est qu'en ce lieu qu'il parvint à s'échapper de justesse.
 
-Si Sun Tai n'avait pas été téléporté hors de la planète Suzaku par le pouvoir inné de l'ancêtre du Clan Démon Géant, il aurait pu le contrôler et l'enfant démoniaque n'aurait pas été ainsi piégé.
+Si Sun Tai n'avait pas été téléporté hors de la planète Suzaku par le pouvoir inné de l'ancêtre du Clan des Démons Géants, il aurait pu le contrôler et l'enfant démoniaque n'aurait pas été ainsi piégé.
 
 L'origine de cet enfant démoniaque était prodigieuse!
 
@@ -50,7 +50,7 @@ Très peu de gens savent où se situe le siège de la Secte des Cadavres, car c'
 
 La structure de la Secte des Cadavres ressemble à une tour, composée de nombreux niveaux différents.
 
-Au sein de l'alliance de culture, la Secte des Cadavres est l'une des rares organisations reconnues comme une secte officielle. Comparé à la multitude de sectes éparpillées sur les diverses planètes de culture, la Secte des Cadavres compte parmi les rares véritables sectes de l'ère actuelle.
+Au sein de l'Alliance de Culture, la Secte des Cadavres est l'une des rares organisations reconnues comme une secte officielle. Comparé à la multitude de sectes éparpillées sur les diverses planètes de culture, la Secte des Cadavres compte parmi les rares véritables sectes de l'ère actuelle.
 
 De nombreux cultivateurs de l'ancienne génération savent qu'on ne s'attaque pas à la Secte des Cadavres sans réfléchir. On raconte que la personne derrière la Secte des Cadavres entretiendrait un lien avec l'effondrement du Royaume Céleste.
 
@@ -68,9 +68,9 @@ Le corps de cet enfant démoniaque est classé au 171e rang au sein de la Secte 
 
 Sun Tai fut comblé de joie après avoir trouvé ce corps. Il l'avait raffiné pendant plus de 1 000 ans pour enfin créer cet enfant démoniaque. Celui-ci avait même la capacité d'utiliser des sorts, et le corps lui-même atteignait déjà le stade intermédiaire de la Transformation de l'Âme. La seule particularité était qu'il devait être conservé dans une formation spéciale pour être nourri et ne pouvait quitter ladite formation trop longtemps.
 
-C'est pourquoi, lorsque Sun Tai se rendit au Royaume Céleste, il n'emporta pas l'enfant démoniaque avec lui. À son retour, il le récupéra et prévoyait de se rendre sur une planète voisine abritant une importante branche de la Secte des Cadavres. Il comptait échanger ce corps contre une pilule de séparation de l'âme de rang 8 afin de lever le sceau de Zhou Yi.
+C'est pourquoi, lorsque Sun Tai se rendit au Royaume Céleste, il n'emporta pas l'enfant démoniaque avec lui. À son retour, il le récupéra et prévoyait de se rendre sur une planète voisine abritant une importante branche de la Secte des Cadavres. Il comptait échanger ce corps contre une pilule de séparation de l'âme de rang 8 supérieur afin de lever le sceau de Zhou Yi.
 
-Mais c'est à ce moment précis que Wang Lin l'appela, raison pour laquelle il avait utilisé l'enfant démoniaque contre l'ancêtre du Clan Démon Géant.
+Mais c'est à ce moment précis que Wang Lin l'appela, raison pour laquelle il avait utilisé l'enfant démoniaque contre l'ancêtre du Clan des Démons Géants.
 
 Ce jour-là, à l'extérieur de la Petite Terre des Flammes du Nord, trois arcs-en-ciel, deux devant et un derrière, fendirent le ciel. L'un des meneurs portait une robe blanche et, sous ses longs cheveux fluides, on devinait le visage d'un jeune homme.
 
@@ -82,7 +82,7 @@ Wang Lin faisait partie de ce trio.
 
 Situ Nan se retourna vers le quatrième ancêtre du Clan des Immortels Délaissés et cria: « Tu es trop lent, petit morveux! Ce vieux a dû t'attendre tant de fois. Si tu ne voles pas plus vite, je ne t'attendrai plus! »
 
-Le quatrième ancêtre était furieux. Il avait voulu abandonner la poursuite à plusieurs reprises, mais chaque fois qu'il s'en approchait, l'homme d'âge moyen s'arrêtait pour le taquiner.
+Le quatrième ancêtre était furieux. Il avait voulu abandonner la poursuite à plusieurs reprises, mais chaque fois qu'il voulait y renoncer, l'homme d'âge moyen s'arrêtait pour le taquiner.
 
 Le quatrième ancêtre trouvait cela très étrange, mais il refusait de renoncer. Il possédait une technique secrète qui, une fois qu'il aurait rattrapé celui qui avait avalé l'arbre ancestral, lui permettrait de récupérer de force son Esprit Ancestral, à la condition que celui-ci n'ait pas encore été raffiné.
 
@@ -132,4 +132,4 @@ Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et dema
 
 Wang Lin leva la tête vers l'horizon et dit calmement: « Tu ne m'as toujours pas dit ce qu'est le Cristal de la Planète de Culture. »
 
-« Le Cristal de la Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un trésor surpuissant. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »
+« Le Cristal de la Planète de Culture... Avant de devenir le souverain d'une planète de culture, je pensais aussi que c'était un puissant trésor magique. Cependant, après être devenu le second Suzaku, j'ai découvert que cet objet était tout simplement trop vicieux! »

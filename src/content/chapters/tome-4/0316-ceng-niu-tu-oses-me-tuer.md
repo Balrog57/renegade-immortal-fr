@@ -84,7 +84,7 @@ Le corps de Wang Lin fonça vers Papillon Rouge comme un éclair. Chi Hu vit la 
 
 Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
 
-« Haha, Papillon Rouge, un génie comme toi ne devrait pas utiliser de telles menaces. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
+« Haha, Papillon Rouge, de telles menaces ne sont pas dignes d'une fille bénie du ciel. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 
 « Condense! »
 
@@ -118,7 +118,7 @@ Papillon Rouge serra les dents. Alors que la lance approchait, elle leva la main
 
 La lance de Wang Lin se désintégra à nouveau, redevenant un gaz de restriction incapable de se condenser une seconde fois. Un domaine puissant déferla sur Wang Lin, troublant ses pensées. Cependant, sa détermination était inébranlable. Bien que son talent fût moyen, sa force mentale était hors du commun.
 
-Dans sa jeunesse, lorsqu'il ne connaissait aucune technique et qu'il gravissait les montagnes de la Secte Heng Yue, sa volonté suffisait déjà à stupéfier autrui. Après 400 ans d'expérience, elle était désormais aussi dure que l'acier.
+Dans sa jeunesse, lorsqu'il ne connaissait aucune technique et qu'il gravissait les montagnes de la Secte Heng Yue, sa volonté suffisait déjà à émouvoir autrui. Après 400 ans d'expérience, elle était désormais aussi dure que l'acier.
 
 Malgré l'assaut du domaine, son corps ne faiblit pas. Il retourna sa main droite et neuf sculptures de bois apparurent devant lui.
 
@@ -134,6 +134,6 @@ Alors qu'elle reculait, le domaine temporel se propagea depuis les neuf sculptur
 
 Ce domaine appartenait à Qing Song, de l'Alliance des Quatre Sectes. Étant au stade intermédiaire de la Formation de l'Âme, son domaine possédait déjà une capacité d'attaque intrinsèque.
 
-Les deux doigts de Wang Lin tranchèrent l'air comme un couteau acéré prêt à graver. Sous l'effet du domaine temporel, le corps de Papillon Rouge ne put s'empêcher de ralentir. Ses yeux étaient remplis de haine lorsqu'elle leva la main droite et entama une étrange incantation.
+Les deux doigts de Wang Lin tranchèrent l'air comme un couteau acéré prêt à graver. Sous l'effet du domaine temporel, le corps de Papillon Rouge ne put s'empêcher de ralentir. Avant ses blessures, ce domaine n'aurait même pas mérité son attention, mais dans son état il était devenu une chaîne qui liait sa vie. Ses yeux étaient remplis de haine lorsqu'elle leva la main droite et entama une étrange incantation.
 
 Soudain, le bracelet de jade blanc projeta une lumière éblouissante. Sous cet éclat, le domaine temporel s'effondra instantanément et Wang Lin ressentit des vagues de douleur fulgurantes dans son doigt. Cette sensation était identique à celle qu'il avait éprouvée en touchant l'épée céleste.

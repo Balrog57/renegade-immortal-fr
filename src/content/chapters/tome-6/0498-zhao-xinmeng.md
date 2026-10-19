@@ -52,7 +52,7 @@ Le corps de Wang Lin vacilla alors qu'il reculait rapidement. Simultanément, il
 
 « Cet enfant... est-il vraiment en adéquation avec mon Dao... Autrefois, il ne m'avait laissé qu'une phrase: "Mon Dao est le Dao du destin céleste. Ce n'est qu'en trouvant des êtres en accord avec mon Dao que j'aurai une chance de franchir la troisième étape..." » L'expression de l'Omniscient resta impassible, bien qu'il portât une attention particulière à l'index droit de Wang Lin.
 
-« Si cet enfant est véritablement lié à mon Dao, alors moi, l'Omniscient, je suis prêt à prendre ce risque, quel qu'en soit le prix! Cela fait plus de 30 000 ans que je l'ai rencontré, et j'ai perdu la majorité de mes disciples depuis. En faisant cela, est-ce que je fais bien... ou est-ce que je me trompe? » L'Omniscient fixa Wang Lin d'un regard mélancolique.
+« Si cet enfant est véritablement lié à mon Dao, alors moi, l'Omniscient, je suis prêt à prendre ce risque, quel qu'en soit le prix! Cela fait plus de 30 000 ans que je l'ai rencontré, j'ai depuis échoué d'innombrables fois et perdu la majorité de mes disciples. En faisant cela, est-ce que je fais bien... ou est-ce que je me trompe? » L'Omniscient fixa Wang Lin d'un regard mélancolique.
 
 Le regard de Wang Lin était empreint de gravité lorsqu'il tonna: « Doigt Démoniaque! »
 
@@ -76,7 +76,7 @@ Wang Lin observa la perle et dit d'un ton sérieux: « Tu as créé la Main Dém
 
 Cette énergie n'était pas une véritable essence démoniaque issue de la culture, mais une illusion créée à partir de l'énergie spirituelle céleste de Wang Lin. Par conséquent, il en avait le contrôle absolu et pouvait la dissiper par une simple pensée.
 
-Ce type d'énergie spirituelle céleste modifiée ne pouvait être transmis à autrui; sinon, quiconque l'étudierait découvrirait inévitablement la méthode pour cultiver le Doigt Démoniaque. Wang Lin avait promis à Situ Nan de ne jamais l'enseigner à personne.
+Ce type d'énergie spirituelle céleste modifiée ne pouvait être transmis à autrui; sinon, quiconque l'étudierait découvrirait inévitablement la méthode pour cultiver le Doigt Démoniaque. Wang Lin avait promis à Situ Nan de ne jamais transmettre ces trois techniques mortelles à personne.
 
 Le visage de Zhao Xinmeng s'assombrit et ses sourcils se froncèrent. Elle regarda la perle dans sa main et la broya d'une pression brutale. Puis, elle leva les yeux vers Wang Lin et dit doucement: « Septième frère, je ne veux qu'un peu de ton énergie démoniaque. Si tu me la donnes, j'abandonne. Sinon... »
 
@@ -84,7 +84,7 @@ Wang Lin la regarda. Bien qu'ils aient eu des interactions par le passé, ils ne
 
 Zhao Xinmeng fixa Wang Lin. Un instant plus tard, elle leva le bras et déclara doucement: « Tactique de Raffinement Céleste à Neuf Cycles! »
 
-Soudain, une puissante lumière dorée émana du corps de Zhao Xinmeng. Son visage fut baigné d'un éclat doré, lui conférant un air mystérieux. Sa main droite ressemblait à un pilier d'or projetant des ondes lumineuses.
+Soudain, une puissante lumière dorée émana du corps de Zhao Xinmeng. Son visage fut baigné d'un éclat doré, lui conférant un air mystérieux. Sa main droite semblait coulée dans l'or, projetant des éclats dorés.
 
 L'énergie spirituelle céleste métallique commença à se condenser à partir de sa main droite, formant un vortex doré qui tournait lentement au-dessus de celle-ci.
 
@@ -116,4 +116,4 @@ Le visage de Zhao Xinmeng s'assombrit. Elle le fixa et dit lentement: « Même s
 
 Wang Lin rit, puis frappa son sac de rangement. La hache du Clan du Démon Géant jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le cercle de bronze fixé à son poignet s'élança et se métamorphosa en char de guerre.
 
-« Serai-je à la hauteur si j'ajoute ces deux-là? »
+« Avec ces deux-là en plus, que dirais-tu d'un combat contre moi? »

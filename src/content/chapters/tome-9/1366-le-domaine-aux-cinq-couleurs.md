@@ -82,7 +82,7 @@ Ils avaient déjà fouillé de nombreux endroits cette nuit, sans rien trouver. 
 
 Cependant, à cet instant précis, un coup de tonnerre retentit et la foudre déchira le ciel. À ce moment-là, une silhouette vêtue d'un imperméable et tenant une cruche de vin apparut!
 
-Il était si rapide que personne ne l'avait vu, si rapide qu'aucun des sept compagnons ne s'en aperçut. La silhouette surgit soudainement à moins d'un mètre de l'homme en robe taoïste!
+Il était si rapide que personne ne l'avait vu, si rapide qu'aucun des sept compagnons ne s'en aperçut. La silhouette surgit soudainement à moins de trois pieds de l'homme en robe taoïste!
 
 Les pupilles de l'Ancien se rétractèrent, ses yeux emplis de choc et de terreur. Il n'eut pas le temps de réagir que la silhouette but une gorgée de vin de sa main droite, tandis que sa main gauche venait se poser entre les sourcils du vieil homme.
 

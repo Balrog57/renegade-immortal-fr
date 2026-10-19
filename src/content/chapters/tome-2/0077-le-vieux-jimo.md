@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 77 - Old Man Jimo
 slug: le-vieux-jimo
 ---
-Wang Lin fronça les sourcils. Juste au moment où il allait récupérer le fouet, une petite épée rouge jaillit de l'épée fantomatique. L'épée rouge fendit l'air à une vitesse supérieure à celle de son corps principal.
+Wang Lin fronça les sourcils. Juste au moment où il allait récupérer le fouet, une épée rouge fantomatique jaillit de la petite épée. L'épée rouge fendit l'air à une vitesse supérieure à celle de son corps principal.
 
 Le fouet se divisa rapidement en deux, se transformant à nouveau en morceaux de bois qui chutèrent du ciel.
 
@@ -16,7 +16,7 @@ Wang Lin fronça les sourcils. Il saisit Zhang Hu et le projeta en arrière, pui
 
 L'épée volante fonçait sur lui à toute allure. Une illusion apparut à la pointe de l'arme: tel un éclair, l'illusion de l'épée surgit soudainement devant Wang Lin.
 
-L'expression de Wang Lin changea. Il agita la main et un morceau de jade apparut dans sa paume. Le jade brilla et un écran de lumière bleue se manifesta pour bloquer l'épée. La lame frappa violemment et l'écran de lumière commença à se fissurer; il ne tiendrait pas longtemps.
+L'expression de Wang Lin changea. Il sortit de son sac de rangement un morceau de jade et le lança. Le jade brilla et un écran de lumière bleue se manifesta pour bloquer l'épée. La lame frappa violemment et l'écran de lumière commença à se fissurer; il ne tiendrait pas longtemps.
 
 Wang Lin prit une profonde inspiration et cracha une bouffée d'énergie spirituelle sur l'écran de lumière. La teinte bleu clair commença à virer au vert, et sa luminescence devint plus dense.
 
@@ -24,7 +24,7 @@ Les fissures commencèrent à se refermer, parvenant à contenir l'attaque de l'
 
 « Qu'est-ce que c'est? » Les yeux de l'homme d'âge moyen se plissèrent. Il fixa Wang Lin et lança: « Il semble que tu ne sois pas au 8e niveau. Cependant, même si tu es au stade de l'Établissement des Fondations, tu ne pourras échapper vivant à mon épée volante! »
 
-Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça que sur deux cinquièmes de sa longueur; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau.
+Sur ces mots, l'homme d'âge moyen pointa du doigt, le regard empreint de gravité. Il agita la main, et l'épée volante revint se loger dans son fourreau. Cette fois, elle ne s'y enfonça que sur deux cinquièmes de sa longueur; sa couleur passa du bleu au noir avant de jaillir à nouveau du fourreau, sur un bref cri de l'homme d'âge moyen.
 
 Une lueur froide traversa les yeux de Wang Lin. C'était son premier combat depuis qu'il avait commencé à cultiver. Son adversaire avait le même niveau de culture que lui, mais son trésor magique était fort étrange. Le combat n'avait pas duré longtemps et il était déjà en position de faiblesse, sa vie menacée à tout instant. Voyant que l'épée était devenue noire, sa puissance manifestement accrue, il comprit que le jade défensif obtenu de Zhou Peng ne pourrait pas résister.
 
@@ -32,13 +32,13 @@ Sans hésiter, il frappa son sac de rangement et en sortit un jade antique. Dès
 
 Ce jade antique provenait du sac de rangement de Sun Dazhu; c'était l'objet le plus puissant qu'il contenait. Entre les mains de Sun Dazhu, ce trésor n'avait rien de remarquable et ne différait pas d'un objet ordinaire, mais sous la direction de Situ Nan, Wang Lin était parvenu à l'affiner et avait appris qu'il s'agissait d'un trésor de niveau Noyau, renfermant la force d'un coup d'un cultivateur de la Formation du Noyau.
 
-Wang Lin ne cilla même pas. Il cracha une bouffée d'énergie spirituelle et la dirigea vers le jade antique. Instantanément, de nombreux symboles dorés s'échappèrent de l'artefact.
+Wang Lin ne cilla même pas. Il cracha une bouffée d'énergie spirituelle et la dirigea vers le jade antique. Instantanément, de nombreux symboles dorés se dressèrent en relief sur l'artefact.
 
 L'expression de Wang Lin resta de marbre. Il fixa froidement l'homme d'âge moyen, une intention meurtrière brillant dans ses yeux.
 
-Les pupilles de l'homme d'âge moyen se rétractèrent. Il hésita un instant, puis serra les dents et sortit deux orbes dorés qu'il projeta vers l'épée volante.
+Les pupilles de l'homme d'âge moyen se rétractèrent. Il hésita un instant, puis serra les dents et sortit deux orbes dorés qu'il projeta vers l'épée volante; ceux-ci se changèrent en filaments dorés qui pénétrèrent dans la lame.
 
-L'épée, désormais noire, était parsemée de taches dorées étincelantes. Elle effectua une rotation avant de foncer sur Wang Lin, tandis que plusieurs tourbillons noirs apparaissaient autour d'elle.
+L'épée, désormais noire, était parsemée de taches dorées étincelantes. Elle effectua une rotation avant de foncer sur Wang Lin dans un sifflement strident, tandis que plusieurs tourbillons noirs apparaissaient autour d'elle.
 
 La froideur dans le regard de Wang Lin s'intensifia. Il ne prêta même pas attention à l'épée, se contentant de pointer le jade antique devant lui. Les symboles dorés s'illuminèrent soudainement et jaillirent du jade pour s'aligner: ils étaient au nombre de neuf.
 
@@ -64,7 +64,7 @@ Avant qu'il ne puisse achever sa phrase, les symboles dorés l'atteignirent. Le 
 
 Le deuxième symbole suivit sans délai. L'homme d'âge moyen se mit à saigner abondamment par tous ses orifices, sa poitrine étant désormais transpercée.
 
-Le troisième symbole frappa aussitôt, et le corps de l'homme d'âge moyen se désintégra complètement, emportant son sac de rangement dans sa chute. Seul le fourreau de l'épée resta intact et tomba au sol.
+Le troisième symbole frappa aussitôt, et le corps de l'homme d'âge moyen se désintégra complètement, son sac de rangement réduit en cendres avec lui. Seul le fourreau de l'épée resta intact et tomba au sol.
 
 Wang Lin prit une profonde inspiration et pointa le jade antique. Soudain, les trois symboles dorés restants s'arrêtèrent et réintégrèrent le jade.
 

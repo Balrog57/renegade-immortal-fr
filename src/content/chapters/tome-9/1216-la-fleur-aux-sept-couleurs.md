@@ -50,7 +50,7 @@ Wang Lin poussa un rugissement, et son expression était si terrifiante qu'elle 
 
 Son corps fut saturé d'une énergie originelle inimaginable. Il ne ressentait plus la douleur lancinante qui le déchirait; seule subsistait la volonté de massacre!!
 
-Le feu de son œil gauche jaillit pour entourer son corps, tandis que le tonnerre de son œil droit enveloppait les environs. La montagne sur laquelle il se tenait trembla violemment.
+Le feu de son œil gauche jaillit pour entourer son corps, tandis que le tonnerre de son œil droit jaillissait et traversait son corps, dedans comme dehors. La montagne sur laquelle il se tenait trembla violemment.
 
 La lumière aux sept couleurs ne s'arrêta pas et continua d'affluer. Le monde environnant s'assombrissait à vue d'œil. Bientôt, la lumière disparut totalement, ne laissant plus une once de clarté!
 
@@ -92,7 +92,7 @@ C'était une véritable culture du Dao!
 
 Ce processus durait depuis des éons, absorbant constamment l'intention daoïste de tous ceux qui périssaient dans le Royaume Scellé.
 
-À l'époque des Anciens Célestes, il n'existait pas de domaines; la formation absorbait donc les lois qu'ils cultivaient comme nutriments. À l'ère des anciens cultivateurs, en l'absence de lois, elle puisait dans l'énergie originelle dont ils jouissaient.
+À l'époque des Anciens Célestes, il n'existait pas de domaines; la formation absorbait donc les lois qu'ils cultivaient comme nutriments. À l'ère des anciens cultivateurs, faute de comprendre les lois, elle puisait dans l'énergie originelle dont ils jouissaient.
 
 Telles étaient les méthodes employées pour nourrir ces sept plantes afin que les fruits du Dao puissent éclore...
 
@@ -120,4 +120,4 @@ Au total, 98 ans passèrent...
 
 « Tu m'as autrefois demandé si le feu brûlerait mon doigt. Maintenant, je peux te répondre... Non... » Une voix antique résonna dans le système stellaire...
 
-« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume du Tribulant du Vide et d'interrompre sa culture. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »
+« Un fruit est sur le point de se former à partir de l'une des Fleurs aux Sept Couleurs... Les six autres ne sont pas loin non plus... Ce vieil homme avait été convaincu par le Souverain, en ce temps-là, de ne pas affronter le royaume de la Tribulation du Vide et d'interrompre sa culture. J'ai choisi de ne pas chercher à savoir si la quatrième étape du piétinement du ciel existait réellement, préférant devenir volontairement le gardien de cette plante rouge, dans l'espoir que son plan céleste aboutisse... Il semble que ce jour soit proche... »

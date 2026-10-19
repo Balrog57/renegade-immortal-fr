@@ -26,7 +26,7 @@ Après tout, lors du deuxième essai, il avait obtenu un morceau de jade pour fa
 
 Après avoir traversé rapidement cet espace où la distinction entre le ciel et la terre s'effaçait, Wang Lin ne percevait toujours aucune limite au firmament.
 
-Il se souvint des paroles de Duanmu et des autres: le corps d'un Dieu Ancien était colossal. Un Dieu Ancien parvenu à maturité était plus vaste que l'étoile Suzaku tout entière. Le simple trajet entre deux points d'acupuncture représentait une distance inimaginable.
+Il se souvint des paroles de Duanmu et des autres: le corps d'un Dieu Ancien était colossal. Un Dieu Ancien parvenu à maturité était plus vaste que la planète Suzaku tout entière. Le simple trajet entre deux points d'acupuncture représentait une distance inimaginable.
 
 Bien que la zone fût immense, elle était dépourvue de vie ou de toute restriction; seul régnait le silence. Wang Lin ne marqua aucun arrêt et continua sa progression.
 
@@ -108,7 +108,7 @@ Durant ce laps de temps, il croisa plus de dix vagues de Qi. Il les évita toute
 
 Wang Lin avait déjà une réponse en son cœur, mais il refusait de l'accepter. Cette vague de Qi provenait manifestement du tourbillon d'énergie spirituelle du point de la Mer de Qi. Si de simples tentacules de ce tourbillon avaient une telle puissance, la Mer de Qi entière n'atteignait-elle pas un niveau inimaginable?
 
-Si ce Dieu Ancien était mort, pourquoi l'énergie spirituelle dans son corps tournoyait-elle encore d'elle-même? De plus, Wang Lin remarqua qu'à mesure qu'il avançait, des ondes de fluctuation provoquant des changements d'humeur émanaient de toutes parts. Ces ondes ne lui infligeaient aucun dommage réel, mais elles accroissaient sa vigilance. Il vérifia la position de sa propre Mer de Qi pour s'orienter: au-dessus de la Mer de Qi se trouvait le Point du Progéniteur, et en son sein, la Mer de Connaissance Zifu.
+Si ce Dieu Ancien était mort, pourquoi l'énergie spirituelle dans son corps tournoyait-elle encore d'elle-même? De plus, Wang Lin remarqua qu'à mesure qu'il avançait, des ondes de fluctuation provoquant des changements d'humeur émanaient de toutes parts. Ces ondes ne lui infligeaient aucun dommage réel, mais elles accroissaient sa vigilance. Il vérifia la position de sa propre Mer de Qi pour s'orienter: au-dessus de la Mer de Qi se trouvait le Point Ancestral, et en son sein, la Mer de Connaissance Zifu.
 
 Tout en volant, il calculait secrètement, mais les informations étaient trop parcellaires. Il avait l'impression qu'un brouillard voilait ses yeux, l'empêchant de percevoir la vérité. Toute la Terre de l'Ancien Dieu dégageait une atmosphère singulière.
 

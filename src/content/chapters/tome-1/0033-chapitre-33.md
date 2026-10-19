@@ -20,7 +20,7 @@ Wang Hao baissa la tête et garda longtemps le silence. L'assistance était stup
 
 L'organisateur toussa et intervint: « Bien, puisque personne n'échange la Pilule de Bonne Fortune, passons à la suite des échanges. »
 
-Peu de temps après, un autre participant sortit pour présenter ses marchandises. Bientôt, ce fut au tour de Wang Lin. Il s'avança, sortit un petit flacon et annonça: « Un liquide mystérieux dont une seule goutte équivaut à une pilule de rassemblement de Qi. Ce flacon en contient environ cent. Je recherche uniquement les incantations postérieures au 3e niveau. » Une fois ses paroles prononcées, il ouvrit le flacon. Tout le monde put ressentir l'énergie spirituelle qui s'en dégageait.
+Peu de temps après, un autre participant sortit pour présenter ses marchandises. Bientôt, ce fut au tour de Wang Lin. Il s'avança, sortit un petit flacon et annonça: « Un liquide mystérieux dont une seule goutte équivaut à une pilule de rassemblement de Qi. Ce flacon en contient environ cent. Je recherche uniquement les incantations à partir du 3e niveau. » Une fois ses paroles prononcées, il ouvrit le flacon. Tout le monde put ressentir l'énergie spirituelle qui s'en dégageait.
 
 Beaucoup furent instantanément fascinés. Bien que les Pilules de Rassemblement de Qi regorgent d'énergie spirituelle, elles demeuraient des produits finis. Ce liquide, en revanche, offrait de multiples usages, comme le raffinage de nouvelles pilules. Même pour la forge de trésors, tels que des épées volantes, il permettrait d'accroître leur puissance spirituelle.
 
@@ -68,4 +68,4 @@ Certains disciples d'un niveau de culture plus élevé ne pouvaient pas, eux non
 
 En courant, Wang Lin continuait d'ajouter des talismans sur ses jambes. La vitesse conférée par ces talismans s'accumulait; ainsi, avec quelques dizaines d'entre eux, il regagna rapidement la cour de la secte.
 
-L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des corvées, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne remarqua rien d'anormal.
+L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des corvées, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne remarqua rien d'anormal. Une fois de retour à la maison des corvées, Wang Lin s'enferma aussitôt pour cultiver, sans plus se soucier des affaires du monde.

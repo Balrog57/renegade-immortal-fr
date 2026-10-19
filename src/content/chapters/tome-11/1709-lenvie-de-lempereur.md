@@ -42,7 +42,7 @@ L'image changea de nouveau. Après que le jeune homme en noir eut traversé de m
 
 « Vous pouvez le voir, c'est le moment où j'ai obtenu pour la première fois l'héritage de l'Ancien Dieu! » dit lentement Wang Lin, avant d'agiter à nouveau sa main droite. Les images défilèrent, révélant comment Wang Lin avait acquis son propre héritage d'Ancien Dieu.
 
-La séquence se poursuivit jusqu'à ce qu'il atteigne la Tombe Antique. C'étaient les souvenirs de Wang Lin, et il les faisait apparaître au grand jour.
+La séquence se poursuivit jusqu'à ce qu'il atteigne la Tombe Antique du Système Stellaire Antique. C'étaient les souvenirs de Wang Lin, et il les faisait apparaître au grand jour.
 
 « Puisque vous possédez un esprit, réfléchissez donc au nombre de gouttes de sang nécessaires pour que j'accepte votre lignée! Sinon, détruisez-moi, et je renoncerai à la lignée ancienne pour devenir un être céleste! » Les paroles de Wang Lin étaient glaciales. Dès qu'il eut fini de parler, l'aura autour de lui disparut soudainement pour se retirer dans le vortex.
 
@@ -58,7 +58,7 @@ Ce changement soudain provoqua un tollé!
 
 « La lumière sanguine s'intensifie! La cinquième goutte est-elle sur le point de se former? »
 
-« À travers les âges, la Lignée Céleste de la Race Ancienne s'était toujours formée d'un seul coup. Un tel changement ne s'est jamais produit auparavant! La lumière sanguine est réapparue! »
+« À travers les âges, le Sang Céleste de la Race Ancienne s'était toujours formé d'un seul coup. Un tel changement ne s'est jamais produit auparavant! La lumière sanguine est réapparue! »
 
 L'expression de l'homme en robe royale changea pour la première fois. Il fixa la lumière entre les sourcils de la statue, le choc se lisant dans ses yeux.
 

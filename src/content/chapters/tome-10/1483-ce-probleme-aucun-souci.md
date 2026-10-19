@@ -54,7 +54,7 @@ Les expressions des milliers de cultivateurs sur les petites planètes gravitant
 
 La lumière de la formation vacilla violemment, brillant avec l'éclat fulgurant d'un soleil!
 
-À cet instant, tous les cultivateurs des planètes satellites sentirent leur cœur se briser. Une force sembla pénétrer leurs corps, faisant circuler leur énergie d'origine à une vitesse effrénée. C'était comme si leurs cœurs allaient éclater sous l'effet des vibrations spatiales s'ils ne régulaient pas leur flux interne!
+À cet instant, tous les cultivateurs des planètes satellites entendirent leur cœur battre à tout rompre. Une force sembla pénétrer leurs corps, faisant circuler leur énergie d'origine à une vitesse effrénée. C'était comme si leurs cœurs allaient éclater sous l'effet des vibrations spatiales s'ils ne régulaient pas leur flux interne!
 
 Debout devant la planète Dong Lin, les yeux de Wang Lin étincelaient comme la foudre. Une fois apparu, il ouvrit la bouche et prononça une phrase d'un ton calme mais implacable:
 

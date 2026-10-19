@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1492 - Literary Battle!"
 slug: bataille-litteraire
 ---
-S'il n'y avait pas de vendetta entre les cultivateurs du troisième niveau, même s'ils devaient s'entretuer, ils conserveraient toujours un respect mutuel. Après tout, parmi la vaste population de ce monde, bien trop peu pouvaient atteindre le troisième niveau.
+S'il n'y avait ni vendetta mortelle ni volonté de tuer entre les cultivateurs du troisième niveau, même s'ils devaient s'affronter, ils conserveraient toujours un respect mutuel. Après tout, parmi la vaste population de ce monde, bien trop peu pouvaient atteindre le troisième niveau.
 
 Maître Lu Fu était un cultivateur du troisième niveau depuis longtemps et n'avait aucun différend avec Wang Lin. Actuellement, ils étaient en confrontation en raison du Dieu de Sang, mais il ne s'agissait que d'une simple opposition.
 
@@ -18,7 +18,7 @@ Bien que Wang Lin n'ait pas encore atteint le troisième niveau, son corps pouva
 
 Puisque Maître Lu Fu s'obstinait, Wang Lin n'avait rien contre l'idée de lui donner une leçon. Depuis qu'il était devenu un Dieu Antique à sept étoiles, il n'avait combattu personne d'autre que Tuo Sen. À cet instant, Wang Lin avait l'intention de défier Maître Lu Fu.
 
-Les yeux de Maître Lu Fu s'illuminèrent et il fixa le point entre les sourcils de Wang Lin. Il perçut une intention de combat monstrueuse qui fit se rétracter ses pupilles, et il changea rapidement d'avis.
+Le regard de Maître Lu Fu eut un éclair, et il fixa le point entre les sourcils de Wang Lin. Il perçut une intention de combat monstrueuse qui fit se rétracter ses pupilles, et il changea rapidement d'avis.
 
 « Cher Compagnon Cultivateur Wang Lin, le système stellaire Luotian ne peut supporter un combat entre nous deux à pleine puissance. Une fois que la Formation de Scellement du Royaume sera déclenchée, cela n'en vaudra pas la peine... Que diriez-vous d'une Bataille Littéraire, en deux manches gagnantes! »
 
@@ -32,11 +32,11 @@ S'il devenait négligent un seul instant, il serait blessé. Et s'il était bles
 
 Le Royaume Intérieur ne pouvait être comparé au Royaume Extérieur. Si deux cultivateurs du troisième niveau s'affrontaient, l'espace s'effondrerait et la Formation de Scellement du Royaume apparaîtrait. Wang Lin le savait parfaitement.
 
-« C'est exact. Bien qu'il y ait très peu de cultivateurs du troisième niveau dans le Royaume Intérieur, ils ne sont pas inexistants. Nous ne nous battrons pas sans compter. Si nous déclenchons la Formation de Scellement du Royaume, cela n'en vaudra pas la peine! »
+« C'est exact. Bien qu'il y ait très peu de cultivateurs du troisième niveau dans le Royaume Intérieur, ils ne sont pas inexistants. Nous ne nous livrerons pas facilement à un combat à mort. Si nous déclenchons la Formation de Scellement du Royaume, cela n'en vaudra pas la peine! »
 
 C'est ainsi que fut formé le Pacte de la Bataille Littéraire!
 
-« La première bataille est celle du raffinage. Vous raffinerez un trésor avec les matériaux trouvés sur place. Ce trésor servira pour la première épreuve! Si vous n'êtes pas doué pour les armes, affiner une pilule convient parfaitement! Même le raffinage de l'âme est acceptable! »
+« La première bataille est celle du raffinage. Vous raffinerez un trésor avec les matériaux trouvés sur place. Ce trésor servira pour la première épreuve! Si vous n'êtes pas doué pour le raffinage de trésors, affiner une pilule convient parfaitement! Même le raffinage de l'âme est acceptable! »
 
 « La deuxième sera la bataille de l'intention du Dao! »
 

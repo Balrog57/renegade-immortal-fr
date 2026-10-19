@@ -24,7 +24,7 @@ Wang Lin réfléchit un instant avant que son expression ne devienne soudainemen
 
 Les yeux de Wang Lin devinrent de plus en plus brillants en se remémorant la silhouette qui se faisait appeler Situ Nan. Elle était formée de gaz noir, et ce gaz émanait de ce bras.
 
-« Se pourrait-il que le corps de Situ ait été capturé et raffiné par quelqu'un, créant ainsi un fragment de sens divin? » Wang Lin osa cette hypothèse audacieuse dans son cœur, sans pouvoir la confirmer. Après une longue réflexion, il poussa un soupir et eut un sourire amer: « Senior Situ, si ce bras est vraiment le vôtre, alors je crois réellement ce que vous avez dit auparavant: que vous étiez le plus grand expert de Suzaku. »
+« Se pourrait-il que le corps de Situ ait été capturé et raffiné par quelqu'un, créant ainsi un fragment de sens divin? » Wang Lin osa cette hypothèse audacieuse dans son cœur, sans pouvoir la confirmer. Après une longue réflexion, il poussa un soupir et eut un sourire amer: « Senior Situ, si ce bras est vraiment le vôtre, alors je commence à croire ce que vous avez dit auparavant: que vous étiez le plus grand expert de Suzaku. »
 
 Wang Lin secoua la tête. En fin de compte, il n'était toujours pas certain des affirmations de Situ Nan. Cette incertitude ne faisait que croître au fil de sa culture. Après tout, l'homme numéro un de Suzaku était celui qui portait le titre même de Suzaku.
 
@@ -86,7 +86,7 @@ L'homme d'âge moyen esquissa un léger sourire et demanda: « Connais-tu son do
 
 « Oh? » Le vieil homme leva les yeux.
 
-« D'après Papillon Rouge, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe de regret.
+« D'après Papillon Rouge, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe d'émotion.
 
 La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Papillon Rouge était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Papillon Rouge devait faire face à une calamité!
 
@@ -94,7 +94,7 @@ Elle craignait que cette calamité ne soit Ceng Niu!
 
 Le temps s'écoula et, en un clin d'œil, cinq années passèrent.
 
-Zhou Ru avait maintenant dix ans. La petite fille avait beaucoup grandi, mais son tempérament était devenu bien plus sauvage. Elle s'était lassée depuis longtemps de nourrir la sœur aînée sur la pagode. Bien qu'elle y pensât parfois, elle ne tentait plus de le faire.
+Zhou Ru avait maintenant dix ans. La petite fille avait beaucoup grandi, mais son tempérament était devenu bien plus sauvage. Elle s'était lassée depuis longtemps de nourrir la grande sœur fée sur la pagode. Bien qu'elle y pensât parfois, elle ne tentait plus de le faire.
 
 Ses explorations couvraient presque toutes les chaînes de montagnes environnantes. Malgré sa petite taille, elle était très audacieuse. Les tigres et les bêtes sauvages étaient constamment harcelés par elle.
 
@@ -126,7 +126,7 @@ Après tout, Papillon Rouge était trop célèbre. L'Alliance des Quatre Sectes 
 
 Par conséquent, la plupart des cultivateurs connaissaient le nom de Papillon Rouge.
 
-L'apparition soudaine de Ceng Niu, en piétinant Papillon Rouge, l'avait rendue encore plus célèbre.
+L'apparition soudaine de Ceng Niu, en piétinant Papillon Rouge, l'avait rendu encore plus célèbre.
 
 Désormais, l'affrontement entre les deux était devenu le centre d'attention de toute la planète. Celui qui l'emporterait recevrait une immense fortune.
 

@@ -9,13 +9,13 @@ slug: elevage-de-fragments-dame
 
 Les yeux de Wang Lin étaient froids lorsqu'il pointa l'air du doigt. La silhouette du lion trembla, puis se transforma en un filet de gaz noir qui s'engouffra dans le drapeau d'âmes de Treize avant de disparaître.
 
-« Cette bête est acceptable comme âme primaire pour votre drapeau d'âmes de dix jours. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinement des âmes. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
+« Cette bête est acceptable comme âme primaire pour votre drapeau à dix âmes. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinement des âmes. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
 
 Le visage de Treize était empreint de honte; il regarda le drapeau qu'il tenait en main et commença à réfléchir.
 
-Le temps s'écoula rapidement, et un mois passa en un clin d'œil. Tous les hommes du village partirent au milieu de la nuit. Ouyang Hua et Treize menaient l'avant-garde, conduisant tout le monde directement vers la grotte.
+Le temps s'écoula rapidement, et un mois passa en un clin d'œil. Tous les hommes du village, entièrement armés, partirent dans une nuit noire comme l'encre. Ouyang Hua et Treize menaient l'avant-garde, conduisant tout le monde directement vers la grotte.
 
-Wang Lin ne les suivit pas et n'utilisa même pas son sens divin. C'était une épreuve pour eux; s'ils échouaient, cela signifiait qu'ils n'étaient pas qualifiés, et Wang Lin partirait alors vers la Cité de l'Ancien Démon pour chercher d'autres opportunités.
+Wang Lin ne les suivit pas et n'utilisa même pas son sens divin. C'était une épreuve pour eux; s'ils échouaient, cela signifiait qu'ils n'étaient pas qualifiés, et Wang Lin partirait alors vers la Grande Muraille Antique pour chercher d'autres opportunités.
 
 Cinq jours plus tard, alors que Wang Lin cultivait dans les profondeurs de la vallée, il ouvrit les yeux. Bientôt, des bruits assourdissants parvinrent de loin: une longue file de personnes se précipitait vers la vallée en suivant le sentier sinueux.
 
@@ -33,7 +33,7 @@ La longue file atteignit rapidement l'intérieur de la vallée. Aussitôt, toute
 
 La tête de chaque étranger fut enfoncée dans un seau pour les forcer à boire une partie de ce breuvage verdâtre. Après l'ingestion, des expressions de confusion totale apparurent sur leurs visages. Des villageois les emmenèrent alors pour leur chuchoter quelques mots à l'oreille.
 
-Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celle-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de la mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne lui murmure son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
+Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celui-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de la mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne lui murmure son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
 
 Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une culture en buvait, cela n'aurait pratiquement aucun effet.
 
@@ -63,7 +63,7 @@ En conséquence, tous les habitants de la vallée, à l'exception des enfants, q
 
 Le temps passa silencieusement et, en un clin d'œil, six mois s'écoulèrent. Durant cette période, les villageois sortirent fréquemment, seuls ou en groupes, soit pour fabriquer leurs propres drapeaux spirituels, soit pour tuer des bêtes afin de raffiner leurs âmes. Outre Treize, quatre autres personnes atteignirent le troisième stade au cours de ces six mois et durent fabriquer leurs drapeaux.
 
-Tout le monde connaissait désormais la règle de Wang Lin: pour obtenir les chants des stades supérieurs, il fallait accumuler des mérites, et il n'existait que trois voies pour y parvenir! La première consistait à rapporter des cristaux démoniaques; la deuxième, à trouver des indices sur des étrangers; et la troisième, à fabriquer au moins dix drapeaux de dix jours remplis d'âmes, dont au moins quatre devaient contenir une âme primaire.
+Tout le monde connaissait désormais la règle de Wang Lin: pour obtenir les chants des stades supérieurs, il fallait accumuler des mérites, et il n'existait que trois voies pour y parvenir! La première consistait à rapporter des cristaux démoniaques; la deuxième, à trouver des indices sur des étrangers; et la troisième, à fabriquer au moins dix drapeaux à dix âmes, entièrement remplis, dont au moins quatre devaient contenir une âme primaire.
 
 Quiconque accomplissait l'une de ces tâches recevait le chant du quatrième stade. Quant au cinquième, les exigences étaient encore plus strictes. À ce jour, seul Ouyang Hua avait rempli les conditions pour le quatrième stade. Même Treize n'avait raffiné que sept drapeaux; la difficulté résidait dans les âmes primaires. Jusqu'à présent, il n'en possédait que deux, et la seconde était l'Ancien du village ennemi qu'il avait raffiné six mois auparavant!
 

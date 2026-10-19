@@ -16,13 +16,13 @@ L'armure d'âme du Taureau Céleste qui accompagnait Wang Lin depuis de nombreus
 
 Des grondements tonitruants résonnèrent lorsque les os explosifs de Ming Dao entrèrent en collision avec le Taureau Céleste. Ce fracas assourdissant déclencha une série d'échos qui enveloppèrent le monde.
 
-Wang Lin cracha une bouchée de sang et recula. Le Taureau Céleste géant qui l'entourait montrait des signes de dissipation, mais tenait encore bon. Les yeux de Wang Lin brillèrent tandis qu'il fixait l'horizon. Il vit qu'à l'endroit même où Ming Dao avait disparu se trouvait une sphère de lumière dorée. Cette sphère émettait un éclat intense et la silhouette d'un être se forma rapidement.
+Wang Lin cracha une bouchée de sang et recula. Le Taureau Céleste géant qui l'entourait montrait des signes de dissipation, mais tenait encore bon. Les yeux de Wang Lin brillèrent tandis qu'il fixait l'horizon. Il vit qu'à l'endroit même où Ming Dao avait disparu se trouvait une sphère de lumière dorée grosse comme un poing. Cette sphère émettait un éclat intense et la silhouette d'un être se forma rapidement.
 
 Cette silhouette était floue, mais dégageait une pression terrifiante; d'après son apparence, il semblait s'agir de Ming Dao, sur le point de reformer son corps!
 
 « Quand toute sa chair et son sang seront tombés, ses os s'effondreront. S'il parvient à persévérer, alors il complétera le sort du Retour à l'Origine Ancestrale et son corps sera reconstitué par la lumière dorée! » Les paroles de l'Enseignant Impérial résonnèrent dans l'esprit de Wang Lin. Ses pupilles se contractèrent et il s'apprêtait à attaquer quand la voix antique de l'Enseignant Impérial retentit de nouveau dans son esprit.
 
-« Wang Lin, ce vieil homme utilisera sa vie pour te transmettre l'héritage. Je ne peux me sacrifier qu'à une seule condition: que tu lèves le sceau sur mon clan! »
+« Wang Lin, ce vieil homme utilisera sa vie pour te transmettre l'héritage. Je ne peux me sacrifier qu'à une seule condition: qu'une fois la culture de l'Ancêtre Céleste acquise, tu lèves le sceau sur mon clan! »
 
 « Ming Dao a déjà persévéré jusqu'ici et a enduré la majeure partie de la douleur pour toi. Cela augmentera considérablement tes chances d'obtenir l'héritage avec succès! » La lumière fantomatique de l'Enseignant Impérial s'élança après l'effondrement de son corps. Sa voix calme, prête à la mort, emplit l'esprit de Wang Lin.
 
@@ -56,13 +56,13 @@ Sous cette pression, Wang Lin eut l'illusion que son corps était écrasé et qu
 
 La tête saignait de ses orifices, mais ses traits étaient très nets. Lorsque Wang Lin absorbait le filon de feu terrestre sur le continent du Taureau Céleste, il avait vu cette personne sceller le Taureau Céleste!
 
-Lors de l'Essai Empyréen, il avait vu l'ombre de cet être! Dans le palais, il avait vu sa statue. Il avait entendu parler de lui sans cesse au cours des derniers siècles!! Il avait même entendu son véritable nom dans le Bassin Dong Lin!!
+Lors de l'Épreuve Empyréenne, il avait vu l'ombre de cet être! Dans le palais, il avait vu sa statue. Il avait entendu parler de lui sans cesse au cours des derniers siècles!! Il avait même entendu son véritable nom dans le Bassin Dong Lin!!
 
 Il était l'ancêtre de l'Empereur Céleste, l'ancêtre de tout le Clan Céleste. Le légendaire membre le plus puissant du Clan Céleste!
 
 Il avait jadis scellé et supprimé 72 âmes étrangères pour former les 72 continents actuels!
 
-Il avait également créé l'Essai Empyréen et laissé derrière lui un terrain d'épreuves pour les générations futures!
+Il avait également créé l'Épreuve Empyréenne et laissé derrière lui un terrain d'épreuves pour les générations futures!
 
 Il était l'Ancêtre Céleste — il était Lian Yunjue!
 
@@ -84,7 +84,7 @@ Le cœur de Wang Lin trembla. Ce qu'il voyait aujourd'hui semblait ouvrir une po
 
 Si l'Ancêtre Céleste était mort, alors qu'en était-il de l'Ancien Ancêtre...
 
-Toutes ces pensées résonnèrent instantanément dans son esprit. La lumière fantomatique de l'Enseignant Impérial laissa échapper un sifflement après avoir invoqué la tête de l'Ancêtre Céleste. Il ferma les yeux, puis sa main gauche couvrit son œil gauche tandis que son œil droit s'ouvrait soudainement!
+Toutes ces pensées résonnèrent instantanément dans son esprit. La lumière fantomatique de l'Enseignant Impérial poussa un cri rauque vers le ciel après avoir invoqué la tête de l'Ancêtre Céleste. Il ferma les yeux, puis sa main gauche couvrit son œil gauche tandis que son œil droit s'ouvrait soudainement!
 
 La tête de l'Ancêtre Céleste sembla être affectée par lui. Au moment où il ouvrit son œil droit, la tête de l'Ancêtre Céleste ouvrit également le sien.
 

@@ -10,13 +10,13 @@ Le vieil homme pointa le pays de Zhao du doigt et dit à ses disciples: « Le Se
 
 Devant eux quatre, un éclat de lumière jaillit aux frontières du pays de Zhao. Cette lumière enveloppa le pays, formant une formation. Le rôle de cette formation était d'empêcher les intrus de pénétrer à l'intérieur.
 
-« Toute la planète Suzaku et ses neuf grandes sectes peuvent être visitées pour peu que l'on présente un jeton. C'est le seul endroit où les cultivateurs étrangers ne sont pas autorisés à entrer. C'était la demande la plus absolue de Zhou Wutai, le maître de la planète Suzaku, lors de sa transformation. »
+« Toute la planète Suzaku et ses neuf grandes sectes peuvent être visitées pour peu que l'on présente une carte d'invitation. C'est le seul endroit où les cultivateurs étrangers ne sont pas autorisés à entrer. C'était la demande la plus absolue de Zhou Wutai, le maître de la planète Suzaku, lors de sa transformation. »
 
 « Tout le reste peut être changé, mais pas un brin d'herbe ne saurait être modifié dans le pays de Zhao! » Le vieil homme se tenait devant le rideau lumineux et sa voix était d'un calme absolu.
 
 Ses trois disciples regardèrent le pays de Zhao avec respect. Contemplant les sommets à peine visibles, ils joignirent leurs mains en signe d'hommage envers cette terre.
 
-« Quiconque ne respecte pas cet accord et s'introduit dans le pays de Zhao sera sévèrement puni! » Les yeux du vieil homme s'illuminèrent tandis qu'il parlait, fixant au loin Wang Lin et le fou.
+« Quiconque ne respecte pas cet accord et s'introduit dans le pays de Zhao sera sévèrement puni! » Les yeux du vieil homme s'illuminèrent tandis qu'il parlait, fixant au loin, à plusieurs centaines de pieds, Wang Lin et le fou, qui venaient de descendre du ciel.
 
 Ses trois disciples furent surpris un instant et tournèrent les yeux vers Wang Lin. Ils lui lancèrent des regards furieux et ricanèrent.
 
@@ -92,7 +92,7 @@ Ce village était devenu une ville. Son nom avait changé pour celui de la Cité
 
 Cette vieille maison était l'ancien foyer de Wang Lin...
 
-Une grande cour entourait sa demeure. On y trouvait une vieille tombe, reconstruite par les descendants ultérieurs, comme si elle attendait le retour du fils errant.
+Une grande cour entourait sa demeure. On y trouvait, à l'est, une vieille tombe, reconstruite par les descendants ultérieurs, comme si elle attendait le retour du fils errant.
 
 La maison était vide et les environs étaient d'un calme absolu.
 
@@ -108,7 +108,7 @@ Tout n'avait pas changé; tout était identique au passé. Ici se trouvait sa v�
 
 Il leva sa main droite tremblante pour toucher la pierre. En sentant les noms gravés dans le tombeau, de nouvelles larmes jaillirent de ses yeux.
 
-N'était-il pas revenu sur la planète Suzaku pour rendre hommage à la tombe de ses parents? N'était-ce pas pour revoir ses parents une dernière fois...
+N'était-il pas revenu sur la planète Suzaku pour rendre hommage à la tombe de ses parents? N'était-ce pas pour offrir une poignée de terre devant leurs esprits...
 
 N'était-ce pas parce que ses parents reposaient ici qu'il était revenu sur la planète Suzaku...
 
@@ -116,11 +116,11 @@ La planète Suzaku portait en elle la moitié des souvenirs de Wang Lin, ceux de
 
 Les feuilles ont des racines. Lorsqu'elles tombent, elles retournent à leurs racines. Les humains ont des âmes, et l'âme ressent la douleur lorsqu'elle se remémore ses parents.
 
-« Je pourrais tout abandonner... Tant que vous êtes vivants... Laissez Wan Er et Ping Er se réunir... Je peux tout sacrifier... » Cela faisait longtemps que Wang Lin n'avait pas pleuré ainsi.
+« Je pourrais tout abandonner... Tant que vous êtes vivants... Permettez-moi, avec Wan Er et Ping Er, de retrouver une famille réunie... Je peux tout sacrifier... » Cela faisait longtemps que Wang Lin n'avait pas pleuré ainsi.
 
 Ses parents lui manquaient tant que son cœur lui faisait mal rien qu'en pensant à eux.
 
-Son cri de douleur résonna dans ce monde silencieux.
+Son cri de douleur résonna dans ce monde silencieux, sans se dissiper.
 
 Tout être humain a des parents. La tristesse de perdre les deux siens semble s'estomper lentement avec le temps. Pourtant, en vérité, elle est enfouie au plus profond de vos os. Qui peut l'oublier...
 
@@ -128,7 +128,7 @@ Tout être humain a des parents. La tristesse de perdre les deux siens semble s'
 
 Les humains ont des émotions, c'est pour cela qu'ils sont appelés humains!
 
-« Tu oses charger dans la demeure du Seigneur du Royaume Scellé... » À cet instant précis, des ondulations résonnèrent dans le ciel et un Ancien apparut. Son expression était sombre et ses yeux brûlaient de colère. Il respectait le Seigneur du Royaume Scellé et ne pouvait tolérer qu'on envahisse sa patrie.
+« Tu oses charger dans la demeure du Seigneur du Royaume Scellé... » À cet instant précis, des ondulations résonnèrent dans le ciel et le vieil homme apparut. Son expression était sombre et ses yeux brûlaient de colère. Il respectait le Seigneur du Royaume Scellé et ne pouvait tolérer qu'on envahisse sa patrie.
 
 Il se précipita et vit immédiatement Wang Lin agenouillé devant la tombe. En voyant les larmes sur le visage de ce dernier et en entendant ces paroles déchirantes, il resta sans voix.
 

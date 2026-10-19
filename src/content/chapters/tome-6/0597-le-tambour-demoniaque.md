@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 597 - Demon Drum
 slug: le-tambour-demoniaque
 ---
-« Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Royaume du Démon Céleste?! »
+« Merde de chien, punition divine et petit voyou, vous osez détruire la capitale de mon Pays du Démon Céleste?! »
 
 « Maudits, tous maudits! Toi, sale gosse, tu mérites de mourir, et cette punition divine plus encore! »
 
@@ -36,7 +36,7 @@ Loin d'être affectés par cette puissance céleste, les cinq vieillards se mire
 
 « Balivernes! Quand les ancêtres ont-ils jamais dit une chose pareille? Ils ont clairement dit que le Dao céleste est comme une jeune fille capricieuse. Si tu ne veux pas qu'elle t'écrase, tu n'as qu'à la repousser et l'écraser à ton tour! »
 
-« Vous dites tous les deux des bêtises! J'ai lu les archives laissées par les ancêtres des centaines de fois, et je n'ai jamais rien vu de tel! »
+« Vous dites tous les deux des bêtises! J'ai lu les archives laissées par les ancêtres au moins une centaine de fois, et je n'ai jamais rien vu de tel! »
 
 Les cinq vieillards commencèrent à se quereller.
 
@@ -68,7 +68,7 @@ L'un des vieillards, au fond de son trou, était furieux. Il en sortit et hurla 
 
 À cet instant, Wang Lin ne ressentait plus rien à l'extérieur. Il était sous terre et avait perdu toute sensation corporelle. Ses méridiens étaient brisés et ses os semblaient se réduire en poussière.
 
-Si l'on ne refuse pas de céder quand les cieux veulent vous tuer, il n'y a aucun chemin vers la survie!
+Si l'on refuse de céder quand les cieux veulent vous tuer, il n'y a aucun chemin vers la survie!
 
 Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard était empreint d'une aura indomptable. Son corps pouvait être broyé et son âme originelle s'effondrer, mais son cœur Dao ne ferait jamais de compromis!
 
@@ -86,7 +86,7 @@ Les yeux de Wang Lin restaient grands ouverts. Même à cet instant, son regard 
 
 « La punition divine ne put détruire leurs corps, et la puissance céleste ne put les faire plier. Ils furent les premières formes de vie à cultiver tout en défiant les cieux... »
 
-« Après d'innombrables années, l'Ordre Ancestral se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux qui maîtrisaient des sorts puissants s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
+« Après d'innombrables années, l'Ordre Ancestral se scinda! Ceux qui possédaient un pouvoir extrême s'appelèrent dieux anciens... Ceux qui marchaient sur la voie du massacre s'appelèrent diables anciens... Ceux dont les sorts détruisaient le Dao s'appelèrent démons anciens! Ils furent les secondes formes de vie à cultiver tout en défiant les cieux! »
 
 Une voix faible résonnait dans l'esprit de Wang Lin. Bien que son corps se soit déjà effondré, son esprit était d'un calme absolu.
 
@@ -106,7 +106,7 @@ Wang Lin réfléchit.
 
 Wang Lin projeta un message par son Sens Divin: « Tu dois avoir une raison d'apparaître et de me révéler tout cela. »
 
-« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Royaume du Démon Céleste, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
+« C'est exact. Je peux t'aider à réparer ton corps et à surmonter cette punition divine. Je peux aussi te donner du pouvoir dans le Pays du Démon Céleste, mais tu devras faire quelque chose pour moi. Tu dois récupérer les huit reliques sacrées des huit autres pays! »
 
 Wang Lin réfléchit. Peu après, il dit lentement: « Je ne peux pas être le seul cultivateur défiant les cieux depuis l'aube de la Terre Spirituelle Démoniaque... »
 

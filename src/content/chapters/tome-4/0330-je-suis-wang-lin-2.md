@@ -24,7 +24,7 @@ Le silence régna sur la Secte du Ciel Nuageux. Après un moment, une voix faibl
 
 Zhan Bai afficha une expression moqueuse et dit: « Oh? Je suppose que c'est toi, la Maîtresse de la Secte du Ciel Nuageux. »
 
-« Cette junior est la Maîtresse de la Secte du Ciel Nuageux. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi séduisante qu'autrefois, empreinte d'une infinie douceur.
+« Cette junior est la Maîtresse de la Secte du Ciel Nuageux. Aîné, je vous prie de ne pas accabler une petite secte comme la nôtre... » La voix de Li Muwan continua. Elle était toujours aussi mélodieuse qu'autrefois, empreinte d'une infinie douceur.
 
 Zhan Bai renifla et déclara: « Je veux voir quel genre de beauté se cache derrière cette Maîtresse de Secte. » Sur ce, il tendit la main vers les nuages blancs dans un geste de saisie.
 
@@ -36,7 +36,7 @@ Li Muwan soupira et dit: « Aîné, cette formation a été placée par le Clan 
 
 « Le Clan des Démons Géants... » Zhan Bai réfléchit un instant avant d'agiter la main. Tous les insectes qui l'entouraient attaquèrent les nuages.
 
-Une vague de bruits de mastication émana des nuages blancs. Ce son devint finalement si fort qu'il couvrit le bourdonnement des insectes.
+Une série de craquements émana des nuages blancs. Ce son devint finalement si fort qu'il couvrit le bourdonnement des insectes.
 
 « Et alors, le Clan des Démons Géants? Même si Chi Hu venait lui-même, il ne se mettrait pas en colère contre moi pour une simple Secte du Ciel Nuageux. » Zhan Bai sourit et tendit à nouveau la main.
 

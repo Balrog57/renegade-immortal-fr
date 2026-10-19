@@ -92,7 +92,7 @@ Ces sept mois furent semés d'embûches. Le moment le plus périlleux fut dans u
 
 Le domaine de l'oubli l'avait véritablement terrifié.
 
-Une autre occasion impliqua un cultivateur de la Formation de l'Âme au stade avancé. Bien que son domaine fût assez conventionnel, il était sur le point d'atteindre le sommet de ce stade et son domaine changeait constamment selon sa volonté.
+Une autre occasion, dans un pays de culture de rang 5, impliqua un cultivateur de la Formation de l'Âme au stade avancé. Bien que son domaine fût assez conventionnel, il était sur le point d'atteindre le sommet de ce stade et son domaine changeait constamment selon sa volonté.
 
 Avec le recul, Wang Lin estima que la puissance de cet homme était légèrement supérieure à celle de Papillon Rouge. Finalement, Wang Lin avait réussi à lutter jusqu'à l'égalité contre lui.
 

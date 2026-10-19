@@ -38,7 +38,7 @@ Wang Lin ne répondit pas et leva la main droite. Il envoya un message spirituel
 
 Cependant, tout en réfléchissant, son corps se précipita inconsciemment vers Wang Lin, voulant frotter sa tête massive contre lui. Aux yeux du fou, la Bête des Limbes chargeait droit sur Wang Lin.
 
-Un instant plus tard, la bête percuta le corps de Wang Lin. L'expression de ce dernier changea et il cracha du sang. Il saisit le fou et recula rapidement.
+Un instant plus tard, la bête percuta le corps de Wang Lin. L'expression de ce dernier changea et il cracha du sang. Il recula de plusieurs pas, saisit le fou et s'éloigna rapidement.
 
 Ce retrait surprit la Bête des Limbes. Elle se demandait pourquoi son maître avait reculé alors qu'elle ne semblait pas encore l'avoir heurté.
 
@@ -90,7 +90,7 @@ Dès que l'ombrelle apparut, la peur se lut dans les yeux de la Bête des Limbes
 
 Une fois terminé, il parut encore incertain. Juste à ce moment, les moustaches de la Bête des Limbes frôlèrent à nouveau l'homme, qui s'empressa de dire: « Je vous dirai aussi le sort de la Lance aux Sept Couleurs, mais je ne peux pas vous en dire d'autres. Même si je suis dévoré, je ne pourrai pas vous les dire, ah! »
 
-Wang Lin ne pouvait se résoudre à trop presser le fou. S'il n'avait pas été impérieux de récupérer ces sorts, il ne l'aurait pas poussé ainsi. Il éprouvait un profond regret envers lui, mais la graine du karma était semée. Bien que cela fût un peu sans gêne, Wang Lin rembourserait cela au centuple à l'avenir!
+Wang Lin ne pouvait se résoudre à trop presser le fou. S'il n'avait pas été impérieux de récupérer ces sorts, il ne l'aurait pas poussé ainsi. Il éprouvait un profond regret envers lui, mais la graine du karma était semée. Bien que cela fût un peu sans gêne, Wang Lin rembourserait cela plusieurs fois à l'avenir!
 
 Sur le chemin de la culture, une fois sa décision prise, il n'hésitait jamais; c'était là la voie de Wang Lin. La fortune que ce fou lui offrait serait gravée à jamais dans son cœur. Même si cela devait lui porter préjudice plus tard, il ne reculerait pas! Car il croyait fermement qu'il se devait de rendre toute bonté reçue.
 

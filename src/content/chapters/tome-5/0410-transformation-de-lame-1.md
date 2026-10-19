@@ -19,13 +19,13 @@ Autrefois, avant l'effondrement du Royaume Céleste, un cultivateur au stade de 
 
 La clé pour passer de la Formation de l'Âme à la Transformation de l'Âme réside dans la quantité de pierres célestes. Plus les pierres sont nombreuses, plus l'énergie spirituelle céleste sera dense, et plus les chances de réussir la percée seront élevées. Bien sûr, le domaine joue également un rôle crucial: si celui-ci n'est pas complet, toute chance d'atteindre la Transformation de l'Âme est vaine.
 
-La compréhension des lois du ciel est d'une importance capitale pour un cultivateur de ce rang. La perception que Wang Lin avait de ces lois différait de celle des autres. Après avoir vu que le messager céleste était un dieu ancien, un doute s'était installé en lui.
+La compréhension des lois du ciel est d'une importance capitale pour un cultivateur de ce rang. La perception que Wang Lin avait de ces lois différait de celle des autres. Après avoir vu que le messager céleste était un dieu ancestral, un doute s'était installé en lui.
 
 Quelle est donc la loi du ciel…?
 
-Auparavant, Wang Lin considérait la loi du ciel comme une loi naturelle ayant toujours existé, à l'instar de la loi de la destruction. Personne ne peut remplacer la loi du ciel; les cultivateurs ne font que s'y opposer pour s'en libérer. Nul ne pense pouvoir la remplacer ou la contrôler.
+Auparavant, Wang Lin considérait la loi du ciel comme une loi naturelle qui court entre ciel et terre, à l'instar de la loi de la destruction et des lois des mortels. Personne ne peut remplacer la loi du ciel; les cultivateurs ne font que s'y opposer pour s'en libérer. Nul ne pense pouvoir la remplacer ou la contrôler.
 
-Pourtant, après sa rencontre avec le dieu ancien, sa compréhension des lois célestes avait subi une subtile mutation. Un mystère se dressait devant lui, mais avec son niveau actuel, il ne pouvait en saisir toute l'essence.
+Pourtant, après sa rencontre avec le dieu ancestral, sa compréhension des lois célestes avait subi une subtile mutation. Un mystère se dressait devant lui, mais avec son niveau actuel, il ne pouvait en saisir toute l'essence.
 
 « La loi du ciel… intéressant! » Les yeux de Wang Lin brillèrent.
 

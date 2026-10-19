@@ -88,7 +88,7 @@ Il n'y avait personne autour de la position actuelle de Wang Lin; seule l'étend
 
 « 500 ans pour des mortels représentent plusieurs générations, mais pour un cultivateur, ce n'est qu'un battement de cils. Cependant, durant ces 500 ans, j'ai fort à faire... »
 
-« Je dois atteindre la maîtrise complète de l'Art du Massacre Céleste; c'est ma priorité absolue! De plus, même si Tuo Sen parvient à s'échapper, il ne pourra jamais deviner que je suis ici, ce qui me donne 500 ans de répit supplémentaires... » Un léger sourire apparut sur le visage de Wang Lin.
+« Je dois atteindre la maîtrise complète de l'Art du Massacre Céleste; c'est ma priorité absolue! De plus, même si Tuo Sen parvient à s'échapper de la planète Suzaku, il ne pourra jamais deviner que je suis ici, ce qui me donne 500 ans de répit supplémentaires... » Un léger sourire apparut sur le visage de Wang Lin.
 
 Plus tôt, en écoutant Sun Yunshan, il avait appris qu'une fois entré dans la Mer des Esprits Démoniaques de l'Est, on devait y rester 500 ans. Cette information l'avait convaincu de sa décision.
 

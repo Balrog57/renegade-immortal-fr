@@ -16,7 +16,7 @@ De plus, ils étaient trois. Si la dernière attaque avait si bien fonctionné, 
 
 C'était aussi la raison pour laquelle il ne l'avait pas utilisée jusqu'ici. Après tout, il n'avait pas encore atteint le stade de la Formation du Noyau et ne voulait prendre aucun risque. Il était préférable de n'utiliser cette flamme bleue qu'en cas de nécessité absolue.
 
-Sans cela, avec la personnalité de Wang Lin, il l'aurait déployée dès le début pour terrasser ses ennemis avant d'en arriver à ce stade. Il ne voulait vraiment pas gaspiller les efforts qu'il avait consacrés à la création de ce noyau prototype.
+Sans cela, avec la personnalité de Wang Lin, il l'aurait déployée dès le début pour terrasser ses ennemis avant d'en arriver à ce stade. Il ne voulait surtout pas que ses efforts pour former ce noyau prototype soient entachés du moindre regret.
 
 Si les autres ne l'avaient pas poussé dans une impasse désespérée, il n'aurait jamais pris un tel risque. Cependant, ils ne cessaient de le poursuivre; Wang Lin avait donc serré les dents, prêt à ne pouvoir former son noyau pour un temps, au risque même de briser le noyau prototype, pour utiliser la flamme bleue.
 
@@ -66,7 +66,7 @@ Qian Kun fixa la brume et d'un geste désinvolte de la main, fit s'écraser à n
 
 La scène se répéta, mais le dénouement fut différent. Au moment de la collision, le pic marqua un instant d'arrêt, mais le corps du dragon se dissipa sans bruit et le pic poursuivit aussitôt sa chute.
 
-Cependant, alors qu'il s'abattait, dix dragons surgirent soudain de la formation et s'enchevêtrèrent avec le pic. Qian Kun ricana: « Chers collègues, attaquez! »
+Cependant, alors qu'il s'abattait, dix dragons surgirent soudain de la formation et s'enchevêtrèrent avec le pic. Qian Kun ricana: « Chers Anciens, attaquez ensemble! »
 
 Sur cet ordre, les restants des cultivateurs de la Formation du Noyau sortirent leurs trésors pour tenter de briser la formation par la force.
 

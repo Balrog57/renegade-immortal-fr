@@ -12,15 +12,15 @@ Liu Jinbiao fixa le vieil homme et dit froidement: « Je sais que vous envisagez
 
 « Même si l'Exalté Empyréen Gu Ya venait lui-même, il devrait encore faire preuve de raison. C'est vous qui avez triché en premier! » Le vieil homme ne parvenait pas à percer le mystère de Liu Jinbiao. Ce dernier restait d'un calme absolu, ce qui était extrêmement rare. À moins de posséder un soutien colossal, comment pouvait-il être aussi serein?
 
-« Tricher? Ce vieux Liu Jinbiao cultive le Dao de la tromperie... et alors si j'ai dupé votre insignifiante Secte du Nuage? Ai-je volé une seule vie ou un seul trésor? »
+« Tricher? Ce vieux Liu Jinbiao cultive le Dao de la tromperie... et alors si j'ai dupé votre insignifiante Secte du Nuage? Ai-je coûté la vie à quelqu'un, ou escroqué un trésor? »
 
 « Je n'ai apporté que quelques mortels désireux de cultiver, et je vous les ai échangés contre des pilules. Croyez-vous vraiment que ces pilules m'intéressent? » Les yeux de Liu Jinbiao étaient empreints de mépris. Sa main droite effleura son sac de rangement, et une quantité massive de pilules s'en échappa jusqu'à former une petite colline.
 
-« Regardez bien. Ces dizaines de pilules proviennent de votre Secte du Nuage. Elles n'étaient que des gages pour la pratique de mon Dao de la tromperie. Pensez-vous vraiment que je me soucie de ces pilules? » Liu Jinbiao éclata de rire et agita sa main droite. Les pilules se pulvérisèrent instantanément en poussière.
+« Regardez bien. Ces dizaines de pilules proviennent de votre Secte du Nuage. Elles n'étaient qu'un simple accessoire de ma pratique du Dao de la tromperie. Pensez-vous vraiment que je me soucie de ces pilules? » Liu Jinbiao éclata de rire et agita sa main droite. Les pilules se pulvérisèrent instantanément en poussière.
 
 Cette scène soudaine stupéfia le vieil homme.
 
-« Oubliez ces pilules, j'ai même dérobé de nombreux trésors! Mais croyez-vous que cela m'importe? » Liu Jinbiao ricana de nouveau et toucha son sac de rangement. Des dizaines de trésors destinés aux cultivateurs de la Formation du Noyau en sortirent. D'un revers de manche, il les fit tous voler en éclats.
+« Oubliez ces pilules, j'ai même escroqué de nombreux trésors! Mais croyez-vous que cela m'importe? » Liu Jinbiao ricana de nouveau et toucha son sac de rangement. Des dizaines de trésors destinés aux cultivateurs de la Formation du Noyau en sortirent. D'un revers de manche, il les fit tous voler en éclats.
 
 « Je vous le dis, ces choses ne m'intéressent absolument pas! Si vous osez fouiller mon âme, je m'assurerai que l'intégralité de votre Secte du Nuage soit anéantie! Réfléchissez-y bien. Adieu! » Liu Jinbiao ricana et se détourna. Il ne jeta plus un regard au vieil homme stupéfait et commença à sortir du palais.
 
@@ -30,11 +30,11 @@ Une fois Liu Jinbiao sorti du palais, le vieil homme affichait une expression so
 
 Il n'avait jamais été confronté à une telle situation!
 
-« Ce qu'il dit est-il vrai ou est-ce un mensonge? S'il mentait, comment pourrait-il être si calme et faire preuve d'un tel détachement envers tous ces trésors qu'il vient de détruire? Bien qu'ils soient de bas niveau, il est évident qu'il a dérobé énormément de choses... »
+« Ce qu'il dit est-il vrai ou est-ce un mensonge? S'il mentait, comment pourrait-il être si calme et faire preuve d'un tel détachement envers tous ces trésors qu'il vient de détruire? Bien qu'ils soient de bas niveau, il est évident qu'il a commis énormément d'escroqueries... »
 
 « Il trompe les gens depuis si longtemps sans jamais mourir... il doit y avoir une raison! »
 
-« Si ses paroles sont vraies, je... je ne peux vraiment pas le provoquer. Après tout, ce qu'il dit est exact: il n'a volé aucun trésor de valeur ni aucune vie, seulement quelques pilules de bas rang... » Le vieil homme resta interdit un long moment.
+« Si ses paroles sont vraies, je... je ne peux vraiment pas le provoquer. Après tout, ce qu'il dit est exact: il n'a coûté la vie à personne ni escroqué de trésor de valeur, seulement quelques pilules de bas rang... » Le vieil homme resta interdit un long moment.
 
 À ce moment précis, Liu Jinbiao sortit du palais, mais les disciples de la Secte du Nuage lui barrèrent la route.
 
@@ -74,7 +74,7 @@ Dès qu'il toucha le sol, son visage devint livide. Il ne pouvait plus contrôle
 
 « Quelle perte pour toutes ces pilules... Hélas, j'étais trop absorbé par mon rôle, au point de croire moi-même que ces pilules ne valaient pas la peine de mon temps... Tant de pilules ont été détruites! » En repensant à la manière dont il les avait jetées avec tant de désinvolture, il fut submergé par le regret.
 
-« J'aurais dû en sortir moins... C'est fini, j'ai gaspillé toutes ces années... Enfin, je les récupérerai. Moi, Liu Jinbiao, suis né pour l'exceptionnel et je les récupérerai! » Il prit une grande inspiration et s'assit pour tenter de se calmer.
+« J'aurais dû en sortir moins... C'est fini, j'ai gaspillé toutes ces années... Tant pis, je repartirai de zéro. Moi, Liu Jinbiao, suis né pour l'exceptionnel: mille pièces d'or dispersées finiront par revenir! » Il prit une grande inspiration et s'assit pour tenter de se calmer.
 
 Cependant, à cet instant précis, une voix douce s'éleva derrière lui.
 
@@ -102,7 +102,7 @@ Cela dépassait son imagination. Il avait trompé le monde pendant des années, 
 
 Il connaissait même la seconde étape du Dao de la tromperie! Il savait que cette étape consistait à se tromper soi-même.
 
-Rien qu'en voyant le sourire de l'autre, Liu Jinbiao sentit sa raison vaciller. C'était comme si une terreur abyssale émanait de son âme même.
+Rien qu'en voyant le sourire de l'autre, Liu Jinbiao sentit son âme se disperser. Une peur ancienne, gravée au fond de son âme, remontait en lui.
 
 Plus Liu Jinbiao regardait Wang Lin, plus cette sensation lui devenait familière; c'était comme s'il l'avait déjà rencontré quelque part...
 

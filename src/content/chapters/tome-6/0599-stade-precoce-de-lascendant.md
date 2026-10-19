@@ -28,7 +28,7 @@ Le but de cette fusion entre l'énergie spirituelle céleste et le domaine étai
 
 Dès lors, il n'y aurait plus de distinction entre les deux. L'âme originelle serait le domaine, et le domaine serait l'âme originelle!
 
-Le feu brûlait avec une intensité croissante hors du cocon. Chaque fois que la flamme semblait faiblir, une nouvelle vague d'énergie spirituelle céleste affluait de l'extérieur. C'était comme ajouter du gaz dans une flamme pour la rendre encore plus dévorante!
+Le feu brûlait avec une intensité croissante hors du cocon. Chaque fois que la flamme semblait faiblir, une nouvelle vague d'énergie spirituelle céleste affluait de l'extérieur. C'était comme le vent qui attise la flamme, la rendant encore plus dévorante!
 
 Cette flamme céleste brûlait avec éclat à l'intérieur du corps de Wang Lin. Elle était invisible à l'œil nu, mais si l'on utilisait son Sens Divin, on aurait pu contempler la scène: Wang Lin émettant une flamme prodigieuse de tout son être.
 
@@ -40,7 +40,7 @@ Le temps passa lentement, et la flamme céleste ne faiblissait point. À mesure 
 
 Le domaine à l'intérieur du cocon finit par fondre totalement pour devenir une masse d'énergie chaotique. Cette énergie était appelée « énergie originelle » aux temps anciens.
 
-À l'époque antique, les cultivateurs n'existaient pas encore sous leur forme actuelle. Ils s'appelaient alors des « affineurs d'énergie »!
+À l'époque antique, le mot « cultivateur » n'existait pas encore. Ils se nommaient alors des « affineurs d'énergie »!
 
 Les puissants affineurs d'énergie de Kunlu étaient l'exemple type de ces anciens êtres. Ils se nommaient ainsi en raison de la nature même de l'énergie originelle et parce que leur culture se concentrait exclusivement sur elle!
 
@@ -48,9 +48,9 @@ Ce flux d'énergie originelle fut formé à partir du domaine de Wang Lin. L'én
 
 Dans l'Antiquité, cette énergie originelle n'était pas laissée au sein de l'âme originelle. Au contraire, elle était extraite pour remplacer toute l'énergie spirituelle céleste du corps.
 
-Cependant, après l'apparition soudaine du Royaume Céleste surgissant du vide, les cultivateurs devinrent des êtres célestes en quête d'immortalité et commencèrent à utiliser cette énergie originelle comme leur essence vitale. Ils s'entourèrent d'énergie spirituelle céleste, et c'est ainsi que certains cultivateurs ou êtres célestes pouvaient survivre tant qu'il leur restait un fragment de véritable énergie!
+Cependant, après l'apparition soudaine du Royaume Céleste surgissant du vide, les cultivateurs devinrent des êtres célestes en quête d'immortalité et commencèrent à utiliser cette énergie originelle comme leur essence vitale. Ils l'enveloppèrent d'énergie spirituelle céleste, et c'est ainsi que certains cultivateurs ou êtres célestes pouvaient survivre tant qu'il leur restait un souffle de véritable énergie!
 
-Ce fragment de véritable énergie était précisément cette énergie originelle!
+Ce souffle de véritable énergie était précisément cette énergie originelle!
 
 La flamme invisible dans le corps de Wang Lin devint encore plus intense. L'énergie originelle au sein du cocon d'âme se condensa jusqu'à devenir une substance liquide, d'une clarté cristalline, prenant diverses formes.
 
@@ -58,7 +58,7 @@ Toutefois, ce liquide refusait de se cristalliser. Et sans cristallisation, poin
 
 La conscience de Wang Lin était parfaitement éveillée. Après plusieurs tentatives infructueuses, il prit une profonde inspiration. À cet instant, les jades célestes autour de lui explosèrent, libérant toute leur énergie spirituelle. Celle-ci se propagea comme une fumée et pénétra rapidement le corps de Wang Lin par son nez.
 
-Au moment où la dernière parcelle d'énergie des jades entra en lui, la flamme invisible brûla avec une force décuplée. En un instant, ce fut comme si des flammes célestes jaillissaient de sa bouche et de son nez.
+Au moment où la dernière parcelle d'énergie des jades entra en lui, la flamme invisible brûla avec une force décuplée. En un instant, ce fut comme si des flammes célestes jaillissaient de sa bouche, de son nez et de ses sept orifices.
 
 Une quantité massive de sueur perla sur son corps, mais dès qu'elle apparaissait, elle s'évaporait en une vapeur blanche. Ce nuage blanc au-dessus de la tête de Wang Lin devint progressivement plus dense.
 
@@ -78,7 +78,7 @@ Le Cristal d'Ascension de Zhou Yi atteignit le cocon d'âme originelle et y pén
 
 Les deux Cristaux d'Ascension: l'un représentant la vie et la mort, l'autre l'obsession jusqu'à la mort. Le Cristal de Zhou Yi fit une fois le tour de celui de Wang Lin avant de s'effondrer!
 
-Au moment de son effondrement, tous les cristaux originels qu'il contenait furent absorbés par le Cristal d'Ascension de Wang Lin!
+Au moment de son effondrement, toute l'énergie originelle qu'il contenait fut absorbée par le Cristal d'Ascension de Wang Lin!
 
 Le Cristal d'Ascension de Wang Lin grandit à une vitesse visible à l'œil nu. Il croît de manière effrénée, passant de la taille d'un ongle à celle de son petit doigt!
 
@@ -94,7 +94,7 @@ Wang Lin était assis en position de lotus dans cette grotte. Il restait immobil
 
 À l'extérieur, le temps s'écoulait rapidement. Dans le Pays des Démons Célestes, la Cité des Démons Célestes avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
 
-Le palais impérial se dressait toujours, et la grande place était de retour! Le tambour de démon géant trônait également sur la place!
+La capitale impériale se dressait toujours, et la grande place était de retour! Le tambour de démon géant trônait également sur la place!
 
 Dix années s'étaient écoulées en un instant. Les habitants de la Cité des Démons Célestes avaient échappé à la catastrophe dix ans auparavant, mais ce qu'ils avaient vu resterait gravé dans leur mémoire à jamais!
 
@@ -102,7 +102,7 @@ La rumeur concernant un cultivateur nommé Wang Lin circulait toujours dans tout
 
 Le jeune homme qui avait autrefois bu avec Wang Lin se tenait désormais sur un pavillon du palais impérial. Une jeune fille se trouvait à ses côtés; elle était très belle, mais arborait une expression espiègle.
 
-Si Xu Liguo avait été là et l'avait vue, il en aurait bave avant de se précipiter vers elle en criant: « Petite beauté, ton grand frère Xu est de retour! »
+Si Xu Liguo avait été là et l'avait vue, il aurait bavé avant de se précipiter vers elle en criant: « Petite beauté, ton grand frère Xu est de retour! »
 
 Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix ans que ce petit gars a disparu. Même avec les cinq ancêtres travaillant de concert pour le chercher avec leur Sens Divin, ils ne trouvent aucune trace de lui. C'est comme si... comme s'il avait quitté cette Terre des Esprits Démons! »
 
@@ -128,7 +128,7 @@ Peu après, une autre fissure surgit, puis de nombreuses autres parcourent l'ens
 
 Au moment de l'éclatement, des rayons de lumière grise jaillirent de l'intérieur. Puis, une âme originelle nouvellement née émergea lentement du cocon.
 
-Cette âme originelle n'était plus transparente mais totalement solide. Il n'y avait presque aucune différence entre elle et la chair. Le Cristal d'Ascension tournait lentement à l'intérieur de l'âme originelle.
+Cette âme originelle n'était plus transparente mais totalement solide. Il n'y avait presque aucune différence entre elle et la chair. Le Cristal d'Ascension tournait lentement à l'intérieur de l'âme originelle, en diffusant de l'énergie originelle.
 
 Pour un cultivateur Ascendant, son âme originelle est son domaine! C'est l'état véritable d'un domaine une fois qu'il a intégré le corps!
 

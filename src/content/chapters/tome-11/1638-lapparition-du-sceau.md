@@ -16,7 +16,7 @@ Il voulait se libérer de l'emprise de Wang Lin, mais peu importaient ses effort
 
 Ce rugissement de détresse fit perler la sueur sur tout le corps du vieil homme. Le désespoir se lut dans ses yeux et son visage devint livide.
 
-« Tu as commis le crime de tuer un être céleste, tu vas mourir! Je suis un Soldat Céleste au service du Souverain Céleste, je porte le sang des cieux! Si tu me tues aujourd'hui, il te fera payer ton crime! »
+« Tu as commis le crime de tuer un être céleste, tu vas mourir! Je suis un Soldat Céleste au service du Souverain Céleste, je porte le sang des cieux! Si tu me tues aujourd'hui, une calamité te frappera un jour! »
 
 « Quelle foutaise! » L'expression de Wang Lin resta calme tandis que sa main droite se resserrait, son sens divin s'engouffrant avec force dans l'esprit du vieil homme. Wang Lin voulait lui dérober ses souvenirs.
 

@@ -36,7 +36,7 @@ De temps à autre, il levait la tête, laissant transparaître une pointe de cla
 
 « Je dois m'échapper, comme lui! »
 
-Dès que le massacre débuta, tous les occupants du bassin de sang s'élancèrent dans les airs pour s'entretuer. L'homme aux cheveux noirs ressemblait à un dieu de la boucherie. Ses yeux étaient saturés d'une épaisse intention meurtrière et ses mouvements, aussi féroces qu'un dragon en furie, balayaient tout sur son passage.
+Dès que le massacre débuta, tous les occupants du bassin de sang s'élancèrent dans les airs pour s'entretuer. L'homme aux cheveux noirs ressemblait à un dieu de la boucherie. Ses yeux étaient saturés d'une épaisse intention meurtrière et ses mouvements, féroces comme un dragon de sang, balayaient tout sur son passage.
 
 Une fois le carnage sans fin achevé, seul l'homme aux cheveux noirs subsistait dans les airs. Ceux qui venaient de renaître affichaient des expressions sereines et ne daignèrent même pas lever les yeux vers le ciel.
 
@@ -78,7 +78,7 @@ Cependant, bien que cela ne soit pas interdit, cela transgressait la ligne rouge
 
 Ces luttes, publiques et secrètes, s'intensifièrent à mesure que l'échéance approchait. Mo Lihai sortait rarement, passant la majeure partie de ses journées en culture isolée. Cela lui permettait de rester à son apogée tout en évitant délibérément les tentatives d'assassinat. Il avait également mis en place une formation et placé nombre de ses anciens subordonnés, dotés de hauts niveaux de culture, pour assurer sa garde.
 
-Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique de la cithare. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
+Durant cette période oppressante, seul Wang Lin demeurait parfaitement calme. Sa vie ne changeait pas; il sortait chaque matin et s'asseyait au bord de la rivière pour écouter la musique de la cithare en buvant. C'était comme si toute cette tension précédant la grande bataille n'était que des nuages passagers. Seule la musique importait à ses yeux.
 
 Chaque fois qu'il l'entendait, il s'y plongeait totalement et vivait une expérience singulière. Chaque jour, son cœur était purifié. Wang Lin ne se souciait guère de savoir si Mo Lihai serait assassiné ou non. Ce dernier était extrêmement rusé et possédait bien plus d'atouts qu'il n'en montrait. Après avoir interagi avec lui, Wang Lin en était certain: sans ses méthodes secrètes, il n'aurait jamais survécu en atteignant les sommets de la hiérarchie des généraux démons.
 
@@ -98,7 +98,7 @@ Wang Lin reposa sa cruche, mais il ne se leva pas et ne daigna même pas regarde
 
 À l'instant où cette lueur apparut, l'herbe environnante se flétrit instantanément, sa force vitale étant aspirée silencieusement par la lumière noire.
 
-Le rayon progressa rapidement vers l'homme en robe noire. Ce dernier changea brusquement d'expression et recula de quelques pas. Son épée volante s'élança alors vers la lumière noire dans un éclair. Cependant, au moment du contact, l'épée commença à se fissurer depuis sa pointe. La lumière noire la transperça jusqu'à ce que même la garde s'effondre. L'arme fut réduite en d'innombrables fragments presque instantanément.
+Le rayon progressa rapidement vers l'homme en robe noire. Ce dernier changea brusquement d'expression et recula de quelques pas. Son épée volante s'élança alors vers la lumière noire dans un éclair. Cependant, au moment du contact, l'épée commença à se fissurer depuis sa pointe. La lumière noire la transperça jusqu'à ce que même la poignée s'effondre. L'arme fut réduite en d'innombrables fragments presque instantanément.
 
 L'homme en robe noire afficha un regard de stupéfaction tout en continuant de reculer. Hélas, il était trop lent! La lumière noire franchit l'épée volante et frappa la poitrine de l'homme.
 

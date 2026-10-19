@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1183 - Dont Move
 slug: ne-bougez-pas
 ---
-À cet instant précis, l'épée volante du garçon arriva, parcourue d'une énergie tranchante et vacillante. Elle perça la chair du dragon et le transperça. Aussitôt après, l'éclair de l'homme âgé s'abattit, faisant rugir le dragon avec une intensité accrue. Plus la créature se débattait, plus le visage du garçon pâlissait et son corps se mettait à trembler.
+À cet instant précis, l'épée volante du garçon arriva, parcourue d'une énergie tranchante et sifflante. Elle perça la chair du dragon et le transperça. Aussitôt après, l'éclair de l'homme âgé s'abattit, faisant rugir le dragon avec une intensité accrue. Plus la créature se débattait, plus le visage du garçon pâlissait et son corps se mettait à trembler.
 
 Le garçon cria: « Encore cinq respirations! »
 
@@ -32,7 +32,7 @@ D'un geste vif, il empoigna des centaines de cristaux. Cette méthode de collect
 
 Wang Lin percevait encore le rugissement du dragon et les fracas de la bataille à l'extérieur. Il parvint rapidement à amasser des milliers de cristaux d'origine. En vérité, il était impossible pour des bêtes de brume de rang 12 de générer une telle quantité; normalement, les cultivateurs qui élevaient ces créatures venaient les récolter périodiquement.
 
-Cependant, dans ce royaume aux sept couleurs, personne ne venait dérober les cristaux d'origine des bêtes de brume. Après des millénaires, une telle réserve s'était accumulée.
+Cependant, dans ce royaume aux sept couleurs, personne ne venait dérober les cristaux d'origine des bêtes de brume. Au fil des ans, une telle réserve s'était accumulée.
 
 Peu de temps après, Wang Lin remarqua que le brouillard autour de lui s'agitait plus violemment et montrait des signes de condensation. Il se contractait en convergeant vers une direction précise.
 
@@ -86,7 +86,7 @@ La vieille femme en vert laissa échapper un soupir et resta pensive.
 
 Celui qui éprouvait la plus grande terreur était l'homme nommé Pang, qui avait réussi de justesse à éviter l'impact. En songeant à la menace que représentait Wang Lin, il sentit l'amertume lui monter à la gorge.
 
-La respiration de Wang Lin était quelque peu saccadée. Il balaya l'assemblée du regard avant de fixer le squelette non loin de là. Il s'approcha et découvrit une pierre de jade sous les ossements.
+La respiration de Wang Lin s'était quelque peu apaisée. Il balaya l'assemblée du regard avant de fixer le squelette non loin de là. Il s'approcha et découvrit une pierre de jade sous les ossements.
 
 Sa main droite plongea dans le vide, et la pierre de jade ainsi qu'une pilule apparurent dans sa paume. Il lança la pilule au garçon qui l'attrapa et joignit les mains en signe de gratitude envers Wang Lin.
 
@@ -98,7 +98,7 @@ Maître Pin Cendré rejoignit l'homme nommé Pang. Sa main droite tapota le dos 
 
 Le garçon, tenant la pilule de réincarnation, afficha un air d'excitation avant de la ranger. Ce n'était pas le moment de la consommer. Il prit une grande inspiration et s'assit pour se soigner.
 
-Chen Tianjun s'assit également. Durant cette bataille, alors que tous étaient à l'extérieur, lui était resté à l'intérieur, occupant un rôle indispensable. Sans sa présence, il n'aurait pu obtenir l'âme du dragon. Bien qu'il n'ait pu tout absorber, il avait réalisé la meilleure récolte de tous les présents.
+Chen Tianjun s'assit également. Durant cette bataille, alors que tous étaient à l'extérieur, lui était resté à l'intérieur, occupant un rôle indispensable. Sans la diversion créée par ceux du dehors, il n'aurait pu obtenir l'âme du dragon. Bien qu'il n'ait pu tout absorber, il avait réalisé la meilleure récolte de tous les présents.
 
 Quant à la vieille femme en vert, elle s'approcha du cadavre du dragon. Elle posa sa main sur la bête et le gaz noir s'échappa du corps pour pénétrer le sien.
 

@@ -66,7 +66,7 @@ Bien qu'il fût en fuite, Wang Lin n'avait jamais perdu le fantôme de vue grâc
 
 Plus il l'observait, plus il la trouvait singulière. Ce qui l'inquiétait réellement, c'était le fait que cette chose vivait dans la tête de l'ancien dieu!
 
-« Existait-elle avant la mort de l'ancien dieu, ou est-elle entrée après? Si elle est entrée après sa mort, ce ne sera pas un problème majeur. Mais si elle était déjà là, était-elle liée à la mort de l'ancien dieu à huit étoiles? Se pourrait-il que la mort de cet ancien dieu ne soit pas l'œuvre du Dao des cieux éthérés, comme je le pensais? »
+« Existait-elle avant la mort de l'ancien dieu, ou est-elle entrée après? Si elle est entrée après sa mort, ce ne sera pas un problème majeur. Mais si elle était déjà là, était-elle liée à la mort de l'ancien dieu à huit étoiles? Se pourrait-il que la mort de cet ancien dieu ne soit pas l'œuvre du Dao céleste, vague et insaisissable, comme je le pensais? »
 
 Wang Lin savait que ses spéculations précédentes étaient un peu absurdes, au point que lui-même en doutait. Après avoir vu ce fantôme humanoïde, il était d'autant moins sûr de ses théories.
 

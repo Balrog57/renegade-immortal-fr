@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1758 - Waiting for the Blade!"
 slug: en-attente-de-la-lame
 ---
-À cet instant, le général en armure blanche ne pouvait plus reculer. Ce n'était pas une véritable bataille où l'on peut battre en retraite, mais une partie d'échecs où deux armées s'affrontent.
+À cet instant, le général en armure blanche ne pouvait plus reculer. Ce n'était pas une véritable bataille où l'on peut battre en retraite, mais une partie d'échecs où deux armées s'affrontent, semblable à un véritable champ de bataille d'Asura.
 
 Dans ce combat, si le général reculait, le moral de son armée s'effondrerait. Wang Lin chargeait contre lui avec un élan dévastateur, rendant toute retraite impossible!
 
@@ -26,11 +26,11 @@ Ce tigre rugit face à Wang Lin!
 
 Même le cheval blanc sous le général sembla se métamorphoser en un tigre blanc. Il laissa échapper un rugissement tonitruant tout en galopant.
 
-Le corps de Wang Lin était enveloppé d'un gaz noir qui drapait son cheval noir et l'entourait entièrement. Ses cheveux blancs flottaient au vent, et la lame noire qu'il tenait ressemblait à un couperet de boucher!
+Le corps de Wang Lin était enveloppé d'un gaz noir qui drapait son cheval noir et l'entourait entièrement. Ses cheveux blancs flottaient au vent, et la lame noire qu'il tenait, longue de dix pieds, ressemblait à un couperet de boucher!
 
 Du sang frais gouttait de la pointe de la lame.
 
-« Et si tu es un tigre? Aujourd'hui, je vais massacrer un tigre! » Les yeux de Wang Lin s'illuminèrent d'une lueur glaciale. Le gaz noir l'entourait comme pour former l'ombre d'un géant.
+« Et alors, un tigre? Aujourd'hui, je vais massacrer un tigre! » Les yeux de Wang Lin s'illuminèrent d'une lueur glaciale. Le gaz noir l'entourait comme pour former l'ombre d'un géant.
 
 Ce géant n'était pas le Dao Antique de Ye Mo, mais le Dao Antique de Wang Lin!
 
@@ -100,9 +100,9 @@ Un rugissement de dragon résonna dans les cieux. Ce qui prit forme sous Wang Li
 
 Entendant ce rugissement, le général en armure blanche leva soudain les yeux. Sa main saisit le vide devant lui et la lance se reforma tandis que les mille gouttes de sang fusionnaient dans son corps. En un éclair, le cheval blanc sous lui se métamorphosa en un tigre blanc gigantesque.
 
-Chevauchant le tigre blanc, il brandit sa lance, une intention meurtrière démente brillant dans ses yeux. Le tigre bondit et s'élança sur Wang Lin!
+Chevauchant le tigre blanc, il brandit sa lance de trente pieds, une intention meurtrière démente brillant dans ses yeux. Le tigre bondit et s'élança sur Wang Lin!
 
-La main droite de Wang Lin s'éleva et une lame massive apparut. Tenant son arme, il garda le silence tandis que le dragon noir chargeait le tigre blanc!
+La main droite de Wang Lin s'éleva et une lame massive de trente pieds apparut. Tenant son arme, il garda le silence tandis que le dragon noir chargeait le tigre blanc!
 
 Cette bataille déciderait du vainqueur!
 
@@ -116,8 +116,8 @@ Dans les cieux, le visage du Général Tigre Blanc devint livide. Il cracha du s
 
 « Désormais, tu es mon esclave! » Wang Lin se redressa soudainement, ses pupilles se rétractant. Il ressentit un puissant sentiment de danger imminent. Sans hésiter, il fit un pas en avant pour fusionner avec le corps formé par son Sens Divin.
 
-Il ouvrit la bouche et dévora l'aura du général en armure blanche déchu. Le corps de Wang Lin fut enveloppé d'un gaz noir qui se mua en une longue lame dans sa main. Il leva l'arme et fixa les cieux. Ses pupilles ne furent plus que des points minuscules alors qu'il concentrait toute sa puissance et la force de la loi dans son arme!
+Il ouvrit la bouche et dévora l'aura du général en armure blanche déchu. Le corps de Wang Lin fut enveloppé d'un gaz noir qui se mua en une lame longue de plusieurs dizaines de pieds dans sa main. Il leva l'arme et fixa les cieux. Ses pupilles ne furent plus que des points minuscules alors qu'il concentrait toute sa puissance et la force de la loi dans son arme!
 
 Cette lame contiendrait la puissance suprême de ce monde! Cette lame briserait la loi que le Général Tigre Blanc avait instaurée ici! Cette lame serait une lame anéantissant le ciel, façonnée grâce à la loi même de ce monde!
 
-Il attendait l'apparition de celui qui lui avait infligé ce sentiment de crise! Au même moment, la main gauche de Wang Lin traça un sceau et des flammes apparurent pour former un petit parapluie de feu, avant de disparaître de sa main.
+Il attendait l'apparition de celui qui lui avait infligé ce sentiment de crise! Au même moment, la main gauche de Wang Lin, dans son dos, traça un sceau et des flammes apparurent pour former un petit parapluie de feu, avant de disparaître de sa main.

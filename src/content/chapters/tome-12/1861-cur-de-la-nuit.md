@@ -48,7 +48,7 @@ Les battements étaient si violents que leur son finit par étouffer tout le res
 
 Cette sensation de puissance combla les yeux du vieil homme d'incrédulité et de peur.
 
-Wang Lin s'arrêta devant lui et observa calmement ses yeux.
+Wang Lin s'arrêta à dix pieds devant lui et observa calmement ses yeux.
 
 Ce regard et ce geste imposèrent une pression si écrasante que l'esprit du vieil homme devint blanc.
 
@@ -80,9 +80,9 @@ Cette voix appartenait à Lu Wenran.
 
 « Pourquoi m'impliquez-vous dans votre différend... » soupira le vieil homme nommé Zhou. Lu Wenran l'avait appelé, il n'avait pas le choix. Il esquissa un sourire amer, abandonna l'idée de réparer la porte et s'envola impuissant vers le palais. Il ne pouvait qu'espérer avoir assez de temps pour effectuer les réparations après avoir quitté Lu Wenran. Sinon, il n'osait imaginer les conséquences.
 
-La silhouette de Wang Lin flottait au-dessus du sol, montant vers la prairie. Bientôt, il apparut sous la lumière lunaire.
+La silhouette de Wang Lin flottait au-dessus du sol, s'élevant dans les airs. Bientôt, il apparut sous la lumière lunaire.
 
-La clarté de la lune était intense, nappant la prairie d'un éclat argenté en ce début de nuit. Pourtant, dès que Wang Lin apparut, la lumière faiblit et se cacha derrière des couches de nuages sombres, plongeant la terre dans l'obscurité.
+La clarté de la lune était intense, nappant la prairie d'un éclat argenté durant la première moitié de la nuit. Pourtant, dans la seconde moitié, alors que Wang Lin apparaissait, la lumière faiblit et se cacha derrière des couches de nuages sombres, plongeant la terre dans l'obscurité.
 
 Wang Lin marchait silencieusement sur la prairie; on entendait le bruissement de l'herbe, un son d'une clarté extrême par cette nuit calme.
 
@@ -122,4 +122,4 @@ D'autres ont enterré la boîte profondément sous terre, attendant cette année
 
 La boîte contient l'amour pour une personne et une coupe d'eau douce-amère...
 
-« Ma boîte est toujours là... » murmura Wang Lin. Dans l'obscurité, nul ne pouvait voir sa solitude, nul ne pouvait voir sa tristesse, nul ne pouvait voir sa... détresse.
+« Ma boîte est toujours là... » murmura Wang Lin. Dans l'obscurité, nul ne pouvait voir sa solitude, nul ne pouvait voir sa tristesse, nul ne pouvait voir sa... solitude.

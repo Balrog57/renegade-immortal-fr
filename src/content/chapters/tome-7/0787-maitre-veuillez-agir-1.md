@@ -92,9 +92,9 @@ Ce cultivateur afficha un regard déterminé avant que son corps n'explose brusq
 
 Au même moment, Zhan Konglie chargea, un fourneau en cuivre à la main, porté par une intention meurtrière impétueuse. Tang Yanfeng mit également de côté sa querelle personnelle avec Shengong Hu; d'un revers de manches, il fit apparaître un brouillard blanc et s'élança dans la mêlée.
 
-Shengong Hu et Zhan Konglie n'hésitèrent pas une seconde. Trois puissants cultivateurs au stade Yang Corporel entamèrent simultanément leur assaut contre l'homme aux cheveux blancs. Les dix autres cultivateurs au stade Yin Illusoire ne battirent pas en retraite; ils déployèrent leurs trésors magiques pour lancer un siège généralisé.
+Shengong Hu et Zhan Konglie n'hésitèrent pas une seconde. Trois puissants cultivateurs au stade Corporel Yang entamèrent simultanément leur assaut contre l'homme aux cheveux blancs. Plus de dix autres cultivateurs au stade Yin Illusoire ne battirent pas en retraite; ils déployèrent leurs trésors magiques pour lancer un siège généralisé.
 
-Bien que les cultivateurs au stade Yang Corporel fussent peu nombreux, ceux de Shengong Hu n'étaient pas les seuls: deux autres experts du stade Yang Corporel s'élancèrent sans hésiter dans le brouillard blanc pour déchaîner leurs puissants sorts d'énergie originelle.
+Bien que les cultivateurs au stade Corporel Yang fussent peu nombreux, ceux de Shengong Hu n'étaient pas les seuls: deux autres experts du stade Corporel Yang s'élancèrent sans hésiter dans le brouillard blanc pour déchaîner leurs puissants sorts d'énergie originelle.
 
 Grâce à ce mouvement d'éclaireurs, le moral des cultivateurs environnants remonta en flèche; ils s'apprêtaient à rejoindre le siège quand les trente-deux clones de l'homme aux cheveux blancs commencèrent à massacrer la foule.
 

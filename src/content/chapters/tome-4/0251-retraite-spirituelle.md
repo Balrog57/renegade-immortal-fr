@@ -90,7 +90,7 @@ Il joignit les mains en signe de respect et se détourna.
 
 Ce n'est que lorsque Wang Lin fut déjà loin que la servante poussa un soupir et retourna à la calèche. Le groupe traversa le pont pour entrer dans la partie sud de la ville.
 
-Wang Lin serrait les dix pièces d'or dans sa main tout en arpentant la capitale. C'était véritablement une métropole: une mer de gens et une multitude de marchands ambulants s'étalant dans les rues.
+Wang Lin serrait les dix pièces d'or dans sa main tout en arpentant la capitale. C'était véritablement une métropole: une mer de gens et une multitude de boutiques bordant les rues.
 
 Peu après, les yeux de Wang Lin s'illuminèrent légèrement. Dans cette capitale du monde mortel, il aperçut de nombreux cultivateurs parmi la foule.
 
@@ -102,7 +102,7 @@ Wang Lin déambula tranquillement dans les rues jusqu'en après-midi. Il était 
 
 En passant, Wang Lin entrait dans certaines boutiques pour les examiner. Soudain, alors qu'il sortait de l'une d'elles, des cris retentirent. Il regarda et vit un vieillard débraillé en train de se faire rouer de coups.
 
-Les gémissements du vieil homme étaient incessants et sa voix était stridente. Parallèlement, des rires éclataient tandis que l'homme crachait des bouffées de sang. Cela semblait suivre un rythme précis: chaque coup de poing provoquait une nouvelle hémorragie.
+Les gémissements du vieil homme étaient incessants et sa voix était stridente. Parallèlement, le vieillard crachait des bouffées de sang. Cela semblait suivre un rythme précis: chaque coup de poing provoquait une nouvelle hémorragie.
 
 Après avoir frappé le vieillard à plusieurs reprises, l'agresseur se redressa et cracha: « Vieux débris, ne reviens plus dans ma boutique! Je te tabasserai à chaque fois que tu oseras revenir. Tu es déjà si vieux et pourtant toujours aussi dépravé! » Sur ces mots, il cracha sur le vieil homme.
 

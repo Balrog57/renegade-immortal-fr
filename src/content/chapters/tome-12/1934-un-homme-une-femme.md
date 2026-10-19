@@ -42,7 +42,7 @@ Le silence s'installa, et le temps s'écoula rapidement. En un clin d'œil, troi
 
 Durant ces trois jours, les deux ne se parlèrent pas. L'Exalté Empyréen Hai Zi levait les yeux vers le rideau de lumière, le regard empreint d'incertitude. Quant à Wang Lin, il avait fermé les yeux pour cultiver. Il sortit les Esprits de l'Arbre de la Mer et de la Montagne et commença à les absorber.
 
-Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalté Empyréen Hai Zi ne put s'empêcher de demander: « Votre culture est très étrange. Vous êtes clairement au début du stade de Tribulant du Vide, et pourtant vous possédez la puissance d'un Exalté Empyréen. Bien que l'Esprit de l'Arbre de la Mer et de la Montagne puisse aider un cultivateur à former une essence de bois, au stade de Tribulant du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de culture. À quoi bon? »
+Après trois jours de silence, voyant Wang Lin absorber les esprits, l'Exalté Empyréen Hai Zi ne put s'empêcher de demander: « Votre culture est très étrange. Vous êtes clairement au début du stade de Tribulation du Vide, et pourtant vous possédez la puissance d'un Exalté Empyréen. Bien que l'Esprit de l'Arbre de la Mer et de la Montagne puisse aider un cultivateur à former une essence de bois, au stade de Tribulation du Vide, même quelques essences ne suffiront pas à augmenter votre niveau de culture. À quoi bon? »
 
 Wang Lin n'entra pas dans de longues explications. Il ouvrit les yeux, jeta un regard à l'Exalté Empyréen Hai Zi et dit calmement: « Je ne suis pas comme vous. »
 
@@ -60,7 +60,7 @@ Wang Lin ouvrit les yeux et regarda l'Exalté Empyréen Hai Zi avec une certaine
 
 « Je pense que cet environnement serait idéal pour la culture si vous cessiez de m'interrompre. »
 
-« Vous!! » L'Exalté Empyréen Hai Zi se leva brusquement dans un bruit de mépris. Son corps gracieux tourna le dos et elle s'éloigna à plus de 10 000 pieds, ignorant Wang Lin.
+« Vous!! » L'Exalté Empyréen Hai Zi se leva brusquement dans un bruit de mépris. Son corps gracieux tourna le dos et elle s'éloigna à plus de 20 000 pieds, ignorant Wang Lin.
 
 Voyant son départ, Wang Lin referma les yeux pour se plonger dans l'absorption des esprits. Toutefois, son Sens Divin restait déployé, car il demeurait extrêmement vigilant.
 
@@ -84,7 +84,7 @@ Wang Lin répondit calmement: « Il y a trois possibilités. Premièrement: la p
 
 « Impossible! Si Maître savait que j'étais en danger, il serait venu à l'instant même! Quant à votre première possibilité, elle est tout aussi invraisemblable. Avec le niveau de culture de Maître, il ne devrait exister aucun endroit au sein du clan céleste qu'il ne puisse diviner! » s'exclama l'Exalté Empyréen Hai Zi. Puis, elle regarda Wang Lin et hésita un instant avant de poursuivre: « Vous l'avez sans doute deviné... mon Maître est le Grand Empyréen Jiu Di! »
 
-L'expression de Wang Lin resta imperturbable; il n'était pas surpris. Lorsqu'elle avait montré ce flacon de pilules marqué du caractère « Di », il avait déjà eu ses soupçons. Prendre un Exalté Empyréen pour disciple et en faire sa confidente signifiait que son Maître devait posséder une puissance phénoménale.
+L'expression de Wang Lin resta imperturbable; il n'était pas surpris. Lorsqu'elle avait montré ce flacon de pilules marqué du caractère « Di », il avait déjà eu ses soupçons. Prendre un Exalté Empyréen pour disciple et lui inspirer une telle assurance signifiait que son Maître devait posséder une puissance phénoménale.
 
 En recoupant ces faits, il était fort probable que son Maître fût un Grand Empyréen. Et avec le nom « Di », hormis l'Empereur Céleste, la seule autre possibilité était le Grand Empyréen Jiu Di, qui se trouvait également dans le Continent Central.
 
@@ -98,7 +98,7 @@ Alors qu'ils discutaient, le rideau de lumière se mit soudain à gronder et à 
 
 Une silhouette vague apparut dans le vide sombre à l'extérieur du rideau. Cette forme flottait là, observant Wang Lin et l'Exalté Empyréen Hai Zi avec une aura féroce.
 
-« Âme du Continent Astral non-immortel détectée, scellement! » murmura la silhouette pour elle-même.
+« Âme non issue du Continent Astral Immortel détectée, sceller! » murmura la silhouette pour elle-même.
 
 Tandis que le rideau rétrécissait, l'Exalté Empyréen Hai Zi leva les yeux et aperçut vaguement la forme obscure à l'extérieur.
 

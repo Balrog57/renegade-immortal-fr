@@ -48,7 +48,7 @@ Quant à la manière dont ils l'avaient obtenu, nul ne le savait. Certains pensa
 
 De multiples spéculations circulèrent, mais avec la disparition du monde antique de la culture, ces rumeurs s'éteignirent également.
 
-Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 que fut Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume Ji.
+Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 de Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume Ji.
 
 Si Teng Huayuan l'avait su, il n'aurait jamais accepté d'être le catalyseur de la naissance d'un cultivateur du Royaume Ji.
 

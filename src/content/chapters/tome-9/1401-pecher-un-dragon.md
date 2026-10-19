@@ -18,7 +18,7 @@ La chaleur circulait dans tout son organisme, comme si une vie nouvelle avait é
 
 Ce feu devint de plus en plus ardent, faisant apparaître la marque de l'Oiseau Vermillon dans son œil gauche. Un feu bleu jaillit de sa pupille et fusionna avec la chaleur qui bouillonnait en lui.
 
-Un cri de Oiseau Vermillon résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
+Un cri de l'Oiseau Vermillon résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
 
 Ce ne fut que quinze minutes plus tard que l'Oiseau Vermillon retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
 
@@ -82,7 +82,7 @@ Le Feu Éthéré!
 
 Dès son apparition, l'oiseau poussa un cri qui fit trembler les cieux!
 
-Wang Lin était pétrifié par la scène. La taille de l'Oiseau Vermillon, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin Oiseau Vermillon. Il n'y avait aucune comparaison possible!
+Wang Lin était pétrifié par la scène. La taille de l'Oiseau Vermillon, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin de l'Oiseau Vermillon. Il n'y avait aucune comparaison possible!
 
 C'était la différence entre un jeune oiseau et son ancêtre primordial!
 
@@ -98,7 +98,7 @@ Pourtant, dès que la fiole toucha le sang, elle fondit. Elle était incapable d
 
 Tout se passa en un instant. Constatant que le sang ne pouvait être recueilli et allait se perdre dans le lac, Wang Lin se précipita. Sachant à quel point cela était précieux, il fonça vers la chute du sang et aspira de toutes ses forces.
 
-Il engloutit ainsi tout le sang de dragon qui menaçait de disparaître dans les eaux. Cette gorgée contenait autant de sang que les trois grandes prises précédentes réunies.
+Il engloutit ainsi tout le sang de dragon qui menaçait de disparaître dans les eaux. Cette gorgée contenait à peu près autant de sang que trois grandes gorgées de tout à l'heure.
 
 En voyant l'exploit de Wang Lin, le vieil homme sourit. Il sauta de la tête du dragon et reprit sa canne à pêche. En quittant la créature, son pied droit frappa le sol avec puissance.
 

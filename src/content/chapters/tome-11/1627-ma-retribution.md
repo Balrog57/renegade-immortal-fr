@@ -18,9 +18,9 @@ En un instant, plusieurs décharges de tonnerre jaillirent de son œil droit pou
 
 Des grondements tonitruants résonnèrent et le vortex au-dessus de lui tourna avec une violence accrue. Tandis qu'il pivotait, un tonnerre infini se rassembla en son centre. Une lumière verte jaillit alors du cœur du vortex: la première rétribution divine de Wang Lin, la Rétribution du Tonnerre, venait d'apparaître!
 
-La lueur verte perça des millions de kilomètres de nuages. De l'extérieur, les cieux semblaient teintés de vert. C'était une scène aussi spectaculaire qu'effrayante.
+La lueur verte perça un million de kilomètres de nuages. De l'extérieur, les cieux semblaient teintés de vert. C'était une scène aussi spectaculaire qu'effrayante.
 
-Cependant, aux yeux de Wang Lin, cette lumière verte formait un immense éclair au plus profond du vortex, dégageant une aura étrange qui n'appartenait pas à ce monde.
+Cependant, aux yeux de Wang Lin, cette lumière verte formait un immense éclair, large de cent mille pieds, au plus profond du vortex, dégageant une aura étrange qui n'appartenait pas à ce monde.
 
 Issue d'un lieu inconnu, elle jaillit du vortex avec un rugissement assourdissant vers lui, tel un dragon vert et vicieux cherchant à le dévorer.
 
@@ -28,9 +28,9 @@ Elle voulait dévorer Wang Lin et l'anéantir pour empêcher l'existence d'un cu
 
 Wang Lin resta calme, fixant froidement le vortex au-dessus de lui. Son regard se verrouilla sur l'éclair vert et ses yeux s'illuminèrent.
 
-« Aujourd'hui, moi, Wang Lin, infligerai une rétribution à la rétribution divine. La première sera nommée: Ma Rétribution du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque apparut au-dessus de lui.
+« Aujourd'hui, moi, Wang Lin, infligerai une rétribution à la rétribution divine. La première sera nommée: Ma Rétribution du Tonnerre! » À ces mots, le tonnerre éclata de son corps et se répandit avec frénésie. Instantanément, un marquage de tonnerre gigantesque, large de cent mille pieds, apparut au-dessus de lui.
 
-Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une rétribution de tonnerre propre à Wang Lin. Ce tonnerre pourpre fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
+Ce marquage était radicalement différent de l'éclair vert. Il était rouge, d'un rouge sang! Cette lumière écarlate dégageait une lueur infinie et se mua en une rétribution de tonnerre propre à Wang Lin. Ce tonnerre écarlate fit changer les couleurs du monde; les nuages furent repoussés et le Vide Brillant tout entier trembla.
 
 Wang Lin leva la main droite et pointa l'éclair céleste vert qui descendait. Le marquage rouge frémit et se transforma en un éclair céleste projeté vers le haut.
 
@@ -40,7 +40,7 @@ Il devenait impossible de distinguer laquelle était la rétribution divine. Cer
 
 En un instant, les deux éclairs célestes entrèrent en collision dans un fracas tonitruant, créant un impact violent.
 
-Ils étaient comme deux météores se dévorant et s'annulant mutuellement. Tandis que les grondements résonnaient, l'éclair vert se dissipa rapidement. En quelques respirations seulement, il avait tellement rétréci qu'il ne pouvait plus progresser, avant d'être finalement dévoré par le tonnerre rouge de Wang Lin.
+Ils étaient comme deux météores se dévorant et s'annulant mutuellement. Tandis que les grondements résonnaient, l'éclair vert se dissipa rapidement. En quelques respirations seulement, il avait tellement rétréci, jusqu'à quelques dizaines de milliers de pieds, qu'il ne pouvait plus progresser, avant d'être finalement dévoré par le tonnerre rouge de Wang Lin.
 
 Cependant, à cet instant précis, le vortex commença soudainement à tourner dans le sens inverse. De nouveaux grondements retentirent et un autre éclair vert apparut. Il fusionna avec le premier pour presser l'éclair rouge de Wang Lin.
 
@@ -76,7 +76,7 @@ Il se fragmenta en d'innombrables particules de lumière verte qui se répandire
 
 Alors que Wang Lin se tenait au milieu des résidus de la foudre, sa silhouette paraissait floue. Il leva les yeux vers le vortex et pointa la main droite vers le ciel.
 
-« Par ma volonté, crée une rétribution de tonnerre pour punir les cieux! »
+« Par ma volonté, crée une rétribution de tonnerre pour punir les cieux et la terre! »
 
 Un instant plus tard, un éclair de rétribution rouge apparut de nulle part à sa gauche et fonça vers le vortex. Puis un deuxième, un troisième... D'innombrables éclairs surgirent autour de Wang Lin, prenant le centre de la scène pour bombarder le vortex.
 
@@ -88,13 +88,13 @@ Des dizaines de milliers d'éclairs rouges s'élancèrent vers le vortex. En un 
 
 Un fracas capable de briser les cieux résonna alors que la rétribution de Wang Lin bombardait le vortex, le rendant si ténu qu'il semblait prêt à s'évaporer. Finalement, le vortex céleste se désintégra et disparut.
 
-Cependant, au moment même où il s'évanouissait, une immense faille apparut là où se trouvait le vortex. Cette déchirure mesurait des centaines de milliers de pieds de long et exhalait des grondements tonitruants. Un gigantesque palais quadrangulaire, semblable à un autel, en émergea lentement.
+Cependant, au moment même où il s'évanouissait, une immense faille apparut là où se trouvait le vortex. Cette déchirure mesurait cent mille pieds de long et exhalait des grondements tonitruants. Un gigantesque pavillon quadrangulaire, semblable à un autel, en émergea lentement.
 
 À son apparition, les grondements devinrent encore plus nets. En un instant, la moitié de l'autel fut révélée, montrant deux de ses angles. Wang Lin aperçut une silhouette vague assise au centre, entourée de quatre épées plantées dans l'autel.
 
 « Par mon intention, déclenche la rétribution du feu et consume les cieux et la terre! » Le tatouage de feu sur l'œil gauche de Wang Lin brilla, et une flamme menaçante se propagea autour de lui, formant des flammes dévastatrices.
 
-Alors que Wang Lin pointait le ciel de sa main gauche, les flammes s'étendirent subitement. Mille pieds, dix mille pieds, mille kilomètres, dix mille kilomètres...
+Alors que Wang Lin pointait le ciel de sa main gauche, les flammes s'étendirent subitement. Mille pieds, dix mille pieds, cent mille pieds, cent kilomètres, mille kilomètres, dix mille kilomètres...
 
 Le feu se propageait par la seule pensée de Wang Lin. À cet instant, la mer de feu qui couvrait des dizaines de milliers de kilomètres s'éleva vers le ciel d'un simple geste de son doigt.
 

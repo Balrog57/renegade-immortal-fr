@@ -12,7 +12,7 @@ Xin Hai regarda Shangguan Yun et dit: « Mon frère aîné est allé accueillir 
 
 La formation brilla intensément et treize personnes en sortirent.
 
-Le visage de Teng Huayuan s'assombrit davantage alors qu'il écrasait une autre âme dans l'étendard. Il ricana intérieurement: « Wang Lin, si tu es vraiment assez impitoyable pour ne pas te soucier de ta famille et que tu refuses de sortir, alors je devrai admettre que je t'ai sous-estimé. Mais même si tu parviens à t'échapper, une fois que j'aurai atteint le stade intermédiaire de l'Âme Naissante, je pourrai accroître la puissance de la malédiction pour te traquer. »
+Le visage de Teng Huayuan s'assombrit davantage alors qu'il écrasait une autre âme dans l'étendard. Il ricana intérieurement: « Wang Lin, si tu es vraiment assez impitoyable pour ne pas te soucier de ta famille et que tu refuses de sortir, alors je devrai admettre que je t'ai sous-estimé. Mais même si tu parviens à t'échapper jusqu'aux confins du ciel et des enfers, une fois que j'aurai atteint le stade intermédiaire de l'Âme Naissante, je pourrai accroître la puissance de la malédiction pour te traquer. »
 
 Les cultivateurs à l'extérieur de la vallée reprirent leurs discussions.
 
@@ -48,13 +48,13 @@ Teng Huayuan fronça les sourcils en observant Chen Huan, Chen Yan et Xin Hai. I
 
 Même les petites familles, les petites sectes et les cultivateurs indépendants remarquèrent l'anomalie; ils se rassemblèrent et commencèrent à s'interroger.
 
-C'est alors que le ciel s'obscurcit soudainement et qu'un cercle de lumière apparut silencieusement. Ce cercle flotta jusqu'au milieu du ciel, avant de s'étendre pour atteindre un diamètre de dix mètres. Quatre personnes en sortirent.
+C'est alors que le ciel s'obscurcit soudainement et qu'un cercle de lumière apparut silencieusement. Ce cercle flotta jusqu'au milieu du ciel, avant de s'étendre pour atteindre un diamètre d'une trentaine de mètres. Quatre personnes en sortirent.
 
 À la tête du groupe se trouvait un homme corpulent comme une boule, arborant un sourire constant. Mais dès son apparition, tous les cultivateurs de l'Âme Naissante s'élancèrent dans les airs pour se tenir respectueusement à ses côtés.
 
 Cet homme était le messager laissé à Zhao, Lin Yi.
 
-Lin Yi laissa échapper un rire et déclara: « Tout le monde, je suis ici pour aider les messagers des pays de culture supérieure à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
+Lin Yi laissa échapper un rire et déclara: « Tout le monde, je suis ici pour aider le messager de rang supérieur à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
 
 Derrière Lin Yi se trouvaient Pu Nanzi, l'ancêtre de la Secte Xuan Dao, le cultivateur aux cheveux blancs de la Secte Piao Miao, et un vieillard maigre et sec de la Secte Tian Dao.
 

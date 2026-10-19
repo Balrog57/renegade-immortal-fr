@@ -8,9 +8,9 @@ slug: lancien-ordre-imperial
 ---
 La planète entière était submergée par une pluie d'eau de mer. Les précipitations tombaient sur la terre, s'étendant lentement pour former des rivières.
 
-La puissance d'un seul coup de poing avait pulvérisé toutes les montagnes de la planète Dong Ling. Les fissures qui s'étaient creusées étaient devenues les lits de rivières où l'eau de mer s'écoulait désormais.
+La puissance d'un seul coup de poing avait pulvérisé toutes les montagnes de la planète Dong Lin. Les fissures qui s'étaient creusées étaient devenues les lits de rivières où l'eau de mer s'écoulait désormais.
 
-Le gouffre béant et l'effondrement des terres du nord donnaient l'impression que la pluie était composée des larmes de la planète Dong Ling.
+Le gouffre béant et l'effondrement des terres du nord donnaient l'impression que la pluie était composée des larmes de la planète Dong Lin.
 
 Le Tremblement Divin de l'Ordre Antique ne faisait pas seulement trembler la terre, il faisait aussi trembler les cœurs!
 
@@ -18,13 +18,13 @@ Dans le sud, la famille Xu était sous le choc. La panique et le désespoir se l
 
 « C'est... Quel genre de puissance est-ce là... »
 
-« L'ancienne formation n'a absolument rien pu arrêter. Toutes les planètes de culture ont été anéanties, et même la planète Dong Ling, qui existe depuis des temps immémoriaux, a tremblé... »
+« L'ancienne formation n'a absolument rien pu arrêter. Toutes les planètes de culture ont été anéanties, et même la planète Dong Lin, qui existe depuis des temps immémoriaux, a tremblé... »
 
 Ce coup de poing dépassait l'entendement. C'était quelque chose qui ne devrait pas exister; cela relevait déjà du domaine des cultivateurs du troisième pas.
 
-Dans la partie est de la planète, la famille Liu avait également été témoin du coup de poing tombant du ciel, des tremblements planétaires et de l'anéantissement de la famille Lu. Tous restèrent silencieux... « La planète Dong Ling pourra-t-elle résister à un autre coup de cette ampleur? »
+Dans la partie est de la planète, la famille Liu avait également été témoin du coup de poing tombant du ciel, des tremblements planétaires et de l'anéantissement de la famille Lu. Tous restèrent silencieux... « La planète Dong Lin pourra-t-elle résister à un autre coup de cette ampleur? »
 
-Dans la partie ouest de la planète Dong Ling, les membres de la famille Xiang encerclaient la zone où se trouvait leur ancêtre. Ils fixaient le ciel tandis que la pluie tombait sur eux, le cœur serré par l'effroi.
+Dans la partie ouest de la planète Dong Lin, les membres de la famille Xiang encerclaient la zone où se trouvait leur ancêtre. Ils fixaient le ciel tandis que la pluie tombait sur eux, le cœur serré par l'effroi.
 
 Xiang Yundong était plongé dans l'amertume; il contemplait ce spectacle, hébété, incapable de prononcer le moindre mot. La scène qui venait de se produire était trop terrifiante, elle dépassait toute imagination. Face à une telle puissance, comment pouvaient-ils lutter? Comment pouvaient-ils résister?
 
@@ -32,7 +32,7 @@ Le chef de la famille Liu, les Anciens et près de dix mille cultivateurs tourna
 
 Ils attendaient un mot de leur ancêtre... Pour combattre ou pour se rendre... Mais avant même qu'ils ne puissent entendre sa voix, une silhouette d'un blanc immaculé apparut sous la pluie.
 
-La planète Dong Ling avait perdu toutes ses défenses face à Wang Lin. Il était apparu dans le ciel, et son regard était tel un éclair alors qu'il scrutait l'ouest!
+La planète Dong Lin avait perdu toutes ses défenses face à Wang Lin. Il était apparu dans le ciel, et son regard était tel un éclair alors qu'il scrutait l'ouest!
 
 « Toujours pas sorti du cercueil? » La voix de Wang Lin était calme, dépourvue de toute foudre, mais elle atteignit distinctement les oreilles de chaque cultivateur présent. Elle exerçait une pression invisible sur tous les êtres.
 
@@ -54,19 +54,19 @@ Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. 
 
 Une force destructrice se propagea rapidement depuis l'intérieur du pilier. Puis, une ombre sans tête apparut vaguement dans la lumière. Cette ombre, vêtue d'une armure et tenant une lance, chargea à travers le pilier!
 
-Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape du Fléau Céleste et se rapprochait infiniment des sorts de Flamme Divine des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
+Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape du Fléau Céleste et se rapprochait infiniment des sortilèges des Flammes de Joss des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
 
 Wang Lin se retourna brusquement, son regard fulgurant balayant la zone. Il vit l'ombre sans tête. Le pilier de lumière était trop rapide; il se trouvait désormais à moins de trente pieds de Wang Lin! C'était comme s'il ne lui laissait aucune chance d'esquiver!
 
 Mais Wang Lin n'avait nullement l'intention de l'esquiver. Ses yeux brillèrent et il leva sa main droite. Alors que le pilier de lumière se refermait sur lui, il projeta sa paume en avant!
 
-Des grondements tonitruants déchirèrent la planète Dong Ling et se propagèrent dans toutes les directions comme un rugissement assourdissant. Le pilier de lumière percuta la paume droite de Wang Lin. L'ombre sans tête, à l'intérieur du faisceau, projeta sa lance contre la main de Wang Lin!
+Des grondements tonitruants déchirèrent la planète Dong Lin et se propagèrent dans toutes les directions comme un rugissement assourdissant. Le pilier de lumière percuta la paume droite de Wang Lin. L'ombre sans tête, à l'intérieur du faisceau, projeta sa lance contre la main de Wang Lin!
 
 Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par un vent violent. Ses vêtements claquaient avec force, comme s'ils allaient être arrachés de son corps! Cependant, le corps de Wang Lin ne bougea pas d'un pouce. Son expression resta imperturbable. Il venait de contenir une attaque proche de celle d'un cultivateur du Vide du Nirvana d'une seule main!
 
-Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Ling se détacha du reste du globe!
+Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Lin se détacha du reste du globe!
 
-De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé l'Art du Tournesol de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Ling était mutilée et commençait à s'effondrer à grande échelle!
+De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé l'Art du Tournesol de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Lin était mutilée et commençait à s'effondrer à grande échelle!
 
 Le pilier de lumière disparut, emportant avec lui l'ombre sans tête... Wang Lin ne recula pas d'un seul pas avant que la menace ne soit dissipée, puis il retira lentement sa main droite.
 
@@ -88,4 +88,4 @@ Wang Lin fit un pas en avant et pénétra dans la faille. À peine eut-il franch
 
 Simultanément, une main desséchée qui agrippait le bord du cercueil se crispa violemment. Une voix haletante et rauque s'échappa de la boîte:
 
-« L'Ancien Ordre Impérial stipule que ceux qui détruiront la planète Dong Ling verront neuf générations de leur famille exécutées! » Tandis que sa voix résonnait, l'ancêtre de la famille Xiang lutta pour se redresser avec son corps terrifiant.
+« L'Ancien Ordre Impérial stipule que ceux qui détruiront la planète Dong Lin verront neuf générations de leur famille exécutées! » Tandis que sa voix résonnait, l'ancêtre de la famille Xiang lutta pour se redresser avec son corps terrifiant.

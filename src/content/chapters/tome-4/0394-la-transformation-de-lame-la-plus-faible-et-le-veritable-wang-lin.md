@@ -8,7 +8,7 @@ slug: la-transformation-de-lame-la-plus-faible-et-le-véritable-wang-lin
 ---
 Li Yuanfeng prit une profonde inspiration et dit lentement: « Ceng Niu, n'implique pas les autres dans notre combat. Tous, partez! Éloignez-vous à plus de 5 000 kilomètres. Personne n'est autorisé à approcher. »
 
-Les cultivateurs de la Formation de l'Âme de Xue Yue reculèrent tous. Leur arrivée avait été impétueuse, mais ils devaient repartir ainsi. Ce contraste frappant fit naître en beaucoup d'entre eux une amertume profonde et une crainte immense envers Wang Lin.
+Les cultivateurs de la Formation de l'Âme de Xue Yu reculèrent tous. Leur arrivée avait été impétueuse, mais ils devaient repartir ainsi. Ce contraste frappant fit naître en beaucoup d'entre eux une amertume profonde et une crainte immense envers Wang Lin.
 
 La puissance d'un seul mot suffisait à égaler celle d'un cultivateur de la Transformation de l'Âme.
 
@@ -68,7 +68,7 @@ Outre leurs domaines, les cultivateurs de la Transformation de l'Âme pouvaient 
 
 Le regard de Li Yuanfeng était sombre. Ses mains formèrent des sceaux et une puissance mystérieuse l'enveloppa tandis que des feuilles de thé apparaissaient autour de lui.
 
-Ces feuilles semblaient toutes être de la plus haute qualité, et un arôme exotique commença à se diffuser.
+Ces feuilles étaient toutes translucides comme du cristal, et un arôme étrange commença à se diffuser.
 
 « Le domaine prenant une forme physique... » Les yeux de Wang Lin s'illuminèrent. Lorsqu'il avait été frappé par la marque de thé de Li Yuanfeng auparavant, il avait eu une intuition: les cultivateurs de la Transformation de l'Âme devaient être capables de matérialiser leur domaine plutôt que de le laisser immatériel.
 
@@ -78,7 +78,7 @@ En réalité, au-delà de sa vengeance, ce combat contre Li Yuanfeng permettait 
 
 Après avoir atteint son niveau de culture actuel, la compréhension des cieux était une voie pour progresser, mais combattre un cultivateur de la Transformation de l'Âme en était une autre pour appréhender son propre domaine.
 
-Il y avait aussi une autre raison: chercher ce bras brisé qui se faisait appeler Situ Nan.
+Il y avait aussi une autre raison: chercher des indices sur cette ombre au bras brisé qui se faisait appeler Situ Nan.
 
 Fixant les feuilles de thé entourant le corps de Li Yuanfeng, Wang Lin prit une profonde inspiration et son âme originelle s'élança hors de son corps pour communiquer avec le ciel et la terre. L'espace avait déjà été scellé par Li Yuanfeng, mais des déchirures s'ouvrirent dans le vide comme si des mains invisibles déchiraient l'éther, laissant échapper une masse de gaz gris.
 
@@ -124,7 +124,7 @@ L'expression de Wang Lin resta imperturbable. Il frappa son sac de rangement et 
 
 Au même moment, le drapeau des restrictions apparut également. D'un geste de la main, une multitude de restrictions furent projetées. De loin, Wang Lin semblait enveloppé par un tourbillon de gaz noir semblable à une tempête.
 
-Li Yuanfeng fixa Wang Lin et esquissa un sourire féroce. Sa main forma un sceau, faisant apparaître d'innombrables sphères de glace de la taille d'un poing. C'était la technique la plus commune de Xue Yue; presque tout le monde la connaissait.
+Li Yuanfeng fixa Wang Lin et esquissa un sourire féroce. Sa main forma un sceau, faisant apparaître d'innombrables sphères de glace de la taille d'un poing. C'était le sort le plus simple qui soit, et presque tous les cultivateurs de Xue Yu le maîtrisaient.
 
 Mais ces sphères de glace contenaient le pouvoir de briser les cieux et la terre.
 
@@ -138,7 +138,7 @@ Les yeux de Wang Lin s'illuminèrent. Il pouvait sentir l'énergie spirituelle c
 
 Boum! Boum! Boum!
 
-Un son tellurique, que tout Xue Yue et les pays environnants entendirent, se propagea. La terre entière de Xue Yue commença à se fissurer et l'épaisse couche de neige s'effondra.
+Un son tellurique, que tout Xue Yu et les pays environnants entendirent, se propagea. La terre entière de Xue Yu commença à se fissurer et l'épaisse couche de neige s'effondra.
 
 Le corps de Wang Lin recula brusquement. Son poing droit tremblait légèrement. Des couches de glace apparurent sur ses phalanges avant de disparaître rapidement.
 

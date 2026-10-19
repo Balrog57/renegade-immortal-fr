@@ -8,19 +8,19 @@ slug: je-suis-tellement-badass
 ---
 Shengong Hu laissa échapper un rugissement. Sa main tremblait légèrement sous l'effet de ses blessures. Bien qu'il se soit partiellement rétabli et qu'il ait utilisé une pilule du Temple Céleste du Tonnerre pour en contenir les effets, lui permettant d'atteindre son apogée un court instant, cela ne suffisait toujours pas pour exécuter ce sort.
 
-Il serra les dents et sa main droite s'abattit soudainement. La foudre de la divine rétribution apparut et descendit avec une puissance inimaginable.
+Il serra les dents et sa main droite s'abattit soudainement. La foudre de la rétribution divine apparut et descendit avec une puissance inimaginable.
 
-L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha un filet de vitalité corporelle sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la divine rétribution.
+L'expression de Zhan Konglie devint sombre. Ses mains formèrent rapidement des sceaux et il cracha un filet d'énergie vitale sur son épée en bois. L'épée poussa un rugissement avant de libérer une puissante énergie d'épée qui fonça droit sur la foudre de la rétribution divine.
 
 Lorsque les deux forces entrèrent en collision, un choc assourdissant ébranla toute la zone. La foudre s'effondra et l'épée en bois fut repoussée. L'énergie originelle résiduelle atteignit sa limite, provoquant l'effondrement d'une multitude d'astéroïdes.
 
 Le corps de Zhan Konglie trembla et il recula de quelques pas. Le visage pâle, il fixa sombrement Shengong Hu. Sa colère était immense, et ses yeux étaient désormais empreints d'une intention de combat féroce.
 
-Shengong Hu recula également jusqu'à être adossé au lac de tonnerre. Du sang s'écoulait du coin de sa bouche. Il regarda Zhan Konglie et sourit: « Je trouve ton visage féminin peu plaisant à l'œil. Je ne m'attendais pas à ce que tu aies réellement du talent! »
+Shengong Hu recula également jusqu'à pénétrer dans le lac de tonnerre. Du sang s'écoulait du coin de sa bouche. Il regarda Zhan Konglie et sourit: « Je trouve ton visage féminin peu plaisant à l'œil. Je ne m'attendais pas à ce que tu aies réellement du talent! »
 
 Les yeux de Wang Lin s'illuminèrent. Il avait observé la bataille avec une attention extrême et en avait tiré quelques enseignements. Il n'aurait pas pu résister à un seul coup de l'un ou l'autre de ces sorts originels du Yang Corporel.
 
-Cependant, il remarqua une faille: le sort originel de Shengong Hu semblait imparfait. La puissance de cette foudre de la divine rétribution aurait dû être bien plus grande.
+Cependant, il remarqua une faille: le sort originel de Shengong Hu semblait imparfait. La puissance de cette foudre de la rétribution divine aurait dû être bien plus grande.
 
 Wang Lin avait, après tout, contemplé le monde de la troisième étape et, avant d'entrer dans l'anneau intérieur, il avait vaguement aperçu la Loi du Tonnerre. Il n'était donc pas surprenant pour lui de déceler des imperfections dans le sort de Shengong Hu.
 
@@ -76,7 +76,7 @@ Shengong Hu ne l'arrêta pas, mais son regard devint glacial.
 
 Wang Lin demanda calmement: « Qu'est-ce qu'un parchemin d'appel? »
 
-Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un jeton de communication du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant chaque ouverture du Temple Céleste du Tonnerre, le Temple réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
+Shengong Hu se retourna rapidement et répondit respectueusement: « Le parchemin d'appel est un ordre de convocation du Temple Céleste du Tonnerre. Tout candidat au rang de messager reçoit un tel parchemin. Trois mois avant chaque ouverture du Temple Céleste du Tonnerre, le Temple réorganisera ses messagers. Si des postes sont vacants, les candidats s'affronteront pour les obtenir. Avec la culture de Zhan Konglie, si rien n'intervient, je crains qu'il ne l'emporte cette fois! »
 
 Wang Lin hocha légèrement la tête. Il ne dit plus rien et continua d'absorber le tonnerre pour le convertir en énergie originelle.
 

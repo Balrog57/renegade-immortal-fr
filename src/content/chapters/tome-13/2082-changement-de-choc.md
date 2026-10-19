@@ -40,7 +40,7 @@ Le Grand Empyréen Ancien Ji resta également silencieux, songeur, avant de join
 
 Ils avaient appris, il y a trois cents ans, que l'être le plus puissant du Continent Astral Immortel n'était plus le Grand Empyréen Gu Dao, mais cet homme nommé Wang Lin qui se tenait devant eux.
 
-Après avoir été témoins de cette bataille trois siècles plus tôt, ils avaient personnellement interrogé le Grand Empyréen Gu Dao. Ils avaient reçu la même réponse que celle qu'ils avaient constatée de leurs propres yeux.
+Après avoir été témoins de cette bataille trois siècles plus tôt, ils s'étaient rendus au mont Gu Dao pour interroger personnellement le Grand Empyréen Gu Dao. Ils avaient reçu la même réponse que celle qu'ils avaient constatée de leurs propres yeux.
 
 Xuan Luo était bien plus âgé qu'autrefois, mais un sourire étirait ses lèvres. Il regarda son ancien disciple et ressentit une pointe de fierté en voyant Wang Lin devenir si puissant.
 
@@ -72,7 +72,7 @@ Même les trésors de protection restaient inefficaces ici.
 
 Lors du dernier jour, les grondements pouvaient balayer n'importe qui situé sous le stade de la Tribulation du Vide; ainsi, peu de gens pouvaient se permettre de venir.
 
-Alors que les tonnerres résonnaient, une lumière aux neuf couleurs perça la tempête marine, s'élança vers le ciel et enveloppa la terre. Cette lumière se mua en une aura tranchante semblable à une lame qui balaya toute la zone.
+Alors que les tonnerres résonnaient, une lumière aux neuf couleurs perça la tempête marine, s'élança vers le ciel et enveloppa la terre. Cette lumière se mua en une aura tranchante semblable à une lame, qui tourbillonna dans le fracas pour balayer toute la zone.
 
 L'expression de Wang Lin demeurait calme. Il voyait clairement la porte formée par les neuf piliers se desserrer. Les grondements étaient précisément causés par ce relâchement de la structure.
 

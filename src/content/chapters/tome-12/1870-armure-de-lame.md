@@ -8,7 +8,7 @@ slug: armure-de-lame
 ---
 Au moment où Wang Lin s'engouffra dans la terre, son visage était livide et il ne put plus retenir le sang qui lui montait à la gorge, laissant jaillir une gerbe écarlate. À peine eut-il pénétré sous terre qu'il sentit la formation se sceller définitivement derrière lui.
 
-S'il avait été un instant plus lent, il serait resté bloqué à l'extérieur. Il aurait alors dû affronter six vieux monstres de stade intermédiaire de la Tribulation du Vide. Même en utilisant ses trois vies, il n'aurait eu aucune chance de survivre.
+S'il avait été un instant plus lent, il serait resté bloqué à l'extérieur. Il aurait alors dû affronter six vieux monstres de stade intermédiaire de la Tribulation du Vide. Même en perdant ses trois vies, il n'aurait eu aucune chance de survivre.
 
 Cependant, le prix à payer était bien trop lourd. L'effondrement des 30 millions d'âmes Dao fit souffrir le cœur de Wang Lin. Si la gourde avait été utilisée avec discernement, il aurait pu blesser gravement un vieux monstre de stade intermédiaire de la Tribulation du Vide. Mais il n'avait eu d'autre choix que de la faire exploser pour s'offrir une chance de fuite.
 
@@ -78,7 +78,7 @@ Pendant que Wang Lin méditait, hormis quelques centaines de cultivateurs, l'agi
 
 « Donnez-nous une réponse! »
 
-« S'il n'y a pas de réponse, nous ne pouvons pas attendre notre fin. Au plus, ce vieil homme se rendra au Con... » Le dernier intervenant était un homme d'âge moyen. Il était en colère, terrifié et désespéré. Cependant, à cet instant précis, ses yeux s'écarquillèrent et son corps fut projeté en l'air. Ses mains griffaient son cou comme s'il était étranglé par une force invisible.
+« S'il n'y a pas de réponse, nous ne pouvons pas attendre notre fin. Au pire, je me rendrai au Con... » Le dernier intervenant était un homme d'âge moyen. Il était en colère, terrifié et désespéré. Cependant, à cet instant précis, ses yeux s'écarquillèrent et son corps fut projeté en l'air. Ses mains griffaient son cou comme s'il était étranglé par une force invisible.
 
 Il semblait qu'une paire de mains géantes et invisibles lui broyait la gorge. Malgré ses efforts désespérés, il ne pouvait se libérer.
 
@@ -106,9 +106,9 @@ Le vieil homme nommé Zhou, tremblant, accéléra le débit de ses paroles.
 
 « Voici la situation: bien que six vieux monstres de la Tribulation du Vide soient à l'extérieur, le troisième méridien possède encore un atout ultime. Une fois activé, nous pourrons nous frayer un chemin et garantir la sécurité de tous pour l'évacuation. »
 
-« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa culture pour invoquer l'âme du Taureau Céleste et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Taureau Céleste fusionnera avec votre corps, et votre puissance atteindra un niveau terrifiant en un temps record! » lança précipitamment le vieil homme Zhou.
+« Ne paniquez donc pas. Cette méthode nécessite que chacun utilise la totalité de sa culture pour invoquer l'âme du Taureau Céleste et la transformer en une armure d'âme. Une fois l'armure revêtue, l'esprit du Taureau Céleste prendra possession de votre corps, et votre puissance atteindra un niveau terrifiant en un temps record! » lança précipitamment le vieil homme Zhou.
 
-À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Taureau Céleste, mais il semblait que cette créature existait bel et bien, et que son armure pouvait décupler la puissance de celui qui la portait.
+À ces mots, la respiration des mille cultivateurs devint erratique. Ils n'avaient jamais entendu parler d'une telle chose. Certains doutaient de l'existence même du Taureau Céleste, mais il semblait que cette créature existait bel et bien, et que son armure pouvait accroître énormément la puissance de celui qui la portait.
 
 « Comme revêtir cette armure comporte des risques non négligeables, les cultivateurs de la Tribulation du Vide ont convenu que l'Ancien Lu, qui possède le niveau de culture et la contribution les plus élevés, en serait le porteur. » Tandis que le vieil homme Zhou parlait, dans une grotte lointaine, Wang Lin ouvrit les yeux, dont le regard brillait d'une étrange lueur.
 

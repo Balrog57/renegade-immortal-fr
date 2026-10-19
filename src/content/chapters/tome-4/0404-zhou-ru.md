@@ -10,19 +10,19 @@ Dès qu'elle acquit une conscience, tous ceux qu'elle rencontrait tombaient sous
 
 Une fois scellée, elle cherchait toujours un moyen d'échapper à l'ancêtre du Clan des Démons Géants. Un jour, elle rencontra Xu Liguo. Elle le charma aisément, et celui-ci s'était démené pour la sauver.
 
-Cependant, elle n'aurait jamais imaginé qu'un tel homme puisse exister. Non seulement tout son charme était vain contre lui, mais il avait même osé lui vouloir du mal.
+Cependant, elle n'aurait jamais imaginé qu'un tel homme puisse exister. Non seulement tout son charme était vain contre lui, mais il avait même eu le cœur de la faire souffrir.
 
 « Quel est ce domaine qui émane de ton corps? » Wang Lin n'avait pas été affecté par son charme grâce à sa vaste expérience de vie et à sa maîtrise de la technique de scellement de l'âme.
 
 Au cours de ses 500 ans de culture, Wang Lin n'avait jamais été avec une femme; son cœur était donc bien plus déterminé que celui de l'ancêtre du Clan des Démons Géants.
 
-Parallèlement, la technique de scellement de l'âme était la technique la plus vénérée de la Secte de l'Affinement de l'Âme. Outre le contrôle du drapeau des mille millions d'âmes, son autre usage consistait à rendre son âme imperméable à toute influence extérieure.
+Parallèlement, la technique de scellement de l'âme était la technique ultime de la Secte de l'Affinement de l'Âme. Outre le contrôle du drapeau des mille millions d'âmes, son autre usage consistait à rendre son âme imperméable à toutes les influences maléfiques.
 
 C'est grâce à cela qu'il pouvait contrôler les mille millions de fragments d'âme sans subir de contrecoup.
 
 La femme regarda Wang Lin avec effroi. N'osant plus déployer son domaine, elle dit: « Je ne sais pas comment cela est arrivé. Quand je me suis réveillée, le domaine était déjà là. »
 
-Wang Lin réfléchit un instant. Le niveau de culture de cette femme n'était que celui de la Formation du Noyau, et pourtant son domaine était assez puissant pour affecter quelqu'un comme Li Yuanfeng. Cela était très étrange.
+Wang Lin réfléchit un instant. Le niveau de culture de cette femme n'était que celui de la Formation du Noyau, et pourtant son domaine était assez puissant pour affecter un cultivateur de la Transformation de l'Âme comme Li Yuanfeng. Cela était très étrange.
 
 « Cette femme a dû naître lorsqu'une partie de l'âme originelle d'un puissant aîné s'est détachée. Le résultat est ce fragment d'âme. Cela expliquerait pourquoi elle possède un domaine aussi puissant. Ce domaine doit être lié au charme ou à la luxure. » Les yeux de Wang Lin brillèrent. Il forma un sceau pour poser une restriction sur la femme, puis l'enferma dans le drapeau des âmes.
 
@@ -54,7 +54,7 @@ Le front de Wang Lin fut couvert de sueur. Même face à des monstres anciens au
 
 Zhou Ru roula des yeux et bouda: « Les promesses de l'oncle ne valent rien. La dernière fois, tu m'as promis un grand tigre et cela n'est jamais arrivé. Je ne te croirai pas cette fois non plus. »
 
-Wang Lin eut un sourire désolé. « D'accord, petite Zhou Ru, l'oncle t'emmènera chasser un grand tigre. Je pense qu'il doit y avoir des bêtes démoniaques par ici. »
+Wang Lin eut un sourire désolé. « D'accord, petite Ru Er, l'oncle t'emmènera chasser un grand tigre. Je pense qu'il doit y avoir des bêtes démoniaques par ici. »
 
 Zhou Ru n'était qu'une enfant; en entendant cela, elle sourit aussitôt et applaudit: « L'oncle doit tenir sa promesse cette fois! Allons-y tout de suite! »
 
@@ -86,7 +86,7 @@ Le corps de Wang Lin trembla. À cet instant, il eut l'impression d'avoir été 
 
 En principe, Li Muwan était Zhou Ru et Zhou Ru était Li Muwan; alors pourquoi Zhou Ru rejetait-elle Li Muwan?
 
-« Se pourrait-il que lorsque l'Âme Naissante de Li Muwan est entrée dans le ventre de la femme enceinte, le bébé ait déjà développé sa propre âme... » Le corps de Wang Lin frémit. Il combattait l'émissaire des cieux à ce moment-là et n'avait pu examiner la situation de plus près.
+« Se pourrait-il que lorsque l'Âme Naissante de Li Muwan est entrée dans le ventre de la femme enceinte, le bébé ait déjà développé sa propre âme... » Le corps de Wang Lin frémit. Il combattait le Dao céleste à ce moment-là et n'avait pu examiner la situation de plus près.
 
 « Si c'est vrai, alors l'Âme Naissante de Li Muwan dévorera lentement l'âme de Zhou Ru, et elle remplacera complètement Zhou Ru lorsqu'elle s'éveillera. » Les yeux de Wang Lin étaient troublés par la confusion.
 

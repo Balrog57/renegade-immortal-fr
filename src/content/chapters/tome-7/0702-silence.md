@@ -62,7 +62,7 @@ Une lueur d'avidité brilla dans ses yeux alors qu'il contemplait la corne. Il f
 
 Alors que l'électricité parcourait la lame, le Daoïste du Tonnerre forma un nouveau sceau de la main droite et pointa vers l'avant. L'épée longue argentée s'élança vers la marionnette du Gardien Céleste.
 
-« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Rétribution Céleste du Temple du Tonnerre! »
+« Tant que je tue cet homme, cette Bête de Tonnerre sans maître sera mienne! » Après avoir lancé l'épée volante, le Daoïste du Tonnerre chargea. Ses mains s'ouvrirent et il hurla: « Rétribution Céleste du Tonnerre! »
 
 Un rayon de foudre pourpre apparut soudainement dans sa paume et se mua en un filet. Dans un grondement fracassant, le filet vola vers Wang Lin.
 

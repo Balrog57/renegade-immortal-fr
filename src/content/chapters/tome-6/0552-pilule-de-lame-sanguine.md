@@ -68,11 +68,11 @@ En la tenant, Wang Lin ressentit un puissant lien de sang. C'était comme si ell
 
 Wang Lin prit une profonde inspiration, leva la tête vers Yao Xixue et dit d'un ton solennel: « Donnez-moi les jades célestes! »
 
-Sans un mot, Yao Xixue sortit un sac de rangement, le lança à Wang Lin et déclara: « Voici assez de jades pour que vous atteigniez le stade avancé de la Transformation de l'Âme. Je vous donnerai le reste à notre retour! Dans trois jours, venez me trouver au Mont Gu à minuit! »
+Sans un mot, Yao Xixue sortit un sac de rangement, le lança à Wang Lin et déclara: « Voici assez de jades pour que vous atteigniez le stade avancé de la Transformation de l'Âme. Je vous donnerai le reste à notre retour! Dans trois jours, au moment de l'ascension du Démon Pourpre, venez me trouver au Mont Gu! »
 
 Wang Lin réfléchit un instant. Puis, il répondit lentement: « Je viendrai. »
 
-Yao Xixue esquissa un sourire et partit. Elle ne craignait pas que Wang Lin s'empare des objets et s'enfuie; les jades ne lui importaient guère, et la pilule encore moins.
+Yao Xixue esquissa un sourire et partit. Elle ne craignait pas que Wang Lin, une fois les objets en main, revienne sur sa parole; les jades ne lui importaient guère, et la pilule encore moins.
 
 Le regard de Wang Lin resta fixé sur Yao Xixue jusqu'à ce qu'elle disparaisse au loin. Il détourna les yeux et se mit à méditer.
 
@@ -82,7 +82,7 @@ Le regard de Wang Lin resta fixé sur Yao Xixue jusqu'à ce qu'elle disparaisse 
 
 « Pour obtenir mon aide, elle est prête à en offrir une. Si j'avais été à sa place, je n'aurais certainement pas cédé sans y avoir apporté une modification. »
 
-Un rictus apparut sur les lèvres de Wang Lin: « Yao Xixue, si tu n'étais pas si insouciante, je me serais contenté de te soupçonner, mais maintenant, je suis convaincu que cette Pilule de l'Âme Sanguine cache un loup! »
+Un rictus apparut sur les lèvres de Wang Lin: « Yao Xixue, si tu n'étais pas si insouciante, je me serais contenté de te soupçonner, mais maintenant, je suis convaincu que cette Pilule de l'Âme Sanguine a un problème! »
 
 Ses yeux s'illuminèrent. Il toucha son sac de rangement, en sortit un ordinaire étendard d'âme, l'agita et cria: « Cao Yidou! »
 
@@ -102,7 +102,7 @@ Wang Lin réfléchit un instant: « As-tu entendu parler de la Pilule de l'Âme 
 
 Wang Lin ouvrit sa main droite, où la pilule de cire émettait un étrange scintillement. « Sais-tu ce que c'est? »
 
-Cao Yidou fut surpris et examina attentivement l'objet. Après un court instant, son visage se décomposa tandis qu'il murmurait: « Enveloppée dans une cire de bête lézard blanche... elle porte au total 3 614 symboles gravés. Elle scintille au rythme de la respiration du porteur et donne l'impression d'être votre propre chair et votre propre sang... Maître, ai-je raison? »
+Cao Yidou fut surpris et examina attentivement l'objet. Après un court instant, son visage se décomposa tandis qu'il murmurait: « Enveloppée dans une cire de bête lézard blanche... elle porte au total 3 614 symboles gravés. Elle scintille au rythme du pouls du porteur et donne l'impression d'être votre propre chair et votre propre sang... Maître, ai-je raison? »
 
 Wang Lin resta calme et hocha la tête.
 

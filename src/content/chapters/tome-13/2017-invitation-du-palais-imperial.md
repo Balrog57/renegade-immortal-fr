@@ -52,7 +52,7 @@ On aurait dit que le Grand Empyréen Gu Dao avait pesé ses mots avant de parler
 
 Wang Lin ne répondit plus et entama la descente. Lorsqu'il rejoignit Xuan Luo, il remarqua les ondulations invisibles qui l'entouraient. Il était évident que si Gu Dao avait manqué à sa parole, Xuan Luo serait intervenu.
 
-« Maître... » murmura Wang Lin. L'intervention de Xuan Luo fit naître une certaine chaleur dans les tensions qui le liaient au clan Ancien.
+« Maître... » murmura Wang Lin. L'intervention de Xuan Luo fit naître une certaine chaleur dans la fracture qui le séparait du clan Ancien.
 
 « Allons-y. » Xuan Luo regarda Wang Lin d'un air profond, dissimulant le choc provoqué par les huit chants et les deux signes. D'un revers de manche, il s'envola vers l'horizon, emportant Wang Lin avec lui.
 

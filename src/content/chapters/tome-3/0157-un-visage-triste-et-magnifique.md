@@ -8,7 +8,7 @@ slug: un-visage-triste-et-magnifique
 ---
 Le démon prit aussitôt un air accablé et, bouchée après bouchée, expulsa de son corps des boules d'âme blanc laiteux. Après avoir expulsé plus de 40 âmes, son noyau doré était sur le point de se briser.
 
-Wang Lin agita la main et les 43 boules d'âme furent plaquées l'une après l'autre sur son front. Elles pénétrèrent sa conscience et flottèrent aux côtés de l'âme du cultivateur au stade de la Formation du Noyau de Xuan Wu.
+Wang Lin agita la main et les 43 boules d'âme furent plaquées l'une après l'autre sur son front. Elles pénétrèrent sa conscience et flottèrent aux côtés de l'âme du cultivateur au stade de la Formation du Noyau du pays de Xuan Wu.
 
 Le Sens Divin du Royaume Ji surgit comme l'éclair et traversa chacune des âmes. À mesure qu'elles disparaissaient, Wang Lin sentit son propre sens divin gagner en force.
 
@@ -44,7 +44,7 @@ Li Muwan sortit un morceau de jade de son sac de rangement et le plaça sur son 
 
 Shang Guanmo accepta promptement. Il sentait qu'il s'était trompé en l'observant auparavant; la relation entre ce démon et cette jeune fille n'était pas celle qu'il avait imaginée.
 
-Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans et le retour du fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
+Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau du pays de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans, pendant lequel il lui avait rapporté un fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
 
 Alors que Wang Lin atteignait le stade de la Formation du Noyau, une jeune fille aussi faible qu'elle se trouvait seule face à dix cultivateurs démoniaques de la Formation du Noyau. Au moment même où elle allait se briser elle-même les méridiens du cœur, Wang Lin était soudain apparu et ses adversaires avaient pris la fuite pour sauver leur vie. Elle n'avait pu supporter ce revirement brutal. Elle avait failli tomber, mais il l'avait finalement serrée dans ses bras.
 

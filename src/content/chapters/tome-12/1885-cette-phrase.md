@@ -14,7 +14,7 @@ Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le 
 
 Quant à Bord-des-Nuages, il semblait avoir vieilli de mille ans et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bord-des-Nuages. Il comptait profiter de la dissipation de l'armure de l'âme pour l'exterminer.
 
-Tang Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
+Ta Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
 
 Habité par une intention meurtrière, Wang Lin se rapprocha de Bord-des-Nuages. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Bord-des-Nuages fut repoussé et cracha du sang.
 
@@ -52,7 +52,7 @@ Trois jours passèrent en un éclair. Wang Lin ouvrit enfin les yeux et contempl
 
 Il passa devant chaque bâtiment et devant les lieux où vivaient autrefois les disciples.
 
-Enfin, il pénétra dans le hall principal de la Secte des Sept Dao. Un immense trône s'y trouvait; il appartenait manifestement au Souverain aux Sept Couleurs.
+Enfin, il pénétra dans le hall principal de la Secte des Sept Dao. Un immense trône s'y trouvait; il appartenait manifestement au Souverain Céleste aux Sept Couleurs.
 
 En contemplant ce hall silencieux où la table et les chaises étaient couvertes de poussière, il ressentit un profond sentiment de décrépitude.
 
@@ -62,7 +62,7 @@ Le monde caverneux lui manquait; tous ceux qui s'y trouvaient lui manquaient.
 
 Il eut l'impression de pouvoir voir à travers le monde caverneux. Une femme magnifique aux longs cheveux flottants se tenait sur une colline, levant les yeux vers le ciel sombre comme si elle cherchait un regard perdu dans l'obscurité.
 
-Après un long moment, Wang Lin ouvrit les yeux et sortit du temple. Seul au sein de la Secte des Sept Dao, son expression devint progressivement sombre.
+Après un long moment, Wang Lin ouvrit les yeux et sortit du hall principal. Seul au sein de la Secte des Sept Dao, son expression devint progressivement sombre.
 
 Il devait encore affronter la cruelle réalité.
 
@@ -74,7 +74,7 @@ Une fois apparue, la petite personne s'agenouilla et s'inclina trois fois devant
 
 Le cœur de Wang Lin trembla et il referma sa main. Sa divination était trouble et ne lui révélait rien, mais une phrase unique surgit dans son esprit:
 
-« La question de la récompense a ses propres raisons. Ce vieil homme ne changera pas. Si Wang Lin n'accepte pas rapidement, voici la preuve que ce vieil homme part maintenant! »
+« La question des récompenses a ses propres raisons. Ce vieil homme ne changera pas d'avis. Si Wang Lin tarde à obéir, que ceci serve de preuve pour le juger! »
 
 Cette phrase provenait des cheveux que l'Ancêtre Taureau Vert avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
 
@@ -82,11 +82,11 @@ Wang Lin médita attentivement ces mots. L'Œil de l'Âme n'avait révélé qu'u
 
 Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué par un violent tremblement. Il leva brusquement les yeux, le regard brillant d'une lueur vive.
 
-« La question de la récompense a ses propres raisons. Ce vieil homme ne changera pas. Si Wang Lin n'accepte pas rapidement, voici la preuve que ce vieil homme part maintenant! »
+« La question des récompenses a ses propres raisons. Ce vieil homme ne changera pas d'avis. Si Wang Lin tarde à obéir, que ceci serve de preuve pour le juger! »
 
-« Les derniers mots de chaque segment sont: là, changer, rapidement, partir! »
-« Il y a un changement, partez rapidement! »
-« Quelque chose a changé, partez! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Taureau Vert pour ordonner à Wang Lin de fuir sans tarder!
+« Les derniers caractères de chaque segment sont: 事, 由, 变, 速, 判! »
+« Il y a un changement, trahis vite! »
+« Quelque chose a changé, trahis! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Taureau Vert pour ordonner à Wang Lin de trahir sans tarder!
 
 « Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
 

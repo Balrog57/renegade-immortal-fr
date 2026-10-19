@@ -32,7 +32,7 @@ Les yeux de Wang Lin s'illuminèrent et sa main droite traça un sceau. Il point
 
 Ces gouttes contenaient l'énergie originelle du monde. Le sable émit des bruits sourds et se dissipa lors de la collision avec la pluie.
 
-Wang Lin ne s'arrêta pas et continua sa retraite. Ses mains changeaient de position pour former de nouveaux sceaux, et la pluie redoublait d'intensité. Tout ce qui se trouvait dans un rayon de 10 000 pieds fut recouvert par les gouttes!
+Wang Lin ne s'arrêta pas et continua sa retraite. Ses mains changeaient de position pour former de nouveaux sceaux, et la pluie redoublait d'intensité. Tout ce qui se trouvait dans un rayon de plusieurs dizaines de milliers de pieds fut recouvert par les gouttes!
 
 Au moment où Wang Lin agita les mains, la pluie tombant du ciel jaillit vers l'avant telle une série d'épées acérées. Des grondements célestes secouèrent l'air, et les vagues de sable se dissipèrent rapidement sous l'impact de la pluie.
 
@@ -86,7 +86,7 @@ La petite épée avait transpercé toutes les ondes de choc envoyées par les po
 
 Wang Lin fronça les sourcils et une lueur bleue jaillit de son œil droit. Un bouclier de lumière azur apparut devant lui, et la lumière blanche percuta l'obstacle.
 
-Des bruits d'éclatement résonnèrent tandis que l'ombre du Dieu Ancien derrière Wang Lin se densifiait. Il médita silencieusement alors que les étoiles du Dieu Ancien tournaient lentement. Les souvenirs hérités de Tu Si traversèrent son esprit.
+Des bruits d'éclatement résonnèrent tandis que l'ombre du Dieu Ancien derrière Wang Lin se densifiait. Il resta silencieux tandis que les étoiles du Dieu Ancien tournaient lentement. Les souvenirs hérités de Tu Si traversèrent son esprit.
 
 Après une profonde inspiration, Wang Lin plaça ses mains devant lui. Ses doigts s'entrelacèrent pour former un sceau étrange.
 
@@ -112,7 +112,7 @@ Elle traversa tout ce qui se trouvait dans la Terre des Esprits Démoniaques et 
 
 « Elle est capable d'attirer la puissance du monde extérieur! » La voix de l'homme dans la brume noire était empreinte de choc!
 
-« Je pensais qu'il n'y avait que quatre personnes à surveiller, mais contre toute attente, il y en a une autre... » Un murmure s'éleva de la brume noire, et ses yeux s'illuminèrent. Un bras desséché jaillit de la bouteille blanche et serra impitoyablement!
+« Je pensais qu'il n'y avait que quatre personnes à surveiller, mais contre toute attente, il y en a une autre... » Un murmure s'éleva de la brume noire, et ses yeux s'illuminèrent. Un bras desséché jaillit de la brume et serra impitoyablement la bouteille blanche!
 
 L'énergie originelle qui tentait d'entrer commença à s'effondrer et à se dissiper rapidement.
 

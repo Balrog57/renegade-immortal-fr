@@ -8,7 +8,7 @@ slug: un-seul-acte-brillant-3
 ---
 Continent du Sud, Secte Dao Yi.
 
-Cette secte était la première du Continent du Sud; elle était même célèbre dans l'ensemble du clan céleste. Car un Grand Empyréen nommé Dao Yi était issu de cette secte!
+Cette secte était la première du Continent du Sud, célèbre, et l'une des rares grandes sectes de tout le clan céleste. Car un Grand Empyréen nommé Dao Yi était issu de cette secte!
 
 Dans les montagnes reculées, une cascade retentissait avec fracas. À côté se trouvait un étang où, assis tranquillement, un jeune homme vêtu d'une robe taoïste contemplait l'eau. Il tenait une branche de saule à la main, la laissant pendre au-dessus du bassin comme s'il pêchait.
 
@@ -34,7 +34,7 @@ La belle femme fixa la feuille d'automne devant elle et dit doucement: « Maîtr
 
 Le vieil homme ouvrit les yeux et son regard balaya la feuille.
 
-« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empyréens plus tard et cherchent ardemment à étendre leur pouvoir. Outre la culture du sixième Grand Empyréen, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
+« Si Maître recrutait quiconque franchissait le neuvième palais, le Mont de l'Empereur ne deviendrait-il pas trop bruyant? Le neuvième palais suffit à attirer l'attention de Dao Yi et Wu Feng, car ils sont devenus des Grands Empyréens plus tard et cherchent ardemment à étendre leur pouvoir. Outre la formation d'un sixième Grand Empyréen, ils doivent aussi trouver quelqu'un pour protéger leur réincarnation.
 
 « Mais pour Maître, franchir le neuvième palais n'est rien de plus que des fourmis sur le sol. Qu'importe si une fourmi est un peu plus grande que les autres? Ce n'est que s'il parvenait à franchir le quinzième palais, comme Ming Dao, que Maître envisagerait de le recruter », déclara lentement le vieil homme.
 
@@ -46,7 +46,7 @@ Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions
 
 Dans la terre interdite de la Secte Ziyang, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
 
-Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en jouant avec ses cheveux, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles clignèrent des yeux avant de faire la moue en même temps.
+Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en bâillant, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles clignèrent des yeux avant de faire la moue en même temps.
 
 Un cultivateur se tenait aux côtés de la petite en violet. Il affichait une mine déconfite, accroupi avec une chaîne autour du cou. On aurait dit que des larmes étaient sur le point de couler de ses yeux; il semblait ainsi en raison d'années de dépression, dans un état pitoyable.
 
@@ -86,7 +86,7 @@ Soudain, les 99 planètes changèrent de trajectoire pour foncer vers Wang Lin. 
 
 Les yeux de Wang Lin se contractèrent. Il n'hésita pas à déployer non seulement ses corps véritables des cinq éléments et de l'essence du tonnerre, mais aussi ses trois essences éthérées. Capable de fusionner jusqu'à 23 sorts dans son corps, avec l'aide de ses corps véritables et de ses essences, il atteignit désormais un total de 92 sorts!
 
-C'était la limite de Wang Lin avant de revêtir l'armure de l'âme. Un seul coup de poing ou un simple doigt contenait 92 sorts, ce qui le rapprochait infiniment d'un Ascendant Empyréen.
+C'était la limite de Wang Lin avant de revêtir l'armure de l'âme. Un seul coup de poing ou un simple doigt contenait 92 sorts, ce qui le plaçait infiniment près du sommet des Exaltés Empyréens.
 
 Il leva la main droite, les yeux étincelants. Une douleur vive lui traversa le bras alors qu'il se transformait en Lame Yin, et il abattit son coup sur les 99 planètes de la manière la plus directe qui soit!
 

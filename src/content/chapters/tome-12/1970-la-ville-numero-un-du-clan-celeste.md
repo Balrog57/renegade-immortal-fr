@@ -8,7 +8,7 @@ slug: la-ville-numero-un-du-clan-celeste
 ---
 Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Yang Pourpre: Wang Lin et Liu Jinbiao.
 
-Wang Lin avait cultivé en silence durant une année entière, imprégné de l'aura de sa ville natale qui lui manquait tant. Durant cette période, son essence de bois avait atteint la perfection et était sur le point de former un véritable corps d'essence.
+Wang Lin avait cultivé en silence durant une année entière, imprégné de l'aura de sa patrie qui lui manquait tant. Durant cette période, son essence de bois avait atteint la perfection et était sur le point de former un véritable corps d'essence.
 
 Son véritable corps d'essence du tonnerre, fusionné avec des essences spéciales, avait été achevé au sein de la Secte Dong Lin. Il n'aurait plus besoin de comprendre d'autres essences spéciales; il en possédait suffisamment. Quant à ce corps d'essence des cinq éléments, son essence de bois était proche de la perfection. Seule l'essence de métal restante n'était encore qu'au stade de la petite perfection. Wang Lin comprit que s'il parvenait à obtenir un autre fragment d'épée, l'essence de métal atteindrait sa plénitude.
 
@@ -18,11 +18,11 @@ Enfin, il y avait les essences éthérées. Après le vrai et le faux, la vie et
 
 Il n'en avait saisi qu'un infime fragment. C'était comme s'il venait d'ouvrir la porte pour en obtenir la graine. Il lui faudrait la méditer encore et encore pour atteindre la perfection.
 
-« Atteindre le rang d'Exalté Doré ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est la demeure de l'Ancêtre Céleste. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
+« Atteindre le rang d'Exalté Doré ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est le lieu que l'Ancêtre Céleste a laissé derrière lui. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
 
-Se rendre de la Secte Yang Pourpre du Continent Oriental à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
+Se rendre de la Secte Yang Pourpre du Continent de l'Est à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
 
-La silhouette de Wang Lin fut enveloppée par le vent et la neige. Il fut progressivement recouvert par les flocons alors qu'il utilisait la Distorsion Spatiale pour quitter le Continent Oriental avec Liu Jinbiao et le dragon marin.
+La silhouette de Wang Lin fut enveloppée par le vent et la neige. Il fut progressivement recouvert par les flocons alors qu'il utilisait la Distorsion Spatiale pour quitter le Continent de l'Est avec Liu Jinbiao et le dragon marin.
 
 Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites filles. Elles regardaient au loin, le regard empreint de mélancolie.
 
@@ -30,13 +30,13 @@ Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites fille
 
 « Pourrons-nous encore le revoir...? » demanda doucement Han Han en fixant l'horizon.
 
-Gu Ya soupira et dit: « Cela devrait... être possible... Je lui ai déjà donné le jade. S'il fait face à un danger dans le Continent Central, vous le saurez immédiatement. »
+Gu Ya soupira et dit: « Il devrait... revenir... Je lui ai déjà donné le jade. S'il fait face à un danger dans le Continent Central, vous le saurez immédiatement. »
 
 « C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Gémeaux devra aller à son aide. »
 
 « Oui, c'est certain. Puisque le petit Wang Lin nous a choisis, nous ne laisserons personne l'intimider! » Wa Wa regarda Han Han, et les deux fillettes hochèrent la tête avec sérieux.
 
-Le Continent Central, cœur du clan céleste, était vaste et saturé d'énergie céleste. En son centre trônait la cité impériale.
+Le Continent Central, cœur du clan céleste, était vaste, saturé d'énergie céleste et riche en talents et en lieux sacrés. En son centre trônait la cité impériale.
 
 Cette ville était immense, assez grande pour être comparée à un continent. Elle était infinie et constituait la ville numéro un du clan céleste!
 
@@ -76,7 +76,7 @@ Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'ê
 
 C'était une structure de pouvoir interne à la Cité Ancestrale que peu d'étrangers connaissaient aussi en détail; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gémeaux avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
-Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Il faudrait plusieurs mois pour que les vents glaciaux et la neige qui balayaient le Continent Oriental recouvrent le Continent Central.
+Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Plusieurs mois s'étaient déjà écoulés lorsque les vents glacés et la neige venus du Continent de l'Est recouvrirent le Continent Central.
 
 C'était la première neige de la Cité Ancestrale. Elle était abondante, couvrant près de la moitié de la cité. Alors que la neige s'accumulait devant la porte orientale, même l'horizon devenait flou.
 
@@ -86,7 +86,7 @@ Ce jour-là, devant la porte orientale de la Cité Ancestrale, là où la neige 
 
 Son chapeau de bambou dissimulait ses traits, mais sa stature ne suggérait pas celle d'un vieillard, mais plutôt celle d'un jeune homme. Pourtant, peu importait la violence de la tempête sur son corps, elle ne parvenait pas à effacer l'aura antique qu'il dégageait.
 
-À plusieurs centaines de milliers de kilomètres de la Cité Ancestrale, l'homme s'arrêta. Il leva lentement les yeux, et son regard sembla percer le rideau de neige pour contempler la cité au loin.
+À plusieurs dizaines de milliers de kilomètres de la Cité Ancestrale, l'homme s'arrêta. Il leva lentement les yeux, et son regard sembla percer le rideau de neige pour contempler la cité au loin.
 
 « Empereur Céleste... je viens... » Wang Lin fixa l'horizon et laissa la neige se déposer sur son manteau de paille, effaçant ses traces.
 
@@ -102,19 +102,19 @@ Wang Lin tenait profondément à ses sentiments envers son amante, sa famille et
 
 En perdre un représenterait une véritable perte.
 
-Le fou l'avait aidé. Après les soixante années passées avec lui dans le Dao des Rêves de l'Étoile Zhuque, il ne pouvait partir sans revoir cet homme. Il voulait savoir si son vieil ami allait bien.
+Le fou l'avait aidé. Après les soixante années passées avec lui dans le Dao des Rêves de la planète Suzaku, il ne pouvait partir sans revoir cet homme. Il voulait savoir si son vieil ami allait bien.
 
 C'était avec de telles pensées qu'il était venu.
 
 Le vent cinglait son corps et la neige barrait sa route. Au crépuscule de ce jour, Wang Lin arriva devant la porte orientale. Comparé à cette cité orgueilleuse, il n'était qu'une minuscule fourmi.
 
-Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyréens et la mystérieuse Secte du Dao. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Guo Dao en auraient le courage.
+Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyréens et la mystérieuse Secte du Dao. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Gu Dao en auraient le courage.
 
 Au crépuscule, le ciel était gris. Tandis que le vent et la neige soufflaient, Wang Lin franchit la porte orientale. Son pied toucha le sol à l'intérieur de la Cité Ancestrale.
 
 Une puissante pression céleste se jeta sur lui dès qu'il pénétra la cité. Elle était suffisante pour briser le corps de n'importe quel mortel, mais les cultivateurs parvenaient tout juste à la supporter. Pour celui qui pratiquait ici, l'effet était encore supérieur à celui des plus prestigieuses sectes.
 
-Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nul besoin de forcer la culture de cette énergie céleste. Marchant dans les rues de la ville, Wang Lin observa les alentours.
+Cependant, cette pression céleste n'eut aucun effet sur Wang Lin. Il n'avait nul besoin de forcer la culture de cette énergie céleste. Marchant sur les dalles de pierre bleue des rues de la ville, Wang Lin observa les alentours.
 
 Au milieu du vent et de la neige, de nombreux passants marchaient rapidement. Même s'ils possédaient une certaine culture, aucun d'eux ne volait; ils se contentaient de marcher comme des mortels.
 

@@ -22,7 +22,7 @@ Si l'on possédait déjà une essence éthérée lors du franchissement de la Po
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 
-Cette méthode était très singulière, mais elle prouvait que tous les cultivateurs pensent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de culture de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
+Cette méthode était très singulière, mais elle prouvait que les cultivateurs pensent souvent de la même manière. Leur procédé consistait à faire cultiver leurs innombrables âmes de Flamme Joss. La vitesse de culture de ces âmes augmentait considérablement grâce à l'aide du cultivateur de la troisième étape. Ils créaient des montagnes, des rivières et des cycles, de sorte que les êtres vivant dans le royaume de la Flamme Joss ne se doutent même pas qu'ils évoluent dans un monde illusoire.
 
 Cela permettait aux âmes de la Flamme Joss d'acquérir un pouvoir illusoire et, au fil des éons, une âme dotée d'une essence éthérée finissait par naître.
 

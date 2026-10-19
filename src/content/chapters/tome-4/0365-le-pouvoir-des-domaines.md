@@ -118,9 +118,9 @@ Deux sphères de lumière éclatèrent pour former un homme et une femme. L'homm
 
 La silhouette de Li Muwan apparut dans l'orbe, fixant Wang Lin de ses yeux emplis de tristesse.
 
-« Haine! » Teng Huayuan déchira l'orbe de lumière et en sortit. Il tenait d'innombrables âmes entre ses mains; les âmes de la famille Wang hurlaient leur agonie.
+« Haine! » Teng Huayuan déchira l'orbe de lumière et en sortit. Il tenait d'innombrables âmes entre ses mains; les âmes de la famille Wang l'imploraient dans la douleur.
 
-« Reconnaissance! » Les trois générations de Da Niu apparurent, fixant Wang Lin avec confusion. Il ouvrit la bouche pour parler, mais aucun son ne put sortir.
+« Compréhension! » Les trois générations de Da Niu apparurent, fixant Wang Lin avec confusion. Il ouvrit la bouche pour parler, mais aucun son ne put sortir.
 
 Le corps de Wang Lin s'immobilisa et il s'assit en tailleur. Son âme originelle jaillit et proclama: « Sous la réincarnation... Dao céleste de la vie et de la mort! »
 
@@ -144,6 +144,6 @@ Wang Lin murmura doucement: « Même une personne impitoyable ne peut échapper 
 
 Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un doigt gigantesque et s'abattit sur l'avatar de Papillon Rouge.
 
-Le corps de l'avatar trembla. Elle secoua la tête, esquissa un sourire amer et dit: « Si j'avais pu atteindre le stade de la Transformation de l'Âme, même le cycle de la réincarnation serait soumis à l'impitoyabilité. Si le cycle de la réincarnation des cieux n'était pas impitoyable, alors il ne s'agirait plus du cycle de la réincarnation des cieux... Quel dommage... »
+Le corps de l'avatar trembla. Elle secoua la tête, esquissa un sourire amer et dit: « Si j'avais pu atteindre le stade de la Transformation de l'Âme, même le cycle de la réincarnation contiendrait nécessairement de l'impitoyabilité. Si le cycle de la réincarnation des cieux n'était pas impitoyable, alors il ne s'agirait plus du cycle de la réincarnation des cieux... Quel dommage... »
 
 L'avatar poussa un soupir et se dissipa.

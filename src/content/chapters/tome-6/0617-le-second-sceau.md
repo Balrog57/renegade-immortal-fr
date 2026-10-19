@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 617 - The Second Seal
 slug: le-second-sceau
 ---
-Wang Lin réfléchissait. Plus il séjournait dans la Terre des Esprits Démoniaques, plus tout devenait étrange. D'abord, ce fut le tableau de Huanglong. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
+Wang Lin réfléchissait. Plus il séjournait dans la Terre des Esprits Démoniaques, plus tout devenait étrange. D'abord, ce fut le tableau de Huang Long. Ensuite, les deux Mo Fei qui étaient parfaitement identiques. Enfin, cet homme imposant dont l'apparence ressemblait étrangement à celle de Ling Tianhou.
 
 Le regard de Wang Lin vacilla et il murmura pour lui-même: « L'Omniscient suit la volonté des cieux. S'il insiste pour que je vienne ici, c'est qu'il a ses propres motifs... De plus, lorsque j'étais sur la planète Tian Yun, Bai Wei avait souligné qu'une grande majorité des disciples de l'Omniscient âgés de plus de dix mille ans avaient disparu. J'ignore si la disparition de ces aînés a un lien avec cette Terre des Esprits Démoniaques. »
 
@@ -14,19 +14,19 @@ Wang Lin toucha son sac de rangement et ses yeux devinrent glacials. Il pensa: �
 
 Wang Lin ferma les yeux tandis que son âme originelle continuait de graver son empreinte sur le démon dispersé. Il approfondit cette empreinte dans l'âme du démon, consolidant ainsi son contrôle.
 
-Par ailleurs, à mesure que la Tribu de Raffinement des Âmes s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de Raffinement des Âmes entraînait la creuse de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
+Par ailleurs, à mesure que la Tribu de l'Affinement de l'Âme s'accroissait, de plus en plus de personnes commençaient à cultiver le sortilège de raffinage des âmes. Comme il s'agissait d'un ancien champ de bataille, le lieu regorgeait de fragments d'âmes. Bien que la plupart fussent enfouis profondément sous terre, l'expansion de la Tribu de l'Affinement de l'Âme entraînait le creusement de vastes excavations. La culture au fond de ces fosses était devenue une méthode unique pour pratiquer le sortilège de raffinage des âmes.
 
 Ceci n'était qu'une des méthodes. L'autre consistait à se rendre au Pays des Démons de Feu pour absorber les âmes de tous les soldats démons décédés.
 
 Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture étaient qualifiés pour s'y rendre. Quiconque souhaitait tenter l'aventure seul devait être personnellement évalué par Ouyang Hua avant d'en recevoir la permission.
 
-La Tribu de Raffinement des Âmes progressait à une vitesse fulgurante! Une telle croissance était rare. La tribu était comme un cocon absorbant ses nutriments; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays!
+La Tribu de l'Affinement de l'Âme progressait à une vitesse fulgurante! Cette croissance augmentait chaque jour. La tribu était comme un cocon absorbant ses nutriments; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays!
 
 Dans l'esprit des membres de la tribu, la tour centrale était leur terre sacrée. Un lieu sacré que nul ne devait souiller, comme si les dieux y résidaient! Quant à Wang Lin, qui n'était pas sorti depuis dix ans, il était leur ancêtre! Leur gardien!
 
 Chaque jour, en plus de renforcer l'empreinte sur le démon dispersé, il créait d'innombrables restrictions qu'il plaçait sur le drapeau des restrictions. Au cours de ces dix dernières années, Wang Lin avait continué à déduire toujours plus de restrictions, s'approchant lentement du seuil de 9 999 ensembles.
 
-L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de Raffinement des Âmes. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
+L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de l'Affinement de l'Âme. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
 
 Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Anti-Dieux. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
 
@@ -42,7 +42,7 @@ Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieill
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 
-Le piège à bêtes lui avait été confié par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
+Le piège à bêtes lui avait été confié dans la Terre de l'Ancien Dieu par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
 
 Mais maintenant que le niveau de culture de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête!
 
@@ -50,7 +50,7 @@ Wang Lin réfléchit un instant avant de frapper son sac de rangement, faisant j
 
 En observant le piège, les yeux de Wang Lin trahirent une hésitation. Sans l'aide de cet artefact, il devrait utiliser sa propre force pour soumettre totalement la bête spirituelle. Il devait suivre la méthode laissée par son créateur pour accomplir l'héritage, sans quoi ce trésor serait inutile.
 
-Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redressa. Il disparut de la tour et réapparut à cinq mille kilomètres de la Tribu de Raffinement des Âmes.
+Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redressa. Il disparut de la tour et réapparut à cinq mille kilomètres de la Tribu de l'Affinement de l'Âme.
 
 L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Anti-Dieux.
 
@@ -64,7 +64,7 @@ C'était comme si une main gigantesque descendait du ciel. Après un rugissement
 
 La poussière s'éleva en un large cercle et toute la terre trembla. La bête spirituelle releva la tête, ses yeux brûlant d'une volonté de lutte. Elle poussa un rugissement féroce en fixant Wang Lin, et son aura indomptable explosa.
 
-Wang Lin regarda calmement la bête. Lui, autrefois, n'aurait pu rivaliser avec elle. Mais désormais, il pouvait facilement la supprimer au point qu'elle ne puisse plus se libérer.
+Wang Lin regarda calmement la bête. Lui, autrefois, n'aurait pu rivaliser avec elle. Mais désormais, il pouvait facilement la contenir au point qu'elle ne puisse plus se libérer.
 
 Sa main droite maintenait la bête à distance. Wang Lin mordit le bout de sa langue, puis commença lentement à tracer des symboles dans l'air jusqu'à ce qu'un symbole de sang se condense. Ce symbole avait été laissé par le créateur du Char de Guerre Anti-Dieux. Il y avait au total sept symboles et, une fois les sept placés, le char reconnaîtrait véritablement son maître!
 
@@ -82,11 +82,11 @@ La lumière noire s'élança avec le symbole pour atterrir sur la bête spiritue
 
 Le corps de Wang Lin ne bougea pas; il fit une nouvelle fois un mouvement de la main droite! Cela créa une bourrasque qui prit la forme d'une paume et percuta la bête. Un fracas retentit alors que la gueule massive de la bête était brisée par l'impact! La créature recula immédiatement. En se retirant, son corps se transforma en volutes de gaz noir qui se dispersèrent dans toutes les directions pour charger Wang Lin avec fureur.
 
-Les deux mains de Wang Lin commencèrent à tracer des formes dans le vide, faisant apparaître deux symboles de sang. À ce moment précis, toute la lumière noire pénétra le corps de Wang Lin et se précipita vers son âme originelle. Un sourire narquois apparut sur les lèvres de Wang Lin et une lueur dorée jaillit de ses yeux.
+Les deux mains de Wang Lin commencèrent à tracer des formes dans le vide, faisant apparaître deux symboles de sang. À ce moment précis, toute la lumière noire pénétra le corps de Wang Lin et se précipita vers son âme originelle. Un sourire narquois apparut sur les lèvres de Wang Lin et un éclat vif jaillit de ses yeux.
 
 « Âme originelle, sors! » rugit Wang Lin tandis que ses yeux se fermaient légèrement. Son âme originelle s'envola alors, saisissant la bête spirituelle par le cou.
 
-Les deux symboles de sang volèrent rapidement et furent captés par la main gauche de l'âme originelle de Wang Lin. Il les pressa ensuite fermement entre les sourcils de la bête. Le corps de la créature trembla, puis une aura encore plus puissante jaillit. Cette fois, elle parvint inopinément à se libérer de l'âme originelle de Wang Lin.
+Les deux symboles de sang volèrent rapidement et furent captés par la main gauche de l'âme originelle de Wang Lin. Il les pressa ensuite fermement entre les sourcils de la bête. Le corps de la créature trembla, puis une aura encore plus puissante jaillit. Cette fois, elle parvint inopinément à repousser le Sens Divin de Wang Lin.
 
 L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fixa la bête.
 

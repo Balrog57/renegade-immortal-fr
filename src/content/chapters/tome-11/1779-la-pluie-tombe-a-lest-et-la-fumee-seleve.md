@@ -40,7 +40,7 @@ Ce jade était d'une clarté cristalline et n'avait rien d'ordinaire; lorsqu'il 
 
 Cependant, le reflet de Wang Lin dans la rivière différait grandement de son apparence habituelle. Son visage présentait des lèvres rouges, des dents blanches, des sourcils en forme d'épée et des yeux semblables à des étoiles. Ses yeux étaient particulièrement profonds, comme s'ils contenaient une puissance infinie. Devant un tel regard, les hommes étaient condamnés à la déférence et les femmes à l'admiration.
 
-Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était l'être le plus beau que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Cupidité!
+Il avait l'apparence d'un jeune homme d'environ 18 ou 19 ans. C'était le plus bel homme que Wang Lin ait jamais vu de sa vie. Pourtant, si l'on ajoutait au visage le poids du temps et la mélancolie de l'existence, il devenait extrêmement similaire à la statue que Wang Lin avait prise à Cupidité!
 
 En contemplant son reflet dans la rivière, Wang Lin gardait une expression étrange, même après deux mois passés ici.
 
@@ -74,7 +74,7 @@ Le jeune homme devant lui faisait partie de ceux qui le harcelaient régulièrem
 
 Le Souverain Céleste aux Sept Couleurs n'attira l'attention de l'Ancêtre que plus de dix ans plus tard, avant d'être progressivement soutenu par la secte.
 
-Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta devant lui. Le visage du garçon pâlit et ses yeux se remplirent d'effroi; il ne pouvait concevoir un tel changement.
+Toutefois, Wang Lin n'était pas Su Dao, et il n'avait pas l'intention de laisser l'histoire se répéter. Alors que le jeune homme reculait, terrifié, Wang Lin fit un pas en avant et se posta à ses côtés. Le visage du garçon pâlit et ses yeux se remplirent d'effroi; il ne pouvait concevoir un tel changement.
 
 Il était parti depuis un certain temps et n'était revenu qu'hier. Il ne s'attendait pas à ce que ce Su Dao devienne soudainement une personne différente. Auparavant, Su Dao se laissait harceler comme bon leur semblait.
 

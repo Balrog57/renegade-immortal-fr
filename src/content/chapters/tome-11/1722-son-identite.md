@@ -12,7 +12,7 @@ L'Omniscient se trouvait dans une pièce secrète dissimulée au sein de la Sect
 
 Les yeux de l'Omniscient brillaient d'une lueur étrange tandis qu'il les contemplait. Il ouvrit la bouche et inspira profondément. Les neuf jeunes furent alors dévorés par lui.
 
-Son corps trembla et son expression trahit une vive douleur. Il ferma lentement les yeux et sombra dans le sommeil. Des années passèrent. Après un temps indéterminé, l'Omniscient rouvrit les yeux, le regard empreint d'une clarté absolue.
+Son corps trembla et son expression trahit une vive douleur. Il ferma lentement les yeux et sombra dans le sommeil. Des années passèrent. Après un temps indéterminé, l'Omniscient rouvrit les yeux, le regard empreint d'une lueur de compréhension.
 
 « C'est mon 97e éveil... Le prochain candidat pour mon sommeil et mon réveil est Ling Tianhou! »
 
@@ -20,7 +20,7 @@ Wang Lin observait tout cela avec une expression calme, mais une vague de troubl
 
 « Il doit être l'une des trois âmes ou l'un des sept fragments du Souverain Céleste aux Sept Couleurs. Seule cette hypothèse peut expliquer comment il s'éveille de manière répétée! » Wang Lin fixa l'Omniscient, son regard devenant glacial.
 
-L'image changea une fois de plus, montrant l'Omniscient à différentes époques. Jusqu'à ce qu'il voie, à un moment donné, l'Omniscient assis sur une planète sauvage et inculte. Après avoir dévoré le cultivateur qu'il avait sélectionné, il s'était éveillé une fois de plus.
+L'image changea une fois de plus, montrant l'Omniscient à différentes époques. Jusqu'à ce qu'il voie, à un moment donné, l'Omniscient assis sur une planète sauvage et inculte. Après avoir dévoré les cultivateurs qu'il avait sélectionnés, il s'était éveillé une fois de plus.
 
 Il quittait la planète et, alors qu'il volait dans les airs, il s'arrêta soudainement. Il regarda en bas et aperçut une planète de culture terne, jaunâtre et à moitié abandonnée.
 
@@ -42,7 +42,7 @@ Les yeux du premier Omniscient apparu dans la partie orientale de la Rivière In
 
 « Ce vieil homme dormira pour la dernière fois et s'éveillera pour la dernière fois. Cette fois, je mènerai à bien mon plan de réincarnation à travers les âges! » Il ferma les yeux et son doigt pénétra lentement son crâne.
 
-À cet instant, les corps de l'Omniscient s'effondrèrent soudainement, et des grondements tonitruants résonnèrent à travers les quatre systèmes stellaires. Les 3 000 Omniscients s'écroulèrent, et une âme jaillit de chacun d'eux. Chaque âme se précipita vers l'avatar de Wang Lin!
+À cet instant, les corps de l'Omniscient s'effondrèrent soudainement, et des grondements tonitruants résonnèrent à travers les quatre systèmes stellaires. Près de 3 000 Omniscients s'écroulèrent, et une âme jaillit de chacun d'eux. Chaque âme se précipita vers l'avatar de Wang Lin!
 
 « Voyons si tu es plus rapide que moi! Lorsque ce vieil homme complotait contre toi, tu n'étais qu'un simple cultivateur de l'Âme Naissante. Sans lui, ton corps aurait déjà pourri! Tout ce que tu es m'appartient! » Les 3 000 âmes chargèrent, projetant des ondes de force d'âme qui fusionnèrent entre elles. Cela créa un son fracassant qui résonna dans l'esprit de l'avatar de Wang Lin.
 
@@ -62,7 +62,7 @@ Les dévorations répétées, parfois multiples, parfois uniques, furent toutes 
 
 « Quelle est donc l'identité de l'Omniscient pour dépendre de la dévoration pour s'éveiller? Et que cherche-t-il à éveiller? »
 
-À l'extérieur, dans la Rivière Invoquée, les centaines d'avatars de l'Omniscient convergèrent vers Wang Lin et pénétrèrent dans son avatar.
+À l'extérieur, dans la Rivière Invoquée, les centaines d'âmes de l'Omniscient convergèrent vers Wang Lin et pénétrèrent dans son avatar.
 
 L'expression de l'avatar de Wang Lin restait calme; il demeurait assis là, comme s'il ne se souciait guère de leur intrusion. L'âme de l'avatar de l'Omniscient devint de plus en plus puissante jusqu'à occuper la quasi-totalité du corps de Wang Lin.
 
@@ -70,15 +70,15 @@ L'expression de l'avatar de Wang Lin restait calme; il demeurait assis là, comm
 
 Le corps original de Wang Lin vit les éveils de l'Omniscient se succéder encore et encore, jusqu'au troisième éveil. Ce n'était plus l'époque de la culture ancienne, mais celle de la culture immémoriale!
 
-Le système stellaire de l'ère immémoriale était foisonnant de planètes. Il y avait là des cultivateurs et non des êtres célestes, car les Royaumes Célestes n'existaient pas encore. Ils cultivaient l'aura du monde.
+Le système stellaire de l'ère immémoriale était foisonnant de planètes. Il y avait là des cultivateurs et non des êtres célestes, car les Royaumes Célestes n'existaient pas encore. Ils cultivaient leur propre force et percevaient le souffle du monde.
 
 Un vieil homme vêtu d'une peau de bête gisait au sol, entouré de bois et de flammes. Il était déjà mort et son corps était en train d'être brûlé par son clan.
 
-Des centaines de personnes, vêtues de vêtements similaires, étaient agenouillées et chantaient doucement.
+Des centaines de personnes, vêtues de vêtements similaires, étaient agenouillées et murmuraient doucement.
 
-Cependant, à cet instant précis, le vieil homme qui aurait dû être mort ouvrit les yeux. Une pointe de confusion traversa son regard avant d'être remplacée par une totale indifférence. Il se redressa lentement, au grand choc des personnes environnantes. Le vieil homme esquissa un sourire étrange avant d'ouvrir soudainement la bouche et d'aspirer!
+Cependant, à cet instant précis, le vieil homme qui aurait dû être mort ouvrit les yeux. Une pointe de confusion traversa son regard avant d'être remplacée par une froideur implacable. Il se redressa lentement, au grand choc des personnes environnantes. Le vieil homme esquissa un sourire étrange avant d'ouvrir soudainement la bouche et d'aspirer!
 
-Sur ce, les centaines de personnes furent dévorées avec le feu. La planète entière commença à trembler et à s'effondrer. Une gueule gigantesque apparut et engloutit la planète d'une manière inimaginable!
+Sur ce, les centaines de personnes furent dévorées, et le bûcher lui-même fut englouti. La planète entière commença à trembler et à s'effondrer. Une gueule gigantesque apparut et engloutit la planète d'une manière inimaginable!
 
 « C'est mon troisième éveil... Je me souviens que lors de mon deuxième éveil, j'ai dévoré le septième fragment du Souverain Céleste aux Sept Couleurs! » Dans le ciel, le vieil homme au sein de l'illusion se lécha les lèvres en souriant.
 
@@ -104,9 +104,9 @@ Dès que le fragment d'âme apparut, une faille gigantesque surgit et le dévora
 
 Après avoir consommé l'âme, la faille se referma et un jeune homme apparut lentement. Le corps de ce jeune homme émettait une lueur fantomatique. D'abord confus, son regard devint bientôt limpide.
 
-« Le septième fragment d'âme du Souverain Céleste aux Sept Couleurs... C'était délicieux... Je l'ai beaucoup aidé, mais maintenant qu'il est mort, personne ne peut me contrôler... Malheureusement, ses trois âmes sont trop puissantes; une fois séparées de mon corps, je n'oserais pas les dévorer... Cependant, en empruntant le pouvoir de cette âme, je peux croître... De même, peut-être qu'après de très nombreuses années, je pourrai m'en servir pour recréer le Souverain Céleste aux Sept Couleurs complet. À ce moment-là, je serai les Sept Couleurs... Mais par-dessus tout, c'est ma propre croissance qui importe... » L'expression du jeune homme ne changea pas. Il leva la main droite et tira sur le coin de ses lèvres pour donner l'illusion d'un sourire.
+« Le septième fragment d'âme du Souverain Céleste aux Sept Couleurs... C'était délicieux... Je l'ai beaucoup aidé, mais maintenant qu'il est mort, personne ne peut me contrôler... Malheureusement, ses trois âmes sont trop puissantes; une fois séparées de mon corps, je n'oserais pas les dévorer... Cependant, en fusionnant avec ce tout premier fragment et en empruntant son pouvoir, je peux croître... De même, peut-être qu'après de très nombreuses années, je pourrai m'en servir pour recréer le Souverain Céleste aux Sept Couleurs complet. À ce moment-là, je serai les Sept Couleurs... Mais par-dessus tout, c'est ma propre croissance qui importe... » L'expression du jeune homme ne changea pas. Il leva la main droite et tira sur le coin de ses lèvres pour donner l'illusion d'un sourire.
 
-« Je dois d'abord apprendre à devenir un cultivateur. Je vais faire en sorte que personne, pas même les trois âmes et les sept fragments des Sept Couleurs, ne puisse reconnaître qui je suis... Je vais reprendre le contrôle de la réincarnation... »
+« Je dois d'abord apprendre à devenir un cultivateur. Je vais faire en sorte que personne, pas même les trois âmes et les six autres fragments des Sept Couleurs, ne puisse reconnaître qui je suis... Je vais reprendre le contrôle de la réincarnation... »
 
 Wang Lin fixa le jeune homme, frappé par une immense stupeur. Il savait qui était cette personne!
 

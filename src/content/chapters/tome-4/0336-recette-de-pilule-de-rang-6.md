@@ -18,7 +18,7 @@ Wang Lin réfléchit un instant. Il frappa son sac de rangement et une sculpture
 
 Elle contenait également plusieurs veines sanguines; cette sculpture en bois était donc semblable à une marionnette, sans limite quant au nombre de fois qu'elle pouvait être utilisée. Un tel trésor serait extrêmement précieux pour les cultivateurs de la Mer des Démons.
 
-Les yeux du vieil homme aux cheveux blancs s'illuminèrent lorsqu'il jeta un coup d'œil à la sculpture. Il fut profondément ému. Ce qui l'intéressait n'était pas l'objet en lui-même, mais la méthode utilisée pour sa fabrication.
+Les yeux du vieil homme aux cheveux blancs s'illuminèrent lorsqu'il jeta un coup d'œil à la sculpture. Il fut légèrement ému. Ce qui l'intéressait n'était pas l'objet en lui-même, mais la méthode utilisée pour sa fabrication.
 
 Le Pavillon de Raffinage des Trésors était célèbre pour son expertise dans le raffinage d'objets précieux. Ce vieil homme étant un maître en la matière, il fut capable de remarquer instantanément l'anomalie de la sculpture.
 
@@ -28,7 +28,7 @@ Wang Lin sortit la sculpture, la lança sur la scène et déclara: « J'offre ce
 
 Xu Luo, qui surveillait attentivement le troisième étage, l'attrapa immédiatement lorsqu'il vit la sculpture être jetée. Il la remit ensuite à plusieurs experts en évaluation de trésors. Dès que ces derniers virent l'objet, leurs expressions changèrent et ils commencèrent à débattre à voix basse.
 
-Le vieil homme aux cheveux blancs réfléchit un instant, puis son regard devint soudainement sérieux. Il interrogea Wang Lin: « Camarade cultivateur, les veines sanguines à l'intérieur de cette sculpture ne seraient-elles pas issues de la technique de création de marionnettes de Xue Yue? »
+Le vieil homme aux cheveux blancs réfléchit un instant, puis son regard devint soudainement sérieux. Il interrogea Wang Lin: « Camarade cultivateur, les veines sanguines à l'intérieur de cette sculpture ne seraient-elles pas issues de la technique des marionnettes de glace de Xue Yue? »
 
 Wang Lin regarda le vieil homme. Il fut surpris qu'il puisse la reconnaître. Cependant, après réflexion, ce vieil homme devait avoir vécu très longtemps et, en tant que chef du Pavillon de Raffinage des Trésors, il avait dû voir énormément de choses.
 
@@ -38,7 +38,7 @@ Wang Lin hocha la tête. À cet instant précis, les évaluateurs relevèrent la
 
 Wang Lin fronça les sourcils. La valeur de cet objet était certainement bien supérieure à 5 000 pierres spirituelles de haute qualité.
 
-Le vieil homme fronça également les sourcils. Il émit un grognement, comme s'il transmettait un message par la voix. Ces évaluateurs n'y comprenaient rien. Avec sa culture, il pouvait affirmer que les seules veines sanguines à l'intérieur de l'objet valaient plusieurs fois ce prix, sans même tenir compte de la fraction de domaine qu'elle contenait.
+Le vieil homme fronça également les sourcils. Il émit un grognement, comme s'il transmettait un message par la voix. Ces évaluateurs n'y comprenaient rien. Avec sa culture, il pouvait affirmer que les seules veines sanguines à l'intérieur de l'objet suffiraient à doubler sa valeur, sans même tenir compte de la fraction de domaine qu'elle contenait.
 
 Ces 5 000 pierres spirituelles ne suffiraient même pas pour la recette de pilule, dont le prix était déjà fixé à 10 000 pierres spirituelles.
 
@@ -98,7 +98,7 @@ Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en fai
 
 La jeune fille rattrapa le jade, prit une profonde inspiration et dit: « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
-L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette junior est issue de la Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
+L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette junior est issue de la Secte Piao Miao de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée des Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
 
 Sur ces mots, elle afficha un air de tristesse, se mordit la lèvre et attendit la réponse de Wang Lin.
 
@@ -108,7 +108,7 @@ Sur ces mots, il disparut dans un rayon de lumière arc-en-ciel.
 
 La jeune fille regarda l'endroit où Wang Lin avait disparu avec un air de désespoir. Elle avait initialement perdu espoir, mais lorsqu'elle avait aperçu Wang Lin au troisième étage, le vieil homme à ses côtés lui avait assuré qu'il était un cultivateur de la Formation de l'Âme. Cela avait ravivé l'espoir dans son cœur. Puis, en voyant le vieil homme du Pavillon de Raffinage des Trésors, elle s'était sentie encore plus confiante. C'était pour cela qu'elle avait acheté la recette: son but était d'attirer Wang Lin.
 
-Wang Lin n'avait effectivement pas le temps. La recette concernait la pilule de rang 6 "Retour à l'Origine", une substance que même les cultivateurs des pays de rang 1 ou 2 pouvaient raffiner. Cependant, ceux qu'ils produisaient n'étaient que des pilules de rang 1 ou 2.
+Wang Lin n'avait effectivement pas le temps. La recette concernait la pilule de rang 6 "Retour à l'Origine", une pilule que même les cultivateurs des pays de rang 1 ou 2 pouvaient raffiner. Cependant, ceux qu'ils produisaient n'étaient que des pilules de rang 1 ou 2.
 
 La pilule Retour à l'Origine n'avait qu'un seul usage: multiplier par plusieurs la vitesse à laquelle un être pouvait absorber l'énergie spirituelle du ciel et de la terre. La version de rang 6 faisait la même chose, mais avec une vitesse d'absorption terrifiante. Toutefois, cette pilule avait une limite: on ne pouvait en consommer qu'une seule tous les 100 ans. Si quelqu'un en prenait davantage, son corps serait transformé en cristal par l'excès d'énergie spirituelle.
 

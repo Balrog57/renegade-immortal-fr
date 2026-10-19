@@ -40,7 +40,7 @@ Un cultivateur de l'Alliance s'approcha à son tour. Vêtu d'une robe de python,
 
 Le cultivateur de l'Alliance ricana. Loin de s'arrêter, il accéléra encore en murmurant: « Ainsi, même le Céleste du Tonnerre Xu Mu convoite la beauté de ce cadavre! »
 
-Une lueur glaciale passa dans les yeux de Wang Lin. Alors que le cultivateur de l'Alliance allait atteindre le corps, Wang Lin pointa sa main droite et dit doucement: « Arrête! »
+Une lueur glaciale passa dans les yeux de Wang Lin. Alors que le cultivateur de l'Alliance allait atteindre le corps, Wang Lin pointa sa main droite et dit doucement: « Immobile! »
 
 Le cultivateur de l'Alliance trembla. C'était comme s'il avait été pris au piège par d'innombrables fils invisibles, le laissant totalement immobile.
 
@@ -52,7 +52,7 @@ Wang Lin ne s'arrêta pas là. Il saisit directement le cadavre féminin et dép
 
 Une lueur blanche jaillit et le cultivateur fut projeté en arrière. Son visage pâlit et il cracha une large bouchée de sang, mais il ne mourut pas. Au lieu de cela, il lança un regard venimeux à Wang Lin et recula en se tenant la poitrine.
 
-Tenant le cadavre féminin, Wang Lin le contempla. Une lueur rouge entourait encore le corps, convergeant lentement vers son visage. Si Wang Lin avait ralenti, c'était parce qu'il avait pressenti une anomalie. Ce qui suivit ne fut que la confirmation de ses soupçons: plusieurs cultivateurs venaient de périr.
+Tenant le cadavre féminin, Wang Lin le contempla. Une lueur rouge entourait encore le corps, convergeant lentement vers son visage, puis vers son front. Si Wang Lin avait ralenti, c'était parce qu'il avait pressenti une anomalie. Ce qui suivit ne fut que la confirmation de ses soupçons: plusieurs cultivateurs venaient de périr.
 
 Si ce cadavre n'avait présenté que cette étrange particularité, Wang Lin l'aurait abandonné. Après tout, en pleine guerre, la préservation de soi primait. Cependant, après que le corps eut absorbé l'essence sanguine de trois cultivateurs, des changements s'opérèrent. C'est ce qui le poussa à poursuivre la lutte pour l'obtenir.
 

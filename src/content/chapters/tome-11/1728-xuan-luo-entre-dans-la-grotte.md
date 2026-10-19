@@ -42,7 +42,7 @@ Le pouvoir de la Déchirure du Ciel se manifesta. Le bras droit de Wang Lin éta
 
 Même les deux célestes situés derrière lui ne purent échapper à la force destructrice. Leurs corps furent broyés et leurs âmes d'origine déchirées!
 
-Le corps de Wang Lin vacilla et plongea dans une faille alors que les quatre généraux convergeaient vers lui. Il réapparut au milieu d'un groupe de célestes peu éloigné.
+Le corps de Wang Lin vacilla et plongea dans une faille alors que les quatre généraux convergeaient vers lui. Il réapparut derrière un autre groupe de célestes, non loin de là.
 
 « Déchirure du Ciel! » Dès son apparition, Wang Lin utilisa sans pitié sa technique. Tandis que des cris déchirants retentissaient, sept ou huit célestes s'effondrèrent.
 
@@ -97,7 +97,7 @@ Cependant, même ainsi, la capacité de dévoration du Dao Céleste avait ses li
 
 « Je ne l'ai pas trouvée. » Wang Lin secoua la tête. La Bête des Limbes en dessous de lui lança un regard froid aux cinq individus avant de fermer les yeux et de s'éloigner.
 
-Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et prirent la fuite. Ils n'osaient plus barrer la route à Wang Lin. Ils regardèrent Wang Lin et la Bête des Limbes disparaître au loin, incapables de retrouver leur calme pendant un long moment.
+Dès qu'il eut dépassé les quatre généraux, ceux-ci tremblèrent et reculèrent pour lui laisser la voie libre. Ils n'osaient plus barrer la route à Wang Lin. Ils regardèrent Wang Lin et la Bête des Limbes disparaître au loin, incapables de retrouver leur calme pendant un long moment.
 
 Ils possédaient peut-être des moyens de ne pas craindre le Vieux Fantôme Zhan — après tout, son corps abritait l'âme du Souverain Céleste aux Sept Couleurs — mais face à Wang Lin et au Dao Céleste, ils ne purent que rester silencieux.
 

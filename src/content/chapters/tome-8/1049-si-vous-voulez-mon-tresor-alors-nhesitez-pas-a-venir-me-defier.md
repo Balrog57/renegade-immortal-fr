@@ -50,7 +50,7 @@ Ces deux dernières lames contenaient la puissance la plus destructrice. En un c
 
 Il n'avait pas le temps d'utiliser de sort à une telle distance, et il lui était impossible de renoncer à cette chance de comprendre l'origine source. Bien que cela puisse paraître lent, tout se joua en un instant. En ce moment critique, Maître du Vide agita la main et ses vêtements se mirent à flotter comme sous l'effet d'une tempête. Un vent violet apparut soudainement, formant un tourbillon autour de lui.
 
-Pourtant, dès que le tourbillon se forma, il percuta la 22e épée. Un fracas assourdissant retentit et le tourbillon s'effondra!
+Pourtant, dès que le tourbillon se forma, la 22e épée le percuta. Un fracas assourdissant retentit et le tourbillon s'effondra!
 
 À l'instant même de sa chute, la dernière épée transperça directement la poitrine du Maître du Vide!
 
@@ -68,7 +68,7 @@ Le corps du Maître du Vide trembla et un flot de sang jaillit de sa poitrine. L
 
 « Non!!! » Les yeux du Maître du Vide devinrent rouges comme ceux d'une bête, mais son corps fut projeté loin de l'origine source, impuissant. Dans le même temps, une quantité massive de sang jaillit de lui.
 
-Le troisième œil de Wang Lin brilla et la lumière rouge revint. Presque toute l'origine source avait disparu; il n'en restait qu'un infime fragment.
+Le troisième œil de Wang Lin brilla et la lumière rouge se dissipa. Presque toute l'origine source avait disparu; il n'en restait qu'un infime fragment, que Wang Lin rappela dans son troisième œil.
 
 Wang Lin tenait son épée de fer tandis que son regard glacial se tourna vers la belle femme. L'esprit de cette dernière vacilla sous ce regard. Les sorts et le trésor de Wang Lin l'avaient profondément terrifiée. Elle n'osait plus croiser ses yeux et baissa la tête.
 
@@ -80,7 +80,7 @@ Que ce fût par la ruse ou par la tromperie, il avait réussi à vaincre un cult
 
 Bien qu'il ait disparu, le choc qu'il laissa à la belle femme, à l'homme en noir et au Maître du Vide perdura longtemps.
 
-La peur dans les yeux de l'homme en noir ne pouvait s'estomper. La simple pensée des vingt-trois épées invoquées par Wang Lin lui glaçait le sang. Bien qu'il sût que Wang Lin avait probablement épuisé toute sa force pour les invoquer et n'essayait que de se donner une contenance, il n'osait pas parier sur cette hypothèse.
+La peur dans les yeux de l'homme en noir ne pouvait s'estomper. La simple pensée des vingt-trois épées invoquées par Wang Lin lui glaçait le sang. Bien qu'il sût que Wang Lin était à bout de forces après avoir déployé ces vingt-trois épées, il n'osait pas parier sur cette hypothèse.
 
 Cette attaque des vingt-trois épées lui avait fait perdre une partie de sa confiance.
 

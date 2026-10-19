@@ -46,7 +46,7 @@ Dès que les os disparurent, le feu bleu se précipita vers le vieil homme comme
 
 Cette fente émettait une lueur noire, telle un troisième œil!
 
-« En tant que descendant du Clan de l'Extermination Scellée, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme révéla son identité et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement de plusieurs décennies.
+« En tant que descendant du Clan de l'Extermination Scellée, j'invoque le sort ancestral de mon clan pour sceller son tatouage de feu! » Alors que les flammes approchaient, le vieil homme révéla son identité et la lumière noire entre ses sourcils jaillit. Cette lueur forma une rune complexe qui semblait absorber la vitalité même du vieillard. Ce dernier vieillit subitement à l'extrême.
 
 La rune noire se projeta vers Wang Lin à une vitesse inimaginable. Elle perça la mer de feu bleu et vint se fixer entre les sourcils de ce dernier!
 
@@ -78,7 +78,7 @@ En pointant le ciel, Wang Lin s'était transformé en un membre du Clan du Tonne
 
 Alors que sa main droite redescendait, l'innombrable tonnerre qui emplissait le royaume chargea le vieil homme. Les lacs de tonnerre au sol s'élancèrent dans les airs pour fondre également sur lui.
 
-C'était comme une divine rétribution! Et Wang Lin en était le maître!
+C'était comme une tribulation céleste! Et Wang Lin en était le maître!
 
 « Même la puissance de son tonnerre suffit à combattre un cultivateur du Briseur du Nirvana. Je dois tuer cet homme. Pas étonnant que le Souverain veuille sa mort. S'il survit, il sera une calamité pour mon Haut Clan Ancestral! » Le vieil homme poussa un rugissement et s'élança dans les airs. Il leva la main droite et une lueur étrange envahit son regard. L'énergie originelle du monde se précipita inopinément dans sa paume!
 

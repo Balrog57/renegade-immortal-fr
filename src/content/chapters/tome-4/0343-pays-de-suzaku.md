@@ -19,7 +19,7 @@ Papillon Rouge ouvrit les yeux et répondit froidement: « Chaque fois que je co
 
 « Ceng Niu! » Une lueur d'intention meurtrière traversa les yeux de l'homme d'âge moyen.
 
-« Ceng Niu voulait détruire mon Dao de cœur; cependant, parce qu'il m'a pris le bras, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Je me réjouis que le Mont Suzaku veuille qu'il m'affronte! » Papillon Rouge leva la tête et regarda au loin.
+« Ceng Niu voulait détruire mon Dao de cœur; cependant, parce qu'il m'a pris le bras, non seulement mon Dao de cœur n'a pas été brisé, mais il est désormais plus complet encore. Je me réjouis que le Mont Suzaku veuille qu'il m'affronte, cela unifiera ma volonté! » Papillon Rouge leva la tête et regarda au loin.
 
 « Hmph, si ce n'était pour le Mont Suzaku, je serais déjà sorti pour capturer Ceng Niu afin que tu puisses l'exécuter, jeune sœur de discipline. » Les yeux de l'homme d'âge moyen étincelaient.
 
@@ -83,7 +83,7 @@ Wang Lin ne regarda pas le crapaud. Il tourna son attention vers le char de guer
 
 C'était le plus petit des esprits des trois chars. Bien qu'il eût été scellé par Wang Lin, une fois libéré, il se fixa immédiatement sur lui. Sa tête était triangulaire, son corps était celui d'un bœuf et sa queue celle d'un dragon; on pouvait même distinguer un visage sur la queue.
 
-Wang Lin le contempla calmement avant de laisser tomber une goutte de sang sur le piège à bêtes. Puis, il pointa l'esprit du char. Les symboles du piège tremblèrent soudainement et se transformèrent en un rayon de lumière qui commença à tournoyer autour de la créature.
+Wang Lin le contempla calmement avant de se mordre le bout du doigt et de laisser tomber une goutte de sang sur le piège à bêtes. Puis, il pointa l'esprit du char. Les symboles du piège tremblèrent soudainement et se transformèrent en un rayon de lumière qui commença à tournoyer autour de la créature.
 
 L'esprit poussa de nombreux rugissements en tentant de lutter, mais des chaînes noires surgirent du char pour l'immobiliser. La lumière formée par les symboles se posa sur le corps de la bête, dégageant une lueur dorée. Les rugissements devinrent plus féroces; certaines chaînes se brisèrent, mais d'autres apparurent pour maintenir la bête totalement ligotée.
 

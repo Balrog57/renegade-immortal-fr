@@ -8,7 +8,7 @@ slug: lappel-venant-de-linterieur-du-corps-du-serpent-aux-yeux-de-lune
 ---
 Tous quatre étaient vêtus de rouge et n'étaient que des garçons! Leurs expressions étaient froides, dépourvues de toute émotion, comme s'ils n'étaient que des marionnettes. Dès leur apparition, ils se dispersèrent dans quatre directions pour encercler la planète formée par le Serpent aux yeux de lune.
 
-Les quatre garçons s'assirent en position du lotus et un noyau de sang jaillit du sommet de la tête de chacun! Ces quatre noyaux se lièrent instantanément pour entourer le Serpent aux yeux de lune!
+Les quatre garçons s'assirent en position du lotus et un noyau de sang jaillit du sommet de la tête de chacun! Ces quatre noyaux se lièrent instantanément par un éclair de sang, qui encercla le Serpent aux yeux de lune!
 
 Le vieil homme vêtu de rouge sortit de la formation gigantesque. Bien que son visage fût calme, ses yeux étaient glacials. Son corps dégageait une puissante intention meurtrière, dirigée contre le Serpent aux yeux de lune.
 

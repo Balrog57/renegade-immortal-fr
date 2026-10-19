@@ -32,7 +32,7 @@ Sur l'un des divers fragments célestes, l'endroit n'était pas aussi dévasté.
 
 Une magnifique femme vêtue de blanc apparut silencieusement. Sous ses pieds, un dragon doré dégageait des vagues d'énergie d'épée. Cependant, au front de ce dragon doré, une masse pourpre révélait par intermittence le visage impuissant de Zhou Yi.
 
-« Si le Royaume Céleste était encore intact, il me suffirait de vous jeter dans l'étang de purification céleste pour vous aider à récupérer. Mais maintenant que cela a disparu, une seule épée céleste de pluie est bien trop lente. »
+« Si le Royaume Céleste était encore intact, il me suffirait de vous plonger dans l'étang de purification céleste pour vous aider à récupérer. Mais maintenant que cela a disparu, une seule épée céleste de pluie est bien trop lente. »
 
 Une voix impuissante émanant de la masse pourpre sur le front du dragon demanda: « Ting Er, pourquoi fais-tu tout cela? Veux-tu gaspiller toute l'énergie spirituelle céleste que tu as accumulée pendant tant d'années? »
 
@@ -64,7 +64,7 @@ Ses yeux pétillèrent tandis que le Qilin sous ses pieds s'animait avec plus de
 
 « Ils ont réagi! »
 
-Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. Ses deux mains formèrent un sceau en forme de vase précieux lorsqu'elle déclara: « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi! »
+Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. Ses deux mains formèrent un sceau en forme de vase précieux lorsqu'elle déclara: « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi et reparais au monde! »
 
 À l'instant où elle eut fini de parler, chaque fragment du royaume céleste, qu'il fût habité ou non, se mit à trembler. Ce tremblement de terre n'était pas dû à un effondrement, et celui du ciel n'était pas causé par des failles spatiales.
 
@@ -76,7 +76,7 @@ Un disciple de la Secte de l'Épée Da Luo combattait alors quelqu'un pour lui d
 
 Au moment où il portait son coup avec son épée précieuse, une série de craquements retentit et des fissures parcoururent l'arme. En un éclair, son trésor vola en éclats. Sur un autre fragment céleste, les épées volantes sous les pieds de certains cultivateurs se brisèrent instantanément en plein vol.
 
-Une femme qui venait d'entrer dans le vortex pour atterrir sur un fragment entendit soudain l'hymne d'épée. Pensant qu'un incident survenait, elle sortit instinctivement une épée volante arc-en-ciel de sa sacoche de rangement. Cette épée était le trésor majeur de sa secte, mais dès qu'elle apparut, des fissures la déchirèrent et elle vola en morceaux.
+Une femme d'âge mûr qui venait d'entrer dans le vortex pour atterrir sur un fragment entendit soudain l'hymne d'épée. Pensant qu'un incident survenait, elle sortit instinctivement une épée volante arc-en-ciel de sa sacoche de rangement. Cette épée était le trésor majeur de sa secte, mais dès qu'elle apparut, des fissures la déchirèrent et elle vola en morceaux.
 
 À ce moment précis, peu importe l'endroit où ils se trouvaient dans le Royaume Céleste ou leur niveau de culture, si un cultivateur brandissait une épée, celle-ci se brisait.
 

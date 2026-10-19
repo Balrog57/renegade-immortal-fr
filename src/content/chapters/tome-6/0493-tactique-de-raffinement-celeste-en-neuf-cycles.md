@@ -28,13 +28,13 @@ Wang Lin fit un pas et se transforma en un rayon de lumière avant de disparaît
 
 Après son départ, Bai Wei et la Quatrième Sœur discutèrent un instant avant de se séparer.
 
-Sur le chemin du retour vers le Pavillon de la Division Pourpre, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Céleste et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
+Sur le chemin du retour vers le Pavillon Wei Pourpre, les yeux de Bai Wei révélèrent une lueur malveillante. Il regarda vers le siège principal de la Secte Céleste et murmura pour lui-même: « Le Maître a été trop injuste en plantant cette graine démoniaque en notre frère aîné. Maintenant que le démon s'est éveillé, il ne faudra pas longtemps avant que la culture de ce dernier ne se rétablisse. Si cela arrive, je ne pourrai plus accomplir ma vengeance. Comment puis-je gérer cela? »
 
-Il retourna au Pavillon de la Division Pourpre, le visage sombre.
+Il retourna au Pavillon Wei Pourpre, le visage sombre.
 
-Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et les salua. Après un moment, il finit par regagner le Pavillon de la Forêt Pourpre.
+Pendant que Wang Lin volait, il croisa plusieurs cultivateurs d'autres sectes et les salua. Après un moment, il finit par regagner le Pavillon de la Forêt Violette.
 
-Après trois mois d'absence, le Pavillon de la Forêt Pourpre était resté inchangé. Il monta directement au troisième étage et sortit un morceau de jade.
+Après trois mois d'absence, le Pavillon de la Forêt Violette était resté inchangé. Il monta directement au troisième étage et sortit un morceau de jade.
 
 Il s'agissait du jade que la Quatrième Sœur lui avait donné, contenant le sort et la restriction.
 
@@ -92,7 +92,7 @@ Wang Lin réfléchit un moment et ne tenta pas de l'utiliser immédiatement. Il 
 
 Wang Lin n'était pas un homme téméraire. Vu la facilité avec laquelle la Quatrième Sœur lui avait remis ce jade, il devait s'assurer de sa légitimité avant de décider de le cultiver.
 
-Après une longue et attentive étude, Wang Lin put utiliser ses propres connaissances ainsi que les trois sorts mortels créés par Situ Nan à partir d'un sort céleste pour confirmer que cette restriction était authentique!
+Après une longue et attentive étude, Wang Lin put utiliser ses propres connaissances ainsi que les trois sorts mortels transmis par Situ Nan pour confirmer que cette restriction était authentique!
 
 « Tactique de Raffinement Céleste en Neuf Cycles... » Les yeux de Wang Lin s'illuminèrent d'une détermination sans faille. Il prit une grande inspiration, activa son énergie spirituelle céleste et en isola une partie. Conformément aux instructions, il plaça cette énergie dans quelques points reculés et commença à tenter de la faire tournoyer.
 
@@ -130,6 +130,6 @@ La lueur disparut, emportant Wang Lin avec elle.
 
 Un éclair argenté jaillit à l'extérieur de la Division Pourpre, et Wang Lin en sortit dans un état de désordre total. Après tout, ce n'était que sa deuxième utilisation de cette technique, et il n'était pas encore accoutumé à une telle vitesse de téléportation.
 
-Après avoir réapparu, Wang Lin s'élança vers le Pavillon de la Forêt Pourpre. La nuit touchait à sa fin; l'horizon commençait à blanchir, annonçant l'aube d'un jour nouveau.
+Après avoir réapparu, Wang Lin s'élança vers le Pavillon de la Forêt Violette. La nuit touchait à sa fin; l'horizon commençait à blanchir, annonçant l'aube d'un jour nouveau.
 
 C'était le jour où l'Omniscient enseignerait le Dao, et c'était aussi le jour le plus attendu par tous les invités venus célébrer l'anniversaire de l'Omniscient!

@@ -26,7 +26,7 @@ Au fil du temps, cette puissance s'intensifia et continua de s'accumuler dans le
 
 Ce son ressemblait aux battements de cœur des cultivateurs. Chaque fois qu'il retentissait, il ébranlait l'esprit des présents, comme si un marteau géant frappait leurs poitrines.
 
-Ils n'étaient pas les seuls. Presque tous les cultivateurs du Système Stellaire de Luotian pouvaient vaguement percevoir ce son!
+Ils n'étaient pas les seuls. Tous les cultivateurs du Système Stellaire de Luotian pouvaient vaguement percevoir ce son!
 
 Chaque fois que ce bruit résonnait, d'innombrables ondulations apparaissaient dans le ciel et se propageaient à l'infini. À mesure que le vortex grandissait, les sons qu'il émettait devenaient d'une intensité inouïe.
 
@@ -36,7 +36,7 @@ Les cheveux blancs de Maître Yan Leizi flottaient au vent alors qu'il hurlait: 
 
 Les yeux des vieux monstres installés sur les tapis de prière brillèrent intensément, y compris ceux du Dieu Sanguin. Ils s'envolèrent tous dans les airs et s'assirent avant de déployer leurs divers sorts. Ces sortilèges furent projetés dans le vortex, multipliant sa puissance par plusieurs fois.
 
-Les bruits d'éclatement devinrent encore plus violents et la force de rotation atteignit son paroxysme. Cette force agissait comme une perceuse acérée qui s'acharnait sur le vide, tentant désespérément de le percer!
+Les bruits d'éclatement devinrent encore plus violents et la force de rotation atteignit son paroxysme. Cette force agissait comme une alène acérée qui s'acharnait sur le vide, tentant désespérément de le percer!
 
 Maître Yan Leizi forma un sceau de ses mains et cria: « Pouvoir du Royaume du Tonnerre! » Des bêtes de tonnerre surgirent des dizaines de fragments. Elles poussèrent des rugissements avant de se transformer en éclairs de foudre et de charger vers le centre du vortex.
 
@@ -110,7 +110,7 @@ C'était comme si le monde entier était figé, et que ce seul doigt restait en 
 
 Le doigt atteignit le bras colossal sortant de la brèche. Le membre géant s'effondra instantanément, se résorbant en énergie originelle.
 
-« Tu as ouvert la barrière spatiale et violé les lois de l'Ancien Royaume Céleste... » Une voix puissante résonna depuis la fissure. Elle devint de plus en plus lointaine jusqu'à disparaître totalement.
+« Vous avez ouvert la barrière spatiale et violé les lois de l'Ancien Royaume Céleste... » Une voix puissante résonna depuis la fissure. Elle devint de plus en plus lointaine jusqu'à disparaître totalement.
 
 « Ce vieil homme veut voir si l'Ancien Royaume Céleste existe réellement ou non! » déclara une voix fantomatique. Elle était calme, mais empreinte de la majesté d'un souverain suprême.
 

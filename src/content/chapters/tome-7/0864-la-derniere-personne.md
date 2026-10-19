@@ -16,7 +16,7 @@ Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvan
 
 Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maître Démon » exhalait encore une odeur de sang. Ce Xu Mu avait toujours été discret, mais il agissait désormais avec une ostentation frappante. Il était clair qu'il visait la première place; autant la lui offrir. Il n'y avait aucun intérêt à rivaliser avec lui et à déclencher une querelle inutile.
 
-Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire de Luotian!
+Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il ajusta son énergie originelle et maintint son état à son apogée afin de se préparer pour les finales dans le système stellaire de Luotian!
 
 Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa culture, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
 
@@ -46,15 +46,15 @@ Wang Lin fronça les sourcils, se détourna, fit un pas et disparut.
 
 Le visage de Nangong Han était marqué par le regret. Il le suivit rapidement en pensant: « Quel esprit de trésor magnifique. Hélas, je ne peux pas vaincre ce Xu Mu; sinon, je l'aurais volé! »
 
-Les 107 autres participants du Domaine Sud avaient été sélectionnés. Le vieil homme aux robes pourpres sortit une pierre noire et la broya. D'innombrables éclats de lumière cristalline jaillirent et une formation illusoire se matérialisa.
+Les 107 autres participants du Domaine Sud avaient été sélectionnés. Le vieil homme à la robe violette sortit une pierre noire et la broya. D'innombrables éclats de lumière cristalline jaillirent et une formation illusoire se matérialisa.
 
-Cette formation était immense, s'étendant sur environ 330 mètres de large. Le vieil homme aux robes pourpres entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
+Cette formation était immense, s'étendant sur environ 330 mètres de large. Le vieil homme à la robe violette entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
 
-Les 108 participants restants entrèrent progressivement dans la formation. Wang Lin en faisait partie, tout comme Shengong Hu et Zhan Konglie.
+Les participants restants, plus d'une centaine, entrèrent progressivement dans la formation. Wang Lin en faisait partie, tout comme Shengong Hu et Zhan Konglie.
 
 La formation brilla intensément puis disparut, emportant les 108 personnes avec elle.
 
-Le Temple Céleste du Tonnerre était une entité extrêmement puissante dans le système stellaire de Luotian. Au fil des générations, en étendant leur influence, ils étaient devenus la force publique la plus dominante de tout le système!
+Le Temple Céleste du Tonnerre était une entité extrêmement puissante dans le système stellaire de Luotian. Au fil des générations, en étendant leur influence, ils étaient devenus, en apparence, la force la plus dominante de tout le système!
 
 L'emplacement du Temple Céleste du Tonnerre demeurait un mystère; nul ne savait où il se trouvait précisément. Même les messagers n'y accédaient qu'en utilisant une formation spéciale, sans autre moyen de retour possible.
 

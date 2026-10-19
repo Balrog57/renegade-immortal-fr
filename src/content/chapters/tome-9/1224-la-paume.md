@@ -8,7 +8,7 @@ slug: la-paume
 ---
 Ce son était semblable au tonnerre tombant du ciel, faisant trembler la terre. D'innombrables fissures apparurent sur le sol comme si celui-ci allait s'effondrer. Le bruit de l'effondrement, dissimulé dans les ténèbres, émanait de toutes les directions.
 
-À l'instant où ce son retentit, une pression surgit de partout et descendit lentement. À mesure que cette force pesait sur le monde, le Royaume aux Sept Couleurs sembla se transformer en un vide où une puissance infinie commençait à affluer de toutes parts.
+À l'instant où ce son retentit, une pression surgit de partout et descendit lentement. À mesure que cette force pesait sur le monde, le Royaume aux Sept Couleurs sembla se transformer en un vide suspendu, où des forces infinies venues de toutes parts le comprimaient violemment.
 
 Chen Tianjun était le plus faible d'entre eux. Sous la pression, son âme originelle trembla et du sang jaillit du coin de sa bouche. Il recula instinctivement de plusieurs pas, l'expression profondément changée, et dévora des pilules pour tenter de résister à cette force écrasante.
 
@@ -20,7 +20,7 @@ Seul Wang Lin restait droit et imperturbable. Tandis que la pression s'abattait 
 
 Il fixa les yeux au centre du vortex et resta silencieux, mais sa main droite se serra lentement en un poing.
 
-« Je ne chercherai pas à vous opprimer. Si vous pouvez survivre à cette paume, je vous donnerai l'occasion de continuer à grandir! » La voix provenant de l'intérieur du vortex sonna la lassitude alors qu'elle se propageait lentement. Dès que ces mots furent prononcés, le vortex céleste se mit à tourner avec frénésie.
+« Je ne vous tromperai pas. Si vous pouvez survivre à cette paume, je vous donnerai l'occasion de continuer à grandir! » La voix provenant de l'intérieur du vortex sonna la lassitude alors qu'elle se propageait lentement. Dès que ces mots furent prononcés, le vortex céleste se mit à tourner avec frénésie.
 
 La vitesse de rotation atteignit immédiatement son apogée. En faisant rage dans le ciel, même les yeux furent engloutis par le tourbillon. Le vortex rugit et le monde sembla s'effondrer sous les yeux de Wang Lin!
 
@@ -46,7 +46,7 @@ Chen Tianjun fut le dernier à s'élancer. Debout sous Wang Lin, il agita la mai
 
 Wang Lin ne daigna aucune attention aux trois compagnons. L'étoile faite de loi scintilla entre ses sourcils. Puis, d'un mouvement de la main droite, le trident apparut. Il le saisit fermement.
 
-« Et qu'en est-il du pouvoir d'une seule paume? » Wang Lin s'élança en riant face au vortex qui descendait du ciel. On aurait dit que le firmament s'effondrait pour s'écraser sur la terre. Toute vie serait broyée! Aucune chance de survie!
+« Et qu'importe le pouvoir d'une seule paume! » Wang Lin s'élança en riant face au vortex qui descendait du ciel. On aurait dit que le firmament s'effondrait pour s'écraser sur la terre. Toute vie serait broyée! Aucune chance de survie!
 
 Alors qu'il continuait sa charge, la foudre autour de lui fulgurait follement et une intention de combat déferla en lui. Un désir inattendu de défier le monde commença à naître. Même si le ciel devait s'effondrer, il trouverait un moyen de le transpercer et de tuer les cieux!
 
@@ -54,7 +54,7 @@ Porté par cette intention de combat, Maître Nuage-Âme poussa un rugissement e
 
 Le sang de Maître Nuage-Âme semblait bouillir. S'il réussissait sa charge, il vivrait; sinon, il mourrait!
 
-Le visage de la vieille femme en vert était délavé de toute couleur, mais ses yeux étaient vifs et déterminés. Elle agita la main droite et la brume autour d'elle se scinda en deux. L'une représentait la vie, l'autre la mort, et elles s'enroulèrent autour d'elle comme deux dragons. Les dragons de brume de vie et de mort chargèrent avec elle alors qu'elle suivait Wang Lin.
+Le visage de la vieille femme en vert était délavé de toute couleur, mais ses yeux étaient vifs et déterminés. Elle agita la main droite et la brume autour d'elle se scinda en deux. L'une représentait la vie, l'autre la mort, et elles s'enroulèrent autour d'elle comme un seul dragon. Ce dragon de brume de vie et de mort chargea avec elle alors qu'elle suivait Wang Lin.
 
 Chen Tianjun suivit, tandis que toutes les âmes bestiales rugissaient et se rassemblaient autour de lui. Elles poussèrent des cris de lutte pour la survie en chargeant avec frénésie.
 

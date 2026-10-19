@@ -18,7 +18,7 @@ Le scorpion mesurait des centaines de milliers de pieds de long. Entièrement no
 
 Alors que le bruit se rapprochait lentement, trois silhouettes émergèrent de la gueule du scorpion. Parmi elles, les deux suivants portaient des robes taoïstes vertes ornées du symbole d'un scorpion. Bien qu'ils paraissent n'être qu'au milieu de leur vie, ils dégageaient l'aura de cultivateurs de la phase intermédiaire de la Tribulation du Vide. Leurs visages étaient de marbre, dépourvus de toute émotion.
 
-Ils semblaient monter la garde autour d'une figure entièrement drapée dans une robe verte. Cette silhouette paraissait extrêmement âgée et, en avançant, elle toussa. L'être s'arrêta et demanda d'une voix rauque: « As-tu ramené la personne...? »
+Ils semblaient monter la garde autour d'une figure entièrement drapée dans une robe verte. Cette silhouette paraissait extrêmement âgée, le dos voûté, et, en avançant, elle toussa. L'être s'arrêta et demanda d'une voix rauque: « As-tu ramené la personne...? »
 
 Le Maître de la Secte du Dao Démoniaque se montra très respectueux envers le vieillard caché sous sa robe verte. Il joignit les mains et inclina la tête.
 
@@ -50,7 +50,7 @@ Wang Lin siégeait au cœur de ce tumulte, immobile. Pourtant, d'innombrables sc
 
 Cette essence s'agitait avec une telle vigueur qu'elle provoquait des craquements sourds et propageait des arcs électriques sur toute sa peau. À cet instant, Wang Lin était dans un état de coma; son esprit et son âme semblaient plongés dans un silence absolu. Cependant, ce que les observateurs — même Ji Si ou le Maître de la Secte — ne pouvaient percevoir, c'est qu'une perle tournait lentement au sein de l'âme de Wang Lin.
 
-À chaque rotation, l'âme, l'esprit et les souvenirs de Wang Lin tremblaient légèrement, protégés par une couche de lumière douce. En cet état, il semblait détaché de son propre corps. Dans cette étrange vacuité, son essence du tonnerre devint si puissante qu'elle finit par surpasser toutes ses autres essences. Bien qu'elle fût encore un cran en dessous de l'essence du feu qui avait formé un véritable corps d'essence, sa puissance se rapprochait inexorablement de celle-ci.
+À chaque rotation, l'âme, l'esprit et les souvenirs de Wang Lin tremblaient légèrement, protégés par une couche de lumière douce. En cet état, il semblait détaché de son propre corps. Dans cette étrange vacuité, son essence du tonnerre devint si puissante qu'elle finit par surpasser plusieurs de ses autres essences. Bien qu'elle fût encore un cran en dessous de l'essence du feu qui avait formé un véritable corps d'essence, sa puissance se rapprochait inexorablement de celle-ci.
 
 C'était comme si un passage invisible s'était ouvert entre le corps de Wang Lin et celui du Maître de Secte, fusionnant lentement avec son essence du tonnerre qui n'avait pas encore atteint la forme de véritable corps d'essence.
 
@@ -64,7 +64,7 @@ Un jour, au cours du quatrième mois, le Maître de la Secte ne put plus conteni
 
 Il se sentait impuissant: malgré l'afflux massif de son essence dans le corps de Wang Lin, celle-ci ne parvenait pas à remplacer l'essence originelle pour imposer sa volonté. C'était un phénomène aberrant, comme si un vortex au cœur du corps de Wang Lin dévorait sa volonté. La vérité confirmait ses soupçons: chaque fois que la Perle Défiant le Ciel tournait, en plus de protéger Wang Lin, elle absorbait une partie des entités étrangères présentes dans son corps.
 
-« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, issues du Continent de l'Empereur du Tonnerre. J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
+« Je suis là... *Tousse*... » Une voix antique et rauque émana du scorpion. Avant de pouvoir achever sa phrase, un violent accès de toux la coupa longuement. « Je possède deux Perles de l'Empereur du Tonnerre, que j'ai obtenues en échange sur le Continent de l'Empereur du Tonnerre. J'avais prévu de les offrir au Seigneur une fois son éveil venu... Je t'en donnerai une... »
 
 Tandis que la voix résonnait, un éclair gris jaillit. Le scorpion brilla intensément et un rayon de lumière fila vers le Maître de la Secte du Dao Démoniaque. La lueur se condensa instantanément pour devenir une perle de la taille d'un poing, grouillante d'innombrables éclairs. À l'intérieur de la perle, on pouvait distinguer l'ombre d'un char et la silhouette vague d'un être qui ressemblait à l'Empereur du Tonnerre!
 
@@ -72,4 +72,4 @@ Face à une telle relique, le Maître de la Secte sentit son cœur rater un batt
 
 Le Maître de la Secte ne lutta plus. Il ouvrit la bouche et aspira. Les innombrables filaments de tonnerre volèrent vers lui et furent dévorés. Mais avant qu'il ne puisse en conserver le moindre, tous furent aspirés dans le corps de Wang Lin par la Grande Loi du Dao Démoniaque.
 
-Au plus profond du scorpion, dans l'espace vert, le corps de Wang Lin trembla violemment. L'essence du tonnerre en son sein décupla soudainement sa puissance, montrant les signes imminents de la formation d'un véritable corps d'essence de tonnerre!
+Au plus profond du scorpion, dans l'espace vert, le corps de Wang Lin trembla violemment. L'essence du tonnerre en son sein accrut brutalement sa puissance, montrant les signes imminents de la formation d'un véritable corps d'essence de tonnerre!

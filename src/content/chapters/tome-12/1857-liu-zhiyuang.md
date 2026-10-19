@@ -52,7 +52,7 @@ Mais Wang Lin n'était pas impatient; il s'assit simplement. Le brouillard noir 
 
 Il guettait l'instant où il pourrait achever un cultivateur du stade initial de la Tribulation du Vide d'un seul coup.
 
-« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Martial peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être l'Origine de la Fantaisie de l'Âme! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
+« Yi Si peut porter un coup dévastateur, l'épée de sang peut blesser, l'Empreinte de l'Esprit Guerrier peut empêcher la fuite... L'illusion multicouche peut créer l'instant opportun... Et le coup de grâce devra être l'Origine de la Fantaisie de l'Âme! Cependant, tout cela ne pourra que gravement blesser un cultivateur du stade initial, pas l'achever... » Les yeux de Wang Lin brillaient tandis qu'il fixait l'horizon à des dizaines de milliers de pieds.
 
 En un éclair, plusieurs heures passèrent. Le fracas des combats ne faiblissait pas, il devenait même plus intense. Le nombre de morts s'alourdissait de chaque côté. Pourtant, Wang Lin restait assis là. Il attendait.
 
@@ -68,7 +68,7 @@ Entre deux explosions, Liu Zhiyuan recula sans hésiter. Nul besoin de mots: ses
 
 Le visage de Liu Zhiyuan était empreint d'une cruauté extrême. Il pratiquait une méthode de double culture Yin et Yang qui consistait à condenser les âmes des « fours de culture » féminins en un lotus noir. D'innombrables femmes avaient péri par sa main.
 
-En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue de trois pouces de haut, à l'aspect misérable. Liu Zhiyuan ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
+En un instant, il recula de dizaines de milliers de pieds. Il agita la main droite, faisant apparaître plus d'une douzaine de sphères lumineuses devant lui. À l'intérieur de chaque sphère se trouvait une femme nue, assise en tailleur, de trois pouces de haut, à l'aspect misérable. Liu Zhiyuan ne prit même pas la peine de les regarder lorsqu'il ouvrit la bouche pour les inhaler.
 
 Cependant, à cet instant précis, non loin de là, Wang Lin, qui s'était tapi dans l'ombre, ouvrit soudainement les yeux, le regard glacial. Il attendait cette occasion depuis si longtemps, et quelqu'un venait enfin de la lui offrir!
 

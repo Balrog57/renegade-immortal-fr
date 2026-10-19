@@ -90,7 +90,7 @@ Il ne pouvait pas non plus oublier ce moment où il était assis au sommet de la
 
 C'étaient les mots de Xie Qing lorsqu'il était monté sur la montagne. À l'époque, Wang Lin n'avait saisi que les premières phrases et ne s'était pas attardé sur la conclusion.
 
-Il n'avait eu aucune envie de méditer sur cette dernière sentence et, même s'il l'avait fait, il n'y aurait trouvé aucune réponse.
+Il n'avait eu aucune envie de méditer sur cette dernière sentence et, même s'il l'avait fait, il n'y aurait trouvé aucune réponse, ce n'aurait été qu'une banalité.
 
 Cependant, en observant le cycle de réincarnation de la troisième âme, il l'avait vue se réincarner des centaines de fois sous forme de poisson, avant de réaliser que la troisième âme était Xie Qing. Comment ne pas comprendre le sens de ces mots désormais?
 

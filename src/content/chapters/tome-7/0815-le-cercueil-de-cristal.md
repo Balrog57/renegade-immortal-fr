@@ -8,11 +8,11 @@ slug: le-cercueil-de-cristal
 ---
 Tandis que le vieil homme méditait en silence, Ta Shan, allongé sur la plateforme de bois, murmura faiblement: « Je suis prêt... »
 
-L'expression de Wang Lin resta neutre et, d'un pas assuré, il rejoignit la plateforme. Il contempla Ta Shan, dont le corps brisé était au bord de la mort.
+L'expression de Wang Lin resta neutre et, d'un pas assuré, il rejoignit la plateforme. Il contempla Ta Shan, dont la plupart des os étaient brisés et qui était au bord de la mort.
 
 Il ne restait plus aucun tatouage sur sa peau. Tous les motifs étaient entrés dans son organisme pour devenir les agents de sa propre fin.
 
-Wang Lin déclara calmement: « Ce sortilège exige que celui qui est raffiné possède un cœur ferme et une volonté absolue. La moindre hésitation provoquerait un échec certain! »
+Wang Lin déclara calmement: « Ce sortilège exige que celui qui est raffiné possède un cœur ferme, une volonté absolue et un consentement total. La moindre hésitation provoquerait un échec certain! »
 
 Ta Shan esquissa un sourire misérable et répondit d'une voix ténue: « Ne dis plus rien. Je suis prêt! »
 
@@ -22,7 +22,7 @@ Wang Lin ne perdit plus de temps. Il saisit Ta Shan et s'élança dans le vide. 
 
 Le vieil homme fixa l'endroit où Wang Lin avait disparu avec une expression complexe. Finalement, il serra les dents, se tourna vers l'assemblée et ordonna: « Dans trois mois, quoi qu'il advienne de Ta Shan, nous attaquerons le Fourneau Yin Mystérieux et quitterons ces lieux! »
 
-Wang Lin retourna là où il raffinait des trésors avec Ta Shan et le déposa au sol. Il cracha alors une bouffée d'énergie de l'âme originelle qui enveloppa l'homme. Enfin, il sortit le drapeau de l'âme à un milliard d'âmes et en fit jaillir une entité.
+Wang Lin retourna là où il raffinait des trésors avec Ta Shan et le déposa au sol. Il cracha alors une bouffée d'énergie de l'âme originelle qui enveloppa l'homme. Enfin, il sortit le drapeau d'âme du milliard d'âmes et en fit jaillir une entité.
 
 Cet objet était le fantôme céleste que Wang Lin avait obtenu dans le Royaume Céleste du Tonnerre. Dès son apparition, il poussa un rugissement et se débattit. Wang Lin le pointa du doigt et le Fouet du Karma apparut instantanément. Le fouet frappa le fantôme céleste à plusieurs reprises, provoquant ses gémissements de douleur.
 
@@ -32,7 +32,7 @@ Ce n'était pas tout. Après une courte réflexion, il sortit plus de dix crâne
 
 Wang Lin regarda Ta Shan, en plein raffinage par son énergie de l'âme originelle, et dit calmement: « Je vais utiliser les jades célestes pour nourrir ton corps, le fantôme céleste pour t'aider à former une âme, et les crânes de tes ancêtres pour perfectionner tes tatouages. Ta Shan, je vais t'offrir une fortune inestimable! »
 
-« Si cela échoue encore, ce sera par manque de chance de ton côté, et non parce que je n'ai pas tout donné! »
+« Si cela échoue encore, ce sera par manque de chance de ton côté, et non par ma faute! »
 
 Le temps s'écoula et plus de deux mois passèrent. Ce jour-là, l'endroit où se trouvait Wang Lin fut secoué par un immense grondement. Le fracas fut si puissant que même les membres du Clan de l'Immortel Élu l'entendirent distinctement et s'envolèrent aussitôt hors de leurs demeures.
 
@@ -84,7 +84,7 @@ La porte s'éleva dans un grondement et s'ouvrit complètement un instant plus t
 
 À l'instant où elle s'ouvrit, un cri strident jaillit de l'intérieur. Cette voix était perçante, comme le vol d'épées acérées.
 
-Les yeux de Wang Lin s'illuminèrent; il frappa son sac de contenance et les trois drapeaux violets en sortirent. Ils tournèrent rapidement autour de lui pour former un vortex pourpre. Le cri strident fut immédiatement écrasé par ce tourbillon.
+Les yeux de Wang Lin s'illuminèrent; il frappa son sac de contenance et les trois drapeaux violets en sortirent. Ils tournèrent rapidement autour de lui pour former un vortex violet. Le cri strident fut immédiatement écrasé par ce tourbillon.
 
 « Ta Shan, détruis l'esprit! » hurla Wang Lin. Le corps de Ta Shan brilla intensément alors qu'il franchissait le seuil. Son regard était froid lorsqu'il s'élança et décocha un coup de poing. Ce coup était plusieurs fois plus puissant que ceux qu'il portait avant de devenir un gardien céleste.
 

@@ -18,21 +18,21 @@ De loin, ce fouet semblait aussi immense que la Bête des Limbes elle-même. La 
 
 Dès l'apparition du fouet, Wang Lin agita la main et l'arme s'abattit sur la Bête des Limbes!
 
-Le Fléau de l'Âme!
+Le Fouet de l'Âme!
 
-Lorsque le Fléau de l'Âme frappa la Bête des Limbes, un fracas tonnerre retentit, suivi d'un rugissement étouffé émanant de son corps. Sa carrure trembla et son âme montra des signes de détachement de son enveloppe physique! Cependant, elle parvint à résister!
+Lorsque le Fouet de l'Âme frappa la Bête des Limbes, un fracas tonnerre retentit, suivi d'un rugissement étouffé émanant de son corps. Sa carrure trembla et son âme montra des signes de détachement de son enveloppe physique! Cependant, elle parvint à résister!
 
-Wang Lin ne s'arrêta pas là. Le Fléau de l'Âme semblait imprégné de la folie de Wang Lin, et il frappa huit fois de plus!
+Wang Lin ne s'arrêta pas là. Le Fouet de l'Âme semblait imprégné de la folie de Wang Lin, et il frappa huit fois de plus!
 
 En comptant le coup initial, cela faisait un total de neuf assauts. Des grondements de tonnerre résonnèrent et la Bête des Limbes ne put plus contenir la force des coups. La timidité qui caractérisait sa nature réapparut dans ses yeux et son âme émergea soudain de son corps!
 
 Cependant, cette âme n'était que la partie émergée de l'iceberg. Bien que la Bête des Limbes fût terrifiée, elle comprit qu'elle traversait une crise mortelle et lutta pour ramener son âme dans son corps!
 
-Comment Wang Lin pouvait-il la laisser réussir? D'un revers de main, des bruits de claquements résonnèrent à travers le domaine stellaire. Il était impossible de percevoir ne serait-ce que l'ombre du Fléau de l'Âme alors qu'il martelait la Bête des Limbes!
+Comment Wang Lin pouvait-il la laisser réussir? D'un revers de main, des bruits de claquements résonnèrent à travers le domaine stellaire. Il était impossible de percevoir ne serait-ce que l'ombre du Fouet de l'Âme alors qu'il martelait la Bête des Limbes!
 
 Le 19e coup, le 30e coup, le 50e coup... jusqu'au 99e!
 
-Lorsque le centième et dernier coup retomba, le Fléau de l'Âme brilla d'un éclat intense. Il commença à se désagréger, libérant une lumière dorée aussi éblouissante que le soleil!
+Lorsque le centième et dernier coup retomba, le Fouet de l'Âme brilla d'un éclat intense. Il commença à se désagréger, libérant une lumière dorée aussi éblouissante que le soleil!
 
 Enveloppée par cette lumière, la Bête des Limbes ne put plus lutter. Son âme fut arrachée à son corps et apparut au milieu des étoiles!
 
@@ -94,7 +94,7 @@ Il arborait toujours sa chevelure blanche. Bien qu'il ait l'allure d'un jeune ho
 
 Il leva la tête vers la Bête des Limbes. Il possédait désormais tous ses souvenirs. La créature avait passé la majeure partie de son existence à dormir, et les rares souvenirs qu'elle avait acquis étaient chaotiques. C'était particulièrement vrai pour sa naissance; elle ignorait même comment elle avait été créée.
 
-Le seul souvenir limpide était celui du Royaume aux Sept Couleurs.
+Le seul souvenir limpide, vieux de plusieurs centaines d'années, était celui du Royaume aux Sept Couleurs.
 
 Wang Lin réfléchit et projeta une parcelle de son Sens Divin dans la Bête des Limbes. Les yeux de celle-ci s'ouvrirent et elle expulsa lentement un contenu, tel un rot. L'estimé Ling Dong fut expulsé le premier; il était dans un état lamentable, le regard toujours empreint de terreur.
 
@@ -104,7 +104,7 @@ Enfin, le gigantesque Serpent aux yeux de lune apparut. La gueule de la Bête de
 
 Wang Lin remit Zhou Jin et Ling Dong dans le Fourneau de l'Empereur avant de le ranger dans sa première étoile. Il rangea ensuite tout le reste et fronça les sourcils en observant la Bête des Limbes.
 
-« Les souvenirs de cette bête sont un chaos total... Lors de sa faim, elle a aspiré trop violemment en dévorant le Royaume aux Sept Couleurs. Elle a brisé certaines barrières et a dévoré ce qu'elle n'aurait pas dû... C'est tout simplement trop étrange... Comment a-t-elle pu dévorer un Fruit du Dao... » Wang Lin posa sa main droite sur la bête tout en méditant.
+« Les souvenirs de cette bête sont un chaos total... En avalant le Royaume aux Sept Couleurs, elle a aspiré un peu trop fort. Elle a brisé certaines barrières et a dévoré ce qu'elle n'aurait pas dû... C'est tout simplement trop étrange... Comment a-t-elle pu dévorer un Fruit du Dao... » Wang Lin posa sa main droite sur la bête tout en méditant.
 
 Le corps de la Bête des Limbes trembla et une lumière aux sept couleurs jaillit de sa gueule. Celle-ci s'ouvrit lentement, laissant flotter un fruit orange de plusieurs centaines de pieds de large... Un Fruit du Dao!
 
@@ -112,4 +112,4 @@ L'aura de l'intention du Dao se propagea avec l'apparition du fruit. En fixant c
 
 « Mes essences de Karma, de Vie et de Mort, ainsi que mes essences de Vrai et de Faux sont extrêmement difficiles à parfaire. Les trois sont des Daos, et si je parviens à obtenir plusieurs de ces fruits... je pourrais peut-être compléter ces trois essences! » Wang Lin agita la main droite et rangea le Fruit du Dao.
 
-Privée du fruit, la sagesse qui résidait en la Bête des Limbes s'étiola instantanément. Elle regarda Wang Lin d'un air hébété... Elle ressemblait désormais à ce qu'elle était autrefois, lorsqu'elle contemplait le Royaume aux Sept Couleurs. Son esprit était de nouveau embrumé, mais ayant absorbé une partie du Fruit du Dao, elle avait gagné en intelligence. Bien que toujours confuse, elle était bien plus lucide qu'auparavant.
+Privée du fruit, la sagesse qui résidait en la Bête des Limbes s'étiola instantanément. Elle regarda Wang Lin d'un air hébété... Elle ressemblait désormais à ce qu'elle était autrefois, lorsqu'elle contemplait la fissure du Royaume aux Sept Couleurs. Son esprit était de nouveau embrumé, mais ayant absorbé une partie du Fruit du Dao, elle avait gagné en intelligence. Bien que toujours confuse, elle était bien plus lucide qu'auparavant.

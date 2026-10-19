@@ -14,7 +14,7 @@ L'esprit des trois généraux trembla et du sang jaillit du coin de leurs lèvre
 
 Le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan affichaient tous deux un visage sombre. Même eux devaient déployer des efforts considérables pour contrer ce brasier. Après tout, bien que leur niveau de culture fût élevé, leurs corps n'étaient pas comparables à ceux des Êtres Anciens.
 
-Le Daoïste aux Sept Couleurs avait hérité des sorts du Souverain Céleste aux Sept Couleurs, ce qui incluait l'Ombrelle Brûlante du Royaume. Bien qu'il fût différent de celui utilisé par Wang Lin, personne ici ne le maîtrisait mieux que lui. À cet instant, il laissa échapper un rugissement et s'élança hors de la mer de flammes, chargeant Wang Lin avec une intention meurtrière!
+Le Daoïste aux Sept Couleurs avait hérité des sorts du Souverain Céleste aux Sept Couleurs, ce qui incluait l'Ombrelle Brûlante du Royaume. Bien qu'il fût différent de celui utilisé par Wang Lin, personne ici n'en connaissait davantage que lui. À cet instant, il laissa échapper un rugissement et s'élança hors de la mer de flammes, chargeant Wang Lin avec une intention meurtrière!
 
 Une lueur glaciale traversa les yeux de Wang Lin. Ayant atteint les 80 %, il savait qu'il avait atteint ses limites et ne pourrait le refermer à 100 %. Cependant, l'effet de l'Ombrelle Brûlante du Royaume lui convenait parfaitement!
 
@@ -96,9 +96,9 @@ Le visage du Daoïste aux Sept Couleurs se décomposa et il s'arrêta net, fixan
 
 « Le... le Dao Céleste! »
 
-La Bête des Limbes n'était pas complète; elle ne pouvait donc pas dévorer des êtres trop puissants. Wang Lin le savait, mais il l'avait utilisée comme cinquième embuscade uniquement pour terrasser le Daoïste aux Sept Couleurs par la surprise!
+La Bête des Limbes n'était pas complète; elle ne pouvait donc pas dévorer des êtres trop puissants. Wang Lin le savait, mais il l'avait utilisée comme cinquième embuscade uniquement pour profiter de la stupeur du Daoïste aux Sept Couleurs!
 
-Après tout, Wang Lin ne pouvait utiliser le sort de Stase sur lui sans subir un contrecoup mortel. Il n'avait eu d'autre choix que de convoquer la Bête des Limbes pour simuler un effet similaire!
+Après tout, Wang Lin ne pouvait utiliser le sort de Stase sur lui sans subir un contrecoup qu'il ne pouvait supporter. Il n'avait eu d'autre choix que de convoquer la Bête des Limbes pour simuler un effet similaire!
 
 « Sixième embuscade! » Wang Lin esquissa un sourire sinistre, mais ce sourire était fragile, et le sang continuait de couler de sa bouche, lui donnant un air sombre et lugubre.
 

@@ -42,11 +42,11 @@ La planète de culture entière sombra dans le silence. De nombreux témoins ass
 
 Les membres du Clan du Dragon Blindé, pétris de peur, baissèrent la tête.
 
-« Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut être au sommet de la hiérarchie, et même dans le Royaume Extérieur, il peut être Ancien d'un grand clan, à un rang élevé! Mais dans cette Terre Déchue, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
+« Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut passer pour un homme d'exception, et même dans le Royaume Extérieur, il peut être Ancien d'un grand clan, à un rang élevé! Mais dans cette Terre Déchue, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
 
 La mort du Patriarche du Dragon Blindé signifiait que l'affaire était close. L'homme d'âge mûr sourit et joignit les mains devant Wang Lin: « Le Clan du Dragon Blindé ne peut rester sans chef. Je demande au Jeune Empereur de désigner un nouveau leader. »
 
-Les yeux de Wang Lin s'illuminèrent, mais son expression demeura impassible. Sa main droite pointa indistinctement vers un jeune homme au stade de l'Observateur du Nirvana au loin, et il dit: « Lui, alors. »
+Les yeux de Wang Lin s'illuminèrent, mais son expression demeura impassible. Sa main droite pointa négligemment vers un jeune homme au stade du Scruteur du Nirvana au loin, et il dit: « Lui, alors. »
 
 Le jeune homme tremblait encore à cause de la mort du patriarche et des paroles du messager. Il fut stupéfait lorsque Wang Lin le désigna, mais son sentiment passa instantanément de l'enfer à l'ascension vers les cieux!
 
@@ -102,4 +102,4 @@ Après sa parole, une joie immense se répandit parmi les cultivateurs environna
 
 Au fil des ans, qui ne connaissait pas Cupidité?
 
-Cupidité n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Il n'avait jamais fait de fausses promesses!
+Cupidité n'allait jamais nulle part sans trésors. Ses paroles avaient été confirmées maintes et maintes fois par les cultivateurs. Les avantages qu'il offrait n'étaient jamais de qualité inférieure!

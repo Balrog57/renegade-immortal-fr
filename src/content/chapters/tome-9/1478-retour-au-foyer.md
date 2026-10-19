@@ -34,7 +34,7 @@ Sa fierté et son arrogance étaient inscrites dans ses os!
 
 Si un jour la culture de Wang Lin atteignait un stade lui permettant d'en supporter davantage, il reviendrait pour continuer... Après avoir prononcé ces dernières paroles, Wang Lin agita la main. Ling Dong et Zhou Jin, stupéfaits par ce qu'ils venaient de voir, furent rangés dans le Fourneau Impérial par Wang Lin. Il mit également le corps du démon ancien dans son espace de stockage.
 
-Il rangea les Feuilles Ancestrales, l'épée de sang et le reste de ses biens. Ayant obtenu une partie de l'héritage, Wang Lin maîtrisait désormais la première couche de la tombe mieux que quiconque. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à quitter le palais.
+Il rangea les Feuilles Anciennes, l'épée de sang et le reste de ses biens. Ayant obtenu une partie de l'héritage, Wang Lin maîtrisait désormais la première couche de la tombe mieux que quiconque. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à quitter le palais.
 
 Cependant, à cet instant précis, le corps de Wang Lin trembla et il s'arrêta net. Il fixa le vide au loin.
 
@@ -46,7 +46,7 @@ Cette ombre noire était de forme ovale et d'une taille colossale. D'innombrable
 
 C'était le Serpent Regardant la Lune!!
 
-Deux cultivateurs siégeaient à la tête du Serpent Regardant la Lune: Ji Xiantian et Wudong Chan! Ils étaient extrêmement prudents, comme en état d'alerte face à l'imprévisible.
+Deux cultivateurs siégeaient à la tête du Serpent Regardant la Lune: Ji Xiantian et Wu Dongchan! Ils étaient extrêmement prudents, comme en état d'alerte face à l'imprévisible.
 
 Ils n'avaient pas besoin de plateformes, car le Serpent Regardant la Lune leur permettait de se déplacer dans la tombe comme Tuo Sen. Ils s'apprêtaient à utiliser la créature pour forcer l'entrée du palais.
 
@@ -56,11 +56,11 @@ Bien qu'anxieux, ils ne pouvaient qu'attendre nerveusement.
 
 Les yeux de Wang Lin s'illuminèrent et il esquissa un sourire narquois. Il fit un pas en avant pour se placer aux côtés du filet illusoire dans la partie nord du palais. Puis, d'un geste brusque, sa main droite s'étendit et déchira le filet!
 
-Des grondements de tonnerre résonnèrent et une immense fissure se propagea dans la toile. Ji Xiantian et Wudong Chan furent pris de surprise. Ils n'eurent pas le temps de comprendre ce qui arrivait qu'une violente bourrasque s'engouffra par la brèche.
+Des grondements de tonnerre résonnèrent et une immense fissure se propagea dans la toile. Ji Xiantian et Wu Dongchan furent pris de surprise. Ils n'eurent pas le temps de comprendre ce qui arrivait qu'une violente bourrasque s'engouffra par la brèche.
 
 La puissance du vent était irrésistible. Ils poussèrent des cris déchirants et crachèrent du sang. Avant même d'avoir pu apercevoir Wang Lin ou l'origine du souffle, ils furent aspirés dans l'espace de stockage de Wang Lin.
 
-Même le corps gigantesque du Serpent Regardant la Lune fut repoussé par la rafale. Ses yeux ternes s'éclaircirent et le sceau visible sur sa peau brilla violemment.
+Même le corps gigantesque du Serpent Regardant la Lune fut repoussé par la rafale. Ses yeux ternes s'éclaircirent et le sceau visible sur son front brilla violemment.
 
 Wang Lin sortit de la fissure et, sans hésiter, agita les bras. Le Serpent Regardant la Lune trembla tandis qu'une gigantesque faille spatiale se forma derrière lui, l'aspirant dans l'espace de stockage de Wang Lin.
 
@@ -100,7 +100,7 @@ Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea 
 
 Il disparut soudainement.
 
-Lorsqu'il réapparut, il se trouvait à la cinquième carte, celle d'où provenaient les Feuilles Ancestrales. Cet endroit conservait l'apparence qu'il lui avait laissée, sans aucun signe de destruction. Wang Lin agita la main droite et une Feuille Ancestrale apparut. Après l'avoir utilisée pour ouvrir le territoire scellé, il la rangea.
+Lorsqu'il réapparut, il se trouvait à la cinquième carte, celle d'où provenaient les Feuilles Anciennes. Cet endroit conservait l'apparence qu'il lui avait laissée, sans aucun signe de destruction. Wang Lin agita la main droite et une Feuille Ancienne apparut. Après l'avoir utilisée pour ouvrir le territoire scellé, il la rangea.
 
 Tout était identique à son départ; le vortex flottant au-dessus du sol tournoyait toujours lentement.
 

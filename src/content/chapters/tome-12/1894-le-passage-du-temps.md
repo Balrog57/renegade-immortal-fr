@@ -44,7 +44,7 @@ Durant ces quatre années, le vieil homme en robe verte n'était jamais apparu. 
 
 Des lumières vertes semblables à des œufs apparurent dans ses 108 000 pores. Ces lueurs étaient apparues deux ans plus tôt et, après avoir éclaté, elles avaient absorbé la chair et le sang de Wang Lin pour former de jeunes scorpions!
 
-Les scorpions utilisaient le corps de Wang Lin comme un nid et une source de nutriments. Après quatre ans, leur nombre avait presque doublé dans cet espace. Ils ne se contentaient plus de recouvrir Wang Lin; ils jonchaient désormais la majeure partie du sol. C'était un spectacle effroyable.
+Les scorpions utilisaient le corps de Wang Lin comme un nid et une source de nutriments. Après quatre ans, leur nombre avait doublé dans cet espace. Ils ne se contentaient plus de recouvrir Wang Lin; ils jonchaient désormais la majeure partie du sol. C'était un spectacle effroyable.
 
 L'apparition de ces jeunes scorpions provoquait des rides sur la peau de Wang Lin. Son corps s'étiolait progressivement, consommé par les créatures.
 
@@ -78,7 +78,7 @@ Dix ans! Il avait attendu dans l'espace vert pendant dix ans. Durant cette déce
 
 Pendant ces dix années, l'âme originelle de Wang Lin ne contrôlait pas son corps; elle restait dissimulée sous la protection de la Perle Défiant le Ciel. Il misait tout sur sa capacité d'endurance!
 
-Ce qui soutenait sa foi était son sens de l'analyse. Ce vieil homme en robe verte était manifestement un mortel, et pourtant Wang Lin ressentait une terreur profonde à son sujet. Cet homme avait réussi à faire agir avec politesse le Maître de la Secte du Dao Démon; si Wang Lin faisait un mouvement imprudent, il s'exposerait à un grand danger.
+Ce qui soutenait sa foi était son sens de l'analyse. Ce vieil homme en robe verte était manifestement un mortel, et pourtant Wang Lin ressentait une terreur profonde à son sujet. Cet homme avait réussi à faire agir avec politesse le Maître de la Secte du Dao Démoniaque; si Wang Lin faisait un mouvement imprudent, il s'exposerait à un grand danger.
 
 Il y avait trop de secrets inconnus au sein du Temple du Scorpion Vert. Surtout, puisque l'homme était un mortel, sa longévité ne pouvait être infinie!
 
@@ -100,7 +100,7 @@ Il ne manquait pas de patience. Il vivait dans ce bâtiment depuis plus de 2 000
 
 Trois ans, trois ans, quatre ans... La deuxième décennie s'écoula alors que les deux adversaires attendaient l'un l'autre. C'était une bataille d'une cruauté extrême, bien plus féroce que les combats ordinaires entre cultivateurs, car ils se livraient un combat contre le temps!
 
-Cette guerre temporelle était silencieuse, sans l'ombre d'un conflit apparent, mais elle était saturée de danger. La lignée du vieil homme s'était préparée pendant d'innombrables années pour ce moment. Ils ne pouvaient se permettre la défaite...
+Cette guerre temporelle était silencieuse, sans l'ombre d'un conflit apparent, mais elle était saturée de danger. La lignée du vieil homme s'était préparée pendant des dizaines de milliers d'années pour ce moment. Ils ne pouvaient se permettre la défaite...
 
 Wang Lin non plus ne pouvait pas échouer. À présent, même ses os commençaient à faiblir. Si son corps n'avait pas été celui d'un Dao Ancien, il aurait été réduit à néant depuis plusieurs années.
 
@@ -112,9 +112,9 @@ Pendant ces 20 ans, l'esprit de Wang Lin ne vacilla pas. Il restait ancré dans 
 
 Le temps peut parfois paraître d'une lenteur infinie, mais il s'écoule souvent comme les feuilles d'automne chutant du ciel: on croit percevoir un changement de saison, alors qu'en réalité, ce n'est qu'un bref voyage.
 
-En un éclair, 20 autres années passèrent. Wang Lin restait rarement au même endroit pendant 40 ans. Il avait également abandonné tout espoir pour son corps, et son âme originelle agissait comme si elle était morte.
+En un éclair, 20 autres années passèrent. Wang Lin, qui ne restait presque jamais au même endroit, y resta 40 ans. Il avait également abandonné tout espoir pour son corps, et son âme originelle agissait comme si elle était morte.
 
-Même son corps de Dao Ancien montrait des signes de décomposition totale après 40 ans.
+Même son corps de Dao Ancien montrait des signes de mort imminente après 40 ans.
 
 Le vieil homme en vert attendait toujours. Durant ces 40 dernières années, hormis ses besoins vitaux, il avait passé tout son temps à scruter le miroir et à attendre silencieusement.
 

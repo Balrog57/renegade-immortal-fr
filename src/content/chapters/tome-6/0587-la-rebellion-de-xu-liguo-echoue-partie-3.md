@@ -20,7 +20,7 @@ Le corps de Xu Liguo frissonna et il gloussa: « Maître, quel est votre ordre? 
 
 Wang Lin fixa Xu Liguo et demanda: « Sais-tu pourquoi je ne te laisse pas aller chercher cet esprit de lame? »
 
-Xu Liguo hocha précipitamment la tête en disant: « Je sais, je comprends! » Bien qu'il ait dit cela, il pensa intérieurement: « C'est clair, tu veux juste me séparer de la petite beauté. Je parie qu'il y a 80 % de chances que tu convoites toi-même la petite beauté. Hélas, moi, Xu Liguo, je suis si malchanceux d'avoir ma femme volée à un âge aussi précoce! »
+Xu Liguo hocha précipitamment la tête en disant: « Je sais, je comprends! » Bien qu'il ait dit cela, il pensa intérieurement: « C'est clair, tu veux juste me séparer de la petite beauté. Je parie qu'il y a 80 % de chances que tu convoites toi-même la petite beauté. Hélas, moi, Xu Liguo, si séduisant, je suis si malchanceux d'avoir ma femme volée à un âge aussi précoce! »
 
 « Dans la Cité du Démon Céleste, les experts sont aussi communs que les nuages. Penses-tu vraiment que personne ne te remarquera? Une fois découvert avec ta faible culture, tu ne feras que te faire capturer, on effacera ta volonté et tu deviendras l'esprit de lame pour leur trésor. Xu Liguo, ne comprends-tu toujours pas? » La voix de Wang Lin résonna dans le cœur de Xu Liguo comme le coup d'une cloche géante.
 
@@ -40,7 +40,7 @@ Après avoir écouté Xu Liguo, Wang Lin tendit la main vers la sphère formée 
 
 Alors qu'il ne restait que quelques centaines de filaments, un rayon d'énergie de lame jaillit soudainement, mais parce qu'il était entravé par l'énergie de massacre, il fut contraint de ralentir.
 
-Wang Lin était prêt. Il pinça ses doigts et l'énergie de la lame s'effondra instantanément. La lame en forme de demi-lune se débattit violemment entre ses doigts. Wang Lin ouvrit la bouche et cracha une dose d'énergie originelle sur elle, puis ses yeux s'illuminèrent. N'ayant pas le temps de la raffiner lentement, il choisit la voie directe. Peu importait qu'il endommage l'esprit de la lame, il décida d'y graver directement son aura.
+Wang Lin était prêt. Il pinça ses doigts et l'énergie de la lame s'effondra instantanément. La lame en forme de demi-lune se débattit violemment entre ses doigts. Wang Lin ouvrit la bouche et cracha une dose d'énergie originelle sur elle, puis ses yeux s'illuminèrent. N'ayant pas le temps de la raffiner lentement, il choisit la voie directe. Peu importait qu'il endommage l'esprit de la lame, il décida d'y graver directement sa marque spirituelle.
 
 Une fois cela fait, il agita sa main droite et la lame s'envola, libérant un chant de lame réticent!
 
@@ -134,7 +134,7 @@ Le jour déclina lentement et des lumières s'allumèrent sur les rives. Les ref
 
 Lorsque le bateau revint au point de départ, Wang Lin se leva, joignit les mains vers le jeune homme et s'apprêta à partir.
 
-À ce moment-là, le jeune homme, qui était resté muet toute la journée, dit doucement: « Mon frère semble avoir une compréhension différente de la musique de la cithare. »
+À ce moment-là, le jeune homme, qui était resté muet toute la journée, dit doucement: « Mon frère semble avoir ressenti la musique de la cithare d'une tout autre façon. »
 
 Wang Lin marqua une pause et répondit: « Cela me rappelle un vieil ami... »
 

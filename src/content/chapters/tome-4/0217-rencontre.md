@@ -26,7 +26,7 @@ Mais aujourd'hui, cette énergie violette était là et son Royaume Ji ne l'atta
 
 En ajoutant à cela ses diverses techniques, ses trésors et la puissance de l'Ancien Dieu, il n'aurait plus à craindre de combattre un cultivateur de la Formation de l'Âme, tout comme il ne craignait pas, en ce moment même, de combattre un cultivateur du début de l'Âme Naissante.
 
-Wang Lin prit une profonde inspiration. Sans rester immobile, il se déplaça tel un fantôme jusqu'au corps du singe spirituel. Il s'apprêtait à s'occuper de la dépouille quand son regard se figea soudainement; il observa le cadavre et murmura pour lui-même: « Pas étonnant, c'est une bête spirituelle de rang supérieur. Avec le niveau de culture de mon avatar, je n'aurais pas pu percevoir que son âme était encore présente. »
+Wang Lin prit une profonde inspiration. Sans rester immobile, il se déplaça tel un fantôme jusqu'au corps du singe spirituel. Il s'apprêtait à s'occuper de la dépouille quand son regard se figea soudainement; il observa le cadavre et murmura pour lui-même: « Pas étonnant, c'est une bête spirituelle de rang inférieur. Avec le niveau de culture de mon avatar, je n'aurais pas pu percevoir que son âme était encore présente. »
 
 Wang Lin leva sa main droite, la pressa à distance sur la tête du singe et, le visage glacial, déclara d'un ton calme: « Puisque nos chemins se sont déjà croisés, je vais te sauver une fois. À partir d'aujourd'hui, tu seras mon troisième démon! »
 

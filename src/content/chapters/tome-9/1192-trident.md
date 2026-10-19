@@ -38,7 +38,7 @@ Wang Lin se trouvait désormais au-dessus de la montagne; sa main droite s'étir
 
 Un trident colossal, d'un noir absolu, émergea de la brèche. Ce trident mesurait environ quatre mille pieds de long et perçait le ciel. Dès son apparition, une aura terrifiante se propagea.
 
-Une aura dense d'Ancien Dieu emplit la zone alors que Wang Lin saisissait le trident et le balayait devant lui. Trois lignes noires apparurent à la pointe de l'arme, comme si le monde lui-même était en train d'être fendu.
+Une aura dense d'Ancien Dieu emplit la zone alors que Wang Lin saisissait le trident et le balayait devant lui. Trois lignes noires apparurent à la pointe de l'arme, comme si le vide lui-même était fendu, dans un sifflement.
 
 Tenant le trident, Wang Lin se dressait tel un dieu au sommet de la montagne. Il frappa la restriction de son arme.
 
@@ -56,7 +56,7 @@ Cette scène fit suffoquer Maître Pin Cendré et la vieille femme en vert!
 
 « Ceci... ceci est... » L'esprit de Maître Pin Cendré trembla et ne put retrouver son calme pendant un long moment. Il cultivait depuis fort longtemps et connaissait de nombreuses techniques de raffinement corporel, mais aucune n'avait jamais produit un corps d'une telle ampleur. Ce qui le choquait le plus, c'est que ce corps ne semblait pas être une illusion; il était d'un réalisme absolu!
 
-Le visage de la vieille femme en vert était livide alors qu'elle fixait la silhouette gigantesque sur le point de disparaître par-delà la montagne. Elle serra les dents et poursuivit sa course.
+Le visage de la vieille femme en vert était pâle alors qu'elle fixait la silhouette gigantesque sur le point de disparaître par-delà la montagne. Elle serra les dents et poursuivit sa course.
 
 Bien que Maître Pin Cendré fût sous le choc, il s'était préparé durant mille ans et avait dépensé de nombreux trésors pour cet instant. Il n'était pas disposé à laisser sa proie lui échapper! Ses yeux devinrent injectés de sang et il se mit également à la poursuite. Sa main droite pointa plusieurs fois son épaule gauche, et un nouveau bras se forma à partir de la lumière aux sept couleurs.
 
@@ -86,7 +86,7 @@ Cette scène changea radicalement l'expression de Maître Pin Cendré. Fort de s
 
 « Cet homme est lui aussi un expert en restrictions! » pensa Maître Pin Cendré en contemplant la formation qui emprisonnait totalement la vieille femme. Il pouvait clairement ressentir sa puissance. Il prit une profonde inspiration, mais ne renonça pas pour autant à sa lutte pour la bouteille de jade.
 
-« Que la vieille femme Zhao soit piégée est une chance pour moi. Tant que je tue cet homme nommé Lu, je pourrai récupérer le jade. Grâce à ma connaissance des lieux, personne ne pourra me trouver! » Une lueur d'intention meurtrière traversa les yeux de Maître Pin Cendré et il prit une décision instantanée. Il se déplaça autour des restrictions à l'extérieur de la vallée et ses mains formèrent un sceau. Des dizaines de milliers de particules de lumière dorée apparurent et s'élancèrent toutes vers Wang Lin.
+« Que la vieille femme Zhao soit piégée est une chance pour moi. Tant que je tue cet homme nommé Lu, je pourrai récupérer le jade. Grâce à ma connaissance des lieux, personne ne pourra me trouver! » Une lueur d'intention meurtrière traversa les yeux de Maître Pin Cendré et il prit une décision instantanée. Il se déplaça autour des restrictions à l'extérieur de la vallée et ses mains formèrent un sceau. Plus de dix mille particules de lumière dorée apparurent et s'élancèrent toutes vers Wang Lin.
 
 Une froideur glaciale passa dans les yeux de Wang Lin. Il attendait cette opportunité. Il ne pouvait pas combattre deux cultivateurs du stade intermédiaire du Briseur du Nirvana simultanément. Il devait en blesser ou en piéger un avant de pouvoir lutter sereinement!
 

@@ -24,7 +24,7 @@ Quant à la tornade royale, elle arborait une étrange expression sur son visage
 
 La différence entre les tornades était considérable; elle dépendait du nombre de petites créatures qu'elles contenaient. Plus leur nombre était élevé, plus la tornade allait vite. En conséquence, les tourbillons formèrent une ligne en poursuivant Wang Lin. La tornade que contrôlait Wang Lin possédait un nombre décent de petites créatures, sa vitesse n'était donc pas lente non plus.
 
-Bien que les tornades le traquent, Wang Lin n'avait aucune crainte. Au lieu de cela, il calcula la vitesse de ces tourbillons avant de se retourner pour observer les plus proches. Il ouvrit la bouche et cracha une lueur cristalline. L'épée volante se téléporta instantanément vers les tornades qu'il avait ciblées.
+Bien que les tornades le traquent, Wang Lin n'avait aucune crainte. Au lieu de cela, il calcula la vitesse de ces tourbillons avant de se retourner pour observer les plus rapides. Il ouvrit la bouche et cracha une lueur cristalline. L'épée volante se téléporta instantanément vers les tornades qu'il avait ciblées.
 
 Son Sens Divin du Royaume Ji voyageait à l'intérieur de l'épée volante. Ses cibles n'étaient pas les petites créatures qui agissaient comme des soldats, mais celles qui dirigeaient chaque tornade.
 

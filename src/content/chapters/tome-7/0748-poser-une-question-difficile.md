@@ -42,7 +42,7 @@ C'était comme si le Royaume Céleste du Tonnerre était une zone interdite pour
 
 Et tout cela avait changé avec l'arrivée de Li Yuan. Elle était devenue la deuxième membre de sa lignée à pénétrer dans ce royaume depuis des dizaines de milliers d'années, et la seule personne pour l'accompagner était ce Li Yuan!
 
-« Ainsi, l'ancêtre m'a envoyée au Royaume Céleste du Tonnerre pour expier mes fautes... C'est pourquoi il m'a confié le trésor d'héritage familial... » La femme nommée Ge laissa échapper un sourire pitoyable.
+« Ainsi, l'ancêtre m'a envoyée au Royaume Céleste du Tonnerre pour expier mes fautes... C'est pourquoi il m'a confié le trésor d'héritage familial... » La femme nommée Ge laissa échapper un rire amer.
 
 « Li Yuan a probablement promis de ramener une parcelle de mon âme, car le sacrifice ne pourrait fonctionner si mon âme n'était pas complète... » À cet instant, l'esprit de la femme était d'une clarté absolue, comme si elle avait percé tous les mystères.
 
@@ -76,7 +76,7 @@ Wang Lin ne bougea pas. Il fixa calmement Li Yuan et dit lentement: « Cet endro
 
 L'expression de Li Yuan devint immédiatement sombre. Il fixa longuement Wang Lin avant de dire avec lenteur: « Il semble que je vous aie sous-estimé. Cependant, même avec cette marionnette... »
 
-Wang Lin eut un ricanement et pointa sa main droite vers l'avant. La dernière parcelle de l'énergie d'épée de Ling Tianhou fut libérée. Depuis que son niveau de culture avait augmenté, sa maîtrise de cette énergie était devenue d'une précision extrême.
+Wang Lin eut un ricanement et pointa sa main droite vers l'avant. La dernière parcelle de l'énergie d'épée de Ling Tianhou fut libérée. Depuis qu'il avait atteint le sommet du stade tardif de l'Ascendant, sa maîtrise de cette énergie était devenue d'une précision extrême.
 
 Dès que l'énergie d'épée apparut, un sifflement retentit à travers les cieux et la terre, faisant trembler tout le sommet. L'énergie était si rapide qu'en un clin d'œil, elle s'immobilisa devant le front de Li Yuan. C'était comme si une véritable lame était pointée entre les sourcils de l'homme.
 

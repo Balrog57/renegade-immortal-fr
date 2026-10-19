@@ -8,7 +8,7 @@ slug: reunion1
 ---
 Observant la planète de culture bleue, le sens divin de Situ Nan s'étira et se projeta en avant. C’était comme une tempête qui chargeait la planète pour la balayer de part en part.
 
-Le stade de culture Purificateur du Nirvana de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une puissance quasi infinie.
+Le stade précoce de culture Purificateur du Nirvana de Situ Nan rendait son sens divin extrêmement aiguisé. Conjugué à son domaine arrogant, presque démoniaque, cela lui conférait une acuité capable de bouleverser le ciel et la terre, sans aucune crainte.
 
 Alors qu'il survolait la planète, celle-ci trembla comme si une paire de mains gigantesques jouait avec elle. Des grondements sourds jaillirent de la terre et le ciel changea de couleur!
 
@@ -24,7 +24,7 @@ Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui 
 
 Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin. Cependant, Wang Lin était en plein processus d'affinage du cadavre féminin et avait atteint l'instant le plus critique.
 
-Le sens divin de Wang Lin était presque totalement lié au cadavre féminin. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que le cadavre lui-même. Après tout, celui-ci se trouvait également au stade Purificateur du Nirvana.
+Le sens divin de Wang Lin était presque totalement lié au cadavre féminin. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que le cadavre lui-même. Après tout, celui-ci se trouvait également au stade précoce de Purificateur du Nirvana.
 
 Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Fu Fengzi brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
 
@@ -48,7 +48,7 @@ Le visage de Maître Yi Chen était pâle. Il n'avait aucune certitude que ces t
 
 Ces deux derniers étaient gravement blessés, mais même s'ils l'avaient été moins, cela n'aurait pas importé pour Situ Nan. Il rit et disparut de son grand lit pour réapparaître à l'extérieur de la planète Esprit d'Eau.
 
-« Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des fours de concubine que je vais chercher pour mon frère, pas pour moi! Mortels, placez-vous de mon côté! »
+« Résister, c'est bien. Plus vous résistez, plus je m'excite. Bon sang, cette fois, ce sont des fours de concubine que je vais chercher pour mon frère, pas pour moi! Je suis du côté de la justice! »
 
 Les yeux de Situ Nan brillèrent d'une lueur étrange alors qu'il fondait sur la planète Esprit d'Eau. Soudain, il pointa son index droit vers l'avant!
 
@@ -80,13 +80,13 @@ Toutefois, cela restait la méthode la plus élémentaire: on se contentait d'ab
 
 Mais si l'on comprenait les lois, on pouvait utiliser la *transformation* en complément de l'absorption et de la condensation!
 
-Cette fameuse « transformation » consistait en un changement qualitatif: en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Purificateur du Nirvana appelaient la « puissance de la loi ».
+Cette fameuse « transformation » consistait en un changement qualitatif: en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Briseurs du Nirvana appelaient la « puissance de la loi ».
 
 En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Fu Fengzi était si stupéfait!
 
 Situ Nan cria alors que le vortex de 100 pieds devant lui se contracta jusqu'à n'atteindre que la taille de sa main, avant de foncer droit sur la formation planétaire.
 
-« Brise-toi, vieux débris! » Situ Nan fit un pas en avant vers le vortex.
+« Brise-toi, pour ce vieil homme! » Situ Nan fit un pas en avant vers le vortex.
 
 Le vortex était si rapide qu'il fut instantané. En approchant, il fit trembler violemment la deuxième couche. Lorsque le tourbillon la toucha, la couche se tordit de manière inattendue et fut aspirée par le vortex sans aucune résistance.
 
@@ -98,7 +98,7 @@ Le vortex chargea la planète Esprit d'Eau. Tout en laissant échapper un rire a
 
 Dès que Situ Nan et son vortex apparurent au-dessus de la planète Esprit d'Eau, les trois frères Chen crachèrent du sang une fois de plus. La formation de protection étant liée à leur propre essence, ils furent contraints de reculer.
 
-Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également. Il regarda avec enthousiasme les trois frères Chen et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
+Derrière Situ Nan, les cultivatrices du Palais Rose suivirent rapidement, remplissant le ciel. Le parfum qu'elles dégageaient était suffisant pour enivrer les esprits. L'homme d'âge mûr vêtu de bleu arriva également. Il fixa les trois frères Chen d'un regard haineux et pensa: « Même vous trois vieux débris pouvez connaître une telle journée! »
 
 Le visage du Maître Yi Chen se fit sombre alors qu'il fixait Situ Nan en criant: « Cher cultivateur possède une puissance incroyable; je présume que vous n'êtes pas un inconnu! »
 
@@ -106,7 +106,7 @@ Situ Nan le dévisagea et éclata de rire. « Je suis Situ Nan! »
 
 « Cher cultivateur Situ possède une telle puissance, pourquoi nous forcer, nous trois? De plus, Ling Er et Zhao Xue ne sont que des juniors, nous vous en prions, laissez-les partir. Nous, les frères Chen, ferons amende honorable. »
 
-En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de culture, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... à peine mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter! »
+En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de culture, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... plus de mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter! »
 
 « Senior, Zhao Xue peut partir avec vous, mais je vous en prie, épargnez ma sœur junior! » Au loin, deux traînées de lumière arrivèrent, révélant deux femmes. L'une était Zhao Xue et à ses côtés se tenait Ling Er, d'un calme absolu.
 

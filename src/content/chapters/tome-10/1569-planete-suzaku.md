@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1569 - Planet Suzaku
 slug: planete-suzaku
 ---
-Le ciel étoilé était aussi calme qu'un océan sombre, endormi, sans vent ni vagues. Les étoiles scintillantes ressemblaient aux yeux de mères, capables d'éveiller en chacun une profonde nostalgie.
+Le ciel étoilé était aussi calme qu'un océan sombre, endormi, sans vent ni vagues. Les étoiles scintillantes ressemblaient aux yeux d'une mère, capables d'éveiller en chacun une profonde nostalgie.
 
 Lorsqu'on n'a plus de proches, ces yeux étincelants deviennent flous. Un sentiment de tristesse surgit alors du plus profond du cœur pour se transformer en un soupir.
 
@@ -56,7 +56,7 @@ Il contempla silencieusement la planète, ce foyer gravé dans sa mémoire. Bien
 
 La mélancolie sur son visage s'intensifia.
 
-« Les choses restent les mêmes mais les gens changent » est une phrase utilisée pour décrire le temps. Cependant, pour Wang Lin, même ces choses éternelles semblaient changer...
+« Les choses restent les mêmes mais les gens changent » est une phrase utilisée pour décrire le temps. Cependant, pour Wang Lin, même ces choses éternelles semblaient changer... Ce n'était plus « les choses restent, les gens changent », mais « ni les choses ni les gens ne sont restés les mêmes »...
 
 Il fixait la planète Suzaku, stupéfait. Une puissante formation entourait la planète et restait constamment active. Elle générait une ondulation qui se propageait à travers tout le système stellaire.
 
@@ -90,7 +90,7 @@ Les trois disciples lancèrent des regards venimeux au fou. Les deux jeunes homm
 
 Le fou pinça les lèvres, affichant une mine vexée tout en marmonnant: « Si vous ne voulez pas le dire, tant pis. Pourquoi me regarder ainsi... Ce Roi demandait simplement leurs noms. »
 
-L'expression de Wang Lin resta neutre tandis qu'il tapotait l'épaule du fou. Il ne chercha pas à contourner la planète Suzaku, mais entra directement par la formation.
+L'expression de Wang Lin resta neutre tandis qu'il tapotait l'épaule du fou. Il ne pénétra pas directement sur la planète Suzaku, mais choisit d'emprunter la formation.
 
 Puisqu'il rentrait chez lui, il allait passer par la porte principale. Quelle logique y aurait-il à faire autrement?
 

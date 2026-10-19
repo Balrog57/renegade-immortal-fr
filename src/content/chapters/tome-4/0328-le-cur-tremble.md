@@ -14,7 +14,7 @@ Cet endroit n'était qu'à 400 000 kilomètres de la Mer des Démons. En un seul
 
 Il baissa les yeux vers la pierre de jade céleste qu'il tenait en main. Elle n'était plus d'un blanc pur; une nuance grise l'imprégnait désormais. Il lui manquait environ 10 % de l'énergie spirituelle céleste qui s'y trouvait.
 
-Se remémorant la carte qui était apparue lors de l'activation du réseau, Wang Lin comprit soudainement quelque chose. Peut-être s'agissait-il là de la véritable méthode d'utilisation des anciens réseaux de transfert: les pierres spirituelles de haute qualité ne pouvaient ouvrir qu'un seul point précis, tandis que l'usage d'une pierre de jade céleste permettait d'ouvrir tous les réseaux de transfert interconnectés.
+Se remémorant la carte qui était apparue lors de l'activation du réseau, Wang Lin comprit soudainement quelque chose. Peut-être s'agissait-il là de la véritable méthode d'utilisation des anciens réseaux de transfert: les pierres spirituelles de qualité supérieure ne pouvaient ouvrir qu'un seul point précis, tandis que l'usage d'une pierre de jade céleste permettait d'ouvrir tous les réseaux de transfert interconnectés.
 
 « Cependant, un seul transfert a consommé 10 %. Bien que je possède une quantité non négligeable de jade céleste, je ne peux pas la gaspiller ainsi. Ce n'est plus un transfert, c'est un gaspillage d'énergie spirituelle céleste. Peu de gens à Suzaku peuvent utiliser du jade céleste pour se téléporter... » Wang Lin se moqua de lui-même avant de s'élancer dans les airs et de prendre son envol.
 

@@ -12,7 +12,7 @@ Son œil droit scintillait d'un éclat écarlate, exhalant une intention meurtri
 
 Le visage du Dieu de Sang était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
 
-Une flamme brûlait encore à l'intérieur de l'antique lampe. Non loin de là, les yeux de Wang Lin étaient rivés sur l'objet dès son apparition. Il pouvait clairement distinguer l'ombre d'une femme en proie à une lutte acharnée au cœur de la lampe. Un sentiment de tristesse semblait émaner des flammes.
+Une flamme brûlait encore à l'intérieur de l'antique lampe. Non loin de là, les yeux de Wang Lin étaient rivés sur l'objet dès son apparition. Il pouvait clairement distinguer l'ombre d'une femme en proie à une lutte acharnée au cœur de la lampe. Un sentiment de tristesse muette semblait émaner des flammes et se répandre dans le ciel étoilé.
 
 D'un geste du doigt du Dieu de Sang, le feu à l'intérieur de la lampe antique s'enflamma violemment. Soudain, l'ombre d'un immense démon ancien jaillit de la lampe!
 
@@ -42,13 +42,13 @@ Un éclair de foudre rouge jaillit de ses yeux et chargea. Dès l'apparition du 
 
 À cet instant, l'énergie démoniaque s'effondra et se dissipa immédiatement face à ce pouvoir. C'était comme si l'énergie démoniaque n'était rien face au Royaume Ji!
 
-L'éclair rouge portait une aura terrifiante, contenant toute la sauvagerie de l'existence de Qing Shui. Il créa une tempête qui fonça à une vitesse fulgurante vers le démon surgissant de la lampe antique.
+L'éclair rouge portait une aura terrifiante, contenant tous les massacres de la vie de Qing Shui. Il créa une tempête qui fonça à une vitesse fulgurante vers le démon surgissant de la lampe antique.
 
 Les yeux du démon ancien trahirent un choc profond. Sans fléchir, il tendit la main pour saisir le Royaume Ji! À cet instant, un rugissement tonitruant commença à résonner!
 
 La griffe droite du démon ancien s'effondra instantanément lorsque le Royaume Ji pénétra son corps. Cet effondrement ne s'arrêta pas à la griffe mais se propagea à tout le corps du démon. En un instant, l'intégralité de l'ancien démon s'écroula!
 
-Cependant, au moment où il s'effondrait, les flammes dans la lampe antique brûlèrent avec intensité et l'ombre du démon ancien se condensa de nouveau. Bien que plus ténue qu'auparavant, une lumière rouge scintillait entre ses sourcils. Si l'on regardait de près, on verrait que cette lumière rouge était le Royaume Ji!
+Cependant, au moment où il s'effondrait, les flammes dans la lampe antique brûlèrent avec intensité et l'ombre du démon ancien se condensa de nouveau. Bien que plus ténue qu'auparavant, une lumière rouge scintillait entre ses sourcils. Si l'on regardait de près, on verrait que cette lumière rouge contenait une trace de la puissance du Royaume Ji!
 
 « Tous les sorts de ce monde sont issus de mon clan des démons anciens. Seul celui-ci, qui contient une trace du pouvoir des Cieux, n'appartient pas au mien. Pourtant, ce pouvoir m'appartient désormais! » Une voix antique résonna parmi les étoiles. Les yeux du démon ancien brillèrent d'un éclat maléfique. La lumière rouge entre ses sourcils vacilla et projeta un rayon de foudre vers Qing Shui.
 
@@ -112,6 +112,6 @@ C'était comme s'il n'avait besoin que d'une seule pensée pour provoquer l'effo
 
 Wang Lin ferma les yeux. Après un long moment, il réprima le choc dans son cœur, joignit les mains vers Qing Shui et dit: « Merci... Je me souviendrai à jamais que Senior m'a sauvé! »
 
-Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Invoquer le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était l'arrangement de mon Maître... »
+Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Invoquer le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était peut-être l'arrangement de mon Maître... »
 
 « Tu n'as pas encore formé ton origine céleste, et sans le Bassin Céleste, cela te sera impossible. Maintenant que la compétition des 108 titres célestes du Temple Céleste du Tonnerre approche, les 36 Célestes du Ciel ont le droit d'accéder au Bassin Céleste. Tu devrais aller te battre pour l'obtenir! »

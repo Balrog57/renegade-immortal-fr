@@ -26,7 +26,7 @@ Shengong Hu dit: « Zhan Konglie! »
 
 L'homme au visage féminin détourna soigneusement le regard de Wang Lin, craignant de provoquer un malentendu. À ses yeux, bien que le niveau de culture de cet individu ne fût qu'au stade avancé de l'Ascendant, être capable de pénétrer dans le cercle intérieur du lac de tonnerre était tout simplement trop étrange. À moins que cet homme ne cache un trésor d'une puissance inimaginable, il devait impérativement dissimuler son véritable niveau de culture.
 
-Il aperçut également la Bête de Tonnerre aux cornes argentées à la lisière du lac ainsi que la marionnette. Ses soupçons s'accentuèrent.
+Il aperçut également la Bête de Tonnerre aux cornes argentées dans le lac ainsi que la marionnette. Ses soupçons s'accentuèrent.
 
 Il pensa: « Il doit posséder un trésor caché. Il est impossible qu'il dissimule son niveau de culture! Mais pourquoi y a-t-il deux Bêtes de Tonnerre ici? Cet homme pourrait-il aussi être un messager du Temple Céleste du Tonnerre? » Après tout, pénétrer le cercle intérieur du lac de tonnerre était une perspective terrifiante. Même avec sa culture au sommet du stade Corporel Yang, il lui aurait été impossible d'y entrer.
 
@@ -38,9 +38,9 @@ Bien qu'il fût blessé et que sa culture ne fût pas encore rétablie, la prés
 
 Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit lentement: « Quelles grandes paroles. Cet endroit appartient-il à ta famille Shengong? Interdirais-tu l'accès aux étrangers simplement parce que tu as amené un junior ici pour sa culture? »
 
-Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pars pas dans trois respirations, alors autant ne plus repartir du tout! » Il détestait profondément cet homme talentueux de la famille Zhan. Si leurs forces n'étaient pas si proches, les deux se seraient déjà affrontés.
+Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pars pas dans trois respirations, alors autant ne plus repartir du tout! » Il éprouvait une certaine aversion pour cet homme talentueux de la famille Zhan. Si leurs forces n'étaient pas si proches, les deux se seraient déjà affrontés.
 
-Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait ce regard sur Zhan Konglie, cela suffirait à faire s'effondrer ce dernier!
+Si ce Zhan Konglie persistait dans son ingratitude et perturbait la culture de son Senior, il l'attaquerait, même avec une culture endommagée. Tant que le Senior jetterait sur Zhan Konglie le même regard qu'autrefois sur Shengong Hu, cela suffirait à faire s'effondrer ce dernier!
 
 Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. Bien que le tuer soit problématique, tant que le Senior était là, ce ne serait qu'une mince affaire.
 
@@ -62,7 +62,7 @@ Plus Shengong Hu agissait ainsi, plus Zhan Konglie était plongé dans le doute.
 
 En repensant au regard de la Bête de Tonnerre, une idée absurde germa dans l'esprit de Zhan Konglie. Ses yeux s'illuminèrent, sa main traça un sceau et un rayon de tonnerre pourpre apparut dans sa paume. L'épée de bois pourpre sous ses pieds libéra une puissante énergie de sabre. Les deux forces fusionnèrent pour créer une pression écrasante.
 
-Cette pression contenait de l'énergie originelle. Ce n'était que le premier sort, mais il utilisait déjà un sort originel. Il était évident que Zhan Konglie traitait ce combat avec une extrême prudence.
+Cette pression contenait de l'énergie originelle. Il utilisait déjà un sort originel. Il était évident que Zhan Konglie traitait ce combat avec une extrême prudence.
 
 Le combat était sur le point d'éclater. Shengong Hu fit un pas et pointa sa main vers le ciel comme pour invoquer la foudre de la rétribution divine. La Bête de Tonnerre à ses côtés rugit et rassembla d'innombrables éclairs autour de son corps. Les deux créaient une scène absolument saisissante.
 

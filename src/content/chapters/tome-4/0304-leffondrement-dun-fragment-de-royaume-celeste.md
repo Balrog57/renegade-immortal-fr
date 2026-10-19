@@ -12,7 +12,7 @@ Autrement, même en obtenant le trésor, il serait toujours traqué par ces bêt
 
 Il l'avait déjà anticipé: une fois le trésor acquis, il jetterait le squelette vers Wang Lin. Il était convaincu que les créatures se précipiteraient sur Wang Lin, qui serait plus proche, plutôt que sur lui.
 
-Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Sun Lei durant tout ce temps; comment pourrait-il le laisser réussir? Bien que cette glace noire fût effectivement étrange, il tenait déjà la sculpture du vieillard dans sa main.
+Les yeux de Wang Lin s'illuminèrent. Il était resté sur ses gardes face à Sun Lei durant tout ce temps; comment pourrait-il le laisser réussir? Bien que cette glace noire fût effectivement étrange, il tenait déjà la sculpture du vieillard en robe bleue dans sa main.
 
 À l'instant même où la glace noire scella la zone, le domaine temporel de la sculpture en bois fut libéré.
 
@@ -34,7 +34,7 @@ Wang Lin le rattrapa et pénétra dans la grotte.
 
 Sun Lei maudit intérieurement, mais sachant que le temps pressait — car la moitié du délai s'était déjà écoulée — il se précipita à son tour à l'intérieur.
 
-Une fois entré, il vit Wang Lin ramasser le morceau de métal sur la poitrine du squelette et, sans un mot, s'avancer pour saisir l'épée céleste.
+Une fois entré, il vit Wang Lin ramasser le morceau de métal doré sur la poitrine du squelette et, sans un mot, s'avancer pour saisir l'épée céleste.
 
 Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors que des trous se formaient dans sa chair.
 
@@ -62,7 +62,7 @@ Sun Lei ferma les yeux et ordonna: « Explose! »
 
 La perle noire libéra soudain une lumière ténébreuse et explosa. Un anneau de lumière noire se propagea. La créature céleste se comprima brusquement en une sphère pour tenter de bloquer le choc.
 
-Mais les créatures célestes situées derrière elle, qui venaient tout juste de briser la paroi de glace, disparurent sans opposer la moindre résistance.
+Mais les créatures célestes situées derrière elle, qui venaient tout juste de se libérer de la glace noire, disparurent sans opposer la moindre résistance.
 
 Même les grottes environnantes s'évanouirent sans laisser de trace.
 
@@ -102,7 +102,7 @@ Le vide se rapprochait encore: 33 mètres, 16,5 mètres, 10 mètres...
 
 Wang Lin vit qu'à 10 mètres de lui, une gueule semblait déjà grande ouverte.
 
-Il avala le cristal et ressentit, pour la toute première fois, une douleur dans son âme. C'était une souffrance causée par l'excès d'énergie spirituelle céleste dans son corps.
+Il avala le cristal et ressentit, pour la toute première fois, une douleur dans son âme originelle. C'était une souffrance brûlante causée par l'excès d'énergie spirituelle céleste dans son corps.
 
 À cet instant, Wang Lin eut l'impression que son âme originelle pouvait s'effondrer à tout moment, mais au cœur de cette douleur, un fragment de puissance naquit. Ce pouvoir lui donna la sensation qu'il pouvait soutenir le monde entier sur ses épaules.
 

@@ -26,11 +26,11 @@ Wang Lin sourit en les regardant, mais ne dit guère mot. Il frappa son sac de r
 
 « Pour que vous puissiez enfin vous unir, considérez ces jades célestes comme un cadeau de ma part! » Les paroles de Wang Lin étaient empreintes de sincérité. Il sortit ensuite quelques pilules avant de se retourner et de partir.
 
-Dans le pays de culture de rang 5 contrôlé par le Clan des Démons Géants, l'apparence de Chi Hu n'avait que peu changé, mais il dégageait désormais une aura antique. Les membres du Clan des Démons Géants possédaient une longévité bien supérieure à celle des cultivateurs ordinaires, et Chi Hu était déjà devenu le patriarche de leur clan.
+Dans le pays de culture de rang 5 contrôlé par le Clan des Démons Géants, l'apparence de Chi Hu n'avait que peu changé, mais il dégageait désormais une aura antique. Les membres du Clan des Démons Géants avaient une longévité un peu différente de celle des cultivateurs ordinaires, et Chi Hu était déjà devenu le patriarche de leur clan.
 
-Il avait atteint le stade avancé de la Transformation de l'Âme et n'était qu'à un pas de l'Ascendant. Cependant, compte tenu de la puissance de son corps et de ses capacités de lignée, il osait même défier des cultivateurs Ascendants.
+Il avait atteint le stade avancé de la Transformation de l'Âme et n'était qu'à un pas de l'Ascendant. Cependant, compte tenu de la puissance de son corps et de ses capacités de lignée à peine éveillées, il osait même défier des cultivateurs Ascendants.
 
-Au cours de ces centaines d'années, Chi Hu était devenu une figure encore plus respectée et occupait désormais une position notable sur la planète Suzaku. Le Clan des Démons Géants constituait l'un des piliers de la planète.
+Au cours de ces centaines d'années, Chi Hu était devenu encore plus posé et occupait désormais une position notable sur la planète Suzaku. Le Clan des Démons Géants constituait l'un des piliers de la planète.
 
 Pourtant, le passage du temps ne pouvait effacer la mélancolie qu'il éprouvait pour un ami. Grâce à son statut, il savait naturellement que Wang Lin était de retour. Il avait même été témoin de la bataille entre Wang Lin et le garçon à la grosse tête. Son cœur était partagé par des émotions complexes.
 
@@ -82,7 +82,7 @@ Le corps de Li Qiqing trembla en voyant le cercueil. À cet instant, tout ce qui
 
 « Petite sœur... » Des larmes coulèrent sur les joues de Li Qiqing. La cruauté qui habitait ses yeux un instant plus tôt s'évanouit, remplacée par un amour fraternel.
 
-« Avant que Père et Mère ne partent, ils m'avaient fait promettre de prendre soin de toi. Grand frère a été inutile de ne pas avoir pu te protéger... » Le visage de Li Qiqing était empreint de tristesse alors qu'il contemplait la femme dans le cercueil. Une douleur déchirante envahit son corps.
+« Avant que Père et Mère ne partent, ils m'avaient chargé de prendre soin de toi. Grand frère a été inutile de ne pas avoir pu te protéger... » Le visage de Li Qiqing était empreint de tristesse alors qu'il contemplait la femme dans le cercueil. Une douleur déchirante envahit son corps.
 
 Wang Lin ne dit rien et resta silencieusement en retrait.
 

@@ -14,7 +14,7 @@ Tout comme lorsqu'il s'enivrait avec Situ Nan, il n'osait pas regarder en arriè
 
 Même Wang Lin ne pouvait plus se souvenir précisément du nombre de victimes. Le meurtre n'était pas un acte dont tout le monde se réjouissait. Pour Wang Lin, ces mille années de sang ne faisaient que l'épuiser.
 
-Cependant, dans ce cruel monde de culture, si vous ne tuiez pas, vous offrez votre propre vie. Personne ne pouvait rien faire face au choix inévitable entre tuer ou être tué.
+Cependant, dans ce cruel monde de culture, si vous ne tuiez pas, vous offrez votre propre vie. Personne ne pouvait lutter contre ce choix inévitable entre tuer et être tué.
 
 On ne pouvait pas y échapper!
 
@@ -48,9 +48,9 @@ Mais avec la mort de son père, devait-elle encore chercher à raisonner avec le
 
 « Le véritable effet n'est pas de devoir combattre l'Ancêtre Sanguin ou ce que Yao Xixue a dit, mais mon propre cœur Dao! » Une lueur apparut dans les yeux de Wang Lin.
 
-« Mon domaine karmique n'est pas encore achevé, et sa progression est lente. Peu importe mes illuminations, il semble que je ne puisse comprendre ce qu'est réellement le karma... Autrefois, je sentais vaguement que pour compléter mon domaine karmique, je devrais accomplir tout le karma lié à moi. Il semble que mon intuition de l'époque n'était que partiellement correcte. » Les yeux de Wang Lin commencèrent à briller de plus belle.
+« Mon domaine karmique n'est pas encore achevé, et sa progression est lente. Peu importe mes illuminations, il semble que je ne puisse comprendre ce qu'est réellement le karma... Autrefois, je sentais vaguement que pour compléter mon domaine karmique, je devrais dénouer tout le karma qui me lie. Il semble que mon intuition de l'époque n'était que partiellement correcte. » Les yeux de Wang Lin commencèrent à briller de plus belle.
 
-Yao Xixue fixa Wang Lin d'un regard venimeux. Plus Wang Lin restait silencieux, plus sa haine s'intensifiait et son ressentiment grandissait. Après avoir poussé un cri de douleur, Yao Xixue forma un sceau et pointa entre ses sourcils sans hésiter.
+Yao Xixue fixa Wang Lin d'un regard venimeux. Plus Wang Lin restait silencieux, plus sa haine s'intensifiait et son ressentiment grandissait. Après un rire strident, Yao Xixue forma un sceau et pointa entre ses sourcils sans hésiter.
 
 « Wang Lin, finissons-en! Moi, Yao Xixue, je suis prête à sacrifier mon âme et ma chair pour venger mon père! »
 
@@ -80,15 +80,15 @@ Elle avait sacrifié sa chair et son âme pour devenir entièrement le réceptac
 
 L'ancien démon était très adaptable. Autrefois, il avait été divisé en neuf parties, chacune possédant son propre esprit indépendant. Certains souhaitaient fusionner de nouveau, tandis que d'autres préféraient rester séparés.
 
-Au cours de ces centaines d'années, Bei Lou avait dévoré sept anciens esprits démoniaques et avait recouvré 80 % de sa culture passée. Les 20 % restants résidaient en ce Démon du Vent.
+Au cours de ces centaines d'années, Bei Luo avait dévoré sept anciens esprits démoniaques et avait recouvré 80 % de sa culture passée. Les 20 % restants résidaient en ce Démon du Vent.
 
 Le Démon du Vent différait des autres esprits. Il refusait la fusion et, quel qu'en soit le prix, avait choisi une autre voie. Après avoir échoué à fusionner avec d'innombrables individus, il avait finalement choisi Yao Xixue. En exploitant son obsession née de sa haine envers Wang Lin, il avait réussi sa fusion.
 
 Cette fusion était insensée car il ne s'agissait pas d'une simple possession. D'abord, il transféra son héritage d'ancien démon à Yao Xixue. Ensuite, au péril de sa vie, il effondra son propre corps pour se transformer en une énergie démoniaque dépourvue de conscience.
 
-En conséquence, il renonçait à son identité d'esprit démoniaque ancien, ce qui équivalait à la mort! Au prix de sa propre existence, il n'avait pas laissé de chance à Bei Lou de le dévorer.
+En conséquence, il renonçait à son identité d'esprit démoniaque ancien, ce qui équivalait à la mort! Au prix de sa propre existence, il n'avait pas laissé de chance à Bei Luo de le dévorer.
 
-C'était un événement que même Bei Lou n'avait pas anticipé. Lorsqu'il s'en rendit compte, il était trop tard, car le Démon du Vent s'était déjà effondré.
+C'était un événement que même Bei Luo n'avait pas anticipé. Lorsqu'il s'en rendit compte, il était trop tard, car le Démon du Vent s'était déjà effondré.
 
 Bien que Yao Xixue possédât l'héritage mémoriel du Démon du Vent, elle ne pouvait qu'en absorber les fragments sans y accéder pleinement. Au cours de ces centaines d'années d'absorption d'énergie démoniaque, celle-ci s'était accumulée jusqu'à un certain seuil.
 
@@ -102,7 +102,7 @@ Yao Xixue n'était que le réceptacle de ces mémoires.
 
 Dès l'instant où les souvenirs seraient pleinement activés, tous ceux de Yao Xixue disparaîtraient, laissant dans son corps une âme ne contenant plus que les souvenirs du Démon du Vent. Elle deviendrait ainsi le nouveau Démon du Vent!
 
-Face à ce phénomène, même Bei Lou était impuissant. L'ancien esprit démoniaque qu'il convoitait avait disparu. En renonçant à son identité d'ancien démon pour devenir un cultivateur démoniaque, il n'était plus un ancien démon!
+Face à ce phénomène, même Bei Luo était impuissant. L'ancien esprit démoniaque qu'il convoitait avait disparu. En renonçant à son identité d'ancien démon pour devenir un cultivateur démoniaque, il n'était plus un ancien démon!
 
 À cet instant, les souvenirs du Démon du Vent s'activèrent, portés par la haine de Yao Xixue. Les mémoires de cette dernière furent rapidement dévorées, ne laissant que sa haine viscérale envers Wang Lin. Bien que le Démon du Vent eût dévoré ses souvenirs, il ne put effacer cette haine.
 

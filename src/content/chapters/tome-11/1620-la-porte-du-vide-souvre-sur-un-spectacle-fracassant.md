@@ -28,7 +28,7 @@ Boum, boum, boum, boum!
 
 Les grondements incessants se poursuivirent tandis que des filaments de tonnerre et d'éclairs s'abattaient sur la Porte du Vide. Ce tonnerre infini était comme une armée entière cherchant à terrasser la Porte du Vide!
 
-Alors que les échos tonitruants résonnaient, d'innombrables fissures apparurent sur la Porte du Vide, et de nouvelles décharges de tonnerre arrivèrent. Sous la violence des grondements, les bords de la Porte du Vide se changèrent en cendres et commencèrent à s'effondrer.
+Alors que les échos tonitruants résonnaient, d'innombrables fissures apparurent sur la Porte du Vide, et de nouvelles décharges de tonnerre arrivèrent. Sous la violence des grondements, les bords de la Porte du Vide se désagrégèrent en fragments et commencèrent à s'effondrer.
 
 Simultanément, un déluge de tonnerre bombarda la Porte du Vide, provoquant une explosion de lumière plus éclatante encore que le soleil.
 
@@ -66,7 +66,7 @@ Le jeune homme en robe verte était pâle. Il pressentait que quelque chose avai
 
 « Une porte de plus! » La voix froide et fière de Wang Lin parvint aux oreilles du jeune homme en robe verte, faisant se rétrécir ses pupilles. Bien qu'ils fussent ennemis, il ne put s'empêcher de manifester un profond respect!
 
-Wang Lin agita sa manche et le vortex formé par l'effondrement de la Porte du Vide s'étendit rapidement. Une pression plusieurs fois plus puissante que la précédente apparut. Tandis que le vortex se déployait, des craquements résonnèrent et l'espace lui-même se fragmenta.
+Wang Lin agita sa manche et le vortex formé par l'effondrement de la Porte du Vide tournoya à toute vitesse. Une pression plusieurs fois plus puissante que la précédente apparut. Tandis que le vortex se déployait, des craquements résonnèrent et l'espace lui-même se fragmenta.
 
 Le vortex se dissipa pour laisser place à une nouvelle Porte du Vide!
 
@@ -84,7 +84,7 @@ Cette porte était légèrement plus petite que la précédente, mais la pressio
 
 « Il ne veut pas simplement briser la Porte du Vide, il veut accomplir ce qui est presque impossible. Il va briser la Porte une fois pour chaque essence. Il veut devenir un cultivateur du troisième stade avec six essences, de la manière la plus authentique qui soit!
 
-« La difficulté est colossale, mais les bénéfices le sont tout autant! » Maître Céleste Dieu du Vide regarda Wang Lin d'un regard complexe, tandis que l'intention meurtrière dans ses yeux s'intensifiait.
+« La difficulté est colossale, mais les bénéfices sont bien supérieurs à ceux d'une seule porte! » Maître Céleste Dieu du Vide regarda Wang Lin d'un regard complexe, tandis que l'intention meurtrière dans ses yeux s'intensifiait.
 
 « Puisqu'il est assez arrogant pour accomplir une telle chose devant moi, alors je veux voir comment il va s'en sortir! »
 
@@ -116,7 +116,7 @@ Au moment où la Porte du Vide s'effondra pour la seconde fois, un raz-de-marée
 
 Par conséquent, il agita sa manche, repoussant cette puissance dans un vortex encore plus vaste qu'auparavant.
 
-« Porte du Vide, reviens! » rit Wang Lin en pointant le vortex du doigt!
+« Encore une Porte du Vide! » rit Wang Lin en pointant le ciel étoilé du doigt!
 
 À cet instant, après que l'essence de feu eut brisé la seconde Porte du Vide, l'aura entourant Wang Lin augmenta de nouveau. Aujourd'hui était le jour où Wang Lin franchirait un pas vers le sommet!
 

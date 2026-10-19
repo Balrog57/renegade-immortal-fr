@@ -30,7 +30,7 @@ C'était la première fois que cette porte s'ouvrait depuis son effondrement! Le
 
 Seul Wang Lin demeura immobile devant l'ouverture.
 
-À cet instant, la porte s'était ouverte sur des milliers de pieds, bien qu'elle ne fût ouverte qu'à 30 %.
+À cet instant, la porte s'était ouverte sur près d'un millier de pieds, bien qu'elle ne fût ouverte qu'à 30 %.
 
 Wang Lin avança avec un sourire glacial et franchit le seuil sous les yeux de tous. Dès son entrée, son regard balaya l'assistance avant de s'immobiliser sur le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan.
 
@@ -88,7 +88,7 @@ Sous ses pieds, parmi les débris, il devinait qu'il s'était agi autrefois d'un
 
 Pourtant, tout n'était plus que désolation, et un sentiment de vide envahit le cœur de Wang Lin. Il ressentit une vague nostalgie en contemplant ces ruines, sachant que ce sentiment ne venait pas de lui, mais de la troisième âme.
 
-Wang Lin réfléchit silencieusement tout en survolant les décombres. Toutes les restrictions avaient été brisées et n'existaient plus. Cependant, il s'arrêta peu après avoir commencé sa course. Il regarda vers le bas, ses yeux brillant d'une lueur étrange.
+Wang Lin réfléchit silencieusement tout en survolant les décombres. Toutes les restrictions avaient été brisées et n'existaient plus. Cependant, il s'arrêta à moins de dix mille pieds de son point de départ. Il regarda vers le bas, ses yeux brillant d'une lueur étrange.
 
 « Bien que les restrictions se soient effondrées, certains fragments subsistent encore. Ils peuvent servir à former de nouvelles barrières... » Wang Lin fixa le sol. Ses mains formèrent des sceaux sans hésiter et des lignes de sang apparurent dans son regard.
 

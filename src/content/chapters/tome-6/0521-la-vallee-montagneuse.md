@@ -20,7 +20,7 @@ Le temps passa lentement. Dix jours plus tard, alors que Wang Lin volait, son ex
 
 À la lisière de la terre désolée se trouvait une forêt dense.
 
-À cet instant précis, un homme gisait au sol dans les bois. Le haut de son corps était nu et sa peau était maculée d'un liquide vert.
+À cet instant précis, un homme gisait au sol dans les bois. Il était presque entièrement nu et sa peau était maculée d'un liquide vert.
 
 Il restait là, parfaitement immobile; sa respiration était si faible qu'elle semblait s'interrompre par instants. Bientôt, il devint si calme qu'il paraissait avoir totalement disparu. Pour une personne ordinaire, il aurait été presque impossible de le remarquer.
 
@@ -70,7 +70,7 @@ Alors que l'homme entrait dans la vallée, le corps de Wang Lin surgit du vide. 
 
 Les yeux de Wang Lin brillaient comme des torches. Il ne se pressa pas d'entrer dans la vallée et préféra l'examiner de l'extérieur avant de tirer cette conclusion.
 
-« Cet endroit est intrigant. Cette Mer des Esprits Démoniaques de l'Est est manifestement différente de tous les autres lieux où je suis allé chasser des trésors. » Un éclat mystérieux passa dans le regard de Wang Lin alors qu'il contemplait la vallée protégée par la formation.
+« Cet endroit est intrigant. Cette Mer des Esprits Démoniaques de l'Est est manifestement différente de tous les autres lieux où je suis allé chercher des trésors. » Un éclat mystérieux passa dans le regard de Wang Lin alors qu'il contemplait la vallée protégée par la formation.
 
 Après avoir observé un moment, il pointa le doigt vers l'avant. Un rayon d'énergie spirituelle jaillit de son doigt pour pénétrer dans la vallée.
 
@@ -104,7 +104,7 @@ Sans dire un mot, il lança son arme vers Wang Lin. Puis, esquissant un sourire 
 
 Les trois autres derrière lui poussèrent des rugissements et s'élancèrent également, leurs armes rouillées levées.
 
-Le regard de Wang Lin resta calme. D'un simple battement de ses yeux, l'arme d'hast qui volait vers lui s'effondra instantanément.
+Le regard de Wang Lin resta calme. D'un simple regard, l'arme d'hast qui volait vers lui s'effondra instantanément.
 
 L'homme au sourire cruel fut stupéfait. Il fixa l'arme brisée, la bouche bée, incapable de prononcer un mot. Les trois compagnons s'arrêtèrent également net.
 

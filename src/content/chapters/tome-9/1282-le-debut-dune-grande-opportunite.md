@@ -8,11 +8,11 @@ slug: le-debut-dune-grande-opportunite
 ---
 Shui Daozi laissa échapper un cri déchirant; à cet instant, une flamme invisible semblait consumer son âme. Une douleur fulgurante explosa dans tout son corps!
 
-Le clou aux sept couleurs avait été spécialement conçu pour tuer les cultivateurs du troisième niveau! Le météore mystérieux raffiné par le Souverain contenait une puissance que le Souverain lui-même ne pouvait pleinement concevoir. Ce pouvoir pouvait infliger des dommages inimaginables aux cultivateurs du troisième niveau!
+Le clou aux sept couleurs avait été spécialement conçu pour tuer les cultivateurs du troisième niveau! Le météore mystérieux venu des étoiles extérieures de l'Antiquité, raffiné par le Souverain, contenait une trace de puissance d'étoiles extérieures que le Souverain lui-même ne pouvait pleinement concevoir. Ce pouvoir pouvait infliger des dommages inimaginables aux cultivateurs du troisième niveau!
 
 Même le Seigneur du Royaume Scellé avait péri après avoir été transpercé par plus de quatre-vingt-dix clous aux sept couleurs! Cette force inintelligible causait des ravages sans précédent.
 
-En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort.
+En cet instant, si ce clou aux sept couleurs ne s'était pas enfoncé complètement en Shui Daozi, il n'aurait pas été confronté à une telle crise de vie ou de mort. L'attaque de Wang Lin ne pouvait percer que d'un pouce; pour Shui Daozi, il suffisait de dépenser un peu de culture pour expulser le clou.
 
 Cependant, l'avatar du vieil homme du Royaume Céleste du Vent était arrivé, et son doigt impétueux avait enfoncé le clou jusqu'à cinq pouces de profondeur. Cela rendit Shui Daozi presque fou, car il ne parvint pas à contenir la force en lui.
 
@@ -38,7 +38,7 @@ La douleur était atroce et Shui Daozi laissa échapper des hurlements de souffr
 
 « Je ne vous obéirai pas! Après votre mort, j'ai atteint le troisième niveau et je suis devenu une puissance majeure. Je suis le seigneur de la Secte de Dieu. Je prendrai votre place! Un milliard et cinq cents millions de disciples du Dao de l'Eau, explosez pour moi!! Donnez-moi vos Flammes Joss pour résister au Clou Divin aux Sept Couleurs!! » Shui Daozi poussa un rugissement lugubre en fuyant comme un possédé. Il brisa le vide et s'enfuit vers la Secte de Dieu.
 
-La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau s'effondrèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
+La planète de culture géante le suivit de près. Les un milliard cinq cents millions de disciples du Dao de l'Eau explosèrent, et les Flammes Joss qui n'appartenaient qu'aux cultivateurs du troisième niveau se précipitèrent dans le cerveau de Shui Daozi pour contrer la lumière aux sept couleurs. Des grondements tonitruants résonnèrent dans le corps de Shui Daozi avant de disparaître avec lui.
 
 Shui Daozi resta en proie à la démence tout au long de sa fuite. Il ne cessa de réprimer la destruction qui ravageait son corps jusqu'à ce qu'il disparaisse rapidement!
 

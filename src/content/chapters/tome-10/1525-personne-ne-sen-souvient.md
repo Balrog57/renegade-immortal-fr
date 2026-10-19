@@ -42,11 +42,11 @@ Les cultivateurs de la Mer des Nuages pouvaient mourir au combat, mais ils ne po
 
 Cette gloire allait se répandre dans tout le Royaume Intérieur et embraser la frénésie de la guerre. Ce n'était que de cette manière qu'une infime chance de victoire pourrait exister, alors que l'écart entre les deux camps était si immense!
 
-La guerre, dont la durée restait inconnue, venait à peine de commencer. S'ils perdaient cette bataille, il ne resterait plus aucun être vivant dans le Royaume Intérieur!
+La guerre, dont la durée restait inconnue, venait à peine de commencer. Si le Royaume Intérieur perdait la guerre, il fallait être résolu à ce qu'après elle, plus aucun cultivateur ne reste dans le Royaume Intérieur!
 
-C'était une véritable lutte pour la survie!
+C'était un véritable combat à mort!
 
-Sur la montagne froide au loin, les signaux de feu brûlaient pendant plusieurs saisons. Ceux qui tombaient à la frontière étaient enterrés, mais jamais commémorés!
+Sur la montagne froide au loin, les signaux de feu brûlaient pendant plusieurs saisons. La frontière tombait, et les ossements étaient enterrés sans que personne ne s'en souvienne!
 
 Wang Lin s'élança parmi les envahisseurs du Royaume Extérieur comme une épée perçant l'ennemi. Il ne brandissait pas la Hache Brise-Ciel dans sa main droite; il se contenta de lever la main. Sa seule intention meurtrière suffisait à faire reculer quiconque!
 
@@ -58,7 +58,7 @@ Tuez!
 
 Les cultivateurs qui avaient chargé se dispersèrent immédiatement. La peur dans leurs cœurs étouffait leur férocité!
 
-Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Malgré son niveau de culture, il ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
+Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Blessé, Maître Hong Shan ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
 
 L'ancêtre du Clan des Moineaux de Feu fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea!
 
@@ -126,7 +126,7 @@ Tous les cultivateurs du Royaume Extérieur semblèrent reprendre leurs esprits.
 
 Même le cultivateur le plus proche du Grand Maître Yun Luo pâlit et recula par instinct. Ils regardaient Wang Lin comme s'il était un démon surgi des enfers, venu pour anéantir toute forme de vie!
 
-Même le Grand Maître Yun Luo commença à battre en retraite. La peur dans ses yeux était plus intense que chez les autres. Elle regarda Wang Lin et se remémora l'image qu'elle avait divinée. Cette silhouette vue de dos, cette existence terrifiante, semblait marcher droit vers elle!
+Même le Grand Maître Yun Luo commença à battre en retraite. La peur dans ses yeux était plus intense que chez les autres. Elle regarda Wang Lin, à mille pieds d'elle, et se remémora l'image qu'elle avait divinée. Cette silhouette vue de dos, cette existence terrifiante, semblait marcher droit vers elle!
 
 « Gloire au Seigneur du Royaume Scellé!!! »
 

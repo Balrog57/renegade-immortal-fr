@@ -16,7 +16,7 @@ La Secte Démon était divisée en six branches distinctes, chacune stationnée 
 
 Ce phénomène avait été instauré par le premier et unique Maître de la Secte Démon, et perdurait encore aujourd'hui.
 
-Six statues de pierre identiques trônaient, une sur chacune des six planètes! Elles représentaient un homme d'âge moyen aux vêtements flottants, porté par un nuage sous ses pieds. Dans le ciel, neuf yeux semblaient contempler la terre.
+Six stèles de pierre identiques, hautes comme le ciel, trônaient, une sur chacune des six planètes! Elles représentaient un homme d'âge moyen aux vêtements flottants, porté par un nuage sous ses pieds. Dans le ciel, neuf yeux semblaient contempler la terre.
 
 Cet homme d'âge moyen regardait vers les cieux, comme s'il scrutait ces neuf yeux.
 

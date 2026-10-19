@@ -12,7 +12,7 @@ Wang Lin avait le cœur au bord des lèvres, observant attentivement l'évolutio
 
 Bien que ce fût le moment idéal pour lancer une attaque surprise, Wang Lin ne fit rien. Cette femme lui inspirait un puissant sentiment de crise. Lorsqu'elle avait utilisé ce fragment d'origine source, Wang Lin avait été terrifié.
 
-Bien que Maître Yan Leizi possédât l'aura d'une origine source, même lui ne pouvait s'en servir. Pourtant, cette femme avait réellement utilisé une origine source, ce qui était inimaginable pour Wang Lin.
+Bien que Maître Yan Leizi possédât l'aura d'une origine source, même lui ne pouvait pas encore l'utiliser pleinement. Pourtant, cette femme avait réellement utilisé une origine source, ce qui était inimaginable pour Wang Lin.
 
 Face à un tel ennemi, tenter une attaque surprise était inutile.
 
@@ -138,4 +138,4 @@ Une pression inimaginable exigeait qu'il tombe à genoux pour se soumettre à la
 
 Les yeux de Wang Lin virèrent au rouge; il poussa un rugissement et sa puissance de Dieu Ancien explosa.
 
-Les Dieux Anciens ne respectaient ni les cieux, ni les lois du Dao; ils marchaient contre les cieux. Cela faisait partie de l'Ordre Ancien!
+Les Dieux Anciens ne respectaient ni les cieux, ni les lois du Dao; ils marchaient contre les cieux. Voilà ce qu'est l'Ordre Ancien!

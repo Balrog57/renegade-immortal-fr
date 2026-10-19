@@ -60,7 +60,7 @@ Lorsque les âmes des mortels entrèrent dans la formation, leur force permit à
 
 Le Royaume Intérieur était désormais 40 % plus vaste qu'auparavant. À cet instant, la roue sembla atteindre une limite et cessa de progresser. Une explosion de lumière se propagea, semblant s'étendre à l'infini. L'ensemble du Royaume Intérieur parut être enveloppé dans un cylindre de lumière!
 
-Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages, là où se trouvait auparavant la brèche. Il s'assit et le Fourneau Impérial apparut devant lui. Il ferma les yeux et commença ses trois années de garde!
+Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages, là où se trouvait auparavant la brèche. Le Fourneau Impérial apparut sous lui et il s'y assit. Il ferma les yeux et commença ses trois années de garde!
 
 Ce bouleversement avait provoqué une expansion de 40 % du Royaume Intérieur. Les quatre systèmes stellaires s'étaient agrandis et d'innombrables planètes de culture, dépourvues de cultivateurs, étaient apparues dans le Royaume Intérieur.
 
@@ -68,7 +68,7 @@ C'était comme injecter la vie même dans le Royaume Intérieur!
 
 Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présent, le Souverain n'était toujours pas apparu. Il était assis dans son autre palais, fixant l'endroit où se trouvait Wang Lin.
 
-« Il ne possède que le pouvoir de deux tirs... Cela ne peut pas être une erreur, seulement deux tirs! Cependant, mon sort de trois vies a déjà été utilisé une fois, il ne me reste donc plus qu'une vie... Je dois le forcer à utiliser ses deux autres tirs durant ces trois années! Une fois que la puissance de l'arc sera épuisée, il ne survivra pas un seul coup de ma part! »
+« Il ne possède que le pouvoir de deux tirs... Cela ne peut pas être une erreur, seulement deux tirs! Cependant, mon sort de trois vies a déjà été utilisé une fois, il ne me reste donc plus qu'une vie... Je dois le forcer à utiliser ses deux tirs durant ces trois années! Une fois que la puissance de l'arc sera épuisée, il ne survivra pas un seul coup de ma part! »
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
@@ -78,11 +78,11 @@ Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sa
 
 « Conseil Souverain, écoutez cet ordre. Rassemblez toutes les forces restantes et lancez une attaque contre la formation nouvellement établie. Détruisez-la à tout prix en trois ans! »
 
-« Tous les cultivateurs du troisième niveau du Système Stellaire Antique, écoutez mon ordre et rendez-vous au Conseil Souverain. Suivez leurs directives et détruisez cette formation! »
+« Tous les grands puissants du Vide du Système Stellaire Antique, écoutez mon ordre et rendez-vous au Conseil Souverain. Suivez leurs directives et détruisez cette formation! »
 
 « Tous les cultivateurs du Cinquième Fléau Céleste de tous les clans, rassemblez-vous au Conseil Souverain pour subir le raffinement des Poupées du Vide. Si vous désobéissez, votre clan entier sera anéanti! »
 
-« Ouvrez le trésor du Conseil Souverain et sortez l'ancien appel secret. Utilisez le sang de 100 000 cultivateurs pour activer l'ancienne ordonnance impériale! »
+« Ouvrez le trésor du Conseil Souverain et sortez l'ancien édit secret. Utilisez le sang de 100 000 cultivateurs pour activer l'ancienne ordonnance impériale! »
 
 Le visage du Souverain était maussade, une étincelle de froideur dans les yeux. Après avoir lancé cette série d'ordres, il s'envola vers l'horizon.
 

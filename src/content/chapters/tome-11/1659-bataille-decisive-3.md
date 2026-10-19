@@ -12,7 +12,7 @@ En particulier, sa maîtrise du timing avait atteint un tout autre niveau. À l'
 
 Dès l'apparition de l'arc, la concubine impériale céleste abandonna son incantation et s'enfuit, terrifiée. Elle ne savait pas si Wang Lin aurait la détermination de décocher une nouvelle flèche!
 
-Puis, lorsque la concubine impériale céleste fut poussée dans ses derniers retranchements par l'Empreinte de l'Esprit Guerrier et qu'elle s'apprêtait à utiliser de nouveau son sort de lignage, Wang Lin prononça cette phrase qui la glaça!
+Puis, lorsque la concubine impériale céleste fut poussée dans ses derniers retranchements par l'Empreinte de l'Esprit Guerrier et qu'elle s'apprêtait à utiliser de nouveau son sort de lignage, Wang Lin lui fit parvenir cette phrase directement par la pensée, qui la glaça!
 
 Cette parole n'avait peut-être fait hésiter la concubine impériale céleste que durant un instant, mais pour des cultivateurs, une telle hésitation était fatale!
 
@@ -114,6 +114,6 @@ La sueur perla sur le front de Wang Lin alors qu'il siégeait au sommet du Fourn
 
 Les trois compagnons acquiescèrent d'un signe de tête. Ils commencèrent à unir leurs forces pour contenir les deux derniers cultivateurs du Vide Arcanique afin d'empêcher toute interruption dans le travail de Wang Lin.
 
-Les mains de Wang Lin formaient un sceau, ses yeux brûlant de folie. Cette bataille n'était qu'un jeu entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan; cette guerre était un moyen pour eux d'atteindre un but précis.
+Les mains de Wang Lin formaient un sceau, ses yeux brûlant de folie. Cette guerre n'était qu'un jeu entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan; cette guerre était un moyen pour eux d'atteindre un but précis.
 
 Dès lors, Wang Lin n'hésiterait pas à laisser périr tous les cultivateurs du Royaume Extérieur pour mettre fin à ce conflit. Il voulait découvrir ce que ces deux êtres cherchaient réellement!

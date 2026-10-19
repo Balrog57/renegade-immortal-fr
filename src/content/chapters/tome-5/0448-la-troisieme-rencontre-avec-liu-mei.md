@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 448 - The third encounter with Liu Mei
 slug: la-troisieme-rencontre-avec-liu-mei
 ---
-Cette femme était Liu Mei. Elle portait une robe rose pâle dont les bordures étaient ornées de papillons bleus. Elle était recouverte d'un léger voile blanc et flottait doucement au gré du vent. Ses cheveux noirs et soyeux retombaient négligemment sur son épaule jusqu'à sa taille, ce qui, associé à sa silhouette gracile, la rendait d'autant plus séduisante.
+Cette femme était Liu Mei. Elle portait une robe rose pâle dont les bordures étaient ornées de papillons bleus. Elle était recouverte d'un léger voile blanc et flottait doucement au gré du vent. Ses cheveux noirs et soyeux flottaient négligemment jusqu'à sa taille, ce qui, associé à sa silhouette gracile, la rendait d'autant plus séduisante.
 
 Liu Mei esquissa un sourire et murmura: « Wang Lin! »
 
@@ -58,7 +58,7 @@ Il ne souhaitait pas utiliser le drapeau d'âme immédiatement; celui-ci devait 
 
 Il agita le drapeau de restriction, libérant les entraves. Des volutes de gaz de restriction se répandirent et enveloppèrent la vallée.
 
-Wang Lin cria: « Liu Mei, Zhu Quezi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer son fragment d'âme, la situation serait désastreuse.
+Wang Lin déclara d'une voix grave: « Liu Mei, Zhu Quezi est sur le point de mourir. Notre combat est inutile! » Liu Mei était, après tout, au stade intermédiaire de la Transformation de l'Âme; il ne pourrait pas l'emporter rapidement sans recourir au drapeau d'âme. S'il s'éternisait ici et échouait à récupérer son fragment d'âme, la situation serait désastreuse.
 
 Liu Mei sourit et leva les yeux vers le ciel. La douceur de son regard disparut, remplacée par une expression froide et impitoyable.
 
@@ -102,11 +102,11 @@ Une autre explosion tellurique secoua le monde. La lance, telle un dragon féroc
 
 Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le visage de Liu Mei était blême lorsqu'elle murmura: « Ce trésor n'est ni un pseudo-trésor céleste, ni un trésor céleste... il est très étrange! »
 
-Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume.
+Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume. Il ne voulait plus perdre de temps; il comptait tuer cette femme avec ce drapeau d'âme pour entrer dans la section intérieure du Tombeau de Suzaku.
 
-À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la bannière d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Bannière d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
+À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la drapeau d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Drapeau d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
-« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la bannière d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
+« J'ai été la deuxième personne à entrer dans le Tombeau de Suzaku, et voici le champ de bataille que j'ai choisi pour nous deux. Si tu décides d'utiliser la drapeau d'âme, je détruirai l'autel. Il faudra plusieurs jours pour qu'il se reforme, ce qui te retardera considérablement. »
 
 Wang Lin la fixa d'un regard glacial. Situ Nan lui avait déjà expliqué la nature de cet autel. Il avait été créé par la première génération de Suzaku dans le but de téléporter les gens. Une fois que le Cristal de Planète de Culture s'ouvrirait, l'autel serait enveloppé par le pouvoir mystérieux du cristal et acquerrait des capacités supplémentaires.
 
@@ -116,7 +116,7 @@ Wang Lin demanda d'un ton solennel: « Quel est ton but? »
 
 Liu Mei le regarda et esquissa un sourire fugace. « Je n'ai aucun but; je veux simplement livrer une bataille de domaines avec toi. »
 
-Tandis que Wang Lin la fixait, sa main droite se crispa et la Bannière d'Âme du Milliard d'Âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si une immense main invisible l'avait déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
+Tandis que Wang Lin la fixait, sa main droite se crispa et la Drapeau d'Âme du Milliard d'Âmes disparut. Sa main gauche forma un sceau qu'il plaça entre ses sourcils. Le ciel s'obscurcit et une faille s'ouvrit, comme si une immense main invisible l'avait déchiré. Des vagues de gaz gris s'échappèrent de la brèche. À mesure que ce gaz se densifiait, un parchemin gigantesque émergea des nuées grises pour recouvrir le firmament.
 
 Dès son apparition, le parchemin libéra une puissance mystérieuse qui enveloppa toute la zone.
 

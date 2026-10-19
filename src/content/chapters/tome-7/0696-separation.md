@@ -36,11 +36,11 @@ L'expression de Sun Qiming était sombre. En voyant les deux mots « Manoir Wang
 
 « Nommé Wang... » Lorsqu'il était entré dans la ville des Vastes Eaux, il l'avait explorée avec son Sens Divin et n'avait rien remarqué d'anormal. Il venait de scanner à nouveau cet endroit, et le constat était le même.
 
-Après une courte réflexion, Sun Qiming fit un pas en avant et déclara d'une voix forte: « Sun Qiming, de la famille Sun, salue ce cher cultivateur! »
+Après une courte réflexion, Sun Qiming fit un pas en avant, à dix pieds du manoir, et déclara d'une voix forte: « Sun Qiming, de la famille Sun, salue ce cher cultivateur! »
 
 Sa voix, chargée d'énergie spirituelle céleste, pénétra distinctement les oreilles de chaque personne à l'intérieur du manoir. Peu après, un jeune garçon sortit. Il regarda la famille Sun et dit: « Maître vous ordonne de partir. »
 
-Avant que Sun Qiming ne puisse répliquer, un membre de la famille Sun commença à ricaner. Il s'agissait de l'Ancien au visage rouge. Sans même accorder un regard au garçon, il lança froidement: « Quelle insolence! Crois-tu vraiment que ma famille Sun est aveugle?! » Sur ces mots, il s'élança et chargea directement vers le manoir.
+Avant que Sun Qiming ne puisse répliquer, un membre de la famille Sun commença à ricaner. Il s'agissait de l'Ancien au visage rouge. Sans même accorder un regard au garçon, il lança froidement: « Quelle insolence! Tu fais vraiment comme si ma famille Sun n'existait pas! » Sur ces mots, il s'élança et chargea directement vers le manoir.
 
 Sun Qiming fronça durement les sourcils en fixant l'inscription « Manoir Wang ». Il était sur le point d'arrêter le vieil homme, mais hésita soudainement.
 

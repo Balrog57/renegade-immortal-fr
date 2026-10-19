@@ -12,7 +12,7 @@ Alors que Wang Lin fixait l'endroit où Liu Mei avait disparu, son regard se gla
 
 Wang Lin n'était pas un homme de bien, mais constatant que l'inconscience des deux lui avait permis de déceler la nature de Liu Mei, il ne les chassa pas.
 
-« Liu Mei n'a pas saisi cette occasion pour me tuer avant que ma culture ne se rétablisse; son objectif n'est donc pas ma mort. Son contact avec moi semblait empreint d'émotion, mais aussi d'une certaine cruauté. C'est étrange. Elle n'a certainement aucune intention louable. » L'expression de Wang Lin était sombre.
+« Liu Mei n'a pas saisi cette occasion pour me tuer avant que ma culture ne se rétablisse; son objectif n'est donc pas ma mort. Son contact avec moi semblait empreint d'émotion, mais en réalité dénué de sentiment. C'est étrange. Elle n'a certainement aucune intention louable. » L'expression de Wang Lin était sombre.
 
 Peu après, il agita ses manches, pénétra dans sa grotte et s'assit en position du lotus.
 
@@ -108,6 +108,6 @@ Tandis que les Qilin se désintégraient, Wu Daoqi laissa échapper un gémissem
 
 Alors que Wang Lin se tenait face à l'homme inconscient, il tendit la main: le drapeau d'âmes et la cloche en bois pourpre de Wu Daoqi volèrent vers lui. Ses yeux brillèrent alors qu'il contemplait le drapeau d'âmes doré.
 
-« Ainsi, voici la véritable âme principale de ce drapeau. Les autres Qilin n'étaient que ses commandants. »
+« Ainsi, voici la véritable âme principale de ce drapeau. Les autres Qilin n'étaient que ses lieutenants. »
 
 Après que l'aura dorée eut absorbé tous les fragments d'âmes, elle poussa un rugissement qui ébranla toute la Montagne de l'Affinement de l'Âme. Un Qilin doré, paraissant parfaitement réel et sans aucun signe qu'il fût constitué de fragments d'âmes, apparut devant Wang Lin.

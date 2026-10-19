@@ -14,7 +14,7 @@ Mais une restriction d'âme n'était pas comparable. Elle pouvait être considé
 
 Les yeux de Wang Lin s'illuminèrent. Après avoir réfléchi un instant, il disparut. Lorsqu'il réapparut, il se trouvait près de la restriction d'âme ancienne.
 
-Dès l'apparition de son corps, le brouillard noir se mit à bouger et deux yeux fantomatiques surgirent. Au même moment, un gémissement spectral s'éleva de l'intérieur du brouillard.
+Dès l'apparition de son corps, le brouillard noir se mit à bouger et deux yeux fantomatiques surgirent. Au même moment, un rugissement spectral s'éleva de l'intérieur du brouillard.
 
 L'âme originelle de Wang Lin trembla en entendant ce cri, alors il recula rapidement. Il fixa le nuage noir et médita silencieusement.
 
@@ -44,7 +44,7 @@ La bête manqua sa cible. Elle regarda au loin et poussa un rugissement. Le cri 
 
 La bête laissa échapper quelques autres rugissements de rage avant de redevenir un brouillard noir et de disparaître à nouveau dans le petit drapeau doré.
 
-Wang Lin réapparut dans une veine spirituelle située à plusieurs centaines de mètres de là. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
+Wang Lin réapparut dans une veine spirituelle située à plus de mille mètres de là. Il fronça légèrement les sourcils en jetant un regard vers l'endroit où se trouvait le brouillard noir.
 
 « Ce n'est pas un Qilin, mais il est similaire au Qilin que possédait Ling Tianhou dans le Royaume Céleste. Ce petit drapeau doré doit être un trésor de la Secte de l'Affinement de l'Âme. Cette bête est à la fois la gardienne du drapeau et l'une des âmes qu'il renferme. »
 
@@ -56,7 +56,7 @@ Après avoir vu Liu Mei, le sentiment de danger que Wang Lin ressentait envers S
 
 Il y réfléchit secrètement pendant longtemps, mais ne parvint toujours pas à cerner ses motivations. Il ne pouvait pas non plus percer sa culture, raison pour laquelle il ne l'avait pas tuée plus tôt.
 
-« Tout ceci est très étrange, et les décisions de Suzaku n'ont aucun sens... Si nécessaire, je quitterai Suzaku, j'irai trouver l'Omniscient et je laisserai ce chaos derrière moi. » Wang Lin se mit à songer.
+« Tout ceci est très étrange, et l'attitude de Suzaku est difficile à cerner... Si nécessaire, je quitterai Suzaku, j'irai trouver l'Omniscient et je laisserai ce chaos derrière moi. » Wang Lin se mit à songer.
 
 Le temps passa rapidement. En un clin d'œil, plusieurs mois s'étaient écoulés.
 
@@ -84,7 +84,7 @@ Liu Wei murmura: « Sœur apprentie, je suis toujours un peu inquiète car nous 
 
 « Il ne devrait pas... » Avant qu'Xu Yun n'ait pu terminer sa phrase, un arc-en-ciel descendit soudainement du sommet de la montagne et, en atterrissant devant l'entrée de la grotte, se mua en un homme d'âge mûr vêtu d'une robe grise, très beau. Ses longs cheveux flottant au vent lui donnaient une allure céleste.
 
-« Frère apprenti Qing Mu, je suis Guo Dongjian. J'espère que nous pouvons discuter. »
+« Frère apprenti Qing Mu, je suis Guo Dongjian. J'espère que tu sortiras pour que nous puissions discuter. »
 
 Xu Yun se leva et dit: « Frère aîné Guo, je vous prie de repartir; le frère aîné Qing Mu est toujours en culture de méditation fermée. »
 
@@ -116,6 +116,8 @@ Les fragments d'âmes autour de lui chargèrent soudainement Wang Lin. Certains 
 
 Wang Lin resta impassible. Il pointa sa main droite et dit: « Vortex! »
 
+Un immense tourbillon noir apparut devant lui. Guo Dongjian pâlit aussitôt et dit d'une voix amère: « Frère aîné Qing Mu, ta retraite n'était donc qu'un entraînement aux arts de raffinement des âmes : en seulement trois mois, tu as réussi à créer un tourbillon d'âmes. Je suis admiratif. »
+
 À peine eut-il prononcé ce mot que les fragments d'âmes qui chargeaient vers lui poussèrent des cris déchirants et furent aspirés par le vortex. Rapidement, tous les fragments disparurent, à l'exception de celui dégageant l'aura de l'Âme Naissante.
 
 Le fragment doté de l'aura de l'Âme Naissante poussa un cri, puis utilisa une méthode inconnue de Wang Lin pour échapper au vortex. Il tenta promptement de s'enfuir au loin.
@@ -126,4 +128,4 @@ Wang Lin regarda ce fragment, puis tourna son regard vers Guo Dongjian. « Où a
 
 Guo Dongjian soupira intérieurement. En voyant Wang Lin utiliser le vortex d'âmes, il avait déjà renoncé à toute résistance.
 
-« Frère apprenti Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne de l'Extraction de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »
+« Frère aîné Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne de l'Extraction de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »

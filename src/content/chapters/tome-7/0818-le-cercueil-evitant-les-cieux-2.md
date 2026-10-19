@@ -8,7 +8,7 @@ slug: le-cercueil-evitant-les-cieux-2
 ---
 Le regard de Wang Lin se glaça. Alors qu'il lançait la « Coupe Céleste », il leva son épée céleste et déclencha dix autres Coupes Célestes qui poursuivirent de près les dix premières.
 
-Dans un fracas retentissant, le voile céleste trembla et se fendit. Immédiatement après, une deuxième Coupe Céleste frappa et le voile vola en éclats. Wang Lin projeta l'épée céleste et hurla: « Arrête! »
+Dans un fracas retentissant, le voile céleste trembla et se fendit. Immédiatement après, une deuxième Coupe Céleste frappa et le voile vola en éclats. Wang Lin bondit à travers le voile; au moment de le franchir, il projeta l'épée céleste en avant et hurla: « Arrête! »
 
 L'épée céleste était d'une rapidité fulgurante, fendant l'air comme un éclair. L'homme à la robe noire fronça les sourcils; il venait de s'interposer au-dessus du Sceau Céleste. Il leva sa main droite, prêt à saisir l'épée.
 
@@ -26,9 +26,9 @@ L'homme à la robe noire fut stupéfait et fixa son bras droit désormais absent
 
 « J'ai protégé ce lieu durant d'innombrables années et j'ai enfin réussi à reconstituer mon squelette... Et tu oses détruire mon bras droit!?! » L'homme à la robe noire semblait avoir sombré dans la folie. Il abandonna le Sceau Céleste et chargea vers Wang Lin.
 
-Tout en volant, son expression était d'une hideur absolue. Il leva sa main gauche restante et ses doigts formèrent une lame de guerre qui fendit l'air vers Wang Lin. Des craquements déchirèrent le vide sombre et une fissure apparut.
+Tout en volant, son expression était d'une hideur absolue. Il leva sa main gauche restante et ses doigts formèrent une épée qui fendit l'air vers Wang Lin. Des craquements déchirèrent le vide sombre et une fissure apparut.
 
-Wang Lin afficha un regard glacial, leva la main vers le ciel et hurla: « Invoque le Vent! »
+Tout en reculant, Wang Lin afficha un regard glacial et leva la main vers le ciel et hurla: « Invoque le Vent! »
 
 L'énergie originelle dans son corps déferla rapidement, mais il n'eut pas le temps de se soucier de sa consommation. Un vent noir apparut dans sa paume, s'étendant avec violence pour former une bourrasque funeste.
 
@@ -50,7 +50,7 @@ En revoyant ce sort à cet instant, il en perdit la raison. Il recula précipita
 
 L'homme à la robe noire hurla une fois de plus: « Quel est ton lien avec l'Empereur Céleste Bai Fan?! » Le noyau bleu émettait une lueur douce qui le protégeait du vent noir.
 
-Les yeux de Wang Lin brillaient d'une intention meurtrière. Sans un mot, il fit un pas en avant et le vent noir rugit. À cet instant, Wang Lin semblait ne faire qu'un avec la tempête noire. Il atteignit l'homme à la robe noire, le vent noir suivant chacun de ses mouvements.
+Les yeux de Wang Lin brillaient d'une intention meurtrière. Sans un mot, il fit un pas en avant et le vent noir rugit. À cet instant, Wang Lin semblait ne faire qu'un avec la tempête noire. Il atteignit l'homme à la robe noire en poussant la main droite vers l'avant, le vent noir suivant chacun de ses mouvements.
 
 L'homme pâlit et recula de nouveau. La lumière bleue autour de lui faiblissait, mais ses yeux se plissèrent. Dans un rugissement, il poussa ses deux mains vers l'avant.
 
@@ -66,7 +66,7 @@ Wang Lin, les yeux empreints de soif de sang, fixa l'homme. Il sortit sans hési
 
 Une fois manifesté, ses ailes frémirent légèrement, dispersant une poudre aux cinq couleurs qui parut d'une beauté sublime.
 
-Au moment où le papillon apparut, la main de Wang Lin forma un sceau et pointa vers l'homme en retraite. Le papillon s'élança aussitôt en battant des ailes.
+Au moment où le papillon apparut, la main de Wang Lin forma un sceau et pointa vers l'homme en retraite. Le papillon s'éleva lentement en battant des ailes.
 
 À cet instant précis, le corps de l'homme à la robe noire trembla et ses yeux furent envahis par la terreur. Son bras d'os gauche explosa en une poussière grise qui prit la forme d'un papillon gris.
 
@@ -74,7 +74,7 @@ Ce nouveau papillon battit des ailes.
 
 Le visage de l'homme devint livide et il recula frénétiquement. Les os de ses pieds s'effondrèrent instantanément, ses yeux écarquillés par le choc. Voyant que le papillon allait battre des ailes une seconde fois, il fit exploser la moitié inférieure de son corps. Utilisant la force de l'explosion pour se propulser, il parvint à s'éjecter loin et à atteindre le cercueil au centre de la formation.
 
-Lorsque la moitié supérieure de son corps pénétra dans la formation, une masse de gaz noir jaillit de la structure rouge sang. Cela permit à sa partie inférieure de réapparaître sous une forme illusoire.
+Lorsque la moitié supérieure de son corps pénétra dans la formation, une masse de gaz noir jaillit du sang de la formation. Cela permit à sa partie inférieure de réapparaître sous une forme illusoire.
 
 Le papillon battit de nouveau des ailes et la partie inférieure qui venait de se former s'effondra. Cependant, l'instant d'après, un nouveau flux de gaz noir surgit, lui permettant de reconstituer son bas du corps.
 
@@ -96,7 +96,7 @@ Le regard de l'homme était empreint de désespoir. S'il avait été au sommet d
 
 « Si je n'avais pas été blessé par le "Invoque le Vent" de Bai Fan, je n'aurais pas si peur de cet "Invoque le Vent" incomplet! Je refuse de finir ainsi! » Les yeux de l'homme brûlaient de haine. Au moment où le vent noir l'engloutissait, il expulsa une immense bouffée d'air.
 
-C'était son énergie originelle essentielle. Il la projeta sans hésiter pour entrer en collision avec le vent noir. En s'appuyant sur cette force, il parvint à propulser son crâne en arrière.
+C'était l'essence de son âme originelle. Il la projeta sans hésiter pour entrer en collision avec le vent noir. En s'appuyant sur cette force, il parvint à propulser son crâne en arrière.
 
 Le regard déterminé, il serra les dents. Il recula près du cercueil et murmura: « Maître, ce n'est pas que le Disciple ne respecte pas sa promesse, mais si je n'ouvre pas ce cercueil, le Disciple mourra sans aucun doute! »
 

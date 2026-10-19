@@ -10,7 +10,7 @@ Il exerçait son contrôle sur le tonnerre!
 
 Sous les grondements de la foudre, le monde changea soudainement; d'innombrables éclairs jaillirent du vide pour converger vers Wang Lin. La scène était apocalyptique et, à mesure que le fracas se propageait, il engendrait encore plus de tonnerre.
 
-C'était comme une véritable punition divine!
+C'était comme une véritable calamité divine!
 
 L'homme en robe rouge nommé Yu Fei observa la scène et éclata de rire. Cependant, ce rire était empreint d'un froid glacial.
 
@@ -20,7 +20,7 @@ L'homme en robe rouge nommé Yu Fei observa la scène et éclata de rire. Cepend
 
 Ce lac de foudre se contractait au milieu des grondements incessants, et le centre de ce vortex était l'homme en robe rouge!
 
-La vitesse de contraction était fulgurante et, en se resserrant, elle aspirait toujours plus de foudre. La puissance du tonnerre évoquait la fin des temps!
+La vitesse de contraction était fulgurante et, en se resserrant, elle aspirait toujours plus de foudre et provoquait un tonnerre encore plus effroyable. La puissance du tonnerre évoquait la fin des temps!
 
 Cette contraction rapide provoqua de vastes fissures spatiales. Chaque fois qu'un éclair passait, un vent glacial s'échappait de ces déchirures. La scène était saisissante!
 
@@ -68,7 +68,7 @@ Yu Fei fut surpris et ses pupilles se rétractèrent. Son énergie originelle ja
 
 Il existait une planète de culture dans le Système Stellaire de l'Alliance, située loin de la planète Suzaku. L'énergie spirituelle y était dense; c'était un pays de culture de rang 6.
 
-On y trouvait six pays de culture de rang 5. Dans l'un d'eux, nommé Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
+On y trouvait six pays de culture de rang 5. Dans l'un d'eux, au sein de la Secte Lune Déchue, une femme se tenait devant la salle d'alchimie, dans une montagne reculée.
 
 Elle portait une robe rose en forme de papillon. Elle ne paraissait pas très âgée et était d'une grande beauté. Quelques éclats de cristal sur son sourcil droit lui donnaient un air très mignon.
 
@@ -98,7 +98,7 @@ Le visage de Song Ying rougit pendant sa culture, mais cette fois, son rythme ca
 
 Cependant, avant qu'elle n'ait fini, la porte s'ouvrit brusquement et Wang Lin sortit. Au moment où il apparut, une immense quantité d'énergie froide se propagea.
 
-Cette aura glaciale n'était pas réelle; c'était simplement l'énergie spirituelle résiduelle laissée par un Dieu Ancien lors de son absorption. Cela semblait insignifiant pour Wang Lin, mais pour les autres, cette énergie était extrêmement dense!
+Cette aura glaciale n'était pas réelle; c'était simplement de l'énergie spirituelle errante, attirée naturellement lorsqu'un Dieu Ancien absorbait l'énergie spirituelle. Cela semblait insignifiant pour Wang Lin, mais pour les autres, cette énergie était extrêmement dense!
 
 Heureusement, comme il s'agissait d'une salle d'alchimie déjà riche en essence spirituelle, cela ne paraissait pas suspect.
 

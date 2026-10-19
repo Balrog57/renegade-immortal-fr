@@ -18,7 +18,7 @@ Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
 Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un ongle dans sa paume! Cet ongle était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
 
-Cet ongle, un poison violent, lui avait été offert par le vieil homme en raison du Vieux Oiseau Vermillon!
+Cet ongle, un poison violent, lui avait été offert par le vieil homme par égard pour le Vieux Oiseau Vermillon!
 
 Wang Lin lança l'ongle sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
 
@@ -80,7 +80,7 @@ Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
 « Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de culture... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres! »
 
-L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Maître du Dao Miao Yin, l'un des cinq maîtres du Système Stellaire Antique, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
+L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Maître du Dao Miao Yin, l'un des cinq maîtres du Système Stellaire Antique, et c'était elle qui était venue d'elle-même lui proposer son aide pour traquer Wang Lin.
 
 « Votre maître devrait être à la Tombe de l'Ordre Ancien. Quel est votre dessein en me cherchant? » L'homme n'était pas pressé de poursuivre sa proie.
 

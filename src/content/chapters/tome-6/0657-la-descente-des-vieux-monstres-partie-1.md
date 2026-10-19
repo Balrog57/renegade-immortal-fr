@@ -34,7 +34,7 @@ Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parche
 
 « On peut aisément imaginer qu'une trace de l'ancien Domaine Céleste a rendu tous les cultivateurs fous. Pourtant, finalement, cette perle a mystérieusement disparu... »
 
-« Des années plus tard, nous avons obtenu quelques indices. Pour une raison quelconque, cette perle est apparue dans le Royaume Céleste de la Pluie du système stellaire de l'Alliance... »
+« Après d'innombrables années, nous avons obtenu quelques indices. Pour une raison quelconque, cette perle est apparue dans le Royaume Céleste de la Pluie du système stellaire de l'Alliance... »
 
 Un éclair de froideur passa dans ses yeux alors qu'il pointait le ciel et disait: « C'est vous qui avez mis en place le réseau de transfert! »
 
@@ -58,7 +58,7 @@ Wang Lin ne perdit plus de temps avec elle. Sa main droite s'étendit, saisit le
 
 La femme à l'intérieur cria immédiatement: « Vous... ne voulez donc pas ressusciter l'âme dans la perle? »
 
-Wang Lin réfléchit en silence tout en chargeant. Il déploya son âme originelle pour fusionner avec la force d'aspiration et s'élança vers le haut.
+Wang Lin garda le silence. Il déploya son âme originelle et son corps pour fusionner avec la force d'aspiration, puis s'élança vers le haut.
 
 En chemin, peu importait ce que disait la femme, Wang Lin ne lui répondit pas. Après un temps indéterminé, il atteignit la grande roche. Face à celle-ci se trouvait la fissure.
 
@@ -94,7 +94,7 @@ Le temps passa lentement. Plusieurs jours plus tard, une faible fluctuation éma
 
 Il forma un sceau et une ombre noire surgit immédiatement derrière lui. Cette ombre chargea directement vers la fissure.
 
-« Scelle! » rugit Wang Lin tandis que la main du gardien céleste traçait un sceau. Une puissance colossale apparut sur la main de la sentinelle et écrasa la fluctuation.
+« Scelle! » rugit Wang Lin tandis que la main du gardien céleste traçait un sceau. Une puissance colossale apparut sur la main du gardien céleste et écrasa la fluctuation.
 
 Wang Lin entendit vaguement un gémissement misérable. Ses yeux s'illuminèrent et, avec le gardien céleste, ils placèrent tous deux d'innombrables restrictions dans les profondeurs de la fissure.
 
@@ -102,7 +102,7 @@ Une fois cela achevé, Wang Lin retira le gardien céleste et attendit à nouvea
 
 Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne trouver qu'un nouveau scellement total. Après la troisième tentative, Wang Lin réfléchit un instant et cessa d'attendre pour s'élancer vers les hauteurs.
 
-« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, elle avait absorbé la bête-talisman du Troisième Ancêtre et avait acquis une certaine puissance. »
+« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, dans les ruines de l'héritage immortel, elle avait absorbé la bête-talisman du Troisième Ancêtre et avait acquis une certaine puissance. »
 
 « Je ne l'ai pas inspectée, alors au fil des ans, elle a appris trop de mes secrets. À moins que ce ne soit dû aux circonstances particulières de l'Abîme des Marées, je crains qu'elle n'ait jamais parlé. Elle aurait plutôt attendu patiemment de recouvrer ses forces. »
 

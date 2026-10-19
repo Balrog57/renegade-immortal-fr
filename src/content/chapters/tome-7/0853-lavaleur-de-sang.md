@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 853 - Blood Swallow
 slug: lavaleur-de-sang
 ---
-Une immense quantité de tribulation divine se propagea, générant une pression colossale. Cette pression était si puissante que tout ce qui se trouvait dans son périmètre fut soumis à la foudre céleste.
+Une immense quantité de rétribution divine se propagea, générant une pression colossale. Cette pression était si puissante que tout ce qui se trouvait dans son périmètre fut soumis à la foudre céleste.
 
-La puissance de la tribulation divine ne faisait que commencer. La majesté des cieux et la force destructrice contenues dans cette calamité étaient plusieurs fois plus intenses qu'auparavant.
+La puissance de la rétribution divine ne faisait que commencer. La majesté des cieux et la force destructrice contenues dans cette calamité étaient plusieurs fois plus intenses qu'auparavant.
 
-L'apparition des nuages de tribulation divine ne se contenta pas d'isoler cette zone du reste du monde; tous les puissants cultivateurs du Domaine Sud pouvaient ressentir que le ciel était dans un état de violence extrême.
+L'apparition des nuages de rétribution divine ne se contenta pas d'isoler cette zone du reste du monde; tous les puissants cultivateurs du Domaine Sud pouvaient ressentir que le ciel était dans un état de violence extrême.
 
 Ces fluctuations étaient si vigoureuses qu'elles semblaient pouvoir contrôler l'énergie originelle à l'intérieur des corps. Les expressions de nombreux cultivateurs changèrent alors qu'ils s'asseyaient pour sceller leur énergie originelle en eux.
 
@@ -20,11 +20,11 @@ Seule la profondeur de son regard trahissait une lutte cachée et frénétique. 
 
 Une lumière rouge s'accumula devant Yao Yun. Bientôt, une silhouette émergea de cette lueur aveuglante.
 
-L'individu portait une robe ample rouge sang, et ses cheveux rouges flottaient sans qu'aucun vent ne les agite. Il dégageait une aura antique qui contenait un soupçon presque imperceptible d'aura démoniaque. C'était l'ancêtre de la famille Yao: le Dieu de Sang!
+L'individu portait une robe ample rouge sang, et ses cheveux rouges flottaient sans qu'aucun vent ne les agite. Son visage portait les marques des ans et il dégageait une aura antique qui contenait un soupçon presque imperceptible d'aura démoniaque. C'était l'ancêtre de la famille Yao: le Dieu de Sang!
 
-À son apparition, il agita nonchalamment sa main droite, et le sceau démoniaque sur Yao Yun devint plus puissant. La lutte dans les yeux de Yao Yun finit par disparaître totalement.
+À son apparition, il agita nonchalamment sa main droite, et le sceau démoniaque sur Yao Yun devint plus puissant, faisant trembler violemment Yao Yun. La lutte dans les yeux de Yao Yun finit par disparaître totalement.
 
-Les pupilles de Wang Lin se rétractèrent. Dès l'instant où la silhouette du Dieu de Sang apparut, Wang Lin recula rapidement en posant sa main sur son sac de stockage. S'il n'avait pas été empêché de fusionner avec le monde par la tribulation divine, il serait parti sans la moindre hésitation.
+Les pupilles de Wang Lin se rétractèrent. Dès l'instant où la silhouette du Dieu de Sang apparut, Wang Lin recula rapidement en posant sa main sur son sac de stockage. S'il n'avait pas été empêché de fusionner avec le monde par la rétribution divine, il serait parti sans la moindre hésitation.
 
 À cet instant précis, il ne fut nullement lent, se déplaçant tel un rayon de lumière. Il utilisa toute sa puissance pour s'éloigner.
 
@@ -34,7 +34,7 @@ Sa voix était calme, mais lorsqu'elle franchit ses lèvres, elle se mua en des 
 
 C'était comme si la voix du Dieu de Sang incarnait la puissance des cieux! Sa voix était celle du firmament, et nul ne pouvait y résister!
 
-Alors que le tumulte se propageait, l'espace se modifia et même les nuages de la tribulation divine furent repoussés. Tout cela était dû à la voix du Dieu de Sang. C'était comme si ses paroles contenaient une force capable de plier les lois de la nature. Il semblait pouvoir modifier les lois de cette zone en un instant, afin que tout soit soumis à ses règles, sous peine de s'effondrer!
+Alors que le tumulte se propageait, l'espace se modifia et même les nuages de la rétribution divine furent repoussés. Tout cela était dû à la voix du Dieu de Sang. C'était comme si ses paroles contenaient une force capable de plier les lois de la nature. Il semblait pouvoir modifier les lois de cette zone en un instant, afin que tout soit soumis à ses règles, sous peine de s'effondrer!
 
 C'était comme si, dans ce périmètre, le Dieu de Sang était un véritable être céleste!
 
@@ -58,7 +58,7 @@ Il avait obtenu cette montagne céleste de la part d'Avarice. Elle renfermait un
 
 Au moment où l'hirondelle ensanglantée approchait, la montagne céleste explosa, créant une tempête violente. Cette tempête était redoutable et, grâce à l'âme qu'elle renfermait, elle forma un immense vortex. Des rafales d'aura destructrice s'échappaient de ce tourbillon.
 
-Wang Lin recula rapidement et libéra le Sceau Céleste de Scellement. Sa main traçant un sceau, l'artéfact s'élança vers l'avant.
+Wang Lin recula rapidement et libéra le Sceau Céleste. Sa main traçant un sceau, l'artéfact s'agrandit démesurément et s'élança vers l'avant.
 
 Cependant, à cet instant précis, une scène fit se rétracter les pupilles de Wang Lin.
 
@@ -66,11 +66,11 @@ Au moment où l'hirondelle ensanglantée et la tempête de la montagne effondré
 
 Tout s'était produit avec une rapidité fulgurante. Dès que la montagne céleste s'effondra, elle disparut subitement.
 
-L'hirondelle ensanglantée brilla intensément et chargea vers Wang Lin. Le Sceau Céleste de Scellement s'élança pour faire obstruction. Tandis que les mains de Wang Lin formaient un nouveau sceau, des centaines de milliers de sceaux dorés convergèrent vers l'hirondelle ensanglantée.
+L'hirondelle ensanglantée brilla intensément et chargea vers Wang Lin. Le Sceau Céleste s'élança pour faire obstruction. Tandis que les mains de Wang Lin formaient un nouveau sceau, des centaines de milliers de sceaux dorés convergèrent vers l'hirondelle ensanglantée.
 
 Pourtant, l'hirondelle ensanglantée ouvrit le bec et recracha le vortex. Mais celui-ci était désormais sous son contrôle. La force destructrice à l'intérieur rugissait en entrant constamment en collision avec les sceaux dorés qui arrivaient.
 
-« Quel genre de sort céleste est-ce là?! Dévorer mon sens divin est une chose, mais après l'avoir dévoré, il peut même l'utiliser! »
+« Quel genre de sort céleste est-ce là?! Dévorer mes pouvoirs divins est une chose, mais après l'avoir dévoré, il peut même l'utiliser! »
 
 L'expression de Wang Lin devint sombre alors qu'il fixait l'hirondelle ensanglantée. Il serra les dents et frappa son sac de stockage pour faire apparaître le troisième Char de Guerre Divin. Celui-ci s'envola et se transforma en papillon.
 
@@ -92,27 +92,27 @@ La scène était bien étrange, mais Wang Lin pouvait clairement voir que le pap
 
 L'hirondelle ensanglantée accompagna le papillon et revint vers Wang Lin. Elle n'attaqua pas ce dernier, mais vola à ses côtés, tout comme le papillon.
 
-Wang Lin recula sans hésiter, suivi de près par le Sceau Céleste de Scellement.
+Wang Lin recula sans hésiter, suivi de près par le Sceau Céleste.
 
 Le Dieu de Sang laissa échapper un reniflement méprisant et fit un pas en avant. D'un seul pas, l'espace derrière Wang Lin fut déchiré, créant une brèche presque infranchissable!
 
 Un vent glacial s'engouffra de l'intérieur, forçant Wang Lin à s'arrêter. Il fixa le Dieu de Sang et demanda: « L'Aîné va-t-il revenir sur sa promesse? »
 
-« Et alors si je romps ma promesse? » répondit le Dieu de Sang d'un ton sombre en avançant. En plus de bloquer la fuite de Wang Lin, il avait injecté de l'énergie originelle au sein des nuages de la tribulation divine!
+« Et alors si je romps ma promesse? » répondit le Dieu de Sang d'un ton sombre en avançant. En plus de bloquer la fuite de Wang Lin, il avait injecté de l'énergie originelle au sein des nuages de la rétribution divine!
 
-Instantanément, les nuages de la tribulation se condensèrent encore plus vite. Des grondements tonitruants résonnèrent tandis que la foudre s'accumulait dans les cieux. D'innombrables éclairs descendirent aussitôt.
+Instantanément, les nuages de la rétribution se condensèrent encore plus vite. Des grondements tonitruants résonnèrent tandis que la foudre s'accumulait dans les cieux. D'innombrables éclairs rouges descendirent aussitôt.
 
 Cette masse de foudre fut scindée en deux: une moitié se dirigea vers le Dieu de Sang, l'autre vers Wang Lin.
 
 À cet instant, l'espace environnant fut enveloppé par la foudre. La pression colossale des décharges fit trembler violemment toute la zone.
 
-Le Dieu de Sang ne daigna même pas regarder la foudre de la tribulation et fit un pas. Lorsqu'il réapparut, il se tenait déjà devant Wang Lin. Il leva sa main droite et tendit négligemment le bras vers lui!
+Le Dieu de Sang ne daigna même pas regarder la foudre de la rétribution et fit un pas. Lorsqu'il réapparut, il se tenait déjà devant Wang Lin. Il leva sa main droite et tendit négligemment le bras vers lui!
 
 Cette tentative de saisie était d'une simplicité absolue, dénuée de toute puissance apparente. Pourtant, quand Wang Lin la vit, son esprit vacilla comme s'il n'existait aucun moyen de l'esquiver!
 
-La tribulation divine se rapprochait, tout comme la main du Dieu de Sang. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous l'ancien démon Bei Luo?! »
+La rétribution divine se rapprochait, tout comme la main du Dieu de Sang. Dans ce moment de crise extrême, les yeux de Wang Lin devinrent glacials et il hurla: « Connaissez-vous l'ancien démon Bei Luo?! »
 
-Le corps du Dieu de Sang s'immobilisa soudainement et ses yeux projetèrent une lueur démoniaque. Une lueur maléfique apparut entre ses sourcils tandis qu'un gaz noir se rassemblait rapidement. Une silhouette démoniaque dotée de deux cornes surgit!
+Le corps du Dieu de Sang s'immobilisa soudainement et ses yeux projetèrent une lueur démoniaque. Une lueur maléfique apparut entre ses sourcils tandis qu'un gaz noir se rassemblait rapidement. Une silhouette démoniaque au corps verdâtre, dotée de deux cornes, surgit!
 
 Dès son apparition, son rugissement résonna dans l'âme originelle de Wang Lin.
 

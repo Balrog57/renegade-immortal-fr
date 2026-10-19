@@ -10,7 +10,7 @@ La veille de la Sélection des Anciens Délaissés, Wang Lin arriva aux abords d
 
 La Planète du Grand Empereur était enveloppée d'une couche d'illusion, comme si elle était dissimulée par un voile de brume. Pourtant, de vastes déchirures apparaissaient par moments dans la brume illusoire, semblables à des gueules acérées dévorant tout ce qui s'y trouvait.
 
-Des ondulations de lignes grises parcouraient également la brume. En y regardant de plus près, on s'apercevrait qu'elles n'étaient pas réelles, mais qu'elles émettaient des vagues de force magnétique.
+Des ondulations de lignes grises parcouraient également la brume. En y regardant de plus près, on s'apercevrait qu'elles n'étaient pas réelles, mais qu'elles émettaient des vagues de force magnétique, à la fois répulsive et déchirante.
 
 Avant même que Wang Lin ne puisse s'en approcher, il ressentit une force extrêmement choquante provenant de l'intérieur de la brume illusoire. Une puissance capable de briser les cieux, capable de désintégrer les sorts des cultivateurs et de faire s'effondrer leurs trésors.
 
@@ -22,7 +22,7 @@ Un grand nombre de cultivateurs se trouvaient déjà là. Par groupes de dizaine
 
 L'arrivée de Wang Lin attira l'attention, et plusieurs Sens Divins balayèrent les environs. Lorsqu'ils passèrent sur le Clan des Scorpions Noirs et le Clan de l'Évasion Nuageuse, ils se retirèrent aussitôt.
 
-Quant à Wang Lin, grâce à son propre Sens Divin, très peu de personnes parvenaient à percevoir sa véritable nature.
+Quant à Wang Lin, grâce à son niveau de culture, très peu de personnes parvenaient à percevoir sa véritable nature.
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait froidement l'horizon.
 
@@ -80,7 +80,7 @@ L'homme d'âge moyen du Clan du Serpent de l'Âme sourit et secoua la tête: « 
 
 Après qu'il eut parlé, l'expression du Patriarche du Clan des Scorpions Noirs se détendit pour laisser place à une pointe de dérision. Non seulement lui, mais le Patriarche du Clan de l'Évasion Nuageuse leva également la tête, ses yeux brillant d'une moquerie mêlée à un profond sentiment de fierté cachée.
 
-Wang Lin sourit en regardant le vieil homme et dit lentement: « Quoi, nous ne pouvons pas dire votre nom? »
+Wang Lin sourit en regardant le vieil homme et dit lentement: « Votre nom ne peut-il donc pas être prononcé? »
 
 Les yeux du 13ème Ancien Déchu s'illuminèrent. Il vit la manière dont le Patriarche du Clan de l'Évasion Nuageuse regardait Wang Lin et, d'après leur position, comprit que cet homme semblait être celui qui commandait. C'était pour cela qu'il avait parlé.
 
@@ -102,7 +102,7 @@ Les anciens et les patriarches étaient de vieux renards; ils devinaient plus ou
 
 À leur tête se trouvait un jeune homme, accompagné d'anciens ayant atteint le stade du Fléau Céleste. Ils arrivèrent avec un élan puissant et se placèrent aux côtés du groupe de Wang Lin.
 
-Le jeune homme s'avança rapidement vers Wang Lin et joignit les mains dans un geste de respect extrême: « Le Junior Patriarche du Dragon Blindé salue le Senior! »
+Le jeune homme s'avança rapidement vers Wang Lin, s'inclina profondément et joignit les mains dans un geste de respect extrême: « Le Junior Patriarche du Dragon Blindé salue le Senior! »
 
 Derrière lui, plus de mille cultivateurs du Clan du Dragon Blindé regardèrent tous Wang Lin avec respect et une pointe de crainte. Ils joignirent les mains en chœur: « Salutations, Senior! »
 

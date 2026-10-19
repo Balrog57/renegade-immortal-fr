@@ -38,11 +38,11 @@ L'expression de Chen Long changea radicalement. S'il ne retirait pas sa main dro
 
 Les éclairs libérés par la deuxième âme originelle de Cupidité percutèrent l'énergie de l'épée et s'effondrèrent un à un. Une force colossale se dispersa dans toutes les directions.
 
-Les sceaux vitaux apparurent sur le corps de Wang Lin alors qu'il reculait, mais ses yeux brillaient comme des torches.
+Les sceaux de vie entre ses sourcils se superposèrent alors qu'il reculait, mais ses yeux brillaient comme des torches.
 
 Après avoir libéré l'énergie de l'épée de son maître, Chen Long s'empara du jeton sans la moindre hésitation. Ses yeux étaient empreints d'extase. Il s'élança aussitôt vers le haut, cherchant à s'échapper.
 
-La deuxième âme originelle de Cupidité poussa un rugissement et voulut poursuivre sa proie. Cependant, l'énergie de l'épée de Ling Tianhou était bien trop puissante et contenait même le sens divin de Chen Long, ce qui la rendait facile à contrôler. L'énergie de l'épée bloquait sans cesse la trajectoire de la deuxième âme originelle, la repoussant inlassablement. Celle-ci n'osait point toucher l'énergie de l'épée, sachant qu'elle risquerait d'être gravement blessée; elle ne pouvait donc qu'attendre que celle-ci se dissipe.
+La deuxième âme originelle de Cupidité poussa un rugissement et voulut poursuivre sa proie. Cependant, l'énergie de l'épée de Ling Tianhou était bien trop puissante et contenait même une trace de la conscience de Chen Long, ce qui permettait de la contrôler aisément. L'énergie de l'épée bloquait sans cesse la trajectoire de la deuxième âme originelle, la repoussant inlassablement. Celle-ci n'osait point toucher l'énergie de l'épée, sachant qu'elle risquerait d'être gravement blessée; elle ne pouvait donc qu'attendre que celle-ci se dissipe.
 
 Piégé par les bêtes moustiques, les yeux de Cupidité révélèrent une pointe de détermination. Le cœur serré, il toucha immédiatement son sac de rangement et en sortit un morceau de bois de santal de la taille d'un doigt!
 
@@ -54,7 +54,7 @@ Cette fumée était singulière. Bien qu'elle fût ténue en se propageant, elle
 
 « Senior Cupidité, Camarade Cultivateur Wang Lin, je prends ce jeton! Merci infiniment! » s'esclaffa Chen Long, les yeux déjà fixés sur la sortie au loin.
 
-Wang Lin ricana en observant la silhouette de Chen Long s'éloigner. Ses yeux projetèrent une lueur spectrale lorsqu'il murmura: « Arrête! »
+Wang Lin ricana en observant la silhouette de Chen Long s'éloigner. Ses yeux projetèrent une lueur spectrale lorsqu'il pensa en silence : « Arrête! »
 
 La puissance du sort céleste de bas niveau, capable de sceller les cieux et de geler la terre, fut libérée! Une force mystérieuse envahit instantanément l'abîme. Si un puissant cultivateur avait été présent, il aurait vu que la zone était saturée de fils invisibles qui s'enroulaient immédiatement autour de Chen Long.
 
@@ -102,7 +102,7 @@ Wang Lin prit une inspiration glacée en fixant le fourneau. Une lueur mystérie
 
 « Quel trésor puissant... Wang Lin, protège-toi! »
 
-L'épée céleste de Zhou Yi brilla et un rayon d'énergie s'en échappa. Cette énergie enveloppa l'arme qui se mit à tournoyer. La fumée environnante commença à gonfler, puis Zhou Yi cria: « Ouvre! »
+L'épée céleste de Zhou Yi brilla et un rayon d'énergie s'en échappa. Cette énergie enveloppa l'arme qui se mit à tournoyer, formant une tempête d'énergie d'épée. La fumée environnante commença à gonfler, puis Zhou Yi cria: « Ouvre! »
 
 Dans un fracas assourdissant, une ouverture se déchira dans la brume. L'épée céleste s'élança et Wang Lin, les yeux étincelants, s'élança à son tour!
 

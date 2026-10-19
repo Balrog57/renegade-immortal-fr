@@ -14,7 +14,7 @@ Outre le prince Ji Du et son entourage, de nombreux gardes se trouvaient dans le
 
 Cependant, à cet instant, alors que la pression descendait, les quelque mille gardes pâlirent tous et leurs corps se mirent à trembler. Des craquements sinistres résonnèrent dans leurs membres, comme si leur constitution ne pouvait supporter une telle force.
 
-« Qu'a-t-il cultivé durant ces cent dernières années pour générer une telle pression? » L'expression du jeune homme en robe violette changea radicalement. Même avec son propre niveau de culture, il sentait qu'il ne pourrait presque pas y résister.
+« Qu'a-t-il cultivé durant ces cent dernières années pour générer une telle pression? » L'expression du jeune homme en robe pourpre changea radicalement. Même avec son propre niveau de culture, il sentait qu'il ne pourrait presque pas y résister.
 
 Quant à la jeune femme, elle n'arrivait plus du tout à se tenir debout; clouée sur sa chaise, le front couvert de sueur, elle ne pouvait que subir l'assaut.
 
@@ -22,17 +22,17 @@ Le prince Ji Du, lui, affichait une excitation manifeste. Durant les cent derni�
 
 La brume dans le ciel continuait de tourbillonner et une étrange ombre apparut en son sein. Cette ombre était un soleil rouge qui projeta un éclat fulgurant. À mesure que la lumière se répandait, la brume s'agitait au rythme d'un grondement tonitruant, avant de s'étendre à l'infini.
 
-Le palais du prince Ji Du fut submergé par cette brume. Les innombrables personnes à l'intérieur peinaient à résister à la pression et restaient pétrifiées, incapables de faire le moindre mouvement.
+Le palais du prince Ji Du et presque toute la contrée furent submergés par cette brume. Les innombrables membres du clan Ancien Shi de la région peinaient à résister à la pression et restaient pétrifiés, incapables de faire le moindre mouvement.
 
 Plus particulièrement, les quelque mille gardes du palais, trop proches de la source, tremblaient de tous leurs membres, le cœur envahi par la peur.
 
-À l'intérieur du palais, le jeune homme en robe violette était trempé de sueur, sa tunique presque totalement imbibée, ses yeux empreints d'horreur. Il avait déjà vu le Grand Empyréen Song Tian, mais même devant ce dernier, il n'avait jamais ressenti une telle terreur.
+À l'intérieur du palais, le jeune homme en robe pourpre était trempé de sueur, sa tunique presque totalement imbibée, ses yeux empreints d'horreur. Il avait déjà vu le Grand Empyréen Song Tian, mais même devant ce dernier, il n'avait jamais ressenti une telle terreur.
 
 C'était comme si sa vie même dépendait du bon vouloir de cette pression.
 
-Les rumeurs concernant cet homme datant de cent ans surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait seulement être comparé au Grand Empyréen Song Tian!
+Les rumeurs concernant cet homme, vieilles de plus d'un siècle, surgirent dans l'esprit du jeune homme. Le mépris qu'il éprouvait disparut instantanément. Un être capable d'émettre une telle pression pouvait rivaliser avec le Grand Empyréen Song Tian!
 
-Tandis que la pression et la brume enveloppaient le pays, loin de là, à l'extérieur de la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
+Tandis que la pression et la brume enveloppaient la contrée, loin de là, à l'extérieur de la cité impériale des Anciens Shi, une montagne se dressait avec un immense temple à son sommet.
 
 Cette montagne s'appelait la Montagne de l'Origine; son pic, en forme de corne, donnait l'impression qu'elle allait déchirer les cieux.
 
@@ -40,7 +40,7 @@ Le grand temple était érigé à l'extrémité de cette corne. C'était le Temp
 
 En temps normal, une foule immense venait y faire des visites, mais aujourd'hui, le temple dégageait une pression si puissante qu'elle interdisait toute entrée.
 
-Un homme d'âge moyen était assis à l'autre extrémité de la corne. Vêtu d'une robe verte, ses cheveux descendaient jusqu'à sa taille, il contemplait l'horizon avec une expression sombre.
+Un homme d'âge moyen était assis en tailleur à l'autre extrémité de la corne. Vêtu d'une robe verte, ses cheveux descendaient jusqu'à sa taille, il contemplait l'horizon avec une expression sombre.
 
 Derrière lui se tenait un autre individu, un jeune homme au visage rude trahissant une pointe de férocité. Cependant, cette férocité avait laissé place à la stupéfaction alors qu'il fixait le lointain.
 
@@ -68,19 +68,19 @@ Le jeune homme poussa un soupir de soulagement avant de demander, après une hé
 
 L'homme d'âge moyen resta silencieux, mais ses pupilles se contractèrent imperceptiblement. Après un long moment de réflexion, il prit la parole:
 
-« Il fusionne ses corps de vérité d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Anciens Shi pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Anciens Shi. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyréen Gu Dao, il demeurait un Grand Empyréen. En tant que gardien des Anciens Shi, il avait le droit de traiter toute menace pesant sur son peuple.
+« Il fusionne ses véritables corps d'essence! Ses corps d'essence sont extraordinaires et il cherche à les intégrer totalement, ce qui sera une tâche ardue! Cependant, il a décidé de rester chez les Anciens Shi pour mener cette fusion sans m'en informer. Il manque de respect à mon rang en s'immisçant dans la compétition pour le trône des Anciens Shi. Je vais devoir lui donner une leçon. » Bien que l'homme d'âge moyen fût préoccupé par le Grand Empyréen Gu Dao, il demeurait un Grand Empyréen. En tant que gardien des Anciens Shi, il avait le droit de traiter toute menace pesant sur son peuple.
 
 Un éclat glacial brilla dans ses yeux et il leva sa main droite. Formant un sceau, il pointa la direction d'où émanait la pression de Wang Lin.
 
 « Libère le sceau! » murmura-t-il, tandis qu'une lueur spectrale jaillissait de sa main.
 
-Simultanément, au centre du clan ancestral, sur le Mont Gu Dao aux presque mille marches, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Anciens Shi.
+Simultanément, au centre des terres anciennes où se rejoignaient les trois lignées, sur le Mont Gu Dao aux presque mille marches, une silhouette enveloppée de brume siégeait au sommet d'une tour. Elle ouvrit les yeux et scruta la direction des Anciens Shi.
 
 Après un long silence, la silhouette murmura pour elle-même: « Fusion des corps d'essence? » Ses paroles étaient calmes, dénuées de toute émotion.
 
 Alors que la brume enveloppait le palais du prince Ji Du, un soleil apparut dans le ciel, et le monde changea brusquement de teinte pour basculer dans la nuit!
 
-En peu de temps, le ciel alternait entre le jour et la nuit. Après neuf cycles, des lignes apparurent au sein de la brume pour former des symboles, chacun imprégné du pouvoir de l'essence de restriction.
+En peu de temps, le ciel alternait entre le jour et la nuit. Après neuf cycles, toute la brume se mua en runes scintillantes, chacune imprégnée du pouvoir de l'essence de restriction.
 
 Plusieurs heures s'écoulèrent lentement. Durant ce laps de temps, les restrictions se multiplièrent et l'alternance jour-nuit devint encore plus fréquente, mais aucun signe de fusion n'apparaissait.
 
@@ -90,15 +90,15 @@ C'est alors qu'un hurlement terrifiant retentit, tandis que cinq rayons de lumi�
 
 Cette ombre ressemblait trait pour trait à Wang Lin!
 
-Pourtant, il ne s'agissait pas de son corps originel, mais de son corps de vérité des cinq éléments. Il flottait là tel une illusion, de la taille d'un homme ordinaire. Mais lorsqu'il inspira, les forces du monde se précipitèrent vers lui avec frénésie. Le corps de vérité des cinq éléments s'étendit alors jusqu'à atteindre mille pieds de haut!
+Pourtant, il ne s'agissait pas de son corps originel, mais de son véritable corps des cinq éléments. Il flottait là tel une illusion, de la taille d'un homme ordinaire. Mais lorsqu'il inspira, les forces du monde se précipitèrent vers lui avec frénésie. Le véritable corps des cinq éléments s'étendit alors jusqu'à atteindre mille pieds de haut!
 
-Cette force était celle des cinq éléments primordiaux du monde!
+Cette force était celle des cinq éléments du ciel et de la terre!
 
 Le corps de mille pieds inspira une nouvelle fois. La terre trembla, un feu céleste jaillit, une brume pluvieuse s'éleva, l'herbe se flétrit et même les métaux célestes s'animèrent. Le pouvoir des cinq éléments fut aspiré dans sa bouche.
 
 Dans un fracas de tonnerre, l'ombre de mille pieds grandit encore pour devenir un géant de dix mille pieds!
 
-Le corps de vérité des cinq éléments déploya ses bras. Simultanément, l'alternance du jour et de la nuit se régularisa et les restrictions cessèrent de se dissiper.
+Le véritable corps des cinq éléments déploya ses bras, tandis que les essences des cinq éléments tournoyaient autour de lui. Simultanément, l'alternance du jour et de la nuit se régularisa et les restrictions cessèrent de se dissiper.
 
 Cependant, au moment même où les restrictions, le Commencement Absolu et la Fin Absolue semblaient se stabiliser, un rugissement brutal jaillit des profondeurs de la terre.
 
@@ -108,14 +108,14 @@ Ce hurlement exhalait une folie et une puissance ahurissantes, faisant trembler 
 
 « C'est Luo Hou! »
 
-Le jeune homme en robe violette pâlit. En entendant ce nom, il se remémora une rumeur concernant le prince Ji Du: on disait qu'à la naissance de ce prince, un signe céleste était apparu, mais qu'il s'agissait d'un présage maléfique, dissimulé par la famille royale et dissipé par l'instructeur impérial.
+Le jeune homme en robe pourpre pâlit. En entendant ce nom, il se remémora une rumeur concernant le prince Ji Du: on disait qu'à la naissance de ce prince, un signe céleste était apparu, mais qu'il s'agissait d'un présage maléfique, dissimulé par la famille royale et dissipé par le Maître Impérial.
 
 Peu de gens étaient au courant, mais durant les cent dernières années, pour une raison inconnue, la rumeur avait recommencé à circuler parmi les Anciens Shi.
 
-On racontait que si le prince Ji Du avait fait construire son palais dans le pays de Luo Hou, c'était parce que la bête féroce scellée sous cette terre, jadis vaincue par l'Ancêtre Ancien, était Luo Hou elle-même!
+On racontait que si le prince Ji Du avait fait construire son palais dans la contrée de Luo Hou, c'était parce que la bête féroce scellée sous cette terre, jadis vaincue par l'Ancêtre Ancien, était Luo Hou elle-même!
 
-Quant à la présence de Ji Du ici, il jouait un rôle dans la suppression de Luo Hou tout en nourrissant sa propre fortune. C'était un plan orchestré par l'instructeur impérial avant sa mort.
+Quant à la présence de Ji Du ici, il jouait un rôle dans la suppression de Luo Hou tout en nourrissant sa propre fortune. C'était un plan orchestré par le Maître Impérial avant sa mort.
 
-Le rugissement devint plus intense encore. Peu après, une ombre gigantesque apparut au loin. C'était une masse charnue et ronde dotée d'un œil unique et immense. Elle dégageait une férocité et une folie sans nom, son corps semblant illusoire. À cet instant, elle fixa le corps de vérité des cinq éléments de Wang Lin surplombant le palais, un éclair d'avidité brillant dans son regard.
+Le rugissement devint plus intense encore. Peu après, une ombre gigantesque apparut au loin. C'était une masse charnue et ronde dotée d'un œil unique et immense. Elle dégageait une férocité et une folie sans nom, son corps semblant illusoire. À cet instant, elle fixa le véritable corps des cinq éléments de Wang Lin surplombant le palais, un éclair d'avidité brillant dans son regard.
 
-Cette masse ronde était donc Luo Hou?
+Cette masse ronde n'était autre que Luo Hou!

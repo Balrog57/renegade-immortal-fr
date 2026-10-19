@@ -88,7 +88,7 @@ Le tonnerre gronda et la pluie devint plus dense, comme si les nuages avaient pr
 
 À l'instant où la pluie s'arrêta dans ses yeux, elle cessa également dans le monde réel!
 
-À cet instant, les yeux de Wang Lin brillèrent d'un éclat intense. Il leva la main droite vers le ciel et, d'une voix rauque, déclara: « Renversement Céleste! »
+À cet instant, les yeux de Wang Lin brillèrent d'un éclat intense. Il leva la main droite vers le ciel et, d'une voix rauque, déclara: « Inversion Céleste! »
 
 Dès qu'il prononça ces mots, le monde rugit. L'univers dans les yeux de Wang Lin bascula: le ciel devint la terre et la terre devint le ciel!
 
@@ -100,14 +100,14 @@ Le ciel chargé de tonnerre se transforma soudainement en terre et tout s'invers
 
 La terre qui avait remplacé le ciel gronda bruyamment. Tandis que Wang Lin abaissait la main, la terre pressa violemment vers le bas!
 
-Si quelqu'un regardait cette terre ayant remplacé le ciel, il verrait l'océan à l'envers, les cités mortelles et les humains marchant sous la pluie. Il verrait les petites bêtes dans la forêt dense et le python galopant dans l'eau. Mais personne ne semblait remarquer quoi que ce soit!
+Si quelqu'un regardait cette terre ayant remplacé le ciel, il verrait l'océan à l'envers, les cités mortelles et les humains marchant sous la pluie. Il verrait les petites bêtes dans la forêt dense et les pythons filant dans l'eau. Mais personne ne semblait remarquer quoi que ce soit!
 
 Les yeux de Wang Lin s'illuminèrent. Il sentait clairement qu'une fois que ce Sceau d'Inversion Céleste s'écraserait, elle contiendrait la puissance nécessaire pour détruire le monde. Elle était plusieurs fois plus puissante que tous ses autres sorts!
 
 Il agita la main droite. La terre ne s'écrasa pas et retourna instantanément à la normale. Le ciel redevint le ciel et la terre redevint la terre!
 
-« Ce n'est pas la seule façon d'utiliser le Sceau d'Inversion Céleste! Si l'on considère une personne comme un monde, alors sa chair, son sang et sa peau sont le ciel, et ses organes internes sont la terre. Inversez cela, et la létalité de ce sort augmentera considérablement! » Wang Lin médita silencieusement un instant, réprimant sa joie d'avoir compris cette technique. Il ferma les yeux et commença à assimiler le second sort!
+« Ce n'est pas la seule façon d'utiliser le Sceau d'Inversion Céleste! Si l'on considère une personne comme un monde, alors sa chair, son sang et sa peau sont le ciel, et ses organes internes sont la terre. Inversez cela, et la létalité de ce sort dépassera de loin celle du Sceau d'Inversion Céleste! » Wang Lin médita silencieusement un instant, réprimant sa joie d'avoir compris cette technique. Il ferma les yeux et commença à assimiler le second sort!
 
-Alors que Wang Lin utilisait le Sceau d'Inversion Céleste, sur la Montagne Bleue, la main du Maître du Dao Rêve Bleu qui jouait de la cithare s'arrêta un instant.
+Alors que Wang Lin utilisait le Sceau d'Inversion Céleste, sur le Mont Bleu, la main du Maître du Dao Rêve Bleu qui jouait de la cithare s'arrêta un instant.
 
 « Un être possédant cinq essences est véritablement stupéfiant. Il a réussi à maîtriser le Sceau d'Inversion Céleste en seulement quatre mois... Je pensais qu'il lui faudrait plusieurs années... »

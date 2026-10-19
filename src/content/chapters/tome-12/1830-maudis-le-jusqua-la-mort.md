@@ -66,7 +66,7 @@ L'Ancêtre Taureau Vert rit de cette scène. Il hocha la tête et dit: « C'est 
 
 Wang Lin saisit le jade et ne dit plus rien. Il s'envola vers son pic, passant devant les nombreux disciples de Yan Luan. Soudain, il s'arrêta et jeta un regard à Fan Shanmeng.
 
-Le cœur de Fan Shanmeng trembla sous ce regard fugace, et elle baissa la tête. Sa culture était faible; elle n'était qu'au septième stade des Tribulations Arcanes, tout comme Du Qing. Le fait que sa sœur et elle soient devenues les partenaires Dao du Souverain Céleste aux Sept Couleurs ne dépendait pas de sa propre culture, mais du simple fait qu'elle fût une disciple de la Secte de la Grande Âme!
+Le cœur de Fan Shanmeng trembla sous ce regard fugace, et elle baissa la tête. Sa culture n'était pas médiocre; elle était au septième stade des Tribulations Arcanes, tout comme Du Qing. Le fait que sa sœur et elle soient devenues les partenaires Dao du Souverain Céleste aux Sept Couleurs ne dépendait pas de sa propre culture, mais du simple fait qu'elle fût une disciple de la Secte de la Grande Âme!
 
 Une raison plus profonde et un coup de chance avaient présidé à cela. Autrement, avec la culture du début de la Tribulation du Vide du Souverain Céleste à l'époque, il n'aurait jamais pris une partenaire comme elle.
 
@@ -74,7 +74,7 @@ Le Souverain Céleste aux Sept Couleurs avait connu une vie pleine de changement
 
 C'était peut-être précisément pour cette raison qu'il s'était tellement emporté en découvrant que Fan Shanmeng et Lian Daofei avaient pu avoir une liaison!
 
-« Ma demeure manque d'une servante. Cette femme est plutôt pas mal. Yan Luan, donne-la moi. » En s'éloignant, Wang Lin désigna Fan Shanmeng du doigt.
+« Ma demeure manque d'une servante. Cette femme est plutôt pas mal. Yan Luan, donne-la moi. » Marquant une pause, Wang Lin désigna Fan Shanmeng du doigt.
 
 Le cœur de Fan Shanmeng bondit à ces mots et son visage se décomposa.
 
@@ -96,7 +96,7 @@ Dès que son essence pénétra dans la montagne, une mer de feu jaillit des entr
 
 L'intensité était bien supérieure à celle d'autrefois. Le brasier sur la montagne semblait éternel, impossible à éteindre!
 
-En voyant cela, Yan Luan serra les dents. Le soupçon de satisfaction qu'elle avait ressenti en voyant Wang Lin accepter cette montagne inutile disparut totalement.
+En voyant cela, Yan Luan serra les dents. Le soupçon de satisfaction qu'elle avait ressenti en voyant Wang Lin accepter cette montagne en ruine disparut totalement.
 
 « Nous ne pouvons pas coexister! »
 

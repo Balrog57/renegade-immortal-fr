@@ -34,9 +34,9 @@ Le livret des « Trois étapes de Condensation de Qi » devint le trésor de Wan
 
 Le livret indiquait que lors de la première pratique de cette technique, on aurait la sensation de fourmis rampant à l'intérieur de son corps. Cela était dû à l'entrée de l'énergie spirituelle. Il était conseillé de ne pas s'alarmer, mais de se détendre et d'imaginer que l'on devenait néant, pour enfin ne faire qu'un avec le ciel et la terre.
 
-Après un long moment, Wang Lin constata avec impuissance que non seulement il ne ressentait rien, mais qu'il était totalement essoufflé à cause de cette respiration anormale.
+Après un long moment, Wang Lin constata avec impuissance que non seulement il ne ressentait rien, mais qu'il était légèrement essoufflé à cause de cette respiration anormale.
 
-Wang Lin soupira. Il savait que la plupart des disciples ici possédaient un talent immense et que ce livret avait été écrit pour eux. Son propre talent n'était que moyen; comment pouvait-il rivaliser?
+Wang Lin soupira. Il savait que tous les disciples internes possédaient un talent immense et que ce livret avait été écrit pour eux. Son propre talent n'était que moyen; comment pouvait-il rivaliser?
 
 Pourtant, il ne se découragea pas. Après quelques respirations, il reprit la technique.
 

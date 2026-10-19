@@ -18,7 +18,7 @@ Le corps enveloppé d'énergie spirituelle démoniaque, les yeux de Wang Lin s'i
 
 Alors que le huitième effondrement n'était pas encore détruit, le neuvième apparut silencieusement.
 
-Wang Lin fronça légèrement les sourcils. Bien qu'il s'était transformé en démon et qu'il portait en lui les idéaux de cette voie, son cœur dao demeurait stable. Cependant, s'il continuait à sombrer davantage dans la démoniaque, il serait difficile pour son cœur dao de ne pas être affecté.
+Wang Lin fronça légèrement les sourcils. Bien qu'il s'était transformé en démon et qu'il portait en lui les idéaux de cette voie, son cœur Dao demeurait stable. Cependant, s'il continuait à sombrer davantage dans la démoniaque, il serait difficile pour son cœur Dao de ne pas être affecté.
 
 Wang Lin connaissait trop bien les écueils de la voie démoniaque.
 
@@ -46,13 +46,13 @@ Il resta ainsi pendant un total de quatre jours et quatre nuits!
 
 Ses cheveux retrouvèrent progressivement leur aspect originel. Bien que suivre la voie démoniaque permette à ses sorts d'atteindre des niveaux de puissance sans précédent, les inconvénients étaient tout aussi colossaux!
 
-Le dao de Wang Lin n'était pas le dao démoniaque; par conséquent, lorsque son corps était imprégné d'idéaux démoniaques, ceux-ci entraient en conflit avec son cœur dao. Si cela perdurait, son cœur dao serait altéré, et Wang Lin savait qu'il finirait par devenir un cultivateur démoniaque à part entière. De plus, en raison de cette incompatibilité, son esprit serait submergé par ces idéaux maléfiques, le transformant en un monstre dépourvu de toute trace de lucidité.
+Le Dao de Wang Lin n'était pas le Dao démoniaque; par conséquent, lorsque son corps était imprégné d'idéaux démoniaques, ceux-ci entraient en conflit avec son cœur Dao. Si cela perdurait, son cœur Dao serait altéré, et Wang Lin savait qu'il finirait par devenir un cultivateur démoniaque à part entière. De plus, en raison de cette incompatibilité, son esprit serait submergé par ces idéaux maléfiques, le transformant en un monstre dépourvu de toute trace de lucidité.
 
 Il ne pourrait conserver sa raison que s'il consacrait son cœur entier à la voie démoniaque, à l'instar de Situ Nan.
 
-Avec la force mentale de Wang Lin, il ne commettrait pas une telle erreur. Dès qu'il était entré dans cet état démoniaque, il calculait mentalement le temps écoulé. Il méditait sans cesse sur la manière d'atteindre l'état démoniaque sans que cela n'affecte son cœur dao.
+Avec la force mentale de Wang Lin, il ne commettrait pas une telle erreur. Dès qu'il était entré dans cet état démoniaque, il calculait mentalement le temps écoulé. Il méditait sans cesse sur la manière d'atteindre l'état démoniaque sans que cela n'affecte son cœur Dao.
 
-C'était précisément pour cette raison qu'il avait décidé de battre en retraite lors de l'arrivée des huitième et neuvième effondrements. Ce n'était pas par incapacité à combattre, mais parce que s'il avait persisté, son cœur dao aurait été compromis.
+C'était précisément pour cette raison qu'il avait décidé de battre en retraite lors de l'arrivée des huitième et neuvième effondrements. Ce n'était pas par incapacité à combattre, mais parce que s'il avait persisté, son cœur Dao aurait été compromis.
 
 De plus, la raison pour laquelle Wang Lin avait accepté cet état, outre l'apprentissage du pouvoir de la foi, était d'obtenir un poste extérieur. Après avoir démontré sa force, bien qu'il n'ait pas surmonté le huitième effondrement, il savait que le général ne lui accorderait pas simplement un poste d'Ancien.
 
@@ -80,7 +80,7 @@ Treize et Hu Pao suivaient Wang Lin. L'expression de Treize restait glaciale, so
 
 Wang Lin n'éprouvait aucun intérêt pour la Grande Muraille Antique. Après quatre heures de marche, il arriva devant un restaurant bondé de clients.
 
-Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il ne mangeait que pour satisfaire les besoins élémentaires de son corps.
+Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il était parvenu au stade où la seule respiration suffisait à combler les besoins de son corps.
 
 Si la nourriture seule ne suffisait pas à captiver son attention, d'immenses jarres de vin attiraient pourtant son regard devant l'établissement. Ces jarres mesuraient dix mètres de large et 6,6 mètres de haut. Des échelles étaient disposées autour pour permettre au personnel de puiser le breuvage.
 
@@ -103,7 +103,7 @@ Lorsque le groupe de Wang Lin pénétra dans la salle, l'employé s'écria rapid
 
 Aussitôt, un serveur s'approcha en disant: « Messieurs, veuillez me suivre. Nous avons une table d'exception près de la fenêtre, suivez-moi! »
 
-Il prit les devants et, une fois arrivé à la table choisie, il la nettoya soigneusement avec une serviette posée sur son coude. Wang Lin s'assit. Treize et Hu Pao hésitèrent un instant, mais après avoir vu le hochement de tête de Wang Lin, ils s'installèrent face à lui.
+Il prit les devants et, une fois arrivé à la table choisie, il la nettoya soigneusement avec une serviette posée sur son épaule. Wang Lin s'assit. Treize et Hu Pao hésitèrent un instant, mais après avoir vu le hochement de tête de Wang Lin, ils s'installèrent face à lui.
 
 Le serveur, faisant preuve d'une bonne intuition, demanda immédiatement: « Monsieur, désirez-vous commander quelque chose? »
 

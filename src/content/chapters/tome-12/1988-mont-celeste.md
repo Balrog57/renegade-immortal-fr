@@ -32,7 +32,7 @@ Les pupilles de Wang Lin se rétractèrent. À l'instant même où Ming Dao fond
 
 Tandis que des grondements tonitruants résonnaient et que la terre tremblait, Ming Dao n'utilisa aucun sort; il percuta simplement la montagne de plein fouet.
 
-Le sol trembla violemment. Si cela avait été une autre montagne, elle se serait effondrée, mais celle-ci, malgré les secousses et la chute des rochers, ne montra aucun signe de rupture. Aucune fissure n'apparut sur sa surface!
+Le sol trembla violemment. Si cela avait été une autre montagne, elle se serait effondrée, mais celle-ci, malgré les secousses et la chute des rochers, ne montra aucun signe de rupture. Pas même une fissure profonde n'apparut!
 
 Parmi les quatre-vingt-dix-neuf images de Wang Lin, plus de soixante-dix se désintégrèrent lors de la collision brutale de Ming Dao. Les autres fusionnèrent au loin pour reformer son corps originel!
 
@@ -48,13 +48,13 @@ L'expression du jeune homme était calme alors qu'il reculait, fixant la montagn
 
 Ming Dao frappa la montagne, provoquant un nouveau séisme, et poussa un rugissement. Ignorant l'Enseignant Impérial, il se rua de nouveau sur Wang Lin.
 
-« Tout le néant continue d'exister parce qu'il existe! » La silhouette de lumière blanche devant l'Enseignant Impérial avança puis disparut. Lorsqu'elle réapparut, elle se trouvait devant Ming Dao et pointa un doigt vers lui.
+« Tout le néant commence à exister parce qu'il existe! » La silhouette de lumière blanche devant l'Enseignant Impérial avança puis disparut. Lorsqu'elle réapparut, elle se trouvait devant Ming Dao et pointa un doigt vers lui.
 
 Au contact de ce doigt, d'immenses ondulations parcoururent le vide entourant Ming Dao. Ces ondes agissaient comme des chaînes et figèrent instantanément l'adversaire!
 
 Les yeux de Wang Lin brillèrent. La lumière dorée émanant du corps de Ming Dao était trop intense, une puissance que Wang Lin redoutait. Voyant l'Enseignant Impérial agir, il hésita un instant avant de charger à son tour.
 
-En s'approchant, il leva la main droite et invoqua *Nuit Brisée*. La terre devint mer et le ciel s'obscurcit, tandis qu'il se transformait en soleil. Une lumière éclatante jaillit, chargée de la puissance du sort de foi de Wang Lin. Fusionnant cette clarté capable de déchirer les ténèbres, il chargea Ming Dao.
+En s'approchant, il leva la main droite et invoqua *Nuit Brisée*. La terre devint mer et le ciel s'obscurcit, tandis qu'il se transformait en soleil levant. Une lumière éclatante jaillit, chargée de la puissance du sort de foi de Wang Lin. Fusionnant cette clarté capable de déchirer les ténèbres, il chargea Ming Dao.
 
 Simultanément, l'Enseignant Impérial, le visage livide, mordit sa langue. Utilisant ses dernières forces vitales, il cracha une gorgée de sang qui se condensa pour former un homme de sang. Ce dernier poussa un rugissement vers le ciel et chargea Ming Dao avec une expression féroce!
 
@@ -64,7 +64,7 @@ Ming Dao n'avait pas été aussi puissant initialement, mais la lumière dorée 
 
 Alors que l'homme de sang et le sort *Nuit Brisée* convergeaient vers Ming Dao, celui-ci hurla vers les cieux. Sa douleur semblait avoir atteint son paroxysme. Son corps, déjà largement décomposé, trembla puis explosa soudainement!
 
-Cet effondrement fut une séparation brutale de la chair et du sang; la force de sa propre substance explosa dans toutes les directions!
+Cet effondrement fut une séparation brutale de la chair et des os; la force de sa propre substance explosa dans toutes les directions!
 
 L'homme de sang chargea en plein cœur de l'explosion!
 
@@ -78,7 +78,7 @@ Ils frappèrent sa poitrine, sa jambe droite et son bras gauche. Une douleur ful
 
 « Wang Lin, nous ne pouvons plus nous retenir — nous devons déployer toute notre puissance. Nous devons le soumettre avant qu'il ne termine son sort ou ne meure, afin que je puisse te transférer ce pouvoir! » Les paroles de l'Enseignant Impérial étaient faibles et empreintes d'urgence. Il leva la main et de petites silhouettes de lumière commencèrent à émerger de sa paume.
 
-Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commença à se décomposer rapidement, comme s'il s'apprêtait à mourir. Il cracha un jet de sang qui se transforma en un homme de sang. Toutes les petites entités de lumière se précipitèrent dans l'homme de sang. Ce dernier dégagea une aura colossale et ouvrit les yeux. Son regard n'était plus féroce, mais d'un calme absolu alors qu'il chargeait Ming Dao.
+Il mordit une nouvelle fois sa langue et, dans un rugissement, son corps commença à se décomposer rapidement, comme s'il s'apprêtait à mourir. Il cracha un jet de sang qui se transforma en un homme de sang. Toutes les petites entités de lumière se précipitèrent dans l'homme de sang. Ce dernier dégagea une aura colossale et ouvrit les yeux rouges de sang. Son regard n'était plus féroce, mais d'un calme absolu alors qu'il chargeait Ming Dao.
 
 Le corps de l'Enseignant Impérial tremblait et sa respiration devint rauque. Son visage était extrêmement pâle, enveloppé par l'ombre de la mort.
 
@@ -88,7 +88,7 @@ Ce coup représentait le summum de la puissance de Wang Lin. En frappant, quatre
 
 Le corps de Ming Dao frémit; il n'était plus qu'un squelette. Le peu de chair et de sang qui lui restait explosa une fois de plus. Désormais, le corps de Ming Dao n'était plus que d'ossements!
 
-Ses os étaient totalement noirs, mais au centre de sa poitrine palpitait une sphère de lumière dorée de la taille d'un poing, émettant un éclat infini. C'était là son héritage de l'Ancêtre Céleste!
+Ses os étaient totalement noirs, mais au centre de son corps palpitait une sphère de lumière dorée de la taille d'un poing, émettant un éclat infini. C'était là son héritage de l'Ancêtre Céleste!
 
 L'explosion de la chair et du sang ne put stopper ni l'homme de sang formé par l'essence vitale de l'Enseignant Impérial, ni le sort issu de l'armure du Taureau Céleste de Wang Lin. Des grondements tonitruants secouèrent l'espace, et Ming Dao sembla sur le point de rompre.
 

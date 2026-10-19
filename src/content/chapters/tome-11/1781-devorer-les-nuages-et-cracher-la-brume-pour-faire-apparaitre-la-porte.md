@@ -14,7 +14,7 @@ Il avait échoué à la compétition. On pouvait dire que cet événement fut un
 
 Au cours des années suivantes, Su Dao sombra dans le déclin et se raréfia, ne parlant plus guère à personne. Il s'enferma dans une culture en porte close jusqu'à ce qu'il rencontre par hasard son ancêtre. Ce dernier lui enseigna les voies, et il finit lentement par relever la tête.
 
-Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui, par sa lutte et son refus de se résigner, se transforma en cruauté et en massacres, jusqu'à ce qu'il fonde finalement la Secte des Sept Daos!
+Malheureusement, cette période de grâce fut de courte durée. Une rencontre inattendue provoqua l'expulsion de Su Dao de la Secte Dong Lin. Après cela, au fil des éternités, le Su Dao de la Secte Dong Lin cessa d'exister. Ce qu'il restait n'était plus que le Souverain Céleste aux Sept Couleurs, qui, par sa lutte et son refus de se résigner, se transforma en cruauté et en massacres, jusqu'à ce qu'il fonde finalement la Secte des Sept Dao!
 
 Quant à Zhou Li, le jour où le Souverain Céleste aux Sept Couleurs acheva son Dao, il captura Zhou Li et le tua avec cruauté.
 
@@ -24,7 +24,7 @@ C'était le troisième jour après que le maître de Su Dao lui eut enseigné l'
 
 La rivière continuait son cours, tandis que les souvenirs de la troisième âme s'effaçaient dans l'esprit de Wang Lin, remplacés par l'Art Céleste du Dao des Nuages.
 
-La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte du Soleil Pourpre, il était empreint d'un grand mystère; ses disciples sortaient rarement.
+La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte du Soleil Violet, il était empreint d'un grand mystère; ses disciples sortaient rarement.
 
 Les trois grandes techniques de la secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
 
@@ -36,11 +36,11 @@ Pour autrui, l'Art Céleste du Dao des Nuages exigerait énormément de temps et
 
 De plus, le fait que Wang Lin ait lui-même compris sept essences rendait la culture de l'art introductif d'une simplicité absolue.
 
-Des volutes de fumée s'échappèrent de la rivière devant lui et volèrent vers lui. Après avoir tournoyé autour de lui à plusieurs reprises, elles pénétrèrent dans son corps.
+Des volutes de fumée s'échappèrent de la rivière devant lui et volèrent vers lui. Après avoir tournoyé autour de lui à plusieurs reprises, elles pénétrèrent dans son corps par ses sept orifices.
 
 Une brume blanche émanait lentement de la rivière, du sommet de la montagne jusqu'à son pied. Tel un nuage, elle convergeait vers Wang Lin pour l'envelopper et s'infiltrer en lui.
 
-La silhouette de Wang Lin vacillait au cœur des nuages. Peu après, ce n'était plus seulement la rivière qui dégageait une brume blanche, mais aussi l'herbe environnante.
+La silhouette de Wang Lin vacillait au cœur des nuages. Peu après, ce n'était plus seulement la rivière qui dégageait une brume blanche, mais aussi l'herbe et les arbres alentour.
 
 Bientôt, Wang Lin ne pouvait plus distinguer ses propres doigts dans un rayon de mille pieds autour de lui. Les nuages blancs s'agitaient comme si un dragon y résidait.
 

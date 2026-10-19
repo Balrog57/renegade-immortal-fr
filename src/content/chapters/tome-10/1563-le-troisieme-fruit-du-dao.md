@@ -8,17 +8,17 @@ slug: le-troisieme-fruit-du-dao
 ---
 Le Fruit du Dao était d'une transparence ténue, laissant entrevoir un jeune garçon à l'intérieur, dont le corps irradiait une lueur rouge. Le visage de l'enfant était marqué par la douleur. D'innombrables filaments étaient connectés à son corps, comme s'ils aspiraient ses nutriments.
 
-Ce garçon était le corps originel du Maître Hong Shan. Mais ne possédant pas la Perle de Défiance Céleste pour absorber l'intention chaotique du Dao qu'il contenait, le seul dénouement possible était sa mort!
+Ce garçon était le corps originel du Maître Hong Shan. Mais ne possédant pas la Perle défiant le ciel pour absorber l'intention chaotique du Dao qu'il contenait, le seul dénouement possible était sa mort!
 
 Le massacre se poursuivait, ponctué par des vagues de cris déchirants provenant de toutes parts. Les bêtes étranges qui secondaient l'homme en noir dans son attaque contre le Maître Long Pan se dispersèrent pour foncer vers Qing Shui, lequel s'adonnait à une véritable boucherie.
 
-« De simples spectres, osez-vous montrer les crocs devant ce seigneur? » Un éclat de froideur traversa le regard de Qing Shui tandis qu'il agitait sa main droite. Une tempête noire, saturée d'essence de massacre, se forma et s'élança vers le ciel. Lorsqu'elle atteignit ces créatures étranges, la tempête explosa soudainement.
+« De simples spectres, osez-vous montrer les crocs devant ce seigneur? » Un éclat de froideur traversa le regard de Qing Shui tandis qu'il agitait sa main gauche. Une tempête noire, saturée d'essence de massacre, se forma et s'élança vers le ciel. Lorsqu'elle atteignit ces créatures étranges, la tempête explosa soudainement.
 
 L'essence de massacre se dispersa avec une rapidité fulgurante, balayant les créatures sur son passage. Ces dernières tremblèrent tandis que des craquements sinistres résonnaient: elles se transformèrent toutes en éclats de glace noire!
 
 Elles étaient toutes gelées!
 
-D'innombrables pointes de glace noire surgirent au cœur du givre pour transpercer ces créatures étranges.
+D'innombrables pointes de glace surgirent au cœur de cette glace noire pour transpercer ces créatures étranges.
 
 Wang Lin fit un pas en avant. Il ne prêta aucune attention au massacre des cultivateurs du Royaume Extérieur par Qing Shui, ni au combat du Maître Long Pan. En un instant, il se retrouva sous le Fruit du Dao qui flottait au cœur des nuages aux sept couleurs!
 
@@ -32,13 +32,13 @@ Bloqué par le Maître Long Pan, les yeux du Seigneur du Palais de la Punition C
 
 À cet instant, il forma un sceau de ses mains pour rassembler les Flammes de Joss et reprit son combat contre le Maître Long Pan!
 
-Wang Lin atteignit le Fruit du Dao et observa le Maître Hong Shan. Ses yeux s'illuminèrent et il agita la main droite vers le fruit.
+Wang Lin atteignit le Fruit du Dao et observa le Maître Hong Shan. Ses yeux s'illuminèrent et il frappa le fruit de la paume droite.
 
 Un fracas tonitruant retentit alors qu'une force de rejet émanant du Fruit du Dao percutait Wang Lin, le forçant à reculer de quelques pas. Une lueur de déduction brilla dans son regard.
 
 Lorsque le Fruit du Dao fut frappé par Wang Lin, les filaments connectés au Maître Hong Shan se tordirent, comme si toute la force lui avait été transférée. L'expression du Maître Hong Shan devint plus douloureuse encore et il ouvrit les yeux, révélant un regard éteint.
 
-Wang Lin avança et effectua six mouvements de mains successifs. Un grondement sourd résonna, mais le Fruit du Dao semblait imperturbable. Seule l'expression du Maître Hong Shan s'accentuait dans la souffrance et son regard se vidait davantage.
+Wang Lin avança et frappa six coups de paume successifs. Un grondement sourd résonna, mais le Fruit du Dao semblait imperturbable. Seule l'expression du Maître Hong Shan s'accentuait dans la souffrance et son regard se vidait davantage.
 
 « Avec ta simple culture, tu oses prétendre détruire le Fruit du Dao pour le sauver? Oublie cela, même ce vieil homme ne pourrait l'anéantir. Je veux voir comment tu comptes sauver ce Maître Hong Shan! Le sceau du Souverain n'est pas une chose que l'on brise! »
 
@@ -58,7 +58,7 @@ Plus il observait, plus il était stupéfait!
 
 « Ce seigneur n'a pas encore assez tué. »
 
-Le Maître Long Pan forma également un sceau, et le Tableau des Montagnes et des Rivières apparut pour barrer la route au Seigneur du Palais de la Punition Céleste. Il fit ensuite un pas vers l'homme en noir.
+Le Maître Long Pan forma également un sceau, et le Peinture des Montagnes et des Rivières apparut pour barrer la route au Seigneur du Palais de la Punition Céleste. Il fit ensuite un pas vers l'homme en noir.
 
 « Ce vieil homme n'a pas encore assez combattu, ne sois pas si pressé de partir. »
 
@@ -66,9 +66,9 @@ Un éclair de froideur passa dans les yeux de l'homme en noir lorsqu'il tourna s
 
 « Puisque vous refusez de laisser ce vieil homme partir, vous en paierez le prix! »
 
-Le Maître Long Pan médita un instant avant que sa main droite ne forme un sceau. Le Tableau des Montagnes et des Rivières dégagea une force d'aspiration. Les montagnes et les rivières à l'intérieur semblèrent prendre vie et surgirent soudainement dans le Royaume aux Sept Couleurs.
+Le Maître Long Pan médita un instant avant que sa main droite ne forme un sceau. Le Peinture des Montagnes et des Rivières dégagea une force d'aspiration. Les montagnes et les rivières à l'intérieur semblèrent prendre vie et surgirent soudainement dans le Royaume aux Sept Couleurs.
 
-Le Maître Long Pan fit un pas en avant et disparut, fusionnant avec le Tableau des Montagnes et des Rivières! Les reliefs se précipitèrent pour s'écraser sur le Seigneur du Palais de la Punition Céleste!
+Le Maître Long Pan fit un pas en avant et disparut, fusionnant avec le Peinture des Montagnes et des Rivières! Les reliefs se précipitèrent pour s'écraser sur le Seigneur du Palais de la Punition Céleste!
 
 Ayant déjà consumé sa force vitale, il attaquait désormais sans aucun souci pour sa propre vie. Les montagnes et les rivières se muèrent en une paume gigantesque, brûlant de la culture la plus puissante du Maître Long Pan. Cette paume s'abattit vers le Seigneur du Palais de la Punition Céleste.
 
@@ -80,7 +80,7 @@ Ces nuages sombres surgirent avec une soudaineté brutale, et simultanément, un
 
 « Ciel Clair! » Une lueur d'intention meurtrière jaillit des yeux de Qing Shui. La lune brillante sur le visage du vieil homme brilla d'un éclat aussi intense que le soleil, comme si cette lumière cherchait à détruire la lune elle-même.
 
-« Le sort de Bai Fan!! C'est l'un des six grands sorts de Bai Fan! Bai Fan est mort, tu es... tu es Qing Shui!! » La lune sur le visage du vieil homme se déforma. Normalement, avec son niveau de culture, il aurait pu résister à ce sort par la force. Cependant, juste au moment où la lune s'illumina, l'immense paume du Maître Long Pan se referma sur lui.
+« Le sort de Bai Fan!! C'est le sort à trois niveaux, l'un des six sorts de Bai Fan! Bai Fan est mort, tu es... tu es Qing Shui!! » La lune sur le visage du vieil homme se déforma. Normalement, avec son niveau de culture, il aurait pu résister à ce sort par la force. Cependant, juste au moment où la lune s'illumina, l'immense paume du Maître Long Pan se referma sur lui.
 
 Qing Shui fit un pas en avant et une essence de massacre dévastatrice fut projetée vers l'homme en noir.
 
@@ -104,7 +104,7 @@ Sous le regard incrédule du vieil homme, Wang Lin leva la main droite et plonge
 
 Les innombrables filaments reliant le Maître Hong Shan s'effondrèrent lorsque Wang Lin projeta une onde de choc. Les yeux éteints du Maître Hong Shan montraient des signes d'éveil!
 
-« Personne ne connaît mieux le Fruit du Dao que moi... Même votre Souverain ne peut m'égaler... » Wang Lin lâcha le Maître Hong Shan et fit un geste vers la branche. Un éclair de lumière sanglante jaillit, et l'épée de sang trancha la tige. Wang Lin rattrapa le Fruit du Dao et se tourna vers le Seigneur du Palais de la Punition Céleste, stupéfait.
+« Personne ne connaît mieux le Fruit du Dao que moi... Même votre Souverain ne peut m'égaler... » Wang Lin lâcha le Maître Hong Shan et fit un geste vers la branche. Un éclair de lumière sanglante jaillit, et l'épée de sang trancha la tige. Wang Lin rattrapa le Fruit du Dao et se tourna vers le Seigneur du Palais de la Punition Céleste, qui restait stupéfait.
 
 « Impossible!! » Le Seigneur du Palais de la Punition Céleste recula inconsciemment, les yeux écarquillés. Il ne pouvait croire que Wang Lin ait pu secourir le Maître Hong Shan avec une telle facilité.
 

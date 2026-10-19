@@ -72,7 +72,7 @@ L'homme nommé Xu laissa échapper un rire rauque: « Pas besoin de me remercier
 
 « Les trois premiers niveaux de l'Intention du Poing des Dix Effondrements... Mo Lihai a effectivement payé le prix fort pour m'ouvrir les portes de cet endroit », pensa Wang Lin avant de pénétrer dans cette immense cage.
 
-L'endroit ressemblait à une grille où les cellules étaient soigneusement alignées. Dès que Wang Lin entra, l'oppression précédente explosa et les hurlements reprirent de plus belle. Les cris se propagèrent comme des sorts sonores.
+L'endroit, disposé en forme de « 井 », ressemblait à une grille où les cellules étaient soigneusement alignées. Dès que Wang Lin entra, l'oppression précédente explosa et les hurlements reprirent de plus belle. Les cris se propagèrent comme des sorts sonores.
 
 Wang Lin restait impassible en passant devant les rangées de cellules. D'innombrables mains noires s'étiraient à travers les barreaux, tentant de le saisir. Parallèlement, des éclats de rire jaillissaient des cachots.
 
@@ -102,7 +102,7 @@ Wang Lin répéta: « Viens! »
 
 À cet instant, les cris devinrent encore plus intenses. Sous la pression des autres détenus, l'homme noir serra les dents, sa main se mua en griffe et s'élança vers la main droite de Wang Lin à travers les barreaux.
 
-Au moment où la main de l'homme atteignit la sienne, la main droite de Wang Lin se changea en épée et pointa la paume de l'individu. Simultanément, un filament d'Énergie de Massacre s'infiltra dans le corps de l'homme.
+Au moment où la main de l'homme atteignit la sienne, les deux doigts de la main droite de Wang Lin se changèrent en épée et pointèrent la paume de l'individu. Simultanément, un filament d'Énergie de Massacre s'infiltra dans le corps de l'homme.
 
 Le prisonnier trembla et recula précipitamment. Son corps fut pris de convulsions, du sang noir jaillit de ses orifices et son visage se déforma sous une douleur indicible.
 

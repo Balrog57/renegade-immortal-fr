@@ -58,7 +58,7 @@ Mais après un examen attentif, il s'avéra totalement différent. Cette sensati
 
 Son corps s'accéléra encore, la lumière rouge devenant désormais aveuglante.
 
-L'incrédulité dans les yeux de Yun Quezi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans l'approbation de Zhu Quezi ni la fusion avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
+L'incrédulité dans les yeux de Yun Quezi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans l'approbation de Zhu Quezi ni la fusion avec le Cœur de la Planète de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
 
 Quant au petit singe, il fixait Wang Lin, les yeux rougeoyants et l'expression sombre.
 

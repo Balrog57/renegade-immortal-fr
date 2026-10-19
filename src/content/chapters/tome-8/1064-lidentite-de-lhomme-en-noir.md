@@ -24,7 +24,7 @@ Son armure noire était désormais tachée de plusieurs gouttes de sang, d'où s
 
 Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en tentant de les essuyer, sa main passait à travers eux comme s'ils n'existaient pas.
 
-« Qing Lin, est-ce là le plan que tu as élaboré pour me résister après d'innombrables années de machinations? Si quiconque occupe ton corps tente de tuer ton descendant, tous les sorts deviennent inutiles! Tes techniques sont impuissantes et ton corps est entravé par le sang de ton descendant!!! »
+« Qing Lin, est-ce là le plan que tu as élaboré pour me résister après d'innombrables années de machinations? Si quiconque occupe ton corps tente de tuer ton descendant, tous les sorts deviennent inutiles, et même les attaques qui ne sont pas des sorts restent sans effet! Tes techniques sont impuissantes et ton corps est entravé par le sang de ton descendant!!! »
 
 « Il ne s'agit plus de modifier les lois, mais de les créer! Tu es si puissant, Qing Lin! » L'ancien démon afficha une expression hideuse en chargeant Wang Lin.
 
@@ -90,13 +90,13 @@ Les rugissements des membres de l'Ordre Ancestral étaient tous puissants mais, 
 
 Alors qu'il rugissait, une ombre noire gigantesque à corne unique apparut derrière lui. Cette silhouette colossale semblait être la source de tous les démons. Tandis que Ta Jia rugissait, son ombre ouvrit également la bouche pour pousser un cri.
 
-Le corps de Hu Juan trembla et elle cracha immédiatement du sang. Wang Wei fut tout aussi affecté, perdant toute vigueur. Cependant, il serra les dents, saisit Hu Juan et battit en retraite. Ses mains formèrent des sceaux et d'innombrables piliers d'eau surgirent devant lui avec frénésie.
+Le corps de Hu Juan trembla et elle cracha immédiatement du sang. Wang Wei fut tout aussi affecté, perdant toute vigueur. Cependant, il serra les dents, saisit Hu Juan et battit en retraite. Ses mains formèrent des sceaux et d'innombrables rideaux d'eau surgirent devant lui avec frénésie.
 
-En cette période de crise, Wang Wei se donnait corps et âme. Les piliers d'eau se succédaient si vite qu'en un clin d'œil, des milliers d'entre eux étaient apparus.
+En cette période de crise, Wang Wei se donnait corps et âme. Les rideaux d'eau se succédaient si vite qu'en un clin d'œil, des milliers d'entre eux étaient apparus.
 
-Pourtant, face à l'Ancien Démon Ta Jia, tout cela n'était qu'un jeu d'enfant. D'un seul rugissement, tous les piliers s'effondrèrent. Tandis que l'eau s'écrasait, Wang Wei et Hu Juan crachèrent davantage de sang et chargèrent vers Wang Lin pour le soutenir.
+Pourtant, face à l'Ancien Démon Ta Jia, tout cela n'était qu'un jeu d'enfant. D'un seul rugissement, tous les rideaux s'effondrèrent. Tandis que l'eau s'écrasait, Wang Wei et Hu Juan crachèrent davantage de sang et chargèrent vers Wang Lin pour le soutenir.
 
-Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restrictions fusionnant avec les piliers d'eau. Mais la puissance du cri de Ta Jia continuait de faire s'écrouler leurs défenses.
+Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restrictions fusionnant avec les rideaux d'eau. Mais la puissance du cri de Ta Jia continuait de faire s'écrouler leurs défenses.
 
 Si deux tels cultivateurs étaient ainsi impuissants, qu'en était-il du Maître du Vide? Il cracha aussitôt du sang, le regard éteint. Se retirant en hâte, il forma un sceau pour invoquer d'innombrables grains de sable jaune autour de lui. Mais avant même que le sable ne puisse former un bouclier, il s'effondra. Tout le sable fut projeté dans le corps du Maître du Vide, le repoussant violemment et faisant jaillir le sang de ses pores.
 

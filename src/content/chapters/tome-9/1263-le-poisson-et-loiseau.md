@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1263 - The Fish and the Bird
 slug: le-poisson-et-loiseau
 ---
-Ce silence était identique à celui de leurs adieux, lorsqu'ils s'éloignaient de Peng Lai. Cent ans avaient passé, mais la scène restait la même.
+Ce silence ressemblait à celui de leurs adieux, lorsqu'ils s'éloignaient de Peng Lai. Cent ans avaient passé, mais la scène restait la même.
 
 Wang Lin gardait le silence car il ne savait que dire. Que ce soit à cause des paroles qu'il avait prononcées, suggérant qu'il valait mieux qu'ils s'oublient, ou du bracelet que Li Qianmei avait laissé avant leur séparation, Wang Lin était incapable de dire un mot.
 
@@ -16,7 +16,7 @@ Son cœur était déjà mort et ne pouvait abriter que Li Muwan… À moins que 
 
 Cependant, pour l'instant, il ne le pouvait pas. Ou pour être plus exact, Li Qianmei n'était pas véritablement entrée dans son cœur. Wang Lin ne l'admirait qu'en tant que compagne de culture. Seule l'apparition du bracelet et un tournant du destin avaient rendu cette admiration quelque peu complexe.
 
-Wang Lin avait même le sentiment que l'excellence de Li Qianmei ne devait pas lui être révélée. Ils ne se connaissaient qu'à travers trois questions, et en dehors de cela, ils n'avaient rien l'un de l'autre.
+Wang Lin avait même le sentiment que l'excellence de Li Qianmei ne devait pas s'épanouir pour lui. Ils ne se connaissaient qu'à travers trois questions, et en dehors de cela, ils n'avaient rien l'un de l'autre.
 
 Ils n'avaient pas partagé les années passées dans la Mer des Démons, les siècles d'attente à la Secte du Ciel Nuageux, le choc de mourir de vieillesse dans la vallée, ni la musique qui avait accompagné Wang Lin durant ses deux mille ans de culture.
 
@@ -58,9 +58,9 @@ Wang Lin évita son regard en fixant l'horizon et murmura: « Cette fois, je t'a
 
 De l'amertume marqua le visage de Li Qianmei. En regardant Wang Lin, elle eut l'impression qu'il était très loin. Bien qu'il soit juste à ses côtés, il lui semblait inaccessible, si loin qu'aucune force ne pourrait jamais le rapprocher.
 
-Tel un poisson contemplant l'oiseau dans le ciel. Le poisson verse des larmes dans l'eau, mais l'oiseau ne peut les voir… car ce qui les sépare est la surface immuable de l'eau.
+Tel un poisson contemplant l'oiseau dans le ciel. Le poisson verse des larmes dans l'eau, mais l'oiseau ne peut les voir… car ce qui les sépare est ce monde, cette surface d'eau infranchissable.
 
-Si l'oiseau venait à se poser au bord de la rivière et apercevait le poisson, il pourrait marquer une pause un instant pour le regarder, mais il déploierait bientôt ses ailes pour s'envoler. Cela ne laisserait que des ondulations amères résonnant à la surface, ébranlant le corps du poisson.
+Si l'oiseau venait à se poser au bord de la rivière et apercevait le poisson, il pourrait marquer une pause un instant pour le regarder, mais il déploierait bientôt ses ailes pour s'envoler. Cela ne laisserait que des ondulations amères résonnant à la surface, ébranlant le corps du poisson qui, au fond de l'eau, regardait l'oiseau.
 
 « Après mon départ cette fois, il faudra longtemps avant que je puisse revenir… Ou peut-être que je ne reviendrai jamais… » murmura Li Qianmei à l'oreille de Wang Lin, le plongeant dans un silence encore plus profond.
 
@@ -80,7 +80,7 @@ Elle ne disait rien, et Wang Lin n'en savait rien…
 
 « J'ai cultivé très durement, et Maître a raffiné de nombreux élixirs pour moi. Grâce à eux, j'ai pu atteindre mon niveau de culture actuel… Ma culture m'a été donnée par mon maître, par la Secte Brise-Ciel… Je dois aller sur le champ de bataille, c'est mon destin. »
 
-Li Qianmei ne relâcha pas sa main emmêlée dans l'herbe. Au contraire, elle la tira pour que les tiges restent enlacées autour de ses doigts.
+Li Qianmei ne relâcha pas sa main emmêlée dans l'herbe. Au contraire, elle la tira dans un léger craquement, pour que les tiges restent enlacées autour de ses doigts.
 
 Elle se leva et replaça ses cheveux bleus. Elle regarda Wang Lin et dit doucement: « Si un jour je ne suis plus là, te souviendras-tu que dans ta vie, une femme nommée Li Qianmei est passée rapidement…? »
 
@@ -90,7 +90,7 @@ En entendant cela, Wang Lin sentit une pointe de douleur poindre dans son cœur.
 
 Li Qianmei esquissa un sourire, mais empreint d'une pointe de tristesse. Elle regarda Wang Lin comme si elle voulait l'inscrire à jamais dans sa mémoire, ou… l'effacer totalement de ses souvenirs...
 
-Il y avait une distance semblable à celle de l'absence et de l'oubli, incommensurable et tout aussi vaste. Tel le poisson au fond de l'eau voyant l'oiseau s'envoler: il se débat pour jaillir de l'eau afin de ne plus être entravé par cette barrière, mais il n'obtient qu'un bref aperçu avant de retomber dans les profondeurs…
+Il y avait une distance semblable à celle de ce qui reste dans la mémoire et de l'oubli, incommensurable et tout aussi vaste. Tel le poisson au fond de l'eau voyant l'oiseau s'envoler: il se débat pour jaillir de l'eau afin de ne plus être entravé par cette barrière, mais il n'obtient qu'un bref aperçu avant de retomber dans les profondeurs…
 
 Wang Lin regarda Li Qianmei, et l'amertume dans son cœur s'intensifia… Il se souvint vaguement du moment où il avait ouvert la porte de la Perle Défiant le Ciel pour y pénétrer. C'était comme s'il revoyait sa vie antérieure. À la fin, il s'était vu devenir un oiseau.
 

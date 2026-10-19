@@ -12,7 +12,7 @@ D'un geste de la main droite, il fit éclater tous les fruits pour en extraire l
 
 Des craquements secs retentirent tandis que la brume se diffusait autour de la Bête du Tonnerre. L'étreinte des tentacules se relâcha légèrement et leur couleur commença à virer au cramoisi.
 
-Profitant de l'affaiblissement des tentacules, la Bête du Tonnerre s'enveloppa d'éclairs. Son corps colossal se rétracta jusqu'à redevenir le chariot, avant de charger enfin vers l'extérieur.
+Profitant de l'affaiblissement des tentacules, la Bête du Tonnerre s'enveloppa d'éclairs. Son corps colossal se rétracta jusqu'à redevenir le Char de Guerre Divin, avant de charger enfin vers l'extérieur.
 
 La main gauche de Wang Lin s'étira et rengaina le Char de Guerre Divin dans son sac de rangement.
 
@@ -24,7 +24,7 @@ Il répéta cette opération maintes et maintes fois. Par chance, il possédait 
 
 Wang Lin fit preuve d'une prudence extrême tout au long du chemin, restant d'une vigilance absolue. Après quelques jours, il réussit enfin à infuser le jus des Fruits d'Ascension Céleste dans la plupart des tentacules de la planète.
 
-« Environ 70 % à 80 % des tentacules de ce Serpent aux yeux de lune ont le jus du Fruit d'Ascension Céleste scellé en leur sein. Dès que j'activerai les restrictions, les sceaux s'effondreront. Malheureusement, tous les Fruits d'Ascension Céleste ont été épuisés. Si chaque tentacule avait pu être affecté, ce serait parfait. »
+« Environ 70 % à 80 % des tentacules de ce Serpent aux yeux de lune ont le jus du Fruit d'Ascension Céleste scellé en leur sein. Il me suffit d'une simple pensée pour que les sceaux s'effondrent. Malheureusement, tous les Fruits d'Ascension Céleste ont été épuisés. Si chaque tentacule avait pu être affecté, ce serait parfait. »
 
 Wang Lin réfléchit un instant et renonça à l'idée de partir en chercher d'autres. Cet endroit était trop étrange, et il craignait que de nouveaux changements ne surviennent lors de sa prochaine visite.
 
@@ -54,13 +54,13 @@ Quand Wang Lin devait être prudent, il l'était toujours au plus haut point. C'
 
 « Extraire l'os du corps de ce Serpent aux yeux de lune peut être considéré comme l'un des trois moments les plus dangereux de ma vie. » Les yeux de Wang Lin s'illuminèrent, sa vigilance redoublant encore.
 
-Dans la Terre des Dieux Anciens, il comptait sur sa ruse. Dans le Royaume Céleste, sur sa prudence. Dans la Terre des Esprits Démoniaques, sur sa détermination.
+Dans la Terre des Dieux Anciens, il comptait sur sa ruse. Dans le Royaume Céleste de la Pluie, sur sa prudence. Dans la Terre des Esprits Démoniaques, sur sa résolution.
 
 Il suivit l'os et progressa. Après un long moment, Wang Lin s'arrêta soudainement. Ses yeux brillèrent intensément alors qu'il fixait l'os devant lui.
 
 Une immense fissure fendait l'os, recouverte d'une couche de mucus séché. Il était évident que le temps avait passé depuis très longtemps.
 
-Cette fissure était profonde, bien qu'elle ne fût pas assez large pour briser l'os en deux. Wang Lin se souvenait parfaitement que cette crevasse n'existait pas lors de sa précédente visite.
+Cette fissure était si profonde qu'elle manquait de peu de sectionner l'os en deux. Wang Lin se souvenait parfaitement que cette crevasse n'existait pas lors de sa précédente visite.
 
 Après s'être avancé avec précaution, il examina la faille et son regard se fit grave.
 
@@ -82,7 +82,7 @@ Tout en contemplant la montagne fusionnée avec l'os du Serpent aux yeux de lune
 
 « Cupidité! » lâcha Wang Lin, le visage sombre.
 
-Il avait déjà vu cette montagne. C'était le trésor dont Cupidité s'était emparé pour en extraire l'âme de la montagne.
+Il avait déjà vu cette montagne. C'était le trésor que Cupidité avait sorti et dont il avait extrait l'âme de la montagne pour attaquer.
 
 « Ils m'ont bel et bien poursuivi! » Les yeux de Wang Lin brillèrent. Il n'était plus pressé d'extraire l'os du Serpent aux yeux de lune.
 
@@ -104,11 +104,11 @@ Une fois de l'autre côté, Wang Lin l'examina avec soin et agita à nouveau ses
 
 Les deux doigts de Wang Lin glissèrent avec précaution autour de la montagne, évitant lentement les zones assimilées. Alors qu'il s'apprêtait à extraire totalement le bloc, Wang Lin ressentit soudain un froid glacial derrière lui qui lui fit dresser les poils de la nuque.
 
-Il n'osa même pas déployer son sens divin. Sous cette aura glaciale, il avait l'impression d'avoir les yeux bandés avec une épée pointée entre les sourcils.
+Il n'osa même pas déployer son sens divin. Sous cette aura glaciale, il avait l'impression d'avoir les yeux bandés avec une épée pointée entre les sourcils, dans une douleur sourde.
 
 À cet instant précis, ce sentiment s'intensifia avec le frisson qui lui glaçait le dos.
 
-La sensation perdura et devint plus nette encore. Le regard de Wang Lin se fit glacial tandis que sa main droite saisissait la montagne extraite. Il chargea immédiatement et pointa sa main gauche derrière lui.
+La sensation perdura et devint plus nette encore. Le regard de Wang Lin se fit glacial tandis que sa main droite saisissait la montagne extraite. Il bondit immédiatement vers le haut et pointa sa main gauche derrière lui.
 
 Le sort d'Arrêt!
 

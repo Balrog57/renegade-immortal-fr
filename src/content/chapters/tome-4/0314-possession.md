@@ -12,7 +12,7 @@ Wang Lin garda une expression calme et dit respectueusement: « Junior n'avait q
 
 Dès que Chi Hu et Papillon Rouge entendirent ces mots, leurs expressions devinrent étranges.
 
-L'homme d'âge moyen déclara: « Le cercueil de jade qui se trouve ici m'appartient déjà. Vous trois devriez partir. »
+L'homme d'âge moyen déclara: « Le cercueil de jade qui se trouvait ici, je l'ai déjà emporté. Vous trois devriez partir. »
 
 Chi Hu sourit amèrement et hocha rapidement la tête.
 

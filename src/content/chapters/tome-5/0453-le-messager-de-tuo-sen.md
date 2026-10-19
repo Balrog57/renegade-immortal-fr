@@ -8,7 +8,7 @@ slug: le-messager-de-tuo-sen
 ---
 Dès qu'il saisit la goutte d'eau, il recula immédiatement, mais une faille dimensionnelle apparut silencieusement devant lui. Dans un bruit de déchirure, un pan entier des vêtements de Wang Lin disparut.
 
-Une sueur froide couvrit le front de Wang Lin alors qu'il évitait soigneusement les failles pour finalement quitter le canyon.
+Une sueur froide couvrit le front de Wang Lin alors qu'il évitait soigneusement les failles pour finalement quitter la gorge.
 
 Ce tremblement ne dura que dix respirations, mais après ces dix instants, le Tombeau de Suzaku était plongé dans le chaos. D'innombrables failles étaient apparues dans le ciel et sur le sol, et bien des endroits étaient au bord de l'effondrement. La moindre fluctuation d'énergie spirituelle pouvait provoquer une catastrophe. Quiconque serait pris dans une faille mourrait.
 
@@ -16,7 +16,7 @@ Ce tremblement ne dura que dix respirations, mais après ces dix instants, le To
 
 L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhu Quezi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yun Quezi.
 
-Une fois que le sol eut cessé de trembler, la chaîne de montagnes où se trouvait Wang Lin n'était plus qu'une plaine. C'était comme si tout ce qui s'était produit avant le séisme n'avait été qu'un rêve.
+Une fois que le sol eut cessé de trembler, la gorge où se trouvait Wang Lin n'était plus qu'une plaine. C'était comme si tout ce qui s'était produit avant le séisme n'avait été qu'un rêve.
 
 La brise légère évapora la sueur froide sur le front de Wang Lin, tandis qu'un sentiment d'effroi envahissait son cœur. Il regarda les ruines en contrebas, là où des failles s'ouvraient et se refermaient sans relâche.
 
@@ -40,7 +40,7 @@ Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
 Planète Suzaku, Mer des Diables.
 
-La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par être conquise par eux.
+La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par devenir leur vassale.
 
 Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Diables. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
 
@@ -82,7 +82,7 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
-« Un descendant du Clan des Immortels Délaissés dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour le faire passer de l'étape des onze feuilles à celle des douze feuilles. Cela lui a permis de briser le sceau du Clan et de s'ouvrir un chemin dans le monde de la culture. »
+« Un descendant du Clan des Immortels Délaissés dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour faire passer un jeune de cette petite tribu sauvage de l'étape des onze feuilles à celle des douze feuilles. Cela a permis à toute sa tribu de briser son sceau et de se jeter sur les cultivateurs. »
 
 « Tout cela s'est déroulé selon mes plans, et l'emplacement du Cristal de Planète de Culture est enfin révélé. Wang Lin, mon messager t'a enfin retrouvé. Bien que tu aies beaucoup changé, comment pourrais-je, moi Tuo Sen, t'oublier? Ton sens divin est gravé dans mon cœur. Peu importe où tu te cacheras, je te trouverai! »
 

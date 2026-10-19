@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1591 - When You Don’t Wake Up
 slug: quand-vous-ne-vous-reveillez-pas
 ---
-La jeune fille portait une robe d'un vert éclatant et était d'une grande beauté. Le manche de son ombrelle ressemblait à un tronc d'arbre, et même la toile évoquait des feuilles; les fines nervures de l'étoffe rappelaient les veines du feuillage. L'ensemble dégageait une atmosphère très singulière.
+La jeune fille portait une robe d'un vert éclatant et était d'une grande beauté. Le manche de son ombrelle ressemblait à un tronc d'arbre, et même la toile évoquait des feuilles; les fines nervures de l'étoffe rappelaient les veines d'une plume. L'ensemble dégageait une atmosphère très singulière.
 
 Le teint de la jeune fille était rosé et d'une grande finesse. Ses sourcils froncés et son regard perçant lui conféraient une beauté d'un tout autre genre.
 
-À cet instant, le rideau de pluie séparait la jeune fille de Wang Lin, tandis que les gouttes s'écrasaient partout en tombant dans la rivière. Sous l'averse, le ciel et la terre semblaient ne faire qu'un. Même les montagnes verdoyantes au loin ne paraissaient plus être qu'une simple partie du paysage.
+À cet instant, le rideau de pluie séparait la jeune fille de Wang Lin, tandis que les gouttes s'écrasaient partout en tombant dans la rivière. Sous l'averse, le ciel et la terre semblaient ne faire qu'un. Même les montagnes verdoyantes au loin ne paraissaient plus sombres, mais tracées comme à l'encre de Chine.
 
 En contemplant ce spectacle, le visage de Wang Lin rougit soudainement.
 

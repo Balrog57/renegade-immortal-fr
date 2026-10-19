@@ -14,7 +14,7 @@ Comme Zhang Hu devait vendre le ginseng, il s'en alla après avoir discuté un m
 
 Wang Lin marchait lentement à travers la ville en examinant chaque étal. Certains articles l'intéressaient vivement, mais les prix étaient tout simplement prohibitifs, alors il poursuivit sa route.
 
-En marchant, il s'arrêta soudainement. Devant lui se trouvait l'étal d'un cultivateur proposant diverses épées volantes, des fragments de jade et un livre relié par une ficelle.
+En marchant, il s'arrêta soudainement. Devant lui se trouvait l'étal d'un cultivateur proposant diverses épées volantes, des talismans de jade et un livre relié par une ficelle.
 
 Quelques mots étaient inscrits sur l'ouvrage: « Recherche de formations de base ».
 
@@ -36,7 +36,7 @@ Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son êtr
 
 « Tiens? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans, des yeux brillants comme des étoiles et des sourcils en forme d'épée, et portait une robe blanche, blanche comme la neige, ornée d'une vigne noire brodée sur les poignets.
 
-Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna: « Teng Jia, Teng Yi, attendez le retour de Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
+Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna: « Teng Jia, Teng Yi, attendez le retour de Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit malin. »
 
 À l'instant où il prononça ces mots, deux ombres jaillirent à ses côtés. Il s'agissait de deux vieillards au visage ridé. L'un d'eux dit d'une voix grave: « Jeune maître, ces deux personnes se trouvent tout de même dans la ville de la Famille Teng. Agir ainsi enfreint les règles établies par le vénérable patriarche. Si le patriarche demande... »
 
@@ -48,7 +48,7 @@ Les deux vieillards jetèrent un regard au jeune homme avant de disparaître san
 
 Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « Il est strictement interdit de voler dans la ville de la Famille Teng! Camarade cultivateur, arrêtez-vous! »
 
-Sans perdre un instant, Wang Lin sortit une gourde. Il n'avait pas le temps de se soucier de révéler le secret de l'eau spirituelle et prit une grande gorgée. L'énergie spirituelle emplit son corps. Il inspira profondément, marqua un temps d'arrêt, puis fonça en avant comme l'éclair, à une vitesse deux fois supérieure à la précédente.
+Sans perdre un instant, Wang Lin sortit une gourde. Il n'avait pas le temps de se soucier de révéler le secret du liquide spirituel et prit une grande gorgée. L'énergie spirituelle emplit son corps. Il inspira profondément, marqua un temps d'arrêt, puis fonça en avant comme l'éclair, à une vitesse deux fois supérieure à la précédente.
 
 L'expression des disciples de la famille Teng qui lui barraient la route changea brusquement. Wang Lin chargea à travers eux, utilisant sa technique d'attraction pour les projeter sur le côté.
 

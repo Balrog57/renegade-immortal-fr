@@ -16,7 +16,7 @@ Wang Lin lui tendit son jeton. Le vieil homme l'examina et déclara: « Tu peux 
 
 Wang Lin acquiesça et pénétra dans la bibliothèque.
 
-Au premier étage, des rangées d'étagères regorgeaient de jades, de gravures sur bambou et même de sculptures sur pierre. Le regard de Wang Lin les parcourut rapidement. Une immense variété de techniques se trouvait ici, couvrant presque tous les domaines. Il y avait des méthodes qu'il connaissait déjà et d'autres dont il n'avait jamais entendu parler.
+Au premier étage, des rangées d'étagères regorgeaient de jades, de gravures sur bambou et même de tablettes de pierre. Le regard de Wang Lin les parcourut rapidement. Une immense variété de techniques se trouvait ici, couvrant presque tous les domaines. Il y avait des méthodes qu'il connaissait déjà et d'autres dont il n'avait jamais entendu parler.
 
 Cependant, il ne trouva rien concernant le raffinage d'un drapeau de l'âme.
 
@@ -84,7 +84,7 @@ Wang Lin tendit la main. Le drapeau s'échappa de la main de l'homme pour venir 
 
 D'un simple mouvement du drapeau, toutes les âmes qui chargeaient furent aspirées par celui-ci.
 
-Le cultivateur de la Formation du Noyau resta stupéfait. Il prit une grande inspiration et sortit précipitamment un jade noir. Il le posa au sol, recula et s'écria: « Je me rends, je me rends! La grotte est à toi, le jade est à toi, et le drapeau aussi! J'ai deux concubines cultivatrices que je n'ai pas encore touchées; tu peux les prendre également! »
+Le cultivateur de la Formation du Noyau resta stupéfait. Il prit une grande inspiration et sortit précipitamment un jade noir. Il le posa au sol, recula et s'écria: « Je me rends, je me rends! La grotte est à toi, le jade est à toi, et le drapeau aussi! J'ai deux concubines cultivatrices, dont une que je n'ai pas encore touchée; tu peux les prendre également! »
 
 « Je te donne tout, alors selon les règles, tu ne peux pas me tuer! » Sur ces mots, il battit en retraite rapidement.
 
@@ -112,7 +112,7 @@ Une fois la défaite consommée, on devait tout céder. Une fois tout remis à l
 
 Ces règles irrationnelles faisaient que personne ne se sentait véritablement chez soi dans cette secte. Pourtant, nul n'en connaissait la raison profonde.
 
-Le senior frère sur lequel elles comptaient ayant été effrayé par Wang Lin, elles n'avaient d'autre choix que de le suivre.
+Le senior frère sur lequel elles comptaient ayant été mis en fuite par Wang Lin, elles n'avaient d'autre choix que de le suivre.
 
 En plein vol, Wang Lin fronça les sourcils. Il se retourna et cria: « Ne me suivez pas! » Il lança un regard glacial aux deux femmes avant de repartir.
 

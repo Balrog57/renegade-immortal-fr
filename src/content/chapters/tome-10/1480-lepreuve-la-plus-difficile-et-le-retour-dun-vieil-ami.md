@@ -22,7 +22,7 @@ Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient com
 
 La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'esprit des cultivateurs. À ces mots, ils sourirent tous.
 
-« Zhan Konglie, ce n'est pas grave si nous devons entrer en culture isolée, mais tu es le chef de cette génération de la famille Zhan. Comment ton ancêtre pourrait-il te permettre cela? »
+« Zhan Konglie, ce n'est pas grave si nous devons entrer en culture isolée, mais tu es le meilleur de cette génération de la famille Zhan. Comment ton ancêtre pourrait-il te permettre cela? »
 
 « Normalement, être envoyé en culture isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater! »
 
@@ -44,7 +44,7 @@ Cette ferveur envers cet être ne s'était pas dissipée avec le temps. Au contr
 
 Cette personne qui avait marqué Luotian n'avait pas seulement affecté sa vie, mais aussi celle de Shengong Hu. En pensant à ce dernier, il laissa échapper un ricanement froid. Au fil des ans, Shengong Hu s'était toujours opposé à lui, et les deux avaient multiplié les affrontements.
 
-Les cent cultivateurs continuèrent leur progression, volant de plus en plus vite, fonçant à travers le système stellaire.
+Les quelque cent cultivateurs continuèrent leur progression, volant de plus en plus vite, fonçant à travers le système stellaire.
 
 Un instant plus tard, une silhouette blanche apparut lentement au loin devant eux. Après les avoir aperçus, la silhouette s'arrêta et les observa en silence.
 
@@ -56,7 +56,7 @@ Les deux groupes se rapprochèrent, mais l'homme en blanc n'entreprit rien. Il s
 
 Nul ne pouvait percevoir clairement son apparence. C'était comme si tout regard se déformait en tentant de se poser sur lui, comme s'il se tenait au centre d'un vortex noir capable de tout dévorer.
 
-Ce n'est que lorsque les cent cultivateurs eurent entraîné la planète devant l'homme en blanc qu'ils purent enfin se détendre.
+Ce n'est que lorsque les quelque cent cultivateurs eurent entraîné la planète devant l'homme en blanc qu'ils purent enfin se détendre.
 
 « La culture de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir de Luotian... »
 
@@ -108,7 +108,7 @@ Il était là, ainsi, depuis plus de 800 ans.
 
 Tout cela en raison des paroles de son Maître.
 
-« Dans toute ma vie, je n'ai jamais eu de disciples. Puisque ton Dao a un lien de cause à effet avec moi, je peux t'accepter comme disciple honorifique! Je te cède cette montagne pour un temps afin que tu puisses y cultiver. Je ne t'enseignerai aucun sort, je ne t'offrirai qu'une chance de compréhension! »
+« Dans toute ma vie, je n'ai jamais eu de disciples. Puisque ton Dao a un lien de cause à effet avec moi, je peux t'accepter comme disciple honorifique! Je te cède la montagne Hengyun pour un temps afin que tu puisses y cultiver. Je ne t'enseignerai aucun sort, je ne t'offrirai qu'une chance de compréhension! »
 
 Le vieil homme ouvrit lentement les yeux. Il ne regarda pas les trois cultivateurs de la Transformation de l'Âme devant lui, mais fixa silencieusement les nuages à l'horizon.
 

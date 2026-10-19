@@ -48,7 +48,7 @@ Le vieil homme nommé Zhao était lui aussi plongé dans le choc. Sans perdre un
 
 Tout se produisit en un éclair. Après sa mutation, la paume s'abattit brutalement sur la Prairie de l'Extrême Ciel. Les plus de mille cultivateurs du Continent du Démon Vert ne purent opposer la moindre résistance et furent les premiers à périr!
 
-Leurs âmes originelles furent totalement anéanties!
+Leurs corps et leurs âmes originelles furent totalement anéantis!
 
 Une seule empreinte avait tué plus de mille personnes. Une telle puissance terrifiante laissa même Wang Lin interdit.
 

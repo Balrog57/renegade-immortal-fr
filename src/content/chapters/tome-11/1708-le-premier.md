@@ -8,11 +8,11 @@ slug: le-premier
 ---
 L'homme en robe royale fixa les sourcils de la statue avec une pointe de surprise. Cependant, quatre gouttes de sang ne suffisaient pas à le choquer; même Ye Mo en avait obtenu trois.
 
-Bien que la majorité des gens n'aient obtenu qu'une seule goutte de sang durant cette calamité, beaucoup en avaient tout de même obtenu deux. Hormis Ye Mo, la plupart de ceux dotés du lignage royal pouvaient obtenir au moins deux gouttes de Sang Céleste de la Race Ancienne.
+Bien que la majorité des gens n'aient obtenu qu'une seule goutte de sang durant cette calamité, beaucoup en avaient tout de même obtenu deux. Hormis Ye Mo, tous ceux dotés du lignage royal pouvaient obtenir au moins deux gouttes de Sang Céleste de la Race Ancienne.
 
 De plus, l'homme en robe royale avait lui-même obtenu six gouttes de sang. Il était l'être le plus puissant du clan Dao, après Xuan Luo!
 
-C'est ainsi qu'il devint le roi du clan Dao. Son statut était extrêmement élevé et il était vénéré par d'innombrables personnes. Malgré cela, Xuan Luo ne l'avait pas pris pour disciple. Il avait déjà beaucoup ruminé cette question, mais n'osait pas l'aborder.
+C'est ainsi qu'il devint l'empereur du clan Dao. Son statut était extrêmement élevé et il était vénéré par d'innombrables personnes. Malgré cela, Xuan Luo ne l'avait pas pris pour disciple. Il avait déjà beaucoup ruminé cette question, mais n'osait pas l'aborder.
 
 Lorsqu'il entendit le Grand Empyréen Xuan Luo déclarer qu'il allait prendre l'héritier de Ye Mo comme disciple, il ressentit une profonde amertume, mais ne la laissa paraître.
 
@@ -26,7 +26,7 @@ Les débats animaient les personnes rassemblées autour de la statue. Leurs rega
 
 À cet instant, près d'un million de membres du clan ancien comprirent que tout allait prendre fin.
 
-L'homme en robe royale resta calme, mais un sourire méprisant étira son cœur.
+L'homme en robe royale resta calme, mais un rictus méprisant naquit en lui.
 
 « Seulement quatre gouttes de sang. Comment pourrait-il avoir le pouvoir de protéger mon clan Dao? L'affaire d'aujourd'hui est bien plus importante qu'elle ne l'est réellement. »
 
@@ -100,7 +100,7 @@ Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escort
 
 Tandis que Wang Lin serrait Li Muwan contre lui en pleurant, luttant désespérément pour la ressusciter, l'homme en robe royale jouait avec des trésors exotiques offerts par son peuple. Il pouvait choisir n'importe quelle femme pour en faire l'une de ses nombreuses concubines.
 
-« Quatre gouttes de sang sont ma limite... » Le lignage dans le corps de Wang Lin se condensa progressivement. Il observa le vortex qui s'étiolait au-dessus de lui. Il n'était pas satisfait!
+« Quatre gouttes de sang, est-ce ma limite...? » Le lignage dans le corps de Wang Lin se condensa progressivement. Il observa le vortex qui s'étiolait au-dessus de lui. Il n'était pas satisfait!
 
 Bien qu'il ignorât l'agitation qu'il provoquait sur le Continent Astral Immortel, c'était là son essence même. Il ne se contentait jamais; il voulait que son lignage soit encore plus puissant!
 

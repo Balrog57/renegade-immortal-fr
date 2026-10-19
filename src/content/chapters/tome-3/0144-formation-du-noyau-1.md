@@ -18,7 +18,7 @@ Wang Lin savait que fusionner ces trois noyaux serait ardu, mais après l'avoir 
 
 Cela faisait plus d'un mois que Wang Lin tentait de faire descendre le premier noyau froid sans jamais s'interrompre. Une force mystérieuse semblait lui barrer la route. Peu importe ses efforts, il ne parvenait pas à briser l'obstacle.
 
-Pour cultiver la Méthode de l'Ascension des Enfers, les exigences consistaient à briser trois fois le Point Ancestral, la Mer de Qi et le dantian, chaque tentative étant plus éprouvante que la précédente. La première fois était difficile, la seconde très difficile, et la troisième extrêmement difficile. Cependant, ce que Wang Lin tentait d'accomplir en ce moment revenait à forcer une quatrième rupture du Point Ancestral; on pouvait imaginer l'ampleur de la difficulté.
+Pour cultiver la Méthode d'Ascension des Enfers, les exigences consistaient à briser trois fois le Point Ancestral, la Mer de Qi et le dantian, chaque tentative étant plus éprouvante que la précédente. La première fois était difficile, la seconde très difficile, et la troisième extrêmement difficile. Cependant, ce que Wang Lin tentait d'accomplir en ce moment revenait à forcer une quatrième rupture du Point Ancestral; on pouvait imaginer l'ampleur de la difficulté.
 
 Après de multiples tentatives infructueuses, Wang Lin changea de tactique: il décida d'user lentement la barrière par érosion. Au fil du temps, la force qui le bloquait s'affaiblit considérablement.
 
@@ -66,7 +66,7 @@ Le troisième jour, Wang Lin se réveilla avec un sourire amer. Il avait sous-es
 
 Il ne pouvait laisser cette énergie s'échapper sous peine d'échouer la fusion, mais s'il la retenait en lui, son corps ne pourrait pas la supporter. L'expression de Wang Lin devint sombre et inquiétante.
 
-En vérité, son organisme ne pouvait tolérer un tel niveau d'énergie Yin, ce qui le troublait profondément. Comment l'ancien qui pratiquait la Méthode de l'Ascension des Enfers avait-il réussi à fusionner les trois noyaux froids? Sans même parler des autres, comment Situ Nan avait-il pu cultiver une telle méthode?
+En vérité, son organisme ne pouvait tolérer un tel niveau d'énergie Yin, ce qui le troublait profondément. Comment l'ancien qui pratiquait la Méthode d'Ascension des Enfers avait-il réussi à fusionner les trois noyaux froids? Sans même parler des autres, comment Situ Nan avait-il pu cultiver une telle méthode?
 
 Wang Lin réfléchit intensément sans trouver de réponse. C'était un point que Situ Nan n'avait jamais abordé.
 
@@ -78,7 +78,7 @@ Wang Lin saisit le démon, le projeta dans l'épée volante et quitta la pièce 
 
 En passant devant la chambre de Li Muwan, il la vit affalée sur une table, plongée dans un sommeil profond. Ses cheveux soyeux étaient relevés au hasard, quelques mèches retombant autour de ses oreilles. Son joli visage, légèrement rosé et sans fard, avait l'éclat de la lueur de l'aurore sur la neige.
 
-Sa robe violette lui donnait l'allure d'une peinture vivante qui ferait battre le cœur de n'importe quel homme. À cet instant, de fines volutes de fumée blanche s'échappaient du four à pilules à ses côtés, lui donnant l'apparence d'une fée émergeant d'un tableau.
+Sa robe violette lui donnait l'allure d'une peinture vivante qui ferait battre le cœur de n'importe quel homme. À cet instant, de fines volutes de fumée blanche s'échappaient du fourneau à pilules à ses côtés, lui donnant l'apparence d'une fée émergeant d'un tableau.
 
 Les décorations que Li Muwan avait ajoutées à sa chambre, comme les lianes vertes ramassées au hasard, renforçaient cette atmosphère picturale.
 
@@ -88,7 +88,7 @@ Il observa la scène un long moment avant de détourner le regard vers la chambr
 
 Le cadavre du dragon était trop imposant, particulièrement ses ossements. Il serait trop dommage de tout gaspiller pour la formation; Wang Lin était donc sorti une fois pour demander à Li Muwan d'en conserver une partie.
 
-Après avoir donné cet ordre, il avait commencé la fusion des trois noyaux froids. Wang Lin songea que l'os présentait des reflets violets qui le faisaient ressembler davantage à du métal qu'à de l'os, sans doute dû à la structure corporelle unique du dragon.
+Après avoir donné cet ordre, il avait commencé la fusion des trois noyaux froids. Wang Lin songea que l'os présentait des reflets violets qui le faisaient ressembler davantage à du cristal qu'à de l'os, sans doute dû à la structure corporelle unique du dragon.
 
 Alors qu'il observait, son cœur tressaillit et il se retourna. Li Muwan venait de se lever en bâillant et ouvrait la porte. Surprise de le voir, sa somnolence disparut d'un coup.
 
@@ -168,7 +168,7 @@ Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bra
 
 Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à 3 672 mètres.
 
-Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode de culture de l'Ascension des Enfers.
+Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode d'Ascension des Enfers.
 
 Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
 
@@ -182,13 +182,13 @@ Il fusionna aisément les deux noyaux froids pour n'en former qu'un seul.
 
 Peu après, ce noyau fusionné descendit vers le dantian. La barrière au niveau du dantian ne tint qu'un quart d'heure avant de s'effondrer.
 
-Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une déferlante d'énergie Yin, dix fois supérieure à la précédente, jaillit. Cette énergie était extrêmement dense, mais restait encore légèrement inférieure à l'énergie Yin déjà présente dans le corps de Wang Lin. Lentement, les trois noyaux froids finirent par ne former qu'un seul être.
+Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une déferlante d'énergie Yin, plus de dix fois supérieure à la précédente, jaillit. Cette énergie était extrêmement dense, mais restait encore légèrement inférieure à l'énergie Yin déjà présente dans le corps de Wang Lin. Lentement, les trois noyaux froids finirent par ne former plus qu'un seul noyau.
 
 Cependant, sa couleur n'était pas dorée, mais d'un gris très profond.
 
-Wang Lin ignorait que la Méthode de culture de l'Ascension des Enfers avait subi des modifications dues à la perle défiant le ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
+Wang Lin ignorait que la Méthode d'Ascension des Enfers avait subi des modifications dues à la perle défiant le ciel et au Royaume Ji. On pourrait dire que les difficultés qu'il affrontait étaient sans précédent.
 
-La raison pour laquelle la Méthode de l'Ascension des Enfers était considérée comme le chemin le plus rapide vers la Formation du Noyau résidait dans sa capacité à former d'abord un noyau froid prototype, qui utiliserait ensuite l'énergie spirituelle pour se transformer en un noyau doré.
+La raison pour laquelle la Méthode d'Ascension des Enfers était considérée comme le chemin le plus rapide vers la Formation du Noyau résidait dans sa capacité à former d'abord un noyau froid prototype, qui utiliserait ensuite l'énergie spirituelle pour se transformer en un noyau doré.
 
 Il avait désormais accompli plus de la moitié du processus; il ne lui restait qu'à accumuler davantage d'énergie spirituelle pour l'ultime impulsion. Toutefois, atteindre la Formation du Noyau n'était pas une mince affaire. Il existait toujours un risque d'échec.
 

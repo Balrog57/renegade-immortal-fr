@@ -18,23 +18,23 @@ slug: une-issue-de-secours
 
 D'une voix lente, Wang Lin dit: « Puisque vous osez tenir ce discours devant moi, c'est que vous connaissez déjà mon identité. »
 
-En entendant cela, le prince Ji Du se détendit légèrement. Son geste précédent revenait à marcher vers la mort, mais il était déterminé. Il ne laisserait pas passer cette chance après avoir rencontré Wang Lin, d'autant plus qu'elle déciderait de son destin!
+En entendant cela, le prince Ji Du se détendit légèrement. Son geste précédent revenait à tourner autour de la mort, mais il était déterminé. Il ne laisserait pas passer cette chance après avoir rencontré Wang Lin, d'autant plus qu'elle déciderait de son destin!
 
 « L'unique disciple du Grand Empyréen Xuan Luo de l'Ancien Dao se nomme Wang Lin. Bien que ce secret soit jalousement gardé, en tant que membre de la famille royale, nous avons fini par l'apprendre. Lorsque Xuan Luo est revenu du clan céleste, il est immédiatement entré en culture de porte close. Nous avons commencé à enquêter et, avec l'aide du Grand Empyréen Song, nous avons déduit la majeure partie de la vérité.
 
-« Cependant, même alors, mon père et le Grand Empyréen Song Tian n'étaient pas certains que l'Exalté Empyréen aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyréen Xuan Luo.
+« Cependant, même alors, mon père et le Grand Empyréen Song Tian n'étaient pas certains que l'Ascendant Empyréen aux cheveux blancs du clan céleste, Wang Lin, fût la même personne que le disciple du Grand Empyréen Xuan Luo.
 
 « Moi-même, je ne m'en suis rendu compte qu'après avoir vu Senior à Ville de la Pierre Noire. Il s'avère que Senior est bel et bien le disciple du Grand Empyréen Xuan Luo! » Ji Du transpirait de plus belle en parlant avec précipitation. Devant Wang Lin, il ressentait une pression immense, plus écrasante encore que celle qu'il éprouvait face à son père; elle était comparable à celle du Grand Empyréen Song Tian.
 
 La femme derrière lui pâlit en entendant ces révélations. Ses yeux étaient empreints d'incrédulité. Toutefois, si elle était autorisée à rester, c'était qu'elle jouissait manifestement de la confiance de Ji Du.
 
-Le regard de Wang Lin balaya la femme. Elle ressemblait beaucoup au prince.
+Le regard de Wang Lin balaya la femme. Elle ressemblait quelque peu au prince.
 
 « C'est ma sœur cadette. Nous avons la même mère », expliqua rapidement Ji Du.
 
 Wang Lin reprit lentement: « Puisque vous connaissez mon identité, que vous savez que je suis le disciple de Xuan Luo et que vous m'avez vu demander la carte de l'Ancien Dao, vous savez où je me rends. Alors, pourquoi vous inclinez-vous devant moi? »
 
-« Senior, l'Ancien Dao n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur de l'Ancien Dao est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement opprimé... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
+« Senior, l'Ancien Dao n'est pas un lieu propice... Même si vous êtes le disciple du Grand Empyréen Xuan Luo, l'Empereur de l'Ancien Dao est d'une étroitesse d'esprit extrême. Si vous y allez, vous serez inévitablement malheureux... » Avant que le prince Ji Du n'ait pu achever sa phrase, une lueur glaciale traversa les yeux de Wang Lin et il laissa échapper un reniflement méprisant.
 
 D'un revers de manche, il se tourna pour quitter le palais.
 
@@ -80,7 +80,7 @@ Wang Lin réfléchit un instant puis prit le présent. Il le scruta avec son Sen
 
 « Ce jade est un trésor puissant de mon clan Shi. Mon père me l'a remis à ma naissance. Seule la lignée royale peut en obtenir un, et chacun n'en reçoit qu'un seul dans sa vie.
 
-« Cet objet est un jade ancestral, contenant le pouvoir scellé du Doigt de l'Ancêtre Ancien. C'est une relique d'une force immense, mais sa fonction première est la compréhension. Quiconque parvient à en saisir l'essence verra son utilité décupler.
+« Cet objet est un jade ancestral, contenant le pouvoir scellé du Doigt de l'Ancêtre Ancien. C'est une relique d'une force immense, mais sa fonction première est la compréhension. Quiconque parvient à en saisir l'essence en tirera une utilité infinie.
 
 « Cependant, toutes les générations précédentes de princes Shi, et même les empereurs, ont échoué à le comprendre. C'est le trésor le plus précieux d'un prince. Je l'offre à mon parrain.
 
@@ -122,4 +122,4 @@ La femme se leva et demanda doucement: « En valait-il la peine...? »
 
 Le prince Ji Du éclata de rire.
 
-« Cela en valait la peine! Avec sa force actuelle, il n'a nul besoin de chercher le Grand Empyréen Xuan Luo. Cela prouve que mon parrain accorde de l'importance à ses relations. Puisque je le respecte et que je l'ai pris pour parrain, il ne me fera aucun mal! »
+« Cela en valait la peine! Avec sa force actuelle, il n'a nul besoin de chercher le Grand Empyréen Xuan Luo. Cela prouve que mon parrain accorde de l'importance aux sentiments. Puisque je le respecte comme un vrai père et que je l'ai pris pour parrain, il ne me fera aucun mal! »

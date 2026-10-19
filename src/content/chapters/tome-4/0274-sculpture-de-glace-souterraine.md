@@ -60,7 +60,7 @@ C'était l'esprit élémentaire du métal qui combattait le vieil homme au somme
 
 L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare de boue de la Secte du Bois Vert.
 
-D'innombrables traits noirs jaillissaient de la boue. Tout cultivateur de Xue Yu touché par l'un d'eux mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
+D'innombrables traits noirs jaillissaient de la boue. Tout cultivateur de Xue Yu touché par l'un d'eux voyait son corps pourrir et mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
 
 Le personnage le plus singulier restait le jeune homme de la Secte de l'Âme Noire. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile; seule sa main bougeait, maniant un pinceau à encre.
 

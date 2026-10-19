@@ -12,7 +12,7 @@ Une ombre illusoire apparut au-dessus de la plante brisée. C'était une silhoue
 
 L'expression de Wang Lin resta sereine tandis qu'il fixait la figure encapuchonnée et déclarait froidement: « Un simple esprit originel du stade Scruteur du Nirvana. Je veux voir comment tu comptes me faire payer de ma vie! »
 
-La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, la Paire Dao du Flétrissement qu'elle portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
+La main droite de Wang Lin forma un sceau et, d'un geste sec du doigt, la Paire Dao du Flétrissement qu'il portait s'élança. Lorsque l'os de bête apparut, une lueur fantomatique brilla dans ses yeux. Une puissante aura maléfique se propagea, teintant la plante d'une lumière grise.
 
 L'homme en robe noire leva la tête et fixa Wang Lin sans même accorder un regard à la plante avant de s'envoler. La végétation sous lui s'effondra et se dispersa instantanément.
 
@@ -50,7 +50,7 @@ En particulier, ce garçon à la grosse tête le plongeait dans la confusion. Sa
 
 « Ceci est... un Céleste! » Les yeux de Liu Qingyun s'écarquillèrent et il recula avec une célérité accrue.
 
-« Tu ne peux pas échapper à ton destin! » Des ondulations parcoururent le sol sous les pieds de Wang Lin, et celui-ci disparut soudainement.
+« Tu ne peux pas t'enfuir! » Des ondulations parcoururent le sol sous les pieds de Wang Lin, et celui-ci disparut soudainement.
 
 Cela manqua de faire perdre la raison à Liu Qingyun.
 
@@ -94,7 +94,7 @@ Une lueur de férocité passa dans ses yeux. Sa main droite effleura le miroir e
 
 Ce cadavre était d'un rouge éclatant et, dès son apparition, une flamme monstrueuse envahit l'univers. Cette incandescence était si intense que même l'expression du garçon à la grosse tête en fut altérée.
 
-« C'est le Cadavre de l'Esprit de Feu, classé 12ème dans le rang des cadavres de ma Secte! Si l'on parvient à posséder ce corps, aucun sort de feu au monde ne pourra vous blesser. De plus, vous pourrez contrôler les flammes du monde entier! Sa valeur est immense et devrait suffire pour échanger ma vie! » Tandis qu'il parlait, Liu Qingyun projeta le cadavre vers Wang Lin.
+« C'est le Cadavre de l'Esprit de Feu, classé 12ème dans le rang des cadavres de ma Secte! Si l'on parvient à posséder ce corps, aucun sort de feu au monde ne pourra vous blesser. De plus, vous pourrez contrôler les flammes du monde entier, un pouvoir comparable à tous les autres sorts! Sa valeur est immense et devrait suffire pour échanger ma vie! » Tandis qu'il parlait, Liu Qingyun projeta le cadavre vers Wang Lin.
 
 Le cadavre de feu était extrêmement rapide et atteignit presque Wang Lin en un instant. Cependant, à mesure qu'il approchait, il ouvrit brusquement les yeux, révélant une lueur de folie pure.
 
@@ -106,8 +106,8 @@ La flamme était si puissante que Ta Shan dut reculer. Même le garçon à la gr
 
 Il n'aurait jamais imaginé que Liu Qingyun oserait combattre dans une position aussi désavantageuse! C'était la première fois que le garçon à la grosse tête se forgeait une impression aussi profonde des cultivateurs de l'Alliance.
 
-Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne pouvait que céder à l'instinct de survie; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de culture ne pourrait y résister.
+Un rire démentier s'échappa de la gorge de Liu Qingyun, puis sa silhouette féroce fulgura alors qu'il chargeait droit vers le ciel. Avec son tempérament, il ne se résignait pas facilement; tout ce qu'il avait fait n'était qu'une mise en scène pour tromper ses adversaires. Si l'explosion du cadavre s'était propagée normalement, elle n'aurait même pas affecté la planète. Mais en concentrant toute cette puissance, bien qu'elle restât insuffisante pour détruire le monde, il était certain que personne de son niveau de culture ne pourrait y résister.
 
 « Bien que cela me déchire le cœur de perdre ce cadavre, l'utiliser pour anéantir un cultivateur capable de manipuler l'espace en vaut la peine! Une fois cet homme mort, les deux autres ne pourront plus jamais m'atteindre! » En riant, Liu Qingyun s'élança vers les cieux. Il comptait retourner à la Secte des Cadavres au plus vite pour trouver un nouveau corps et, par la suite, se venger des autres Vice-Maîtres.
 
-« Tu ne peux pas échapper à ton destin! » Cette voix froide et implacable, semblable à un vent glacial, atteignit les oreilles de Liu Qingyun. Son corps trembla, ses yeux se remplirent d'incrédulité, et soudain, il se figea dans l'air.
+« Tu ne peux pas t'enfuir! » Cette voix froide et implacable, semblable à un vent glacial, atteignit les oreilles de Liu Qingyun. Son corps trembla, ses yeux se remplirent d'incrédulité, et soudain, il se figea dans l'air.

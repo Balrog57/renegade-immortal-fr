@@ -18,13 +18,13 @@ Il rencontra des brigands et des bandits, mais à chaque fois, il lui suffisait 
 
 Au fil de sa marche, son visage se fit plus vieux, mais ses yeux devinrent plus brillants encore. Ils recelaient une sagesse et une compréhension infinies, permettant à son esprit de renaître et d'évoluer.
 
-Il visita tant de cités et vit tant de gens. Il pénétra même dans de nombreuses capitales impériales. Parmi les empereurs et les hauts dignitaires, le tempérament et la parole de Wang Lin imposèrent peu à peu le respect.
+Il visita tant de cités et vit tant de gens. Il pénétra même dans de nombreuses capitales impériales. Parmi les empereurs et les hauts dignitaires, le tempérament et la parole de Wang Lin forcèrent peu à peu chacun à s'incliner devant lui.
 
 Il croisa bien des souverains jouissant d'un statut prestigieux, mais à ses yeux, tous se valaient. Il n'y avait aucune différence.
 
 Ce n'est pas qu'il n'y eût personne désireux de lui ôter la vie, mais quiconque nourrissait une telle intention finissait par reculer avec crainte devant lui.
 
-Dans le pays de Wu, au cœur d'un palais entouré de milliers de soldats, l'empereur, capable de faire bouger son armée d'un seul ordre, voulut que Wang Lin demeure pour devenir le Grand Érudit du pays. Mais finalement, Wang Lin sourit, secoua la tête et partit. Le tonnerre gronda dans le ciel et les nuages changèrent de couleur; les milliers de soldats n'osèrent entraver sa route. Une fois qu'il fut parti, tous joignirent les mains en signe de respect vers lui.
+Dans le pays de Wu, au cœur d'un palais entouré de milliers de soldats, l'empereur, capable de faire bouger son armée d'un seul ordre, voulut que Wang Lin demeure pour devenir le Grand Érudit du pays. Mais finalement, Wang Lin sourit, secoua la tête et partit. Le tonnerre gronda dans le ciel et les nuages changèrent de couleur; plus de dix mille soldats n'osèrent entraver sa route. Une fois qu'il fut parti, tous joignirent les mains en signe de respect vers lui.
 
 Dans le pays de Sun, l'empereur et ses innombrables sujets suivirent Wang Lin sur des milliers de kilomètres pour lui faire ses adieux.
 
@@ -36,15 +36,15 @@ Tout au long de son périple, Wang Lin contempla d'innombrables montagnes. Perch
 
 Sur la planète Suzaku, de nombreuses sectes s'épanouissaient dans ces pays de culture. Beaucoup avaient établi leurs demeures au cœur de montagnes magnifiques, tandis que d'autres se trouvaient dans des zones périlleuses.
 
-Chaque montagne qu'il croisait, si Wang Lin le souhaitait, lui permettait de pénétrer une secte en suivant simplement son intuition, sans même avoir à la chercher délibérément. Bien que la puissance des formations de protection variât, aucune ne pouvait l'arrêter. Il était alors immédiatement détecté par tous les cultivateurs stupéfaits à l'intérieur de la secte.
+Sur chaque montagne qu'il croisait, s'il sentait l'appel de son cœur, Wang Lin n'avait pas besoin de la chercher délibérément : il pénétrait dans la secte en suivant simplement son intuition. Bien que la puissance des formations de protection variât, aucune ne pouvait l'arrêter. Il était alors immédiatement détecté par tous les cultivateurs stupéfaits à l'intérieur de la secte.
 
 Même les Anciens, en culture isolée depuis d'innombrables années, étaient tirés de leur méditation par l'aura puissante émanant du corps de Wang Lin.
 
-Wang Lin entrait et sortait avec calme. Il se contentait d'observer la montagne, de savourer le paysage et de comprendre le monde. Quant aux autres, ils lui étaient indifférents.
+Wang Lin entrait et sortait avec calme. Il se contentait d'observer la montagne, de savourer le paysage et de comprendre le monde. Quant au reste, toutes choses se valaient à ses yeux.
 
-Même au sein du monde de la culture, le nom du mortel Grand Érudit Wang Lin se répandit lentement. Les cultivateurs savaient qu'il existait sur la planète Suzaku un érudit qui inspirait l'effroi et le respect jusqu'à leurs âmes. Ils n'étaient pas impressionnés par sa puissance, mais par ses pensées!
+Même au sein du monde de la culture de Zhao, le nom du mortel Grand Érudit Wang Lin se répandit lentement. Les cultivateurs savaient qu'il existait sur la planète Suzaku un érudit qui inspirait crainte et respect au fond de leur cœur. Ils n'étaient pas impressionnés par sa puissance, mais par ses pensées!
 
-« Qu'ils soient immortels ou mortels, tous sont des êtres de loisir... » Wang Lin laissait derrière lui des paroles de sagesse partout où il allait.
+« Immortels ou mortels, tous ne sont que des êtres parmi la multitude des vivants... » Wang Lin laissait derrière lui des paroles de sagesse partout où il allait.
 
 Parmi les cultivateurs, beaucoup venaient à sa rencontre pour acquérir un éclairage et comprendre le monde. Ils comprenaient le Ciel et la Terre, saisissaient la conception profonde de leur voie et pouvaient espérer atteindre la Formation de l'Âme. Même ceux qui étaient déjà au stade de la Formation de l'Âme ou au-delà venaient lui parler et restaient bouleversés par ses paroles.
 
@@ -60,7 +60,7 @@ Marchant sur la neige, Wang Lin s'engagea dans une rue très calme. Des boutique
 
 Près de lui se trouvait une petite chaise où siégeait un garçon d'environ sept ou huit ans, vêtu d'un épais manteau de coton. Le visage rougi par l'effort ou l'émotion, il regardait l'homme avec excitation.
 
-« Dai Niu... » Les yeux de Wang Lin se brouillèrent et il secoua doucement la tête. L'enfant devant lui n'était pas le Dai Niu de son rêve.
+« Da Niu... » Les yeux de Wang Lin se brouillèrent et il secoua doucement la tête. L'enfant devant lui n'était pas le Da Niu de son rêve.
 
 « Senior, vous êtes resté dehors trop longtemps, entrez donc vous réchauffer. » L'homme posa son marteau et essuya sa sueur. Il se tourna vers Wang Lin et lui adressa un sourire.
 

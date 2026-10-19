@@ -64,7 +64,7 @@ Yun Kong, l'un des quatre génies du Continent de l'Est! Il n'appartenait à auc
 
 « On dit que le Senior Frère Yun Kong est allé dans le Continent Nord pour rejoindre la secte du Grand Empyréen Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui ici, Wang Lin mourra sans aucun doute! » Le jeune homme au visage de jade était transporté par l'excitation.
 
-Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si dévora la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
+Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si aspira tout le sang de la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
 
 Wang Lin commença à sonder l'âme originelle de Qian devant le Tigre Blanc et ses compagnons. Une fois sa recherche terminée, il relâcha l'âme. La langue de la Poupée Yi Si s'élança vers elle, mais Wang Lin la scella et la rangea aussitôt.
 

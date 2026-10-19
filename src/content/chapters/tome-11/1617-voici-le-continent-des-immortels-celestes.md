@@ -66,7 +66,7 @@ Il y avait de nombreux sommets hauts et imposants, des mers infinies aux vagues 
 
 Ce continent était comparable à d'innombrables Royaumes Intérieurs et Extérieurs!
 
-La quantité d'énergie céleste y était au-delà de l'imagination. Il ne reconnut aucune des plantes qui y poussaient, et de nombreuses petites bêtes imprégnées d'énergie céleste couraient partout. Elles possédaient toutes une culture puissante.
+La quantité d'énergie céleste y était au-delà de l'imagination. Il ne reconnut aucune des plantes qui y poussaient, et de nombreuses petites bêtes imprégnées d'énergie céleste couraient partout. Certaines d'entre elles possédaient une culture puissante.
 
 Il ressentit diverses auras puissantes. Ces présences étaient extrêmement fortes et lui rappelaient le Daoïste aux Sept Couleurs qu'il avait vu dans le Royaume aux Sept Couleurs!
 
@@ -88,7 +88,7 @@ Le fou avait dit un jour que sa terre natale s'appelait le « Continent des Immo
 
 Wang Lin médita en silence et comprit vaguement certaines choses. Il était sur le point de découvrir un secret capable de faire trembler les cieux concernant les Royaumes Intérieur et Extérieur. Cependant, une fine barrière l'empêchait encore d'achever sa réflexion.
 
-« Continent des Immortels Célestes, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élévation du Dao céleste... la Perle Défiant le Ciel... l'ancien domaine immortel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
+« Continent des Immortels Célestes, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élevage du Dao céleste... la Perle Défiant le Ciel... l'ancien domaine immortel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
 
 « Peut-être que le moi d'avant le Dao du Rêve n'était pas qualifié pour le savoir, mais maintenant, je le suis! » Un éclat de froideur apparut dans les yeux de Wang Lin et il marcha vers le vortex menant à la planète Suzaku.
 

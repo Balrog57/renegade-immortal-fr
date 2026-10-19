@@ -48,7 +48,7 @@ Pour que Wang Lin puisse affiner des pilules, il devait d'abord mémoriser les n
 
 L'expression de Wang Lin restait froide et calme. Il avait utilisé un temps très court pour mémoriser toutes les herbes de ce jardin.
 
-Wang Lin inspecta les alentours et demanda: « Y a-t-il de la Fleur de Brume? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une Pilule de Séparation de l'Âme de rang 6 ou supérieur, outre l'âme de bête, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
+Wang Lin inspecta les alentours et demanda: « Y a-t-il de la Fleur de Brume? » Le jade qu'il avait vu dans le temple taoïste indiquait que pour affiner une Pilule de Séparation de l'Âme de rang 6 ou supérieur, outre l'âme d'une bête féroce, trois herbes encore plus cruciales étaient nécessaires. L'une d'elles était la Fleur de Brume.
 
 « La Fleur de Brume ne pousse que sur les continents sauvages enveloppés par le brouillard stellaire des domaines stellaires extérieurs. La rumeur veut que plus le brouillard est dense, plus on trouve de Fleurs de Brume. Dans la Secte de l'Origine, je n'en connais que trois exemplaires séchés, et ils sont tous chez l'Oncle-Maître Li. » Après avoir expliqué cela, Xu Yun ajouta:
 

@@ -14,7 +14,7 @@ Lorsque l'écart de puissance n'est pas trop grand, on est enclin à la résista
 
 « La Vision du Dao! Ce regard doit être la légendaire Vision du Dao! » La terreur de l'homme aux cheveux noirs fut remplacée par un fanatisme. Son esprit était en état de choc et son corps tremblait. À la seule pensée des mots « Vision du Dao », il était envahi par un mélange d'excitation et d'horreur.
 
-Les mortels ont une vision des rêves, les cultivateurs ont une vision du Dao.
+Les mortels ont des cauchemars, les cultivateurs ont une vision du Dao.
 
 Cependant, cette Vision du Dao n'était qu'une légende. L'homme aux cheveux noirs ne connaissait que des rumeurs selon lesquelles une personne était apparue dans le Système Stellaire de Luotian il y a d'innombrables années. Cette personne, par sa seule force, n'avait utilisé qu'un seul sort pour vaincre tous les cultivateurs de la deuxième étape du Système Stellaire de Luotian!
 
@@ -60,7 +60,7 @@ C'était comme des mortels qui auraient aperçu des cultivateurs et leurs sorts:
 
 Sous le regard de Wang Lin, bien que Shengong Hu ne ressente plus la terreur d'autrefois, il tremblait tout de même. Ce souvenir terrifiant avait été gravé dans son esprit et ne s'effacerait pas, même après sa mort.
 
-En réalité, c'était une opportunité immense pour Shengong Hu. Si l'Omniscient et ses semblables avaient eu la moindre chance d'obtenir la perle, ils auraient choisi de l'expérimenter personnellement sans aucune hésitation.
+En réalité, c'était une opportunité immense pour Shengong Hu. Si l'Omniscient et ses semblables désespéraient d'obtenir la perle, ils choisiraient tout de même, sans la moindre hésitation, de l'expérimenter personnellement.
 
 Même la Bête du Tonnerre à ses côtés baissa la tête, perdant toute trace de fierté sur son visage.
 
@@ -78,7 +78,7 @@ Wang Lin avait décidé d'étudier attentivement le changement de la perle défi
 
 Le cœur de Wang Lin battait rapidement. Il ne pouvait imaginer les conséquences.
 
-De plus, ce rêve avait permis d'améliorer son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de culture.
+De plus, ce rêve avait assoupli son domaine. Il n'était plus loin du sommet du stade avancé de l'Ascendant, marquant la fin de la première étape de culture.
 
 Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puissant devait être ainsi, car c'était lui qui avait perturbé la culture de ce Senior. Ce dernier s'était montré clément en ne le tuant pas.
 
@@ -94,11 +94,11 @@ Shengong Hu s'empressa de poursuivre: « La culture de Junior est insuffisante e
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il secoua la tête. Il ne pouvait pas utiliser ce sort une seconde fois, et d'un seul regard, il avait compris que cet homme était extrêmement orgueilleux. Si celui-ci remarquait quoi que ce soit, cela causerait des ennuis inutiles.
 
-Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Senior, Junior est d'une sincérité absolue et ne le regrettera jamais, quoi qu'il arrive par la suite, et n'importunera jamais le Senior. Tant que le Senior accepte de me donner quelques conseils lors de ma percée, Junior est prêt à abandonner une partie de son âme Dao pour prêter allégeance au Senior pendant 1 000 ans! »
+Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Senior, Junior est d'une sincérité absolue et ne le regrettera jamais, quoi qu'il arrive par la suite, et n'importunera jamais le Senior. Tant que le Senior accepte de me donner quelques conseils lors de ma percée, Junior est prêt à abandonner son âme Dao pour prêter allégeance au Senior pendant 1 000 ans! »
 
-Tout en parlant, sa main traça un sceau avant de pointer son front. Une lumière noire contenant son domaine et son âme Dao s'échappa de son crâne.
+Tout en parlant, sa main traça un sceau avant de l'appuyer sur le sommet de son crâne. Une lumière noire contenant son domaine et son âme Dao s'échappa de son crâne.
 
-Dans le Système Stellaire de Luotian, une personne qui prête allégeance peut choisir ce qu'elle abandonne. L'âme Dao est la chose la plus précieuse que l'on puisse offrir.
+Dans le Système Stellaire de Luotian, une personne qui prête allégeance peut choisir ce qu'elle abandonne. L'âme Dao est le gage de dépendance le plus élevé et le plus strict que l'on puisse offrir.
 
 Une fois que l'âme Dao est contrôlée par autrui, bien que cela ne soit pas synonyme de mort, le cœur Dao peut en être affecté. Les conséquences sont d'une portée bien plus durable.
 

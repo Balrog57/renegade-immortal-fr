@@ -50,7 +50,7 @@ Le vieil homme n'était qu'au stade initial du Scruteur du Nirvana; il ressentit
 
 « Vous savez aussi que la compagne cultivatrice Xi Zi l'aimait. Lorsqu'il était là, osiez-vous agir ainsi? »
 
-Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, lui n'était qu'au stade du Yang Corporel, et cet homme était déjà une existence qu'il devait regarder avec déférence.
+Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la bataille pour le titre céleste. À l'époque, lui n'était qu'au stade du Yang Corporel, et cet homme était déjà une existence qu'il devait regarder avec déférence.
 
 Il n'osait manifester aucun manque de respect devant lui. Cet homme s'était illustré lors de la guerre avec l'Alliance; il était devenu célèbre tant à Luotian qu'au sein de l'Alliance, et l'homme d'âge moyen devait admettre qu'il n'était qu'une fourmi face à lui.
 
@@ -96,7 +96,7 @@ C'était comme si ce regard était devenu solide, lui enserrant le cou et l'âme
 
 C'était une existence qui dépassait toute compréhension!
 
-« Sei... Senior... » L'homme d'âge moyen, possédant le niveau de culture le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
+« Sen... Senior... » L'homme d'âge moyen, possédant le niveau de culture le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
 
 Cette silhouette blanche était Wang Lin!
 

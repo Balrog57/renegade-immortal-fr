@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1501 - Hunting Nether Beast (1)
 slug: la-chasse-a-la-bete-du-neant-1
 ---
-Après avoir quitté la planète Ran Yun, Wang Lin ne fit aucune escale. Tandis que des ondulations résonnaient sous ses pas, il traversa rapidement les étoiles.
+Les affaires de Luotian touchaient à leur fin. Après avoir quitté la planète Ran Yun, Wang Lin ne fit aucune escale. Tandis que des ondulations résonnaient sous ses pas, il traversa rapidement les étoiles.
 
 Cette ultime affaire était une tâche que Wang Lin se devait d'accomplir!
 
@@ -22,9 +22,9 @@ Le Sens Divin était affecté par la brume, rendant toute exploration de la zone
 
 La silhouette de Wang Lin apparut à la lisière de cette zone alors que des ondulations se propageaient sous lui. En contemplant le brouillard dense qui se dressait devant lui, ses yeux s'illuminèrent.
 
-Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les gens du Royaume Céleste et avait découvert ce brouillard.
+Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici dans le corps de cette créature exotique. Puis, il avait fait sortir les membres du Clan des Immortels Délaissés et avait découvert ce brouillard.
 
-Il avait également vu cette immense créature semblable à une baleine: la Bête des Limbes!
+Il avait également entrevu, en se retournant, cette immense créature semblable à une baleine: la Bête des Limbes!
 
 La dernière chose que Wang Lin devait accomplir à Luotian était... chasser la Bête des Limbes!
 
@@ -44,11 +44,11 @@ Le second sort était l'exact opposé de sa première capacité. Que ce soit le 
 
 La Bête des Limbes abritait un royaume au sein même de son corps. Il pouvait être grand ou petit, tout était imprévisible! Le seul sort qu'elle connaissait était: dévorer!
 
-Une fois la bête acculée, elle ouvrait sa gueule et dévorait tout sur son passage. Les étoiles tremblaient; que ce soient des sorts, des bêtes, des cultivateurs ou même des planètes, tous étaient engloutis dans son corps et piégés à l'intérieur!
+Une fois la bête acculée, elle ouvrait sa gueule et dévorait tout sur son passage. Les étoiles tremblaient; que ce soient des trésors magiques, des bêtes, de puissants cultivateurs, des planètes de culture ou même des domaines stellaires, tous étaient engloutis dans son corps et piégés à l'intérieur!
 
 La Bête des Limbes pouvait ne pas ouvrir la gueule pendant des dizaines de milliers d'années, mais une fois qu'elle le faisait, le temps s'emballait!
 
-Cela signifiait qu'une fois que la Bête des Limbes prenait l'initiative de dévorer, des dizaines de milliers, voire des centaines de milliers d'années pouvaient s'écouler dans le monde à l'intérieur de son corps!
+Cela signifiait qu'une fois que la Bête des Limbes prenait l'initiative de dévorer, dix mille années, voire des dizaines de milliers d'années, pouvaient s'écouler dans le monde à l'intérieur de son corps!
 
 Elle ne possédait aucun sort pour ralentir le temps; elle ne faisait que le faire passer instantanément!
 
@@ -58,13 +58,13 @@ Très peu de gens comprenaient réellement la Bête des Limbes. Ils savaient seu
 
 Pourtant, malgré cela, très peu d'êtres osaient encore la provoquer!
 
-La majeure partie de la compréhension que Wang Lin avait de la Bête des Limbes provenait du Royaume Extérieur. Après avoir absorbé tant de cultivateurs, sa connaissance de la créature était devenue progressivement plus exhaustive.
+La majeure partie de la compréhension que Wang Lin avait de la Bête des Limbes provenait de ses multiples sorts de dévoration au Royaume Extérieur. Après avoir absorbé tant de cultivateurs, sa connaissance de la créature était devenue progressivement plus exhaustive.
 
 C'est aussi pour cette raison qu'il s'était passionné pour la Bête des Limbes et avait décidé de la capturer!
 
-« La seule chose qui me laisse perplexe est de savoir comment le simple Empereur Céleste du Royaume Céleste du Tonnerre a pu utiliser la Bête des Limbes... » En fixant le brouillard, les yeux de Wang Lin brillèrent. S'il n'avait pas vu la Bête des Limbes et ressenti sa puissance inimaginable, il aurait pensé que la bête n'était qu'une masse imposante sans grande force.
+« La seule chose qui me laisse perplexe est de savoir comment le simple Roi Céleste du Royaume Céleste du Tonnerre a pu utiliser la Bête des Limbes... » En fixant le brouillard, les yeux de Wang Lin brillèrent. S'il n'avait pas vu la Bête des Limbes et ressenti sa puissance inimaginable, il aurait pensé que la bête n'était qu'une masse imposante sans grande force.
 
-« L'Empereur Céleste était un être prodigieux. Peut-être possédait-il une autre méthode pour emprunter le pouvoir de la bête... » L'expression de Wang Lin devint sérieuse alors qu'il fit un pas et s'élança dans le brouillard!
+« Le Roi Céleste était un être prodigieux. Peut-être possédait-il une autre méthode pour emprunter le pouvoir de la bête... » L'expression de Wang Lin devint sérieuse alors qu'il fit un pas et s'élança dans le brouillard!
 
 Il était d'une rapidité telle qu'en un éclair, il pénétra dans la brume. Dès son entrée, il provoqua un tourbillon dans le brouillard. C'était comme si d'innombrables fantômes hurlaient à ses oreilles; leurs cris plaintifs étaient terrifiants.
 
@@ -92,7 +92,7 @@ Wang Lin fronça légèrement les sourcils. Après une courte réflexion, il ren
 
 Au fil du temps, la zone explorée par Wang Lin s'étendit lentement, passant de la moitié du domaine stellaire à près de 80 %. À cet instant, Wang Lin s'arrêta brusquement et ses yeux s'illuminèrent. Son Sens Divin se verrouilla sur le brouillard devant lui.
 
-Il y avait des débris rocheux dans le brouillard, à 30 000 pieds de lui. Des dizaines de roches flottaient silencieusement dans la brume.
+Il y avait des débris rocheux, chacun d'environ mille pieds, dans le brouillard, à 30 000 pieds de lui. Des dizaines de roches flottaient silencieusement dans la brume.
 
 Le regard de Wang Lin perça le brouillard pour se poser sur ces roches. Il se déplaça alors comme l'éclair, pénétrant directement la brume pour arriver devant elles.
 

@@ -100,6 +100,6 @@ La voix de Li Qianmei était mélodieuse, mais le contenu de ses paroles était 
 
 « Cette affaire est d'une importance capitale. J'espère que le frère Lu ne la répétera pas. »
 
-Wang Lin resta silencieux un instant avant de hocher la tête. Il fixa ensuite l'horizon, comme si son regard pouvait percer le vide pour atteindre la région de rang 9. Il crut voir la fissure spatiale que la Secte Démon contenait depuis des millénaires, et entrevoir le mystérieux système stellaire inconnu qui s'y cachait...
+Wang Lin resta silencieux un instant avant de hocher la tête. Il fixa ensuite l'horizon, comme si son regard pouvait percer le vide pour atteindre la région de rang 9. Il crut voir la fissure spatiale que la Secte Démon contenait depuis des dizaines de milliers d'années, et entrevoir le mystérieux système stellaire inconnu qui s'y cachait...
 
 « Les affaires de ce monde sont changeantes, mais il y a forcément une cause... Si les paroles de Li Qianmei sont vraies, alors où se trouve donc ce système stellaire mystérieux... »

@@ -8,7 +8,7 @@ slug: briser-la-boussole
 ---
 Le visage de Wang Lin était livide, dénué de toute trace de sang, ce qui créait un contraste saisissant avec le sang qui maculait le coin de sa bouche. Il rangea tous ses trésors, y compris l'épée de fer fendue, et battit en retraite. Les âmes naissantes de sang que Maître Pin Cendré avait envoyées ne purent s'échapper et furent capturées par les âmes de bataille de Wang Lin.
 
-Sa vision se brouillait et une somnolence envahissait tout son corps, tandis qu'une douleur intense irradiait de son épaule droite. Il oscillait entre la perte de connaissance et la lucidité. À ses yeux, il semblait y avoir plusieurs chemins se dessiner devant lui.
+Sa vision se brouillait et une somnolence envahissait tout son corps, tandis qu'une douleur intense irradiait de son épaule droite. Il oscillait entre la perte de connaissance et la lucidité. Le chemin devant lui semblait dédoublé.
 
 La boussole gigantesque se déplaçait dans le ciel. Elle était verrouillée sur Wang Lin et ne cessait de suivre sa course.
 
@@ -18,7 +18,7 @@ Alors qu'elle tournait avec frénésie, une pression puissante apparut et se fix
 
 Un sentiment de danger envahit le cœur de Wang Lin. Face à ce péril imminent, il se mordit la langue sans pitié pour retrouver ses esprits. C’est alors que les innombrables runes descendirent de la boussole.
 
-Au moment où les runes chutèrent, Wang Lin serra les dents et tendit sa main gauche vers le vide pour saisir son trident. Les runes sifflèrent dans le ciel, tombant telle une pluie dévastatrice.
+Au moment où les runes chutèrent, Wang Lin serra les dents et tendit sa main gauche vers le vide pour saisir son trident, qu'il balaya devant lui. Les runes sifflèrent dans le ciel, tombant telle une pluie dévastatrice.
 
 Un fracas tonitruant retentit et Wang Lin cracha du sang. De nombreuses runes percutèrent son corps, laissant des empreintes profondes, et chaque impact faisait trembler son être.
 
@@ -32,7 +32,7 @@ Alors que sa main gauche agrippait le trident, la folie dans son regard s'intens
 
 Le temps pressait. Wang Lin prit une profonde inspiration, l'intention de combat embrasant son regard. Le feu envahit son œil gauche et l'armure du Vermillon apparut autour de lui. Simultanément, la foudre éclata dans son œil droit, transformant la zone de dix mille pieds autour de lui en un lac de tonnerre.
 
-Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. La terre craquait sous la progression fulgurante de la foudre. Les vestiges de son pouvoir d'Ancien Dieu contournèrent son bras droit pour se rassembler frénétiquement dans sa main gauche et couler dans le trident.
+Le tonnerre grondait tandis que les éclairs serpentaient sur le sol. Sur dix mille pieds, la terre résonnait de coups sourds sous la progression fulgurante de la foudre, et de nombreux gravats se soulevaient pour flotter dans la lumière électrique. Les vestiges de son pouvoir d'Ancien Dieu contournèrent son bras droit pour se rassembler frénétiquement dans sa main gauche et couler dans le trident.
 
 À cet instant, un rugissement qui défiait les cieux retentit et Wang Lin s'élança! Une mer de flammes surgit soudainement et une silhouette d'oiseau vermillon enveloppa Wang Lin. C'était comme si l'homme avait pris le contrôle de tous les feux du monde pour charger la boussole!
 
@@ -62,17 +62,17 @@ Dans une montagne de la région extérieure du Royaume aux Sept Couleurs se trou
 
 C'était Chen Tianjun!
 
-La vieille femme était piégée par la restriction à l'extérieur de la vallée et ne pouvait s'échapper rapidement. Elle devait subir les attaques incessantes des restrictions; son visage était blême, mais ses yeux brûlaient d'une volonté farouche. Ses mains formaient continuellement des sceaux pour envoyer des contre-restrictions, mais la puissance de ce lieu dépassait l'entendement. La Restriction de la Vie et de la Mort s'était totalement fusionnée avec la restriction de l'Annihilation, lui échappant totalement. Elle subissait des assauts constants et ses blessures ne cessaient de s'aggraver.
+La vieille femme était piégée par la restriction à l'extérieur de la vallée et ne pouvait s'échapper rapidement. Elle devait subir les attaques incessantes des restrictions; son visage était blême, mais ses yeux trahissaient son refus de se résigner. Ses mains formaient continuellement des sceaux pour envoyer des contre-restrictions, mais la puissance de ce lieu dépassait l'entendement. La Restriction de la Vie et de la Mort s'était totalement fusionnée avec la restriction de l'Annihilation, lui échappant totalement. Elle subissait des assauts constants et ses blessures ne cessaient de s'aggraver.
 
 Au moment où le rugissement céleste retentit, la vieille femme leva soudainement les yeux, perplexe et incertaine.
 
-Ce fracas résonna à travers tout le Royaume aux Sept Couleurs et franchit la chaîne de montagnes semblable à un mur. Il se propagea dans la brume, la faisant vibrer. Les nombreux Éveillés cessèrent leur chant pour la première fois, regardant autour d'eux avec stupeur.
+Ce fracas résonna à travers tout le Royaume aux Sept Couleurs et franchit la chaîne de montagnes semblable à un mur. Il se propagea dans la brume, la faisant rouler comme des vagues furieuses. Les nombreux Éveillés cessèrent leur chant pour la première fois, regardant autour d'eux avec stupeur.
 
 Dans la brume, entre les sourcils de l'immense statue marquée par un éclair sur le front, flottait un nuage de brouillard aux sept couleurs. L'âme originelle affaiblie de Maître Pin Cendré s'y trouvait pour se soigner. Lorsque le grondement survint, il leva brusquement la tête, saisi d'effroi!
 
 Cette fois, il fut véritablement terrifié!
 
-Il avait prévu que Wang Lin serait puissant, mais il n'avait jamais imaginé qu'il pourrait l'égaler et les blesser tous deux si gravement. En repensant à tous les trésors qu'il avait dépensés, il sentit son cœur saigner, particulièrement pour ces trois perles. Les perdre lui était une douleur atroce, tout comme la perte de l'épée de cristal. Cependant, comparé au clou aux sept couleurs, ces objets étaient insignifiants.
+Il avait surestimé Wang Lin, mais il n'avait jamais imaginé qu'il pourrait l'égaler et les blesser tous deux si gravement. En repensant à tous les trésors qu'il avait dépensés, il sentit son cœur saigner, particulièrement pour ces trois perles. Les perdre lui était une douleur atroce, tout comme la perte de l'épée de cristal. Cependant, comparé au clou aux sept couleurs, ces objets étaient insignifiants.
 
 À la pensée du clou aux sept couleurs, Maître Pin Cendré sentit son âme originelle vaciller. Ce clou était son trésor le plus puissant, son atout ultime. Pourtant, même en l'utilisant, il n'avait pu tuer ce cultivateur nommé Lu. Il avait même perdu son propre corps et avait failli mourir.
 

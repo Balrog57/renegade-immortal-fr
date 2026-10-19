@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1890 - Calamity Fortune
 slug: calamite-fortune
 ---
-L'homme qui émergea du quatrième réseau de transfert était un homme d'âge moyen. Vêtu d'une robe taoïste noire et blanche, il était grand et dégageait une aura anormale. Bien que très beau, la finesse de ses lèvres lui conférait un air glacial.
+L'homme qui émergea du quatrième réseau de transfert était un homme d'âge moyen. Vêtu d'une robe taoïste noire et blanche, il était grand et dégageait une aura transcendante. Bien que très beau, la finesse de ses lèvres lui conférait un air glacial.
 
 Cet homme était manifestement impitoyable. Il n'aurait jamais épuisé les ressources d'une secte entière pour éliminer un seul individu à cause d'une rancune liée à sa descendance.
 
@@ -62,7 +62,7 @@ Wang Lin serra les dents et s'élança. Il savait que l'évasion serait pérille
 
 Il était tout simplement trop puissant. À cet instant, l'armure d'âme de Wang Lin s'était dissipée et son niveau de culture était revenu au stade tardif du Vide Spirituel. Après avoir utilisé tant de sorts, Wang Lin était comme une lampe à huile vide. L'écart entre leurs niveaux de culture était trop abyssal. Face à ce geste, Wang Lin afficha un regard résolu et ferma les yeux pour tenter de se connecter à son avatar dans le vide.
 
-Au moment où le Maître de la Secte du Dao Démoniaque agita sa manche, une aura supplémentaire enveloppa le corps de Wang Lin. Ses yeux devinrent dorés et il leva la main en retour.
+Au moment où le Maître de la Secte du Dao Démoniaque agita sa manche, une aura supplémentaire enveloppa le corps de Wang Lin. Ses yeux devinrent dorés et, les mains formant un sceau, il frappa en retour.
 
 Le monde gronda et le corps de Wang Lin trembla violemment. Il cracha du sang et fut projeté en arrière alors qu'il tentait de courir vers la montagne. Cet homme était trop fort; même si Wang Lin parvenait à emprunter la puissance de son avatar, il ne ferait toujours pas le poids!
 
@@ -78,7 +78,7 @@ En s'élançant, sa silhouette se mua en une immense empreinte de paume blanche.
 
 De l'autre côté du vieillard céleste, le jeune homme à l'allure démoniaque s'avança avec un renâclement froid, se transformant à son tour en une gigantesque empreinte noire à sept doigts qui s'abattit sur Wang Lin!
 
-De loin, on aurait dit qu'un tableau prenait vie. Les empreintes noires et blanches tombaient du ciel vers Wang Lin. Bientôt, les deux fusionnèrent à dix mille pieds au-dessus de lui pour former une unique paume céleste et démoniaque, bicolore!
+De loin, on aurait dit qu'un tableau prenait vie. Les empreintes noires et blanches tombaient du ciel vers Wang Lin. Bientôt, les deux fusionnèrent à des dizaines de milliers de pieds au-dessus de lui pour former une unique paume céleste et démoniaque, bicolore!
 
 Lorsque cette empreinte apparut, le monde sembla basculer et tout devint flou. Wang Lin cessa de courir et leva les yeux vers la masse descendante. Il garda le silence.
 

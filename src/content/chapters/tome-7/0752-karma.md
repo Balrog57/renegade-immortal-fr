@@ -14,9 +14,9 @@ Les dix-huit statues illusoires prirent soudainement forme physique sous l'effet
 
 Ces dix-huit statues divines dégageaient des éclats de lumière restrictive qui, en un instant, encerclèrent Wang Lin.
 
-« Voici la véritable Restriction des Dix-huit Pruniers. Regarde bien! » Les yeux de Li Yuan devinrent glacials tandis qu'il pointait le vide de sa main droite.
+« Voici la véritable Restriction des 18 Pruniers. Regarde bien! » Les yeux de Li Yuan devinrent glacials tandis qu'il pointait le vide de sa main droite.
 
-Wang Lin répondit d'un ton nonchalant et désinvolte: « Tuer le sang des descendants de son maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de sa statue?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
+Wang Lin répondit d'un ton calme: « Tuer le sang des descendants de son maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de sa statue?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
 
 « N'essaie pas de briser ma foi. Tout ce que je fais est pour ressusciter mon seigneur; ce n'est pas une chose qu'un simple enfant comme toi peut comprendre! » Les yeux de Li Yuan étaient sombres.
 
@@ -90,7 +90,7 @@ Wang Lin remarqua cela mais resta serein. Les deux coups de fouet avaient ouvert
 
 « Bien que j'ignore pourquoi tu as échoué lors de ta première réincarnation il y a des dizaines de milliers d'années, il est évident que tu manques aussi de confiance cette fois! Sinon, pourquoi t'intéresser à moi en chemin? »
 
-« Ce qui t'intéresse, ce n'est pas mon sort d'Arrêt, mais... ceci! » Dans la main droite de Wang Lin, le Fouet du Karma oscillait entre l'existence et le néant.
+« Ce qui t'intéresse, ce n'est pas mon sort d'Arrêt, mais... ceci! » Dans la main droite de Wang Lin, le Fouet du Karma apparaissait et disparaissait.
 
 Une lueur mystérieuse brilla dans les yeux de Li Yuan alors qu'il fixait le fouet karmique et murmura: « Tu es très intelligent... Oui, ce que je convoite est le fouet contenant le pouvoir du cycle de la réincarnation et du domaine du karma! Sans lui, je n'ai que 70 % de chances de réussir, mais avec lui, elles montent à 90 %! » Sur ces mots, sa main droite pointa Wang Lin. La ligne noire se rejoignit aux deux extrémités pour former un cercle et fonça droit sur lui.
 
@@ -110,7 +110,7 @@ Wang Lin laissa échapper un rire et un rayon de lumière blanche jaillit de sa 
 
 C'était la première fois que Wang Lin utilisait cet Écran Montagne et Rivière. Même si Li Yuan avait été témoin de son combat contre le cultivateur Yin Illusoire, il ne pouvait imaginer qu'il possédât un tel trésor.
 
-Dès l'apparition de l'Écran, la Peinture Montagne et Rivière enveloppa Wang Lin. Il semblait désormais faire partie intégrante du tableau. Les lignes noires pénétrèrent immédiatement l'écran et devinrent de simples points dans la peinture, progressant lentement vers lui.
+Dès l'apparition de l'Écran, la Peinture Montagne et Rivière enveloppa Wang Lin. Il semblait désormais faire partie intégrante du tableau. Le cercle de lignes noires pénétra immédiatement l'écran et ne devint plus qu'un point d'encre dans la peinture, progressant lentement vers lui.
 
 « Il y a des dizaines de milliers d'années, tu es venu ici avec ces trois trésors, tout comme aujourd'hui, accompagné d'un membre de la famille Ge. Si tu as échoué à l'époque, c'est parce que même ton maître refusait de s'éveiller par une telle méthode. En tant que serviteur de ton maître, es-tu vraiment sûr de n'avoir rien fait de mal?! »
 

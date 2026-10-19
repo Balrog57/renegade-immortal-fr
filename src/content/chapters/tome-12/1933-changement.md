@@ -14,9 +14,9 @@ Exalté Empyréen Hai Zi utilisa un sort étrange, crachant du sang pour en paye
 
 Bien que Wang Lin fût stupéfait, il résista en utilisant la charge du Taureau Céleste. L'ombre gigantesque du Taureau percuta le sceau ovale.
 
-Lors de l'impact, des grondements tonitruants résonnèrent à travers les eaux, comme si la mer elle-même allait se déchirer.
+Lors de l'impact, des grondements tonitruants résonnèrent à travers les eaux, comme si la mer elle-même allait se déchirer, les ondes de choc se refermant en étau.
 
-Le visage d'Exalté Empyréen Hai Zi devint pâle et elle fut projetée en arrière. Il s'agissait d'un sort que son maître lui avait enseigné, d'une puissance extrême. Bien qu'elle ne maîtrisât pas encore le second style, cela faisait en sorte que très peu de personnes sous le rang d'Ascendant pouvaient rivaliser avec elle!
+Le visage d'Exalté Empyréen Hai Zi devint pâle et elle fut projetée en arrière. Il s'agissait d'un sort que son maître lui avait enseigné, d'une puissance extrême. Bien qu'elle ne maîtrisât pas encore le second style, cela faisait en sorte que très peu de personnes sous le rang d'Ascendant Empyréen pouvaient rivaliser avec elle!
 
 Cependant, elle venait de tomber sur Wang Lin!!
 
@@ -38,7 +38,7 @@ Elle fixa Wang Lin qui s'éloignait de plus en plus, ressentant honte et rage. S
 
 Il y avait deux raisons pour lesquelles Wang Lin n'avait pas utilisé le sort « Arrête » immédiatement. La première était que, puisqu'elle avait osé tenter de l'arrêter, elle devait être préparée et posséder un certain degré de confiance pour résister à son sort! Par conséquent, il ne pouvait l'utiliser instantanément et devait attendre le moment opportun pour préparer son coup!
 
-Secondement, même si Wang Lin avait arrêté Exalté Empyréen Hai Zi, à moins qu'il ne la blessât gravement avant de s'enfuir, elle le poursuivrait une fois libérée. En revanche, plutôt que de simplement l'immobiliser, il valait mieux la blesser gravement puis l'arrêter. Ainsi, elle n'oserait plus le suivre, et cela serait conforme à la voie droite!
+Secondement, même si Wang Lin avait arrêté Exalté Empyréen Hai Zi, cela n'aurait duré qu'une dizaine de respirations; à moins qu'il ne la blessât gravement avant de s'enfuir, elle le poursuivrait une fois libérée. En revanche, plutôt que de simplement l'immobiliser, il valait mieux la blesser gravement puis l'arrêter. Ainsi, elle n'oserait plus le suivre, et cela serait conforme à la voie droite!
 
 Après avoir immobilisé Exalté Empyréen Hai Zi, Wang Lin s'apprêtait à dégager la pieuvre pour emporter le dragon marin. Son Sens Divin balaya inconsciemment Exalté Empyréen Hai Zi qui sombrait dans les eaux.
 

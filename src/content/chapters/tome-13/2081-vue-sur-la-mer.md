@@ -8,7 +8,7 @@ slug: vue-sur-la-mer
 ---
 Wang Lin partit.
 
-Il disparut du monde des grottes. Sur une planète ordinaire du Luotian, il y avait une femme. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
+Il disparut du monde des grottes. Sur une planète ordinaire du Luotian, il y avait une femme, debout au sommet d'un haut pic. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
 
 Elle regarda le ciel. Sous le soleil, si l'on observait attentivement, on pouvait distinguer le fin et joli duvet de son visage. Elle était empreinte de confusion. Elle sentit un sens divin arriver et stagner près d'elle un instant avant de repartir.
 
@@ -66,7 +66,7 @@ Après le départ de Wang Lin, le monde des grottes retrouva son calme. Il se re
 
 Cette puissance pourrait protéger cet endroit pendant des générations, afin que des incidents tels que celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
-Sur le Continent Astral Immortel, dans le Continent du Taureau Céleste, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
+Sur le Continent Astral Immortel, dans les terres du clan céleste, dans le Continent de l'Est, dans le Continent du Taureau Céleste, une montagne était entourée de brume. Ce jour-là, une force puissante jaillit, et une lumière cristalline infinie se répandit dans toutes les directions.
 
 Une fois la lumière dissipée, Wang Lin sortit lentement de la porte du monde des grottes, vêtu d'une robe blanche et arborant des cheveux blancs.
 

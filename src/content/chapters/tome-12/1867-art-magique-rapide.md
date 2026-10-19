@@ -6,13 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1867 - Rapid Spell Art!"
 slug: art-magique-rapide
 ---
-Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Ancestral sans aucune retenue.
+Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Antique sans aucune retenue.
 
-Dans les terres célestes du Continent Astral Immortel, Wang Lin était extrêmement prudent avec son pouvoir du Dao Ancestral. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
+Dans les terres célestes du Continent Astral Immortel, Wang Lin était extrêmement prudent avec son pouvoir du Dao Antique. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.
 
-Après tout, par ses racines, il appartenait au Dao Ancestral et n'était pas l'un des êtres célestes. Il devait se montrer prudent sur les terres célestes.
+Après tout, par ses racines, il appartenait au Dao Antique et n'était pas l'un des êtres célestes. Il devait se montrer prudent sur les terres célestes.
 
-Mais à l'intérieur de cette Pierre Spatiale, il n'avait aucune inquiétude à avoir. Tandis que l'épée tranchait, une ombre gigantesque du Dao Ancestral apparut derrière lui. Cette ombre était vêtue d'une armure et dégageait une aura antique.
+Mais à l'intérieur de cette Pierre Spatiale, il n'avait aucune inquiétude à avoir. Tandis que l'épée tranchait, une ombre gigantesque du Dao Antique apparut derrière lui. Cette ombre était vêtue d'une armure et dégageait une aura antique.
 
 La lumière sanglante flamba alors que Wang Lin tranchait prestement l'espace entre la lanterne et l'âme originelle de Xu Decai. L'âme originelle de Xu Decai recracha un grand flot de souffle d'âme et se flétrit. La lanterne suspendue au-dessus de sa tête fut frappée par cette force puissante et projetée au loin, son feu s'éteignant instantanément.
 
@@ -88,7 +88,7 @@ La clé résidait dans l'ouverture de neuf veines magiques dans le corps. Chaque
 
 Xu Decai en avait déjà ouvert sept!
 
-Les « veines magiques » étaient le terme utilisé par cet art. En réalité, il s'agissait d'une méthode spéciale utilisant le scellement pour accélérer le rythme des sorts.
+Les « veines magiques » étaient le terme utilisé par cet art. En réalité, il s'agissait d'une méthode spéciale : au prix d'un scellement, elle créait dans le corps une boucle qui multipliait la vitesse d'incantation.
 
 « Sceller l'âme originelle d'un cultivateur dans son corps pour former un vortex... Pourquoi cela ressemble-t-il à certains sorts du Clan Ancien? » Cette pensée traversa l'esprit de Wang Lin alors qu'il étudiait l'art.
 
@@ -102,7 +102,7 @@ Après tout cela, un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Il est temps de repartir... » Son corps vacilla et disparut de cet espace brisé.
 
-Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense régnait toujours sur la Prairie du Ciel Extrême. Les cultivateurs survivants possédaient tous des niveaux de culture élevés, ce qui rendait leur élimination ardue et prolongeait le massacre.
+Plusieurs jours s'étaient écoulés, mais une intention meurtrière intense régnait toujours sur la Prairie de l'Extrême Ciel. Les cultivateurs survivants possédaient tous des niveaux de culture élevés, ce qui rendait leur élimination ardue et prolongeait le massacre.
 
 Dans la brume, les cultivateurs ordinaires étaient presque devenus fous, les yeux injectés de sang, lançant divers sorts de toutes parts. Deux cultivateurs du stade intermédiaire de la Tribulation du Vide se défendaient contre l'attaque combinée de Lu Wenran et de plusieurs cultivateurs du stade initial de la Tribulation du Vide.
 

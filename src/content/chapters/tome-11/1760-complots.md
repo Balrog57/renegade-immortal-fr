@@ -96,7 +96,7 @@ C'était l'endroit qu'il avait déjà repéré, celui imprégné de l'aura d'une
 
 Wang Lin s'assit là et prit une profonde inspiration. Ses yeux pétillaient d'une intention meurtrière!
 
-« Le moment est venu pour ma première contre-attaque... Même si je dois utiliser l'une de mes trois vies, je donnerai à ces poursuivants une leçon qu'ils n'oublieront jamais! »
+« Le moment est venu pour ma première contre-attaque... Même si je dois utiliser le Sortilège des Trois Vies une fois, je donnerai à ces poursuivants une leçon qu'ils n'oublieront jamais! »
 
 « Il faudra un certain temps avant que le Daoïste aux Sept Couleurs ne remarque l'anomalie. C'est amplement suffisant pour préparer mon embuscade! » Les mains de Wang Lin formèrent un sceau et il pressa la terre à ses côtés.
 

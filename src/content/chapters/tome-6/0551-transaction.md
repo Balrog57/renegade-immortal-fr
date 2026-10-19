@@ -28,7 +28,7 @@ Wang Lin réfléchit un instant avant de refermer les yeux et de poursuivre sa c
 
 L'expression de Yao Xixue devint glaciale et elle laissa échapper un renâclement méprisant. Puis, son corps se transforma en un rayon de lumière blanche et chargea directement vers le camp militaire de Wang Lin. Elle arriva bientôt à l'extérieur du camp et se téléporta directement à l'intérieur. La formation entourant le camp n'eut aucun effet sur elle; après tout, elle était également l'une des commandantes.
 
-Dans le camp militaire, de nombreux soldats démons s'entraînaient aux formations sous les ordres de leurs chefs de régiment. L'apparition de Yao Xixue attira l'attention de tous les soldats démons.
+Dans le camp militaire, sur une immense place, de nombreux soldats démons s'entraînaient aux formations sous les ordres de leurs chefs de régiment. L'apparition de Yao Xixue attira l'attention de tous les soldats démons.
 
 Elle se déplaça avec une rapidité extrême et vola directement vers la pagode où se trouvait Wang Lin.
 
@@ -58,7 +58,7 @@ Le corps de Treize fut également touché par la brise; il trembla immédiatemen
 
 La froideur sur le visage de Yao Xixue resta intacte alors qu'elle renâclait: « Ma colère ne peut égaler l'arrogance du camarade cultivateur Wang! » Sur ce, elle fit trois pas en avant, ouvrit la porte et entra.
 
-Les fenêtres de la pagode étaient complètement scellées, aucune lumière ne pouvait y pénétrer. Dès que la porte s'ouvrit, un vif rayon de soleil pénétra dans la pièce.
+Les fenêtres de la pagode étaient complètement scellées, aucune lumière ne pouvait y pénétrer. Dès que la porte s'ouvrit, un vif rayon de soleil pénétra dans la pièce et forma une ombre sur le sol.
 
 Wang Lin était assis en position du lotus dans l'obscurité, son expression dissimulée par les ombres.
 

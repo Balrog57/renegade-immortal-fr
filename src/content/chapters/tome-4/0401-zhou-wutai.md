@@ -80,7 +80,7 @@ L'homme secoua la tête en souriant. « Ce ne sera pas possible. Wang Lin est mo
 
 La femme soupira. Elle fixa l'homme et dit: « Partez. Je ne souhaite pas vous blesser. » Sur ces mots, elle se prépara à s'en aller.
 
-L'homme robuste s'assit en position de lotus, ses mains formèrent un sceau et son domaine apparut instantanément. Derrière lui, l'image d'un jeune homme se matérialisa, le regardant avec une profonde admiration.
+L'homme robuste s'assit en position de lotus, ses mains formèrent un sceau et son domaine apparut instantanément. Derrière lui, l'image d'un jeune homme se matérialisa, le regardant avec une profonde affection filiale.
 
 La femme en robe violette marqua une nouvelle pause et fixa l'homme. Sous sa beauté se cachait une cruauté parfaitement dissimulée. Elle murmura: « Le Domaine de la Tranchante des Émotions... Pas étonnant que vous ayez été choisi par l'Oncle Martial. Quelle volonté, quel cœur d'acier... »
 
@@ -112,7 +112,7 @@ Les milliards de fragments d'âmes s'élancèrent. Tandis que l'éclair rouge de
 
 Des rayons de lumière dorée relièrent les douze fragments de Transformation de l'Âme, formant un filet qui emprisonna l'éclair rouge.
 
-Simultanément, les milliards de fragments d'âmes gravitant autour du filet semblèrent recevoir un ordre des douze fragments primaires. Ils chargèrent tous vers le filet de toutes les directions, dégageant une aura capable de briser le monde.
+Simultanément, les centaines de millions de fragments d'âmes gravitant autour du filet semblèrent recevoir un ordre des douze fragments primaires. Ils chargèrent tous vers le filet de toutes les directions, dégageant une aura capable de briser le monde.
 
 Vu d'en haut, les douze fragments primaires formaient un cercle entouré par d'innombrables fragments d'âmes. À cet instant précis, cette masse incalculable de fragments s'engouffra dans le cercle.
 

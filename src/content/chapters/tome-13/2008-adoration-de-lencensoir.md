@@ -8,7 +8,7 @@ slug: adoration-de-lencensoir
 ---
 L'Ancien Dao était situé au sud-ouest du Continent Astral Immortel. Les douze pays étaient comparables à une province du clan céleste, bien qu'ils fussent légèrement plus vastes.
 
-Si l'on ne disposait pas de la capacité de plier l'espace et que l'on devait se déplacer par le simple vol, il faudrait de nombreuses années pour parcourir une telle distance. Cependant, le clan Ancien possédait des dieux anciens géants, des démons anciens géants et des diables anciens géants. Ces existences semi-conscientes pouvaient déchirer le ciel, réduisant ainsi considérablement le temps de voyage.
+Si l'on ne disposait pas de la capacité de plier l'espace et que l'on devait se déplacer par le simple vol, il faudrait de nombreuses années pour parcourir une telle distance. Cependant, le clan Ancien possédait des dieux anciens géants, des démons anciens géants et des diables anciens géants. Ces existences semi-vivantes pouvaient déchirer le ciel, réduisant ainsi considérablement le temps de voyage.
 
 Les ambassadeurs de l'Ancien Dao n'eurent besoin que de quelques mois pour retourner de l'Ancien Shi à la cité impériale de l'Ancien Dao.
 
@@ -86,7 +86,7 @@ Puisqu'il avait choisi l'Ancien Dao, choisi de suivre son maître et choisi d'ac
 
 Protéger l'Ancien Dao, protéger la réincarnation de son maître.
 
-C'est pour cette raison qu'il suivit la coutume et s'inclina devant l'encensoir. À l'instant même où il prit sa décision et s'inclina, l'encens gronda et sembla s'embraser avec fureur. La fumée verte devint instantanément dix, cent, mille, voire dix mille fois plus intense!
+C'est pour cette raison qu'il suivit la coutume et s'inclina devant l'encensoir. À l'instant même où il prit sa décision et s'inclina, l'encens gronda et se mit à brûler avec fureur, à une vitesse visible à l'œil nu. La fumée verte devint instantanément dix, cent, mille, voire plus de dix mille fois plus intense!
 
 Ce changement brutal fit s'arrêter net ceux qui venaient de terminer leur révérence et se dirigeaient vers le temple. Ils se retournèrent, le visage empreint d'horreur.
 

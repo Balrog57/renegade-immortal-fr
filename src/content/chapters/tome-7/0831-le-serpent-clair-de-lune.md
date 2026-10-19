@@ -32,9 +32,9 @@ De plus, suite aux discussions des cultivateurs du Domaine Nord, tout le monde s
 
 L'un des hommes d'âge moyen de la famille Yao ricana en observant le Serpent aux yeux de lune avec dédain. « Même s'il s'agit d'une bête, et alors! Non seulement elle manque de capacités offensives, mais même si elle en avait, nous pourrions la tuer si nous attaquions tous ensemble! »
 
-De nombreuses bêtes féroces figuraient dans les archives de la famille Yao. Certaines étaient même plus redoutables que celle-ci, mais elles avaient fini par périr sous l'attaque combinée des êtres célestes.
+De nombreuses bêtes féroces figuraient dans les archives de la famille Yao. Certaines étaient même plus imposantes que celle-ci, mais elles avaient fini par périr sous l'attaque combinée des êtres célestes.
 
-Et cette bête ne figurait dans aucun registre familial. Cela signifiait qu'elle ne représentait aucune menace; autrement, elle aurait été consignée dans les archives héritées par le clan.
+Et cette bête ne figurait dans aucun registre familial. Cela signifiait qu'elle n'avait aucune importance; autrement, elle aurait été consignée dans les archives héritées par le clan.
 
 « Il n'est pas difficile de tuer cette bête! » Yao Yunhai détourna le regard. Membre de la troisième génération de la famille Yao, bien que son niveau de culture ne fût pas élevé — seulement au sommet du stade Corporel Yang —, il était extrêmement orgueilleux. À ses yeux, le Serpent aux yeux de lune n'était pas digne d'intérêt.
 
@@ -78,4 +78,4 @@ Lorsque Yao Yunhai s'en rendit compte, il était déjà trop tard. Il décida de
 
 Au moment où Yao Yunhai allait résister, le Fouet du Karma s'abattit, arrachant un gémissement de douleur à la victime. Sans perdre un instant, Wang Lin asséna un coup de pied dans le corps de Yao Yunhai, y injectant une masse colossale d'énergie originelle.
 
-Le corps de Yao Yunhai explosa en un nuage de sang, créant une onde de choc d'énergie originelle qui repoussa légèrement le Serpent aux yeux de lune. Wang Lin profita de cette force pour disparaître.
+Le corps de Yao Yunhai explosa en une masse de chair et de sang, créant une onde de choc d'énergie originelle qui repoussa légèrement le Serpent aux yeux de lune. Wang Lin profita de cette force pour disparaître.

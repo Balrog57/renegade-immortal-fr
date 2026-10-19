@@ -8,7 +8,7 @@ slug: la-mer
 ---
 Le Continent Astral Immortel comprenait les cinq grands continents du clan céleste ainsi que 72 continents mineurs, occupant ainsi plus de 50 % de sa superficie totale. Le reste, soit près de 50 %, était constitué des 36 pays du clan Ancien, tandis que les 10 % restants composaient l'océan infini qui séparait les clans Céleste et Ancien.
 
-Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un certain niveau de culture ne pouvaient espérer la franchir.
+Cette mer était la plus vaste du Continent Astral Immortel. Elle était agitée par des vagues déchaînées et enveloppée d'un brouillard perpétuel. Il était impossible pour les mortels de la traverser, et même les cultivateurs n'ayant pas atteint un niveau de culture très élevé ne pouvaient espérer la franchir.
 
 Cette mer constituait une barrière naturelle rendant périlleux tout voyage entre les terres des Célestes et celles des Anciens.
 
@@ -20,7 +20,7 @@ Les cultivateurs résidant sur ce continent étaient accoutumés à ce climat, e
 
 On pouvait même voir des blocs de glace dériver sur l'eau lorsque les vagues s'écrasaient contre le continent.
 
-À 10 000 kilomètres de la bordure du continent, toute trace de vie se faisait rare, et même les cultivateurs venaient rarement en ces lieux. Le froid y était trop extrême; les cultivateurs possédant encore un corps physique risquaient de se transformer en glace et de ne pas survivre longtemps.
+À 500 000 kilomètres de la bordure du continent, toute trace de vie se faisait rare, et même les cultivateurs venaient rarement en ces lieux. Le froid y était trop extrême; les cultivateurs possédant encore un corps physique risquaient de se transformer en glace et de ne pas survivre longtemps.
 
 Le vent et la neige hurlaient dans le ciel. Les flocons s'élevaient haut dans les airs, portés par les bourrasques, avant de redescendre lentement vers la terre.
 
@@ -54,7 +54,7 @@ Ce dernier sursauta, le visage marqué par la stupéfaction, tandis que Xu Liguo
 
 « Ces vêtements sont des trésors; ils sont faits de Coton Céleste et dégagent une chaleur immense. Ton Grand-père Xu les a dérobés à la famille Chen!
 
-Cette chemise en coton est aussi un trésor. Une fois revêtue, on se croirait au bord d'une cheminée. Ton Grand-père Xu a convaincu le Roi de la voler à la famille Zhao!
+Cette veste en coton est aussi un trésor. Une fois revêtue, on a l'impression de serrer une boule de feu. Ton Grand-père Xu a convaincu le Roi de la voler à la famille Zhao!
 
 Celui-ci...
 
@@ -64,7 +64,7 @@ Et même celui-ci... » Xu Liguo les énumérait un à un. Avant qu'il n'ait pu 
 
 « Xu Liguo!! »
 
-« Pourquoi cries-tu ainsi le nom de ton Grand-père Xu? Comment oses-tu les voler devant Maître? Tu deviens bien audacieux, Petit Xu! » Les yeux de Xu Liguo s'écarquillèrent et il commença à retrousser sa manche. Cependant, en raison de l'épaisseur de ses vêtements, chaque couche révélait une nouvelle épaisseur, et il ne finirait jamais avant un long moment.
+« Pourquoi cries-tu ainsi le nom de ton Grand-père Xu? Comment oses-tu les voler devant Maître? Tu deviens bien audacieux, Petit Biao! » Les yeux de Xu Liguo s'écarquillèrent et il commença à retrousser sa manche. Cependant, en raison de l'épaisseur de ses vêtements, chaque couche révélait une nouvelle épaisseur, et il ne finirait jamais avant un long moment.
 
 « Maître... Regardez-le... Je... Je... » Liu Jinbiao regarda Xu Liguo, puis tourna son regard vers Wang Lin qui marchait devant eux, ignorant superbement ses supplications.
 

@@ -40,7 +40,7 @@ Le Royaume du Vide Brillant!
 
 C'était le seul pays de rang 9 de l'Alliance, et il était très mystérieux. Le Royaume du Vide Brillant n'était pas une planète de culture, mais un vaste continent qui s'apparentait à un monde à part entière.
 
-C'était la terre sacrée de la majorité des cultivateurs de ce lieu!
+C'était la terre sacrée de presque tous les cultivateurs de ce lieu!
 
 L'esprit de Wang Lin pénétra dans le Royaume du Vide Brillant, un endroit où très peu de cultivateurs étaient qualifiés pour entrer. Au plus profond du royaume, un vieil homme était assis. Il méditait près d'un lac lorsqu'il ouvrit soudainement les yeux et regarda au loin.
 
@@ -52,9 +52,9 @@ Cependant, ces paroles ne parvinrent pas à tirer Wang Lin de son étrange état
 
 Il vit deux femmes!
 
-L'une d'elles était assise au sommet d'une montagne. Elle n'était pas d'une beauté absolue, mais elle restait magnifique. Elle portait une robe bleue qui flottait au gré des vents de montagne. Elle dégageait l'aura d'une beauté céleste.
+L'une d'elles était assise au sommet d'une montagne. Elle n'était pas d'une beauté absolue, mais elle restait magnifique. Elle portait une robe verte qui flottait au gré des vents de montagne. Elle dégageait l'aura d'une beauté céleste.
 
-Pourtant, une pointe d'amertume perçait dans son regard alors qu'elle contemplait l'horizon avec nostalgie. À ses côtés se tenait un grand tigre, totalement noir et doté d'une aura féroce. Il leva la tête et regarda au loin, aux côtés de la femme.
+Pourtant, une pointe d'amertume perçait dans son regard alors qu'elle contemplait l'horizon avec nostalgie. À ses côtés était allongé un grand tigre, totalement noir et doté d'une aura féroce. Il leva la tête et regarda au loin, aux côtés de la femme.
 
 Toutefois, le regard du tigre dérivait souvent vers la jungle dense en contrebas de la montagne. Les silhouettes de quelques tigresses attiraient son attention. Ses yeux brillaient d'excitation, comme s'il brûlait de sauter immédiatement dans la jungle.
 
@@ -96,7 +96,7 @@ Dès que Wang Lin se réveilla, son esprit fut violemment rappelé par la perle 
 
 C'était comme un cercle qui se contractait rapidement. En un instant, il balaya tous les lieux qu'il avait parcourus.
 
-Le vieil homme du Royaume du Vide Brillant qui avait remarqué Wang Lin fixa le ciel et commença à méditer.
+Le vieil homme du Royaume du Vide Brillant qui avait remarqué Wang Lin fixa le ciel, l'air songeur.
 
 Les combats dans la région nord faisaient toujours rage. Au moment où l'esprit de Wang Lin se contracta, les expressions de Maître Yan Leizi et de ses compagnons changèrent profondément.
 

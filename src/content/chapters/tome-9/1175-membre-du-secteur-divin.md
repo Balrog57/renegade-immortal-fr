@@ -28,7 +28,7 @@ La voix de Wang Lin était calme, mais elle dégageait une majesté naturelle lo
 
 Cette aura n'était pas celle d'un cultivateur ordinaire. Même un expert du Briseur du Nirvana ne pourrait dégager une telle présence, à moins d'être le chef d'une secte puissante. Wang Lin avait été autrefois l'Empereur Divin de la Secte Divine de l'Oiseau Vermillon. Il n'avait nul besoin de forcer les choses; la simple pensée de son ancien titre lui permettait de manifester naturellement cette majesté.
 
-L'homme d'âge moyen eut un sourire désabusé et sortit deux autres flacons. Il regarda Wang Lin et dit amèrement: « Deux pilules de rang 10. C'est ma limite. »
+L'homme d'âge moyen eut un sourire désabusé et sortit deux pilules enrobées de cire. Il regarda Wang Lin et dit amèrement: « Deux pilules de rang 10. C'est ma limite. »
 
 Wang Lin répondit avec calme: « Wu Qing a dépensé des dizaines de milliers de jades célestes pour entraver l'obtention de ce trésor. »
 

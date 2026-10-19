@@ -18,7 +18,7 @@ Un homme d'âge moyen, qui venait de s'acheter une cruche de vin, la secoua avan
 
 Les yeux du vieux Ceng s'écarquillèrent alors qu'il tirait sur sa pipe et renifla: « Balivernes! Le vin de ma famille Ceng... »
 
-Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis mille ans. On raconte même qu'il avait captivé un immortel. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
+Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin de votre famille Ceng se transmet depuis mille ans. On raconte même qu'un immortel l'avait goûté et loué. Oncle Ceng, vous répétez cela presque tous les jours. Je dois aller travailler, je n'ai pas le temps d'écouter vos longs discours. » L'homme reprit son vin avec un sourire et partit.
 
 Le vieux Ceng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Ceng a bel et bien été bu par un immortel pendant plus de soixante ans, il y a plus de mille ans! »
 

@@ -16,7 +16,7 @@ Bien que cet employé fût surpris, il ne le montra pas. Il demanda respectueuse
 
 Wang Lin détourna le regard et fixa l'employé. Il fut instantanément capable de percevoir que celui-ci se situait au 8e ou 9e niveau de la Condensation de Qi, et demanda calmement: « Le Pavillon de Raffinage des Trésors vend-il des fours à pilules? »
 
-L'employé hocha la tête en souriant. « Senior, je crains que vous ne trouviez des fours à pilules que dans notre pavillon, car ce ne sont pas des objets que les gens ordinaires peuvent acquérir. Si senior est intéressé, je vous prie de me suivre au deuxième étage. »
+L'employé hocha la tête en souriant. « Senior, je crains que vous ne trouviez des fours à pilules que dans notre pavillon, le seul de Nan Dou à en vendre, car ce ne sont pas des objets que les gens ordinaires peuvent acquérir. Si senior est intéressé, je vous prie de me suivre au deuxième étage. »
 
 Wang Lin marcha calmement vers l'escalier. L'employé le suivit rapidement pour lui ouvrir la voie. Au moment de monter, Wang Lin jeta un regard de côté à un cultivateur qui marchandait au premier étage. Il réfléchit un instant avant d'entamer l'ascension.
 

@@ -82,11 +82,11 @@ Des ondulations résonnèrent derrière l'armure et un vortex apparut. Un bras d
 
 « Ce n'est pas quelque chose que tu peux posséder, dégage de devant ce vieillard! »
 
-Wang Lin ne fut pas totalement pris au dépourvu par ce changement soudain. Le pas qu'il avait amorcé avant l'effondrement de la formation lui permit d'atteindre sa vitesse maximale instantanément!
+Wang Lin ne fut pas totalement pris au dépourvu par ce changement soudain. Le pas qu'il avait amorcé avant l'effondrement de la formation fit instantanément exploser son aura, le faisant passer de l'ordinaire au sommet!
 
 Ses sept essences fusionnèrent soudainement avec sa puissante culture du stade avancé de l'Espace de l'Esprit, et explosèrent hors de son corps!
 
-Au moment où son pied toucha le sol, le pouvoir de la Voie Antique de Wang Lin pénétra chaque parcelle de ses chairs et de ses os. Cela permit à son corps d'acquérir une force capable d'écraser une planète de culture!
+Au moment où son pied toucha le sol, le pouvoir du Dao Antique de Wang Lin pénétra chaque parcelle de ses chairs et de ses os. Cela permit à son corps d'acquérir une force capable d'écraser une planète de culture!
 
 La puissance totale de Wang Lin éclata. C'était comme si une tempête destructrice venait de surgir. L'élan de Wang Lin était à son apogée!
 
@@ -94,7 +94,7 @@ Son pas atteignit le sol au moment même où le vortex apparaissait et que le br
 
 Et il l'écrasa sans la moindre pitié!
 
-Tout cela se produisit en un instant, trop vite pour que quiconque puisse battre en retraite. Le pied droit de Wang Lin se déplaça comme la foudre, chargé du pouvoir de la Voie Antique lorsqu'il descendit.
+Tout cela se produisit en un instant, trop vite pour que quiconque puisse battre en retraite. Le pied droit de Wang Lin se déplaça comme la foudre, chargé du pouvoir du Dao Antique lorsqu'il descendit.
 
 La vieille voix s'exclama et le bras changea brusquement de direction. Il tenta de former un sort pour se défendre, mais l'entité ne s'attendait manifestement pas à ce que Wang Lin réagisse avec une telle rapidité et une telle férocité. Le pied droit de Wang Lin s'abattit impitoyablement sur le bras.
 
@@ -104,10 +104,10 @@ Dans un fracas assourdissant, on entendit le bruit d'os qui volaient en éclats.
 
 D'un geste nonchalant de la main gauche, il s'empara de l'armure et de la lance d'eau bleue. Tout ce qui venait de se passer s'était accompli en un mouvement fluide, du pas initial à la rupture du bras jusqu'à la saisie de l'armure. Il dégageait l'aura d'un maître absolu!
 
-« Cultivateur du Pays Antique!! Tu es un membre du Clan Antique!! » Une voix presque déformée par la douleur résonna depuis le vortex.
+« Cultivateur du Pays Antique!! Tu es un membre du Clan Ancien!! » Une voix presque déformée par la douleur résonna depuis le vortex.
 
 Cette scène fut observée par le Grand Empyréen Xuan Luo, à l'extérieur de la planète. Il afficha un sourire fier et une expression tyrannique.
 
-« Bien, c'est effectivement un enfant de mon Clan de la Voie Antique. C'est la meilleure façon de traiter ceux qui osent offenser la Voie Antique. S'il avait fait moins, j'en aurais été quelque peu insatisfait. Cela ressemble beaucoup à mon tempérament. Si c'était moi, je lui aurais coupé les griffes! »
+« Bien, c'est effectivement un enfant de mon Clan du Dao Antique. C'est la meilleure façon de traiter ceux qui osent offenser le Dao Antique. S'il avait fait moins, j'en aurais été quelque peu insatisfait. Cela ressemble beaucoup à mon tempérament. Si c'était moi, je lui aurais coupé les griffes! »
 
 « Secte Gui Yi, le groupe de célestes qui est venu ici est intéressant... » Le Grand Empyréen Xuan Luo regarda la tour avec désinvolture. S'il le voulait, il lui suffirait d'un revers de main pour que toute vie sur la planète disparaisse.

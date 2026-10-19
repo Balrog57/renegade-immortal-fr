@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1859 - A Person Called Wang Lin
 slug: une-personne-du-nom-de-wang-lin
 ---
-Le corps de Liu Zhiyuan s'effondra soudainement à mille pieds de Wang Lin sous la force de son poing et s'écrasa au sol. Son âme originelle se déforma et se brisa sous l'attaque la plus puissante de Wang Lin.
+Le corps de Liu Zhiyuan s'effondra soudainement à plusieurs milliers de pieds de Wang Lin sous la force de son poing et s'écrasa au sol. Son âme originelle se déforma et se brisa sous l'attaque la plus puissante de Wang Lin.
 
 Seule sa tête fut arrachée par une force impétueuse et saisie par Wang Lin. Après l'avoir mise de côté, Wang Lin disparut.
 
@@ -16,7 +16,7 @@ Le vieil homme nommé Zhang tremblait et ignora totalement Lu Wenran en battant 
 
 « Un cultivateur de la Tribulation du Vide est mort?! »
 
-« Liu Zhiyuan! » Le vieil homme nommé Zhang recula précipitamment pour rejoindre l'endroit où Liu Zhiyuan avait péri. En voyant les restes de chair et de sang, ses pupilles se contractèrent. Il connaissait les liens unissant Liu Zhiyuan au Maître de la Secte de la Voie Démoniaque; cela fit trembler son cœur.
+« Liu Zhiyuan! » Le vieil homme nommé Zhang recula précipitamment pour rejoindre l'endroit où Liu Zhiyuan avait péri. En voyant les restes de chair et de sang, ses pupilles se contractèrent. Il connaissait les liens unissant Liu Zhiyuan au Maître de la Secte du Dao Démoniaque; cela fit trembler son cœur.
 
 Le vieil homme nommé Zhao, qui combattait Yan Luan et ses compagnons, battit également en retraite sans hésiter. Tandis que Yan Luan et les autres étaient ébranlés par les cris lugubres, il atteignit le lieu du décès de Liu Zhiyuan.
 
@@ -66,7 +66,7 @@ Ce n'est que grâce à cette conjonction de facteurs qu'il avait pu terrasser Li
 
 Personne d'autre n'avait remarqué qu'il était l'auteur de la mort de Liu Zhiyuan. Wang Lin s'y était attendu. En attaquant, il avait resserré les restrictions autour d'eux pour empêcher Liu Zhiyuan de fuir. Grâce à cela, même si d'autres avaient balayé la zone avec leur Sens Divin, ils n'auraient rien pu percevoir de clair.
 
-Bien qu'il eût utilisé l'Illusion de l'Âme Originelle pour invoquer le neuvième ancêtre de la Secte de la Grande Âme, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
+Bien qu'il eût utilisé l'Origine de la Fantaisie de l'Âme pour invoquer le neuvième ancêtre de la Secte de la Grande Âme, il était fort peu probable que quelqu'un remarque le sortilège depuis l'extérieur de la restriction.
 
 Après tout, Wang Lin recelait trop de secrets et de méthodes qu'il ne souhaitait pas divulguer. Il était donc naturel d'ériger des restrictions pour que nul ne puisse tout voir.
 
@@ -102,7 +102,7 @@ Xu Dongde fronça les sourcils et lança soudain: « Et si l'assaillant n'était
 
 La scène se répétait à l'extérieur du brouillard entourant la Prairie de l'Extrême Ciel. Des milliers de cultivateurs du Continent du Démon Vert cultivaient en silence, tandis qu'au centre du groupe, les deux cultivateurs de niveau moyen de la Tribulation du Vide enquêtaient sur la mort de Liu Zhiyuan.
 
-« Ce n'est pas la première fois qu'un cultivateur de la Tribulation du Vide meurt lors de nos combats contre le Continent du Taureau Céleste. Cependant, c'est la première fois que nous assistons à un tel décès sans même savoir qui en est l'auteur! » Le vieil homme nommé Zhang affichait une expression sombre et colérique, teintée d'une pointe de peur. Il ignorait quelle serait la réaction du Maître de la Secte de la Voie Démoniaque — dont le Sens Divin était scellé par une culture en porte fermée depuis des années — lorsqu'il apprendrait la nouvelle.
+« Ce n'est pas la première fois qu'un cultivateur de la Tribulation du Vide meurt lors de nos combats contre le Continent du Taureau Céleste. Cependant, c'est la première fois que nous assistons à un tel décès sans même savoir qui en est l'auteur! » Le vieil homme nommé Zhang affichait une expression sombre et colérique, teintée d'une pointe de peur. Il ignorait quelle serait la réaction du Maître de la Secte du Dao Démoniaque — dont le Sens Divin était scellé par une culture en porte fermée depuis des années — lorsqu'il apprendrait la nouvelle.
 
 « L'identité de l'Ancien Liu... » murmurèrent certains cultivateurs du camp de Liu Zhiyuan, sans achever leur phrase.
 

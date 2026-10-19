@@ -12,7 +12,7 @@ Des grondements tonitruants résonnèrent. Le Vieux Fantôme Zhan était extrêm
 
 De plus, il avait été choisi par l'Âme aux Sept Couleurs pour qu'elle s'installe en lui et fusionne avec lui. Par conséquent, son niveau de culture était infiniment proche de celui du Souverain Céleste aux Sept Couleurs!
 
-À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita le bras, et le membre doré tombant du ciel s'effondra! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
+À cet instant, son corps et son âme se séparèrent. L'Âme aux Sept Couleurs agita les bras, le ciel et la terre changèrent de couleur, et le membre doré tombant du ciel s'effondra! Simultanément, le bras noir surgissant de la terre trembla et se désintégra.
 
 Même le sceau de cithare du Maître du Dao Rêve Bleu disparut sans laisser de trace sous son impact.
 
@@ -26,7 +26,7 @@ La Tortue Noire et l'Oiseau Vermillon avaient déjà conclu un accord avec le Vi
 
 À cet instant, le Vieux Fantôme Zhan s'approcha et agita sa manche. Deux caractères « Bataille » volèrent et explosèrent sur les deux hommes de la Planète des Cinq Éléments, les blessant gravement et les forçant à battre en retraite.
 
-Une intention de combat terrifiante émana du Vieux Fantôme Zhan. Il était le créateur des Parchemins de Combat et le maître de l'essence de la bataille. S'il n'avait pas fusionné avec l'âme du Souverain Céleste aux Sept Couleurs — ce qui altérait sa personnalité —, il n'aurait pas été aussi hésitant.
+Une intention de combat terrifiante émana du Vieux Fantôme Zhan. Il était le créateur des Parchemins de Bataille et le maître de l'essence de la bataille. S'il n'avait pas fusionné avec l'âme du Souverain Céleste aux Sept Couleurs — ce qui altérait sa personnalité —, il n'aurait pas été aussi hésitant.
 
 Désormais, son corps et son âme étant séparés, les effets de cette fusion se dissipèrent, lui rendant son tempérament tyrannique!
 
@@ -44,7 +44,7 @@ Non loin de là, Tuo Sen était scellé par trois caractères « Bataille ». À
 
 Cependant, lui et Tang Shan étaient toujours plus lents que les deux généraux. Juste au moment où ces derniers atteignirent la montagne effondrée pour s'y engouffrer, un changement stupéfiant survint.
 
-Le plus rapide était la Tortue Noire, qui avait trente pieds d'avance sur l'Oiseau Vermillon. En approchant, il entendit un battement de cœur résonner comme le tonnerre. Cela provoqua en lui un rythme cardiaque chaotique.
+Le plus rapide était la Tortue Noire, qui avait trente pieds d'avance sur l'Oiseau Vermillon. En approchant, il entendit un battement de cœur résonner comme le tonnerre. Son cœur se mit à battre violemment.
 
 Ce battement soudain créa une douleur perforante dans sa poitrine. L'expression du Général Tortue Noire changea et un fracas tonitruant retentit à ses oreilles. La douleur intense qui lui déchirait le torse était telle qu'il eut l'impression qu'une main géante s'était introduite dans sa poitrine pour lui arracher le cœur!
 
@@ -84,7 +84,7 @@ Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer 
 
 Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Le Maître du Dao Rêve Bleu s'en sortit mieux que les autres, étant l'aîné de Wang Lin; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
 
-« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les présages de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
+« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les manifestations de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
 
 « J'ai entendu dire que deux des neuf chants étaient les yeux d'argent et le corps doré! Cela... Wang Lin n'a obtenu que l'héritage de Ye Mo, comment peut-il avoir des yeux d'argent?! Même Ye Mo ne les possédait pas! »
 
@@ -106,7 +106,7 @@ Wang Lin ne l'arrêta pas, et il n'y avait aucune raison de le faire!
 
 Après la fusion, l'Âme aux Sept Couleurs entoura le Vieux Fantôme Zhan et recouvrit le ciel derrière lui. Il ricana et chargea Wang Lin. Le Maître du Dao Rêve Bleu et le vieil homme Ma s'apprêtaient à intervenir quand les paroles de Wang Lin résonnèrent calmement entre deux battements de cœur:
 
-« Deux aînés, vous avez assez travaillé, je vais achever ce combat. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux!
+« Deux aînés, vous avez assez travaillé, je m'en charge. » Wang Lin voyait bien qu'ils étaient blessés, et il voulait tester sa propre force après avoir obtenu l'héritage. Aussitôt qu'il eut parlé, son rythme cardiaque devint monstrueux!
 
 Les grondements tonitruants affectaient le pouls de chacun. Alors que le Vieux Fantôme Zhan s'approchait, ce vacarme titanesque pénétra dans son corps et frappa directement son cœur!
 

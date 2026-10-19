@@ -24,7 +24,7 @@ Le Ciel était l'étoile, et le Tonnerre Céleste était une planète de culture
 
 Le Tonnerre Terrestre représentait l'innombrable poussière et les fragments de planètes. Ils avaient été raffinés pour se transformer en tonnerre!
 
-Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'elle brise son âme originelle. À cet instant, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
+Le Tonnerre Originel était le plus simple. Un cultivateur devait rassembler l'énergie originelle avec une ferveur folle jusqu'à ce qu'il brise son âme originelle. À cet instant, un trou noir capable d'absorber une énergie originelle infinie apparaîtrait. Tel était le prix pour créer le Tonnerre Originel!
 
 Quant au Tonnerre Magnétique, il existait des zones spéciales dans l'espace contenant une force magnétique si puissante qu'elle rendait tous les trésors et sorts inutiles. Le Clan du Tonnerre Dispersé utilisait une méthode unique pour faire naître un éclair de tonnerre tous les 3 000 ans. C'était le Tonnerre Magnétique!
 

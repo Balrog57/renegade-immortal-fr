@@ -8,11 +8,11 @@ slug: le-tresor-special-de-liu-mei
 ---
 Wang Lin ouvrit les yeux, dont la clarté était retrouvée. Bien que la douleur fût toujours présente, c'était comme s'il avait percé à jour les mystères du monde. C'était une vérité qu'il avait apprise autrefois: il devait laisser partir ceux qui étaient destinés à disparaître...
 
-Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brume était composée de toute la fumée qui avait pénétré son corps. Son âme originelle contenant une part du dragon de tonnerre antique, elle renfermait le pouvoir du tonnerre céleste. Ce Dao du Démon Céleste des Dix Mille Illusions n'était pas suffisant pour consumer son âme originelle.
+Il leva sa main droite et un filet de brume apparut au-dessus d'elle. Cette brume était composée de toute la fumée qui avait pénétré son corps. Son âme originelle contenant une part du dragon de tonnerre antique, elle renfermait le pouvoir du tonnerre céleste. Ce Dao du Démon Céleste des Dix Mille Illusions n'était pas suffisant pour ébranler son âme originelle.
 
 Observant la brume, Wang Lin réfléchit un instant, puis l'écrasa.
 
-« Bien que ta culture ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton: gâcher les choses par un enthousiasme excessif. C'est là ta faiblesse fatale! »
+« Bien que ta culture ait été augmentée de force, ta compréhension de ton domaine est insuffisante. Les gens ordinaires ont un dicton: gâcher les choses par un enthousiasme excessif. Ce dicton te dépeint parfaitement! »
 
 Au moment où il l'écrasa, un gémissement étouffé émana du vide. Aussitôt, la silhouette de Liu Mei apparut au loin. Son visage était livide tandis qu'elle fixait Wang Lin. Ses yeux emplis de haine, elle siffla: « Tu es bel et bien Wang Lin, un être au cœur impitoyable. »
 
@@ -26,7 +26,7 @@ Wang Lin fronça les sourcils. C'était un souvenir qu'il ne souhaitait pas ravi
 
 « Tu me réponds que c'était un accident? Alors je vais t'offrir un autre accident! » Une nuance de douleur complexe perçait sous sa haine. Elle toucha son sac de rangement.
 
-Wang Lin fronça les sourcils. Le garde céleste apparut soudainement devant lui et s'avança vers Liu Mei.
+Wang Lin fronça les sourcils. Le garde céleste apparut soudainement derrière lui et s'avança vers Liu Mei.
 
 La main droite de Liu Mei s'éleva du sac de rangement et celui-ci s'ouvrit. Une brume noire jaillit de l'intérieur, accompagnée d'une explosion de ressentiment monstrueux.
 
@@ -40,7 +40,7 @@ L'expression de Wang Lin resta neutre alors qu'il fixait cette lueur noire. Au m
 
 Dès que le regard de Wang Lin croisa ces yeux noirs, il fut saisi de stupeur. Ils étaient totalement voilés; aucune lumière n'y brillait, seul un ressentiment monstrueux s'en dégageait.
 
-Pourtant, au moment où Wang Lin vit cette paire d'yeux, son esprit vacilla et une sensation d'harmonie envahit son corps. C'était comme si dix mille coups de tonnerre explosaient à ses oreilles, faisant trembler son propre être. Inconsciemment, il retira son doigt, fit quelques pas en arrière et fixa la brume noire.
+Pourtant, au moment où Wang Lin vit cette paire d'yeux, son esprit vacilla et une sensation de fusion parfaite envahit son corps. C'était comme si dix mille coups de tonnerre explosaient à ses oreilles, faisant trembler son propre être. Inconsciemment, il retira son doigt, fit quelques pas en arrière et fixa la brume noire.
 
 « Ceci... ceci est... » Une douleur terrible surgit au cœur de Wang Lin et se propagea instantanément dans tout son corps. Il regarda la brume noire et ses yeux devinrent soudainement rouges. D'un geste de la main droite, il ordonna au garde céleste de revenir immédiatement. L'ombre s'étendit pour envelopper la brume noire, l'empêchant de bouger.
 
@@ -88,11 +88,11 @@ Liu Mei recula. Ce faisant, elle frappa son sac de rangement et un grand miroir 
 
 Lorsque le Doigt des Enfers percuta le miroir, une explosion tellurique se produisit. Simultanément, Wang Lin fit un pas en avant et la Formation d'Épée aux Sept Étoiles encercla Liu Mei. Wang Lin poussa un cri et sept rayons d'énergie d'épée jaillirent.
 
-Wang Lin dit calmement: « Un faux cultivateur de l'Ascendant au stade tardif, n'ayant que de l'énergie spirituelle céleste et aucun domaine, ne fait pas le poids face à un cultivateur de stade intermédiaire! » Le doigt de la mort s'approcha de Liu Mei, porté par la Formation d'Épée aux Sept Étoiles.
+Wang Lin dit calmement: « Un faux cultivateur de l'Ascendant au stade tardif, n'ayant que de l'énergie spirituelle céleste et aucun domaine, ne fait pas le poids face à un cultivateur de stade intermédiaire! » Le Doigt de la Mort s'approcha de Liu Mei, porté par la Formation d'Épée aux Sept Étoiles.
 
 L'énergie des épées convergeait, faisant radicalement changer l'expression de Liu Mei. Sentant le danger, elle se mordit la langue. Du sang jaillit de sa bouche, emportant un objet: une aiguille tranchante.
 
-Dès son apparition, l'aiguille encercla Liu Mei et bloqua la Formation d'Épée aux Sept Étoiles. Même le doigt de la mort fut transpercé par cette aiguille.
+Dès son apparition, l'aiguille encercla Liu Mei et bloqua la Formation d'Épée aux Sept Étoiles. Même le Doigt de la Mort fut transpercé par cette aiguille.
 
 « La quatrième âme! » Wang Lin la regarda froidement, ses yeux devenant encore plus glacials. Il leva la main droite et pointa doucement l'aiguille.
 

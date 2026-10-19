@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 27 - Visit
 slug: visite
 ---
-Wang Lin regarda s'éloigner le dos de Zhang Hu. Après un long moment, il laissa échapper un soupir, serrant le papier jaune dans sa main. Depuis son arrivée à la Secte Heng Yue, Zhang Hu avait été son premier ami, mais voilà que les choses tournaient ainsi.
+Wang Lin regarda s'éloigner le dos de Zhang Hu. Après un long moment, il laissa échapper un soupir, serrant le papier jaune dans sa main, le cœur lourd. Depuis son arrivée à la Secte Heng Yue, Zhang Hu avait été son premier ami, mais voilà que les choses tournaient ainsi.
 
 « Ce talisman immortel est la cause de ce désastre! » Wang Lin dévisagea l'objet. Son regard changea soudainement lorsqu'il remarqua une différence subtile. Bien que ce talisman jaune ressemble à ceux que les disciples reçoivent pour rendre visite à leurs familles, la quantité d'énergie spirituelle qu'il contenait était bien plus élevée. De plus, un sentiment de danger émanait de lui. Wang Lin fut surpris; bien qu'il ignorât sa nature exacte, il savait qu'il s'agissait d'un trésor.
 
@@ -26,7 +26,7 @@ Une fois cela fait, il sortit la perle mystérieuse et pénétra dans l'espace d
 
 Cette fois, il ne consacra pas tout son temps à la culture, mais s'appliqua à pratiquer la Technique d'Attraction. Il avait senti que cette technique était très utile après l'avoir testée sur le frère Liu, c'est pourquoi il était si déterminé à la pratiquer.
 
-Il prit d'abord la gourde comme cible. Il tenta d'utiliser la Force d'Attraction pour la saisir à distance. La gourde était légère; après plusieurs tentatives, il finit par réussir. Il cessa immédiatement l'exercice pour recommencer depuis le début.
+Il prit d'abord la gourde comme cible. Il tenta d'utiliser la Technique d'Attraction pour la saisir à distance. La gourde était légère; après plusieurs tentatives, il finit par réussir. Il cessa immédiatement l'exercice pour recommencer depuis le début.
 
 Le raisonnement de Wang Lin était simple: il devait pouvoir l'utiliser à la seule volonté de son esprit. S'il tentait de l'utiliser dix fois, elle devait réussir dix fois; sinon, quelle que soit sa puissance, elle ne serait d'aucun secours dans les moments critiques.
 
@@ -36,13 +36,13 @@ Le temps s'écoulait rapidement dans le rêve. Sans que Wang Lin ne s'en aperço
 
 Outre la méthode de cœur de chaque couche, les Trois Étapes de Condensation de Qi consignaient également deux incantations cruciales.
 
-Ces chants étaient le véritable cœur de la Condensation de Qi. La Condensation de Qi comprenait quinze couches. À l'exception de la première couche, que l'on pouvait atteindre naturellement, les quatorze suivantes nécessitaient chacune son incantation d'ouverture.
+Ces incantations étaient le véritable cœur de la Condensation de Qi. La Condensation de Qi comprenait quinze couches. À l'exception de la première couche, que l'on pouvait atteindre naturellement, les quatorze suivantes nécessitaient chacune son incantation d'ouverture.
 
 Par exemple, il avait désormais terminé la première couche; mais sans l'incantation d'ouverture de la deuxième, même en maîtrisant sa méthode de culture, il ne pourrait pas cultiver jusqu'à la deuxième couche et resterait à la première.
 
 Wang Lin murmura l'incantation mentalement. L'énergie spirituelle dans son corps commença à muter. Au début, le changement fut minime, mais bientôt, il eut l'impression que de l'eau bouillante circulait dans ses veines.
 
-L'énergie semblait insuffisante, car elle se propageait par intermittence dans tout son être, provoquant des douleurs, des engourdissements, des picotements et des démangeaisons sur tout son corps. Il eut même l'illusion que son corps était criblé de trous; tout cela était causé par le flux de l'énergie spirituelle.
+L'énergie semblait insuffisante; elle se propageait par intermittence dans tout son être, provoquant des douleurs, des engourdissements, des picotements et des démangeaisons sur tout son corps. Il eut même l'illusion que son corps était criblé de trous; tout cela était causé par le flux de l'énergie spirituelle.
 
 Les Trois Étapes de Condensation de Qi soulignaient, à un endroit bien visible, une phrase: l'incantation d'ouverture de chaque couche ne réussissait pas systématiquement.
 
@@ -50,7 +50,7 @@ Le talent, l'énergie spirituelle et la chance jouaient tous un rôle clé. Cert
 
 Après un long moment, les sensations dans son corps s'estompèrent lentement. Wang Lin était couvert de sueur et l'énergie spirituelle de son corps s'était totalement épuisée. Cependant, il savait grâce au manuel que ce manque d'énergie n'était que temporaire et qu'il se régénérerait après une méditation. Bien qu'il n'ait pas réussi à ouvrir la deuxième couche, Wang Lin ne fut pas découragé; ce n'était qu'un test. Cela prouvait simplement qu'il manquait d'énergie pour franchir le seuil.
 
-Après tout, il venait à peine d'atteindre la première couche. Il n'y avait aucune urgence. Disposant toujours de son eau de source, il pourrait cultiver jusqu'à atteindre les limites de la première étape avant de retenter la deuxième, ce qui augmenterait considérablement ses chances.
+Après tout, il venait à peine d'atteindre la première couche. Il n'y avait aucune urgence. Disposant toujours de son eau de source, il pourrait cultiver jusqu'à atteindre les limites de la première couche avant de retenter la deuxième, ce qui augmenterait considérablement ses chances.
 
 Fort de ce plan, Wang Lin se mit à cultiver jour et nuit. L'énergie spirituelle dans son corps commença à s'accumuler lentement, tandis que sa maîtrise de la Technique d'Attraction progressait également.
 

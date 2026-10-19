@@ -12,7 +12,7 @@ Dès que Wang Lin aperçut Cupidité, même avec sa force mentale, il en fut stu
 
 Lorsqu'il regarda à nouveau, Cupidité s'était déjà échappé sans laisser de trace, laissant derrière lui mille cultivateurs abasourdis.
 
-Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Cupidité de briser la Formation du Royaume Scellé avec son niveau de culture, et pourtant il était là!
+Les yeux de Wang Lin s'illuminèrent. Il était impossible pour Cupidité de franchir la Formation du Royaume Scellé avec son niveau de culture, et pourtant il était là!
 
 La vitesse de Cupidité était également extrêmement rapide, ce qui surprit même Wang Lin. En un clin d'œil, il s'était déjà échappé de la planète, n'ayant même pas eu le temps de ranger ses trésors.
 
@@ -34,7 +34,7 @@ Après avoir saisi les 99 épées, Wang Lin ouvrit la bouche et cracha un flot d
 
 Pendant que le Sens Divin de Cupidité était effacé des 99 épées, loin de la planète de culture, Cupidité s'échappait avec un regard paniqué, dans un état lamentable.
 
-Lorsqu'il vit Wang Lin, aucune pensée ne traversa son esprit; il ne réfléchit même pas à fuir. Sa peur subconsciente de Wang Lin éclata et il s'enfuit immédiatement à pleine puissance.
+Lorsqu'il vit Wang Lin, aucune pensée ne traversa son esprit; il n'eut même pas l'idée de résister. Sa peur subconsciente de Wang Lin éclata et il s'enfuit immédiatement à pleine puissance.
 
 Il craignait que s'il était trop lent, tous ses trésors ne soient repris un par un par Wang Lin.
 

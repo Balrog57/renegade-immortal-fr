@@ -27,7 +27,7 @@ Du Tian contempla la scène et dit d'un ton amer: « Le Sceau Mystérieux de Suz
 
 Le Sceau Mystérieux de Suzaku est un sort que seule chaque génération de Suzaku peut apprendre. Il ne peut être cultivé; chaque Suzaku le découvre à partir des reliques du premier Suzaku, dans la tombe de celui-ci.
 
-Ce sceau n'a pas été créé par le premier Suzaku; c'est un sort qui leur a été légué par l'Union de la Culture.
+Ce sceau n'a pas été créé par le premier Suzaku; c'est un sort qui leur a été légué par l'Union de la Culture, après que la planète est devenue une planète de culture de rang 6.
 
 Ce Sceau Mystérieux de Suzaku n'augmente pas le niveau de culture, mais il est extrêmement puissant. Il n'a que deux fonctions: l'attaque et la défense.
 
@@ -41,7 +41,7 @@ L'être de nuages se désintégra. Le visage de Du Tian était livide alors qu'i
 
 L'expression de Zhu Quezi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, et il répugnait tout particulièrement à employer celui de l'attaque. Il devait conserver son état optimal pour la bataille contre le Clan des Immortels Délaissés.
 
-« Du Tian, votre Secte du Raffinement d'Âmes était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte du Raffinement d'Âmes un pays à part entière. »
+« Du Tian, votre Secte de l'Affinement de l'Âme était autrefois une branche de Suzaku et il y a des dizaines de milliers d'années, vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte de l'Affinement de l'Âme un pays à part entière. »
 
 Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Délaissés a déjà commencé et tu n'es pas sur le champ de bataille pour la diriger; je crains que tu ne puisses pas rester ici bien longtemps. »
 
@@ -59,11 +59,11 @@ Après une courte réflexion, Zhu Quezi dit lentement: « J'ai lu les récits su
 
 Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière blanche cristalline et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
 
-« Le monde est divisé en cinq éléments qui s'engendrent et se restreignent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent sans égal; et cinq signifie que l'on est parfait.
+« Les hommes se répartissent en cinq éléments qui s'engendrent et se restreignent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent sans égal; et cinq signifie que l'on est parfait.
 
 « Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. Il est rare qu'une personne possède deux parts d'un même élément, trois est encore plus rare, on n'a jamais entendu parler de quatre, et cinq parts d'un même élément serait sans précédent.
 
-« La quatrième âme était un être rare doté de trois parts d'un même élément, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
+« La quatrième âme était un être rare doté de trois parts d'un même élément, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte de l'Affinement de l'Âme a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
 
 « Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhu Quezi.
 
@@ -89,7 +89,7 @@ Au même instant, Zhu Quezi poussa un rugissement en pointant l'air de son index
 
 Dans un fracas, Zhu Quezi recula de trois pas. La lumière dorée et pourpre s'était à nouveau volatilisée sans laisser de trace, mais Zhu Quezi savait que la quatrième âme rôdait toujours.
 
-D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Du Tian, si tu étais au début du stade Ascendant et que tu avais utilisé une énergie spirituelle céleste dépassant celle d'un cultivateur de la Transformation de l'Âme, tu serais capable de la rendre plus rapide et plus dévastatrice encore. J'aurais dû fuir aujourd'hui si tel avait été le cas. Cependant, si tu veux me tuer, la quatrième âme n'est pas assez rapide! »
+D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Du Tian, si tu étais au début du stade Ascendant et que tu avais utilisé une énergie spirituelle céleste dépassant celle d'un cultivateur de la Transformation de l'Âme, tu serais capable de la rendre plus rapide et plus dévastatrice encore. Je prendrais la fuite sur-le-champ si tel était le cas. Cependant, si tu veux me tuer, la quatrième âme n'est pas assez rapide! »
 
 Les paroles de Zhu Quezi étaient calculées. La quatrième âme qu'il voulait capturer n'était pas telle qu'elle se présentait. Il convoitait la quatrième âme dans un état bien plus puissant. La seule façon pour elle d'atteindre cette puissance était de dévorer une immense quantité de fragments d'âmes et d'âmes primaires.
 

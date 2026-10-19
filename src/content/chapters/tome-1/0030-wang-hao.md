@@ -10,17 +10,17 @@ slug: wang-hao
 
 En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre: le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « la Belette », cela se situait à un tout autre niveau.
 
-Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait été multipliée par plusieurs. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser le chant pour accéder au deuxième niveau.
+Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spirituelle dans son corps avait été multipliée par plusieurs. Il avait atteint la limite du premier niveau. Peu importe ses efforts de culture, son énergie spirituelle n'augmentait plus. Ainsi, une nuit, il entreprit d'utiliser l'incantation pour accéder au deuxième niveau.
 
 Après tant d'échecs, ses efforts ne furent pas vains puisqu'il finit par percer et atteindre ce second stade.
 
 Les pores de sa peau suintaient une graisse noire. Après s'être lavé, Wang Lin contempla son reflet dans l'eau: ses yeux brillaient comme des éclairs. Dans l'ensemble, il semblait lui aussi un peu différent d'autrefois.
 
-Il se frotta le menton et songea: « Pour l'instant, je n'ai que le chant du troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les chants des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
+Il se frotta le menton et songea: « Pour l'instant, je n'ai que l'incantation du troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les incantations des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
 
 Après avoir réfléchi un moment sans trouver de solution satisfaisante, il ne put s'empêcher de froncer les sourcils.
 
-Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction de Force. Après une année d'entraînement, il réussissait désormais l'exercice huit ou neuf fois sur dix. Ayant atteint ce degré de maîtrise, il décida de l'essayer sur quelque chose de plus difficile. Il trouva un grand rocher dans la maison des corvées et se mit au travail.
+Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction. Après une année d'entraînement, il réussissait désormais l'exercice huit ou neuf fois sur dix. Ayant atteint ce degré de maîtrise, il décida de l'essayer sur quelque chose de plus difficile. Il trouva un grand rocher dans la maison des corvées et se mit au travail.
 
 Un autre mois s'écoula. Le comportement de Wang Lin à la maison des corvées ne cessait d'irriter les disciples honoraires. L'hiver était arrivé et la secte commençait à se préparer pour la compétition annuelle des disciples internes.
 
@@ -32,7 +32,7 @@ Wang Lin était très déçu de devoir encore s'occuper de la maison des corvée
 
 Ce jour-là, une grande neige scella toute la montagne Heng Yue; de gros flocons comme des plumes d'oie tombaient du ciel. De loin, tout était vêtu d'argent, glaces et neiges à perte de vue.
 
-Wang Lin ne pratiquait pas, mais se tenait silencieusement dans la cour. La Technique d'Attraction de Force était activée, comme si une main géante repoussait la neige pour l'empêcher de se poser sur lui.
+Wang Lin ne pratiquait pas, mais se tenait silencieusement dans la cour. La Technique d'Attraction était activée, comme si une main géante repoussait la neige pour l'empêcher de se poser sur lui.
 
 En regardant au loin vers son village de montagne, il se remémora l'époque où ses parents maintenaient le poêle allumé pour garder la maison chaude à cette période de l'année.
 

@@ -68,7 +68,7 @@ Wang Lin hocha la tête. Il n'avait aucun problème avec le fait de voler, mais 
 
 Une fois les ressources réunies, Du Tian emmena Wang Lin vers la Secte de l'Affinement de l'Âme pour le protéger pendant sa percée vers la Transformation de l'Âme.
 
-Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance de la Culture, de nombreux pays de rang 6 organisent des raids pour dépouiller d'autres planètes. »
+Du Tian soupira: « La planète Suzaku est bien trop petite. Quand j'étais jeune, je suis parti une fois pour me rendre à Tian Yun. Cette planète est dix fois plus vaste que Suzaku. Les sectes y sont légion et les jades célestes encore plus nombreux. Si je n'avais pas été trop faible, il aurait été délicieux de piller leurs sectes. On dit qu'au sein de l'Alliance de la Culture, de nombreux pays de rang 6 et plus organisent des raids pour dépouiller d'autres planètes. »
 
 « La planète Tian Yun... » Les yeux de Wang Lin s'illuminèrent.
 

@@ -62,7 +62,7 @@ Après avoir quitté les lieux, Wang Lin ne se rendit nulle part ailleurs et reg
 
 L'état démoniaque qu'il avait traversé plus tôt lui avait laissé un sentiment de crise imminente. Il avait sous-estimé la puissance des idéaux démoniaques. Désormais, il cherchait méticuleusement chaque trace de ces résidus en lui.
 
-Chaque fois qu'il décelait une trace d'idéal démoniaque, il l'expulsait immédiatement. Au matin du deuxième jour, après avoir fait circuler son énergie spirituelle céleste plusieurs fois à travers son corps, il laissa enfin échapper un soupir de soulagement.
+Chaque fois qu'il décelait une trace d'idéal démoniaque, il l'expulsait immédiatement. Deux jours plus tard, au petit matin, après avoir fait circuler son énergie spirituelle céleste plusieurs fois à travers son corps, il laissa enfin échapper un soupir de soulagement.
 
 À cet instant, trois sphères noires flottaient devant lui. Ces petites boules semblables à du coton étaient les idéaux démoniaques qu'il avait extraits de son être.
 

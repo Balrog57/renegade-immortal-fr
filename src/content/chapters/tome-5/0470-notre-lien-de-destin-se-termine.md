@@ -38,13 +38,13 @@ Les larmes de la femme commencèrent à couler. « Oui, elle reviendra bientôt.
 
 La femme essuya ses larmes et murmura: « Ne t'inquiète pas, notre fille a une bonne fortune; elle est certainement en sécurité. »
 
-Ces deux personnes étaient les parents de Zhou Ru. Lors de l'invasion du Clan Immortel Délaissé, ils avaient été contraints de s'installer ici pour fuir la guerre.
+Ces deux personnes étaient les parents de Zhou Ru. Lors de la guerre opposant le Clan des Immortels Délaissés aux cultivateurs, ils avaient été contraints de s'installer ici pour fuir la guerre.
 
 Pourtant, ces deux anciens ne cessaient de penser à Zhou Ru.
 
 Le fait que Zhou Ru ait été emmenée par ce taoïste était une épine constante dans leur cœur. Les années de nostalgie n'avaient fait qu'agrandir et renforcer cette épine, rendant la douleur plus vive encore.
 
-Le père de Zhou Ru s'en repentait sans cesse. Depuis qu'il était tombé malade, son état ne s'était jamais amélioré, et il s'étiolait de jour en jour.
+Le père de Zhou Ru ne parvenait pas à oublier cela. Depuis qu'il était tombé malade, son état ne s'était jamais amélioré, et il s'étiolait de jour en jour.
 
 Toutes les charges du foyer pesaient sur la mère de Zhou Ru. Cette femme au foyer devait subvenir aux besoins de toute la famille, mais dans ses rêves, les larmes inondaient ses yeux alors qu'elle murmurait le nom de Zhou Ru.
 
@@ -82,7 +82,7 @@ Wang Lin s'éloigna.
 
 Petit Blanc poussa quelques grognements devant la maison de Zhou Ru. Ses grands yeux fixaient l'intérieur avec une profonde réticence. Peu après, il poussa un rugissement puissant avant de bondir vers le ciel et de disparaître dans un éclat de lumière blanche.
 
-Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouvèrent rien. Cependant, tout le bétail du village n'osa plus quitter ses enclos pendant un mois. Toute la journée, leurs corps tremblaient violemment, comme s'ils étaient traumatisés.
+Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouvèrent rien. Cependant, les volailles, les chiens et le bétail du village n'osèrent plus quitter leurs enclos pendant un mois. Toute la journée, leurs corps tremblaient violemment, comme s'ils étaient traumatisés.
 
 Pays de Chu.
 
@@ -118,7 +118,7 @@ Wang Lin observa les alentours une dernière fois avant de laisser échapper un 
 
 Tie Yan était trempé de sueur. Il rangea soigneusement le sac de rangement et retourna à la Secte du Ciel Nuageux.
 
-Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yue, là où les vents glacés pouvaient glacer jusqu'aux os.
+Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yue, là où les vents glacés pouvaient glacer jusqu'aux os et arrêter tout être vivant.
 
 On ne savait quand, mais un champ de roses y avait poussé; cependant, ces roses n'étaient pas rouges, mais blanches.
 
@@ -160,7 +160,7 @@ Après trois jours, le jeune homme finit par bouger. Il s'agenouilla lentement e
 
 À cet instant, une foule immense attendait devant le temple.
 
-Hommes et femmes, jeunes et vieux; tous portaient des vêtements luxueux et semblaient bénis. On y trouvait même quelques cultivateurs qui, bien que de niveau modeste, dégageaient une aura héroïque.
+Hommes et femmes, jeunes et vieux; tous portaient des vêtements luxueux et semblaient bénis. On y trouvait même quelques cultivateurs qui, bien que de niveau modeste, dégageaient une allure remarquable.
 
 L'homme en tête était Wang Zhuo!
 

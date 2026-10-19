@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 1018 - Nirvana (2)
 slug: nirvana-2
 ---
-Après avoir clamé « Voler le mérite des cieux », bien que l'énergie originelle qu'il avait invoquée de l'extérieur fût bloquée, sa propre énergie originelle se mêla à son pouvoir de Dieu Ancien et pénétra dans sa main.
+Après avoir clamé « Voler le mérite des cieux », bien que l'énergie originelle qu'il avait invoquée de l'extérieur fût bloquée, sa propre énergie originelle se mêla à son pouvoir de Dieu Ancien et s'échappa par ses mains.
 
 À l'instant même où son énergie originelle s'échappa, une ligne blanche apparut au sein du sceau formé par les mains de Wang Lin!
 
@@ -18,13 +18,13 @@ Cette rune surpassait tout ce que possédait le Clan du Tatouage. Sa complexité
 
 « Unir le clan antique, pensée éternelle! » Dès que Wang Lin prononça la dernière phrase, la rune de diamant libéra un éclat noir et blanc et commença à flotter lentement vers l'avant!
 
-En flottant, la rune continua de s'étendre jusqu'à culminer à plus de 10 000 pieds de hauteur. Telle un mur atteignant les cieux, elle poursuivit sa progression.
+En flottant, la rune continua de s'étendre jusqu'à culminer à près de 10 000 pieds de hauteur. Telle un mur atteignant les cieux, elle poursuivit sa progression.
 
 Des grondements retentirent et le ciel sombre fut repoussé; même le sable noir au sol fut balayé! C'était comme si l'existence même du sable était en train d'être effacée!
 
 La gigantesque rune de diamant était visible depuis n'importe quel point du monde! En avançant, tout ce qui se dressait sur son passage était détruit!
 
-Wang Lin afficha une expression de fatigue. Il n'était pas aisé pour lui d'utiliser un tel sort avec son pouvoir de Dieu Ancien actuel, raison pour laquelle il ne s'en était jamais servi auparavant. Sans le fait que cette bataille déterminerait sa liberté, il ne l'aurait jamais utilisé.
+Wang Lin afficha une expression de fatigue. Il n'était pas aisé pour lui d'utiliser un tel sort avec son pouvoir de Dieu Ancien actuel, raison pour laquelle il ne s'en était jamais servi auparavant. Sans le fait que cette bataille déterminerait sa liberté, il ne l'aurait pas utilisé à la légère.
 
 Bien que l'homme nommé Ming Hai fût aussi puissant qu'un cultivateur du Purificateur du Nirvana, les sorts et les trésors qu'il employait étaient capables de faire trembler le ciel.
 
@@ -32,7 +32,7 @@ Alors que les grondements résonnaient, la petite épée blanche fut repoussée 
 
 Ming Hai, qui retournait vers la tour, tressaillit et se retourna. En voyant la rune de diamant s'approcher lentement, ses yeux brillèrent intensément.
 
-« Peu importe que ton identité soit celle d'un Dieu Ancien ou d'un cultivateur de Qi. Être capable de déployer un tel sort signifie que tu es qualifié pour contempler la véritable forme de l'épée offerte par l'Empereur Céleste. »
+« Peu importe que ton identité soit celle d'un Dieu Ancien ou d'un cultivateur de Qi. Être capable de déployer un tel sort signifie que tu es qualifié pour contempler la puissance ancestrale de l'épée offerte par l'Empereur Céleste. »
 
 Tout en parlant, l'homme pointa le doigt vers l'avant. La petite épée blanche qui avait été repoussée trembla et libéra une énergie d'épée capable de percer les cieux!
 
@@ -58,7 +58,7 @@ L'intention d'épée ancestrale et les innombrables ombres formées par la petit
 
 De plus, cette petite épée blanche ne possédait qu'une fraction de l'intention d'épée ancestrale complète. Par conséquent, elle fut incapable de résister!
 
-Les yeux de Ming Hai brillèrent d'une lueur étrange tandis qu'il souriait en fixant la rune et Wang Lin, qui se trouvait derrière elle. Il rit: « Bien. Je ne m'attendais pas à voir un tel sort au crépuscule de ma vie. Je vais répondre à l'une de tes questions! Je pense que ce que tu veux le plus savoir est comment quitter cet endroit! »
+Les yeux de Ming Hai brillèrent d'une lueur étrange tandis qu'il souriait en fixant la rune et Wang Lin, qui se trouvait derrière elle. Il rit: « Bien. Je ne m'attendais pas à voir un tel sort au crépuscule de ma vie. Je vais répondre à l'une de tes questions! Je pense que ce que tu veux le plus savoir, c'est ce qu'est réellement cet endroit! »
 
 « Ceci est la première couche de la grotte céleste, le Monde de la Bouteille! C'est ici que l'Empereur Céleste collecte l'énergie spirituelle céleste pour former des esprits célestes. On l'appelle le Monde de la Bouteille car ce monde entier se trouve dans une bouteille! Cette bouteille était l'un des trésors que l'Empereur Céleste avait raffinés durant ses premières années! »
 
@@ -111,7 +111,7 @@ L'onde de chaleur dense et les gaz noirs firent vaciller l'esprit de Wang Lin!
 
 Ces flammes étaient de neuf couleurs. Elles descendirent et commencèrent à encercler la rune. À mesure qu'elles s'intensifiaient, le sol lui-même commença à brûler. C'était comme si le désert de sable noir s'était transformé en un enfer de feu désireux de dévorer Wang Lin et la rune!
 
-Wang Lin avait déjà perdu trop d'énergie originelle. Son visage était livide alors qu'il trônait sur la rune de diamant. Mais sous l'impact des flammes, du ciel en combustion et des flammes descendantes, la rune sous lui vola en éclats!
+Wang Lin avait déjà perdu trop d'énergie originelle. Son visage était livide alors qu'il était assis en tailleur sur la rune de diamant. Mais sous l'impact des flammes, du ciel en combustion et des flammes descendantes, la rune sous lui vola en éclats!
 
 Alors qu'elle s'effondrait, les yeux de Wang Lin s'illuminèrent et il déploya ses bras. L'énergie originelle restante dans son corps fut projetée sans ménagement pour créer une onde de choc. Cette déflagration dispersa les fragments de la rune de diamant dans toutes les directions!
 

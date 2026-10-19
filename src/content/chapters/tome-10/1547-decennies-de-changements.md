@@ -40,7 +40,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Les cinq Royaumes aux Sept Couleurs devinrent autant de portails vers le Royaume Intérieur, permettant aux cultivateurs du Royaume Extérieur de pénétrer chez nous. Utilisant ces Royaumes comme bases, ils purent envahir le Royaume Intérieur... Les pertes furent lourdes...
 
-« Lors de la seconde bataille, Senior Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière Invoquée, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
+« Lors de la seconde bataille, Senior Maître Hong Shan fut scellé par ce garçon au regard glacial, allié à d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière Invoquée, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
 
 « Senior Maître Nan Yunzi fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
 
@@ -50,7 +50,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Les cultivateurs du Royaume Extérieur entrés dans le Royaume Intérieur furent divisés en cinq armées stationnées dans les cinq Royaumes aux Sept Couleurs. Ils sont comme cinq clous plantés dans notre Royaume Intérieur que l'on ne peut arracher...
 
-« La bataille s'est apaisée pendant un certain temps. Le Royaume Extérieur aura besoin de temps pour briser la lumière antique. Après cela, tous les cultivateurs de la troisième étape se sont reposés, puis ont rassemblé les forces restantes pour lancer la troisième bataille. L'objectif était de pulvériser les cinq Royaumes aux Sept Couleurs...
+« La bataille s'est apaisée pendant un certain temps. Le Royaume Extérieur aura besoin de temps pour briser la lumière antique. Après cela, tous les cultivateurs de la troisième étape du Royaume Intérieur se sont reposés, puis ont rassemblé les forces restantes pour lancer la troisième bataille. L'objectif était de pulvériser les cinq Royaumes aux Sept Couleurs...
 
 « Mais finalement, nous n'avons réussi à en détruire que trois, et les deux camps subirent de lourdes pertes. Plusieurs cultivateurs de la troisième étape du Royaume Extérieur furent tués ou gravement blessés, mais il en fut de même pour nous. L'Empereur Céleste Qing Lin fut gravement blessé, deux membres de la Rivière Invoquée périrent, et les autres furent tous contraints à une culture fermée pour guérir.
 
@@ -96,6 +96,6 @@ Une intention meurtrière brilla dans les yeux de Maître Yan Leizi et il hocha 
 
 Cette lumière dorée lui inspirait une telle crainte qu'il ressentait presque le besoin de l'adorer.
 
-Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un cultivateur de la troisième étape au début du Vide Spirituel! Il reste une grande quantité de restrictions et de trésors dans l'Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
+Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un cultivateur de la troisième étape au début du Vide Spirituel! Il reste une grande quantité de trésors et de formations laissés par l'ancienne Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
 
 « Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Culture.

@@ -33,7 +33,7 @@ Sur une magnifique falaise située à 50 kilomètres du Pavillon des Nuages Pour
 
 Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrictions, il s'assit et poussa un soupir. Ses yeux brillaient d'une lueur méditative.
 
-« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai même pas passé les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que le Maître m'avait assigné le Pavillon des Nuages Pourpres.
+« L'atmosphère de la Secte du Destin Céleste est étrange. Je n'ai pas entièrement franchi les trois épreuves et pourtant ce Zhao Xingsha m'a appelé "frère junior" en prétendant que le Maître m'avait assigné le Pavillon des Nuages Pourpres.
 
 « Et maintenant, ce pavillon est gardé par une femme qui refuse que quiconque s'en approche...
 
@@ -47,9 +47,9 @@ Le Pavillon des Nuages Pourpres ressemblait à une bête endormie gisant au loin
 
 Le Pavillon des Nuages Pourpres comptait trois étages. Wang Lin apparut au premier étage. Le mobilier environnant était très simple, mais au lieu de paraître ordinaire, il dégageait une sensation de pureté rafraîchissante.
 
-Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques coussins d'assise. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle pendait une épée antique. Tout cela semblait tout à fait banal.
+Après avoir fait le tour, Wang Lin monta au deuxième étage. On y trouvait un lit et quelques coussins d'assise. Une peinture de montagnes et de rivières était accrochée au mur, et à côté d'elle était posée une épée antique. Tout cela semblait tout à fait banal.
 
-La troisième pièce était une chambre secrète dédiée à la culture. Le plafond était fait d'un matériau que Wang Lin n'avait jamais vu auparavant. On aurait dit qu'il n'y avait rien du tout; on pouvait voir le ciel extérieur à travers lui.
+La troisième pièce était une chambre secrète dédiée à la culture. Le plafond était fait d'un matériau que Wang Lin n'avait jamais vu auparavant. On aurait dit qu'il n'y avait rien du tout; on pouvait voir le ciel étoilé à travers lui.
 
 Wang Lin ne trouva rien d'anormal dans ce lieu.
 
@@ -77,7 +77,7 @@ Wang Lin fit un geste de la main droite derrière lui et, dans un fracas retenti
 
 L'homme agressif ricana: « Bien que tu aies détruit la grotte, tu as déjà enfreint les règles de la secte. Suis-nous à la salle principale et on te jugera pour ton crime! »
 
-Wang Lin prit une profonde inspiration, regarda les deux hommes et dit calmement: « Je ne voulais que cultiver en paix sans m'impliquer dans vos complots, mais depuis mon arrivée, je n'ai rencontré que des préjugés. Tant pis! »
+Wang Lin prit une profonde inspiration, regarda les deux hommes et dit calmement: « Je ne voulais que cultiver en paix sans m'impliquer dans vos complots, mais depuis mon arrivée, je n'ai essuyé que du rejet. Tant pis! »
 
 Sur ce, il avança et frappa son sac de rangement. Le Fouet d'Âme apparut soudainement dans sa main et il l'abattit vers les deux hommes tel un dragon.
 
@@ -103,7 +103,7 @@ Juste après l'épée céleste apparut la lame en demi-lune, dont même Wang Lin
 
 Des grondements assourdissants résonnèrent. Les sept fragments de l'épée n'eurent même pas le temps de s'approcher qu'ils furent tous pulvérisés par la pression de l'Épée Céleste. Le rire de Xu Liguo pouvait être entendu depuis l'intérieur de l'arme.
 
-Sans hésiter, l'Ancien fit volte-face pour s'enfuir. Il avait clairement vu ce qui s'était passé: ce n'était pas l'épée céleste qui avait brisé les sept morceaux, mais la lame en demi-lune située juste derrière elle. Cette lame avait frappé sept fois en un clin d'œil, chaque coup atteignant un fragment pour le détruire. Sa vitesse était telle qu'il avait semblé que les sept morceaux se brisaient simultanément.
+Sans hésiter, l'Ancien fit volte-face pour s'enfuir. Il avait clairement vu ce qui s'était passé: ce n'était pas l'épée céleste qui avait brisé les sept morceaux, mais la lame en demi-lune située juste derrière elle. Cette lame avait fait l'aller-retour sept fois en un clin d'œil, chaque coup atteignant un fragment pour le détruire. Sa vitesse était telle qu'il avait semblé que les sept morceaux se brisaient simultanément.
 
 Après avoir constaté cela, comment l'Ancien ne pouvait-il être terrifié? Il maudit intérieurement son sort: s'il avait su, il n'aurait jamais écouté Zhao Xingsha. Mais ses regrets étaient désormais inutiles.
 

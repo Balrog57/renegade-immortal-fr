@@ -82,7 +82,7 @@ Pour la première fois, l'expression du Dieu de Sang changea radicalement!
 
 « Seigneur Céleste Qing Shui! » Le Dieu de Sang retira sa main et recula de quelques pas. En observant le jeune homme approcher, son visage devint sombre.
 
-Qing Shui marchait avec une expression glaciale. Une pointe de fierté émanait de lui lorsqu'il dit calmement: « Oses-tu répéter ces mots devant moi? »
+Qing Shui marchait, les mains dans le dos, avec une expression glaciale. Une pointe de fierté émanait de lui lorsqu'il dit calmement: « Oses-tu répéter ces mots devant moi? »
 
 Tandis qu'il parlait, la lueur rouge à l'intérieur des yeux de Qing Shui était si dense qu'elle semblait en jaillir. Elle portait une aura destructrice qui faisait frissonner quiconque la croisait.
 
@@ -112,7 +112,7 @@ Le corps du Dieu de Sang trembla tandis qu'il se retirait précipitamment. Il fi
 
 « Qing Shui, je te respecte car tu es un Seigneur Céleste, mais ne me pousse pas à bout! Tu as dormi trop longtemps; serais-tu devenu confus? Même si ce Xu Mu a appris l'Invoque le Vent, comment pourrait-il être ton jeune frère apprenti!?! De plus, il a tué plusieurs membres de la troisième génération de la famille Yao, il est donc naturel que je vienne le supprimer. Qing Shui, ce vieil homme n'a pas peur de toi, ne me force pas! »
 
-Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'y aurait aucune chance de réparer le passé.
+Le Dieu de Sang ignorait que Qing Shui éprouvait une immense culpabilité envers son maître. Ce sentiment était profond, mais il n'aurait plus jamais l'occasion de s'en acquitter.
 
 Après son réveil, lorsqu'il vit Wang Lin utiliser l'Invoque le Vent et qu'il recouvra ses souvenirs lors de son combat contre Maître Yan Leizi, une émotion complexe envers Wang Lin s'était développée en lui.
 

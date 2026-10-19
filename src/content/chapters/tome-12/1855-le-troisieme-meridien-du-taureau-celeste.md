@@ -104,7 +104,7 @@ Lorsqu'ils apparurent, le crépuscule tombait. Le soleil doré baignait l'herbe 
 
 Yan Luan et Xu Dongde suivirent son mouvement. Wang Lin réfléchit un instant avant de disparaître lui aussi sous terre.
 
-Les quatre progressèrent rapidement en sous-sol jusqu'à découvrir une immense caverne creusée dans les profondeurs. Plus qu'une grotte, il s'agissait d'un vaste complexe de palais!
+Les quatre progressèrent rapidement en sous-sol jusqu'à découvrir une immense caverne creusée à une profondeur incalculable. Plus qu'une grotte, il s'agissait d'un vaste complexe de palais!
 
 L'ensemble était protégé par plusieurs couches de restrictions. Sans leur statut d'Anciens de la Secte de la Grande Âme et leurs jetons d'accès, pénétrer ici aurait été presque impossible.
 

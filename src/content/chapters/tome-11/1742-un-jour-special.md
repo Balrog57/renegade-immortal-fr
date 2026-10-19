@@ -48,7 +48,7 @@ Ce n'est qu'après une longue absence que le vieil homme Ma se redressa, l'expre
 
 L'environnement était plongé dans un silence de mort. Après un long moment, le vieil homme Ma soupira. Il regarda autour de lui, l'air désolé.
 
-Le vieil homme Ma dit lentement: « Laisse tomber. Le plan que nous attendions n'a plus aucune chance de réussir maintenant... Même si notre victoire était certaine, avec lui ici... nous ne pourrons pas mener cela à bien... »
+Le vieil homme Ma dit lentement: « Laisse tomber. Le plan que nous avons élaboré n'a plus aucune chance de réussir maintenant... Même si notre victoire était certaine, avec lui ici... nous ne pourrons pas mener cela à bien... »
 
 « Wang Lin est venu de la même direction, mais étant donné qu'ils ne sont pas apparus simultanément et d'après l'expression de Wang Lin tout à l'heure, il semble ignorer l'existence du Grand Empyréen Xuan Luo... »
 
@@ -76,11 +76,11 @@ Après un temps indéterminé, Wang Lin ouvrit soudainement les yeux. Une lueur 
 
 Lorsqu'elle réapparut, elle se trouvait à l'extérieur de la rivière argentée entourant le nouveau Royaume Céleste.
 
-Wang Lin se leva et rangea la Bête des Limbes. Il resta là à méditer longuement en flottant. Sa silhouette, illuminée par la rivière argentée, dégageait une profonde solitude; c'était comme si son âme elle-même était empreinte de tristesse.
+Wang Lin se leva et rangea la Bête des Limbes. Il resta là, silencieux pendant longtemps, en flottant. Sa silhouette, illuminée par la rivière argentée, dégageait une profonde solitude; c'était comme si son âme elle-même était empreinte de tristesse.
 
 « Aujourd'hui est un jour spécial... » Wang Lin soupira et fit un pas en avant. Il se changea en un rayon de lumière et plongea dans la rivière argentée, traversant le flux pour pénétrer dans le Royaume Céleste.
 
-Au moment précis où Wang Lin pénétrait dans le Royaume Céleste, le Grand Empyréen Xuan Luo en sortit. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
+Peu après que Wang Lin fut entré dans le Royaume Céleste, le Grand Empyréen Xuan Luo en sortit. Il contempla le royaume avant d'agiter sa manche et de suivre Wang Lin. Sa silhouette était floue et invisible; même si l'on se tenait devant lui, on ne remarquerait pas sa présence.
 
 Cependant, juste au moment où il entrait, Wang Lin s'arrêta brusquement et se retourna. Le regard de Wang Lin était glacial alors qu'il fixait Xuan Luo.
 
@@ -112,4 +112,4 @@ Le sol affichait un vert éclatant, avec des montagnes et des rivières se déco
 
 Wang Lin était revenu dans le Royaume Céleste. Hormis le Maître du Dao Rêve Bleu, personne ne remarqua son retour. Wang Lin apparut devant la montagne qu'il avait utilisée autrefois pour sa culture en isolement.
 
-Levant les yeux vers le ciel, l'expression de Wang Lin s'assombrit progressivement. Son regard se remplit peu à peu de pensées et de mélancolie. Chaque année, en ce jour précis, il cherchait à s'oublier lui-même. La plupart du temps, il s'imposait une activité intense pour ne pas avoir à se souvenir.
+Levant les yeux vers le ciel, l'expression de Wang Lin s'assombrit progressivement. Son regard se remplit peu à peu de pensées et de mélancolie. Chaque année, en ce jour précis, il cherchait à oublier quelque chose. La plupart du temps, il s'imposait une activité intense pour ne pas avoir à se souvenir.

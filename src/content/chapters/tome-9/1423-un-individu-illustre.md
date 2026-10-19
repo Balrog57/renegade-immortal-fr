@@ -46,7 +46,7 @@ Cette pause offrit une opportunité inespérée à Wang Lin!
 
 « Trésor de Dieu Ancien Royal, active-toi! » Ignorant ses blessures, Wang Lin forma un sceau de la main. Le Fourneau de l'Empereur se mit à tourner et une aura antique se propagea!
 
-« Aujourd'hui, je vais t'affiner, toi, cultivateur du troisième niveau! » Wang Lin fit un pas et s'assit au sommet du fourneau. Il posa sa main sur la paroi supérieure et des flammes jaillirent de son œil gauche. Un feu aux neuf couleurs enveloppa rapidement l'engin.
+« Aujourd'hui, je vais t'affiner, toi, cultivateur du troisième niveau! » Wang Lin fit un pas et s'assit au sommet du fourneau. Il posa les deux mains sur la paroi supérieure et des flammes jaillirent de son œil gauche. Un feu aux neuf couleurs enveloppa rapidement l'engin.
 
 Le tatouage du tonnerre apparut dans son œil droit et d'innombrables éclairs pénétrèrent le fourneau. Le feu alimentait le tonnerre, et le tonnerre renforçait le feu, alors que commençait ce processus d'affinage démentiel!
 
@@ -68,7 +68,7 @@ Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit 
 
 « Bien! Il est véritablement digne d'être un Junior de mon clan. Peu importe son succès ou son échec; avoir le courage d'entreprendre cela fait de lui un individu illustre! » Les yeux du vieil Oiseau Vermillon se remplirent de soulagement.
 
-Hormis le Royaume des Flammes Joss, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
+Hormis le Royaume des Flammes Joss, scellé par la Feuille Ancienne, seule subsistait le Fourneau de l'Empereur. Wang Lin, assis au sommet, faisait circuler son énergie originelle et continuait d'alimenter le fourneau avec ses essences de feu et de tonnerre pour entamer son affinage!
 
 Le Fourneau de l'Empereur étant un trésor de Dieu Ancien Royal, sa puissance était capable de briser les cieux. Désormais contrôlé par Wang Lin, lui-même un Dieu Ancien Royal, sa force décuplait!
 
@@ -120,11 +120,11 @@ Tenant la bouteille, Wang Lin mordit le bout de sa langue et cracha son sang de 
 
 Une énergie démoniaque jaillit de la bouteille. Des ombres de démons anciens s'en échappèrent et, après avoir absorbé le sang de Wang Lin, elles se précipitèrent dans le Fourneau de l'Empereur!
 
-À l'intérieur du fourneau, les yeux de Maître Simo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, un peu moins de trois pieds, et portait une empreinte de paume distincte!
+À l'intérieur du fourneau, les yeux de Maître Simo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, un peu moins de trois pieds, d'apparence banale, mais il portait une empreinte de paume distincte!
 
 Cette marque était profondément gravée dans l'os; on pouvait même y distinguer les détails de la main!
 
-« Je vais te montrer comment ce vieil homme va briser ce vulgaire fourneau! » Cet os lui avait été confié par le Souverain, et l'empreinte avait été laissée par... le Souverain lui-même!!
+« Voyons comment ce vieil homme va briser ce vulgaire fourneau! » Cet os lui avait été confié par le Souverain, et l'empreinte avait été laissée par... le Souverain lui-même!!
 
 Il contenait la puissance d'un seul coup de paume du Souverain!
 
@@ -136,6 +136,6 @@ La main droite de Maître Simo trembla et une lutte intérieure se lut dans ses 
 
 « Nous pouvons lui rendre notre culture... Rentrons à la maison... D'accord... »
 
-À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le premier sortilège dao de sa vie, qu'il avait compris dans le Royaume Dao, au sein de la Perle Défiant le Ciel!
+À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le premier sortilège dao de sa vie, qu'il avait créé dans le Royaume Dao, au sein de la Perle Défiant le Ciel!
 
 Le Dao du Rêve!

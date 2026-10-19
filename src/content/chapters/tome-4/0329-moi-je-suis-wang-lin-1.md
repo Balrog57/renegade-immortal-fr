@@ -92,7 +92,7 @@ Finalement, pour échapper à un expert de la Formation de l'Âme, Zhan Bai se r
 
 Nul ne savait comment il avait survécu durant ce siècle, mais lorsqu'il en ressortit, il avait atteint le stade de la Formation de l'Âme. Plus terrifiant encore, il avait apprivoisé d'innombrables insectes venimeux.
 
-Dès son apparition, il s'était frayé un chemin par le massacre jusqu'à la Secte des Démons Insectes. Entouré de sa nuée, même les cultivateurs du stade initial de la Formation de l'Âme mouraient sous ses assauts.
+Dès son apparition, il s'était frayé un chemin par le massacre jusqu'à la Secte des Démons Insectes. Entouré de sa nuée, même certains cultivateurs du stade initial de la Formation de l'Âme périssaient sous ses assauts.
 
 Malgré la présence de maîtres de stade intermédiaire et avancé au sein de sa secte d'origine, il n'avait pas hésité à s'y rendre, témoignant de son arrogance démesurée.
 

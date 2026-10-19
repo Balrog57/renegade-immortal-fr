@@ -6,11 +6,11 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1840 - Extreme Sky Prairie
 slug: la-prairie-de-lextreme-ciel
 ---
-« Toi! » Les pupilles de Yan Lu se rétractèrent. L'apparence de Wang Lin était tout simplement terrifiante. Son corps desséché semblait vidé de tout sang; même si l'on avait ouvert une plaie sur sa peau avec une épée, aucune goutte de sang n'en aurait coulé.
+« Toi! » Les pupilles de Yan Luan se rétractèrent. L'apparence de Wang Lin était tout simplement terrifiante. Son corps desséché semblait vidé de tout sang; même si l'on avait ouvert une plaie sur sa peau avec une épée, aucune goutte de sang n'en aurait coulé.
 
 Ses cheveux étaient si secs qu'ils paraissaient prêts à tomber. Le corps décharné de Wang Lin ne contenait plus la moindre trace d'humidité. Sans la puissance de son âme originelle, il n'aurait pas été différent d'un cadavre.
 
-Sa robe blanche, très ample, semblait envelopper un corps sans vie. L'aura terrifiante qui émanait de Wang Lin fit reculer Yan Lu de plusieurs pas.
+Sa robe blanche, très ample, semblait envelopper un corps sans vie. L'aura terrifiante qui émanait de Wang Lin fit reculer Yan Luan de plusieurs pas.
 
 Il y avait aussi Fan Shanmeng, qui luttait contre la marionnette Yi Si. Lorsqu'elle aperçut véritablement Wang Lin, elle recula également en laissant échapper un halètement, les yeux emplis de terreur.
 
@@ -18,29 +18,29 @@ Il y avait aussi Fan Shanmeng, qui luttait contre la marionnette Yi Si. Lorsqu'e
 
 Alors que la voix rauque de Wang Lin résonnait, la marionnette Yi Si se transforma à nouveau en brume et vola vers lui. Ses yeux féroces et sa langue écarlate complétaient l'apparence actuelle de Wang Lin, lui donnant les traits d'un redoutable cultivateur démoniaque!
 
-« Yan Lu, je suis en méditation de retraite. Pourquoi es-tu venue ici? » Wang Lin ressemblait à un mort après avoir perdu toute l'eau de son corps. Même ses yeux avaient perdu la capacité de bouger librement; il dut donc tourner la tête pour regarder Yan Lu.
+« Yan Luan, je suis en méditation de retraite. Pourquoi es-tu venue ici? » Wang Lin ressemblait à un mort après avoir perdu toute l'eau de son corps. Même ses yeux avaient perdu la capacité de bouger librement; il dut donc tourner la tête pour regarder Yan Luan.
 
-Cependant, ce mouvement n'affaiblit pas son aura; au contraire, il la rendit plus intense encore. Le cœur de Yan Lu trembla et elle recula de quelques pas supplémentaires.
+Cependant, ce mouvement n'affaiblit pas son aura; au contraire, il la rendit plus intense encore. Le cœur de Yan Luan trembla et elle recula de quelques pas supplémentaires.
 
 « Je n'avais pas l'intention de perturber la retraite de l'Ancien Wang. Cependant, Shanmeng était attaquée par votre étrange marionnette, alors je suis venue la sauver. »
 
-« Cette femme est ma servante. L'Ancienne Yan Lu n'a nul besoin de se soucier d'elle pour moi. » Wang Lin sourit, mais son sourire était terrifiant sur ce visage desséché. Fan Shanmeng frissonna et se réfugia derrière son maître.
+« Cette femme est ma servante. L'Ancienne Yan Luan n'a nul besoin de se soucier d'elle pour moi. » Wang Lin sourit, mais son sourire était terrifiant sur ce visage desséché. Fan Shanmeng frissonna et se réfugia derrière son maître.
 
-« Cette affaire n'est pas urgente pour le moment. Ancienne Yan Lu, j'ai une question à vous poser! » Wang Lin tourna la tête et fixa Fan Shanmeng de son regard effrayant avant de s'adresser à nouveau à Yan Lu.
+« Cette affaire n'est pas urgente pour le moment. Ancienne Yan Luan, j'ai une question à vous poser! » Wang Lin tourna la tête et fixa Fan Shanmeng de son regard effrayant avant de s'adresser à nouveau à Yan Luan.
 
-« Je me demande ce que l'Ancien Wang souhaite demander... » L'expression de Yan Lu était solennelle. Elle ressentait une peur viscérale envers Wang Lin.
+« Je me demande ce que l'Ancien Wang souhaite demander... » L'expression de Yan Luan était solennelle. Elle ressentait une peur viscérale envers Wang Lin.
 
 « Je ne connais pas bien le Continent du Taureau Céleste. Connaissez-vous un endroit où l'on trouve beaucoup d'eau... idéalement un océan gigantesque! » dit Wang Lin, sa voix rappelant le frottement de deux os secs.
 
-« De l'eau... Il ne cultive pas un sort, il absorbe l'essence d'eau! » Les yeux de Yan Lu s'illuminèrent; elle avait immédiatement compris. Elle prit une profonde inspiration et, après un instant, répondit: « Entre le Continent du Taureau Céleste et le Continent du Démon Vert se trouve une mer intérieure infinie. Il faut environ neuf mois pour l'atteindre... »
+« De l'eau... Il ne cultive pas un sort, il absorbe l'essence d'eau! » Les yeux de Yan Luan s'illuminèrent; elle avait immédiatement compris. Elle prit une profonde inspiration et, après un instant, répondit: « Entre le Continent du Taureau Céleste et le Continent du Démon Vert se trouve une mer intérieure infinie. Il faut environ neuf mois pour l'atteindre... »
 
 « Comment puis-je m'y rendre? » Une lueur spectrale brilla dans les yeux de Wang Lin.
 
-Sans hésiter, Yan Lu agita la main droite. Un jade apparut et elle y injecta son Sens Divin pour y imprimer une carte menant à cette mer intérieure.
+Sans hésiter, Yan Luan agita la main droite. Un jade apparut et elle y injecta son Sens Divin pour y imprimer une carte menant à cette mer intérieure.
 
-Elle lança le jade vers Wang Lin. Il le rattrapa et, après l'avoir scanné de son Sens Divin, il hocha la tête à Yan Lu.
+Elle lança le jade vers Wang Lin. Il le rattrapa et, après l'avoir scanné de son Sens Divin, il hocha la tête à Yan Luan.
 
-« Ancienne Yan Lu, merci beaucoup! » Sur ces mots, Wang Lin agita sa manche et, sans même accorder un second regard à Fan Shanmeng, se transforma en une masse de brume pour s'envoler.
+« Ancienne Yan Luan, merci beaucoup! » Sur ces mots, Wang Lin agita sa manche et, sans même accorder un second regard à Fan Shanmeng, se transforma en une masse de brume pour s'envoler.
 
 *Rugissement !!*
 
@@ -48,7 +48,7 @@ La marionnette Yi Si suivit Wang Lin et, après avoir fusionné avec la brume, i
 
 Ce n'est que lorsque Wang Lin fut parti que Fan Shanmeng put se détendre. L'image de Wang Lin l'avait terrifiée, et il lui serait difficile de l'oublier.
 
-Yan Lu resta là, pensive, avant de pousser un long soupir. Elle n'avait inséré aucune fausse information dans le jade et avait été parfaitement honnête. Sans plus accorder d'attention à Fan Shanmeng, elle s'envola vers sa grotte.
+Yan Luan resta là, pensive, avant de pousser un long soupir. Elle n'avait inséré aucune fausse information dans le jade et avait été parfaitement honnête. Sans plus accorder d'attention à Fan Shanmeng, elle s'envola vers sa grotte.
 
 Quant à Wang Lin, après avoir quitté la Secte de la Grande Âme, il fit un pas et des ondulations résonnèrent dans l'espace avant qu'il ne disparaisse. Il se fondit dans le monde et partit sans laisser de trace.
 
@@ -56,7 +56,7 @@ Dans une rare prairie du Continent du Taureau Céleste, à cent mille kilomètre
 
 La raison pour laquelle tant de cultivateurs marginaux vivaient ici était la densité de l'énergie céleste émanant de l'herbe. Bien qu'elle ne puisse rivaliser avec celle de certaines montagnes, elle n'en demeurait pas moins puissante.
 
-« La Prairie de l'Extrême Ciel... Selon le jade de Yan Lu, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent du Démon Vert... » Wang Lin réfléchit tout en s'élançant rapidement.
+« La Prairie de l'Extrême Ciel... Selon le jade de Yan Luan, une fois arrivé ici, il faudra encore six mois pour atteindre la mer intérieure qui relie au Continent du Démon Vert... » Wang Lin réfléchit tout en s'élançant rapidement.
 
 Sur le Continent Astral Immortel, même en ayant compris cette technique grâce à la puissance de son avatar, il ne pouvait pas utiliser la Courbure Spatiale de manière répétée sur de très longues distances. Sur de courtes distances, comme lorsqu'il s'était éloigné de la Montagne Céleste, cela ne posait aucun problème, mais là, il venait de traverser près de trois mois de voyage en un instant; il lui faudrait donc du temps avant de pouvoir l'utiliser à nouveau.
 
@@ -68,7 +68,7 @@ Tandis que la bête moustique fonçait vers l'avant, ses rugissements attirèren
 
 Cependant, quelques Sens Divins continuèrent de suivre Wang Lin, comme s'ils nourrissaient d'autres intentions.
 
-La prairie était sans fin et la bête moustique de Wang Lin s'éloignait de plus en plus. La plupart des traqueurs se dispersèrent, mais trois restèrent obstinément sur ses traces.
+La prairie était sans fin. Au bout de trois jours, la bête moustique de Wang Lin s'était déjà beaucoup éloignée, et la plupart des traqueurs se dispersèrent, mais trois restèrent obstinément sur ses traces.
 
 Parmi ces trois Sens Divins, deux appartenaient à des cultivateurs au stade intermédiaire de l'Arcane Vide, tandis que le dernier n'était qu'au stade avancé du Spirituel Vide. Leurs puissances suffisaient à dissuader les autres de les suivre.
 
@@ -112,6 +112,6 @@ La scène était saisissante. Le brasier reliait le ciel à la terre, dévorant 
 
 « Maître, sauvez-moi!! »
 
-À l'instant même où il cria, les prairies tremblèrent et un rugissement sourd ébranla la terre.
+À l'instant même où il cria, les prairies tremblèrent et une voix sourde résonna depuis la terre.
 
 « Arrête! »

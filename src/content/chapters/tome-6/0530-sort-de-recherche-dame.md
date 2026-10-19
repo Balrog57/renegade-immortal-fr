@@ -26,7 +26,7 @@ Alors qu'elle s'approchait, la bête spirituelle marqua soudain un arrêt, laiss
 
 Wang Lin comprit soudainement quelque chose et la froideur dans son regard s'évanouit. Il adressa un signe de tête à la bête, qui le regarda avant de bondir sur lui. Elle ne l'attaqua pas, mais l'enveloppa pour le projeter en l'air. Puis, se déplaçant comme l'éclair, elle apparut sous les pieds de Wang Lin avant de l'emporter à une vitesse effrayante.
 
-Wang Lin réprimait la joie qui montait en lui; c'était la première fois que la bête spirituelle le portait de son plein gré. Le céleste qui avait créé le char de guerre avait consigné dans le jade que ce trésor était unique. Bien que le mantra fût extrêmement puissant, si l'on n'obtenait pas la reconnaissance de la bête, seule une fraction de sa véritable puissance pouvait être exploitée.
+Wang Lin réprimait la joie qui montait en lui; c'était la première fois que la bête spirituelle le portait de son plein gré. Le céleste qui avait créé le char de guerre avait consigné dans le jade que ce trésor était unique. Bien que le mantra fût d'une grande souplesse, si l'on n'obtenait pas la reconnaissance de la bête, seule une fraction de sa véritable puissance pouvait être exploitée.
 
 Ce n'est qu'après avoir été véritablement reconnu par la créature que la pleine puissance du char de guerre pourrait être libérée.
 
@@ -44,11 +44,11 @@ L'âme originelle trembla soudainement. Elle ne put s'empêcher de marquer un te
 
 Portée par cette idée, la bête redoubla d'efforts. Elle ouvrit la gueule, laissant s'échapper une odeur fétide. C'était un souffle d'âme qui fit instantanément se raidir l'âme originelle de l'homme à la robe noire. S'il s'était agi d'une Âme Naissante, elle aurait déjà perdu toute capacité de résistance.
 
-Cependant, l'âme de cet homme n'était pas une Âme Naissante, mais une âme originelle. C'était celle d'un être puissant, situé au stade avancé de la Transformation de l'Âme et prêt à franchir le stade de l'Ascendant.
+Cependant, l'âme de cet homme n'était pas une Âme Naissante, mais une âme originelle. C'était celle d'un être puissant, situé au sommet du stade avancé de la Transformation de l'Âme et prêt à franchir le stade de l'Ascendant.
 
 Par conséquent, bien que ce souffle fût efficace, il ne put le figer totalement. L'âme bougea selon un angle impossible et parvint à échapper aux mâchoires de la bête, au prix d'un usage de son essence qui risquait d'endommager définitivement son âme originelle pour s'échapper.
 
-Mais à cet instant précis, Wang Lin agit; pourtant, ce ne fut pas son corps qu'il déplaça, mais le Fouet des Âmes.
+Mais à cet instant précis, Wang Lin agit; pourtant, ce ne fut pas son corps qu'il déplaça, mais le Fouet de l'Âme.
 
 Le fouet fendit l'air comme une ombre et s'enroula promptement autour de l'âme originelle de l'homme à la robe noire. Wang Lin ramena l'âme vers lui et la scella dans un étendard d'âme.
 
@@ -84,13 +84,13 @@ Il savait qu'il avait été capturé et qu'il n'avait aucune chance de survie. A
 
 Wang Lin ne perdit pas de temps et demanda directement: « Qu'est-ce que le cristal démoniaque? »
 
-L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rivaliser avec toi en sorts, puis tu profites de mon impuissance pour m'attaquer par surprise. Est-ce là la manière d'agir de la Secte du Destin Céleste? »
+L'âme originelle ricana: « Homme sans vergogne. D'abord, tu me forces à rivaliser avec toi en sorts, puis tu profites du moment où je déploie toute ma force pour m'attaquer par surprise. Est-ce là la manière d'agir de la Secte du Destin Céleste? »
 
 Wang Lin fronça les sourcils et serra le poing droit. L'âme poussa une série de cris déchirants et s'affaiblit, mais le regard de l'homme restait venimeux.
 
 L'âme ricana de nouveau en fixant Wang Lin: « Moi, Lou Yun, suis un disciple de la Secte du Fantôme Céleste. Je cultive la voie du fantôme céleste et possède naturellement mon propre esprit fantomatique. Si tu me tues, mon maître, le Daoïste Fantôme, le saura et se vengera! C'est un être avec qui même l'Omniscient discute d'égal à égal! Wang Lin, as-tu bien réfléchi aux conséquences!?!? »
 
-Wang Lin le regarda froidement. Perdant patience, il leva la main droite et frappa l'âme originelle. Cette dernière, ayant déjà perdu son corps, faillit s'effondrer sous la violence du coup.
+Wang Lin le regarda froidement. Perdant patience, il leva la main gauche et frappa l'âme originelle. Cette dernière, ayant déjà perdu son corps, faillit s'effondrer sous la violence du coup.
 
 « Mon maître ne te pardonnera pas! » La férocité dans les yeux de Lou Yun atteignit son paroxysme.
 

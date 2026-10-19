@@ -60,7 +60,7 @@ Un fracas tonitruant retentit; l'adversaire marqua un temps d'arrêt avant d'êt
 
 Armé de cette lame de sang, Wang Lin frappa impitoyablement tout en poursuivant sa course!
 
-L'expression de l'adversaire changea radicalement lorsqu'il vit l'épée de sang. Il cracha une carapace de tortue pour se protéger.
+L'expression de l'adversaire changea radicalement lorsqu'il vit l'épée de sang. Il forma des sceaux avec ses doigts et cracha une carapace de tortue pour se protéger.
 
 À l'instant où la carapace apparut, l'épée de sang s'abattit sur elle dans un choc violent.
 
@@ -68,7 +68,7 @@ Un grondement assourdissant retentit, mais la carapace fut incapable d'arrêter 
 
 Le corps de l'individu chancela et du sang s'écoula du coin de sa bouche. Il recula une fois de plus, puis agita violemment la main. L'énergie originelle commença à converger avec frénésie.
 
-Sa voix résonna soudainement: « Chen, Empereur, Dipper, Immortel, Explosion! Empreinte de l'Esprit Guerrier! » Cinq runes apparurent brusquement, fusionnant pour former une empreinte de paume gigantesque!
+Sa voix résonna soudainement: « Chen, Empereur, Grande Ourse, Immortel, Explosion! Empreinte de l'Esprit Guerrier! » Cinq runes apparurent brusquement, fusionnant pour former une empreinte de paume gigantesque!
 
 Il s'agissait de l'Empreinte de l'Esprit Guerrier, la véritable Empreinte de l'Esprit Guerrier. Dès son apparition, l'énergie originelle du monde se condensa rapidement pour devenir solide. Elle fonça vers le front de Wang Lin avec une force inimaginable!
 
@@ -112,4 +112,4 @@ Le vieil homme fixa l'endroit où Wang Lin avait disparu, son expression changea
 
 « Ceci... ceci est... un Sortilège du Dao!!! » Le visage de l'homme devint livide. Il se sentit chanceux: si ce n'était pas pour sa bonne intention en offrant ce jade, l'autre ne lui aurait jamais révélé cela. S'il avait seulement remarqué que son intention du Dao était endommagée, il serait simplement entré en méditation pour guérir. Mais lors des cinq dernières heures du troisième jour, il aurait été pris au dépourvu. S'il ne mourait pas, il en sortirait gravement blessé.
 
-« Cet homme pourrait réellement sauver Li Qianmei. Même avec ma deuxième culture du Fléau Céleste, je ne suis pas certain de pouvoir l'emporter, et j'ai été secrètement blessé par lui. Le plus terrifiant est qu'il porte encore un sceau sur lui. S'il libère ce sceau... » Les yeux du vieil homme devinrent graves alors qu'il regardait vers la faille spatiale. Puis il fit demi-tour pour retourner sur la planète de culture et entra immédiatement en méditation isolée.
+« Cet homme pourrait réellement sauver Li Qianmei. Même avec mon deuxième Fléau Céleste, je ne suis pas certain de pouvoir l'emporter, et j'ai été secrètement blessé par lui. Le plus terrifiant est qu'il porte encore un sceau sur lui. S'il libère ce sceau... » Les yeux du vieil homme devinrent graves alors qu'il regardait vers la faille spatiale. Puis il fit demi-tour pour retourner sur la planète de culture et entra immédiatement en méditation isolée.

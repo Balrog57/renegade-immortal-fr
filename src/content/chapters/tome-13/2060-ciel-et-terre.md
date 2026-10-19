@@ -24,9 +24,9 @@ Même au sein des cités impériales du Dao Antique et de Ji Antique, les regard
 
 « Salutations, Empereur! » Un autre son tonitruant retentit dans tout le palais. Tous les sujets tombèrent à genoux; seul le père de Ji Du resta debout à l'intérieur du palais pour contempler son fils.
 
-Dès que l'encens fut allumé, une fumée verte s'éleva dans les airs et le ciel changea de teinte. Les nuages se dispersèrent sous un grondement sourd provenant des hauteurs. Une immense déchirure s'ouvrit dans la voûte céleste, laissant échapper des échos de tonnerre.
+Dès que l'encens fut allumé, une fumée verte s'éleva dans les airs et le ciel changea de teinte. Les nuages se dispersèrent sous un grondement sourd provenant des hauteurs. Une immense déchirure s'ouvrit dans la voûte céleste, laissant échapper des rugissements.
 
-Un géant, un dieu antique de près de 100 000 pieds de haut, apparut; à ses côtés se trouvaient un démon et un diable antiques. Ils portaient un tambour colossal alors qu'ils émergeaient du ciel pour flotter dans les airs.
+Un géant, un dieu antique de plusieurs dizaines de milliers de pieds de haut, apparut; à ses côtés se trouvaient un démon et un diable antiques. Ils portaient un tambour colossal alors qu'ils émergeaient du ciel pour flotter dans les airs.
 
 Le corps de Ji Du trembla et il s'élança dans les airs. Lorsqu'il fut à la hauteur du tambour de guerre, il n'hésita pas une seconde et lui asséna un coup de poing.
 
@@ -84,7 +84,7 @@ La voix pénétra les oreilles de Wang Lin et lui infligea une douleur fulgurant
 
 « Si les écritures sont ainsi, pourquoi ne pas y mettre fin?! »
 
-« Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour endormir la terre, pour faire refluer le fleuve des enfers, pour arrêter la réincarnation et pour faire en sorte que le monde... n'existe plus du tout!!! »
+« Puisqu'il en est ainsi, je vais, à ma manière, faire fermer les yeux au ciel azuré, endormir la terre, faire refluer le fleuve des enfers, arrêter la réincarnation, et faire que le firmament soit désormais... sans pensée!!! »
 
 La voix était empreinte d'une volonté terrifiante qui se propageait dans toutes les directions. Le cœur de Wang Lin trembla et son corps commença à se désintégrer rapidement, comme s'il était expulsé de cet endroit.
 

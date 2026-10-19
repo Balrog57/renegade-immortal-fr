@@ -20,9 +20,9 @@ Wang Lin sourit. « Frère Sun est plein d'humour! »
 
 Quant à la jeune fille vêtue de rose, son regard vacilla en fixant Wang Lin, laissant paraître une pointe de surprise.
 
-Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Rounan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple central de l'Omniscient, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
+Sun Yunshan pointa la jeune fille du doigt et déclara: « Frère Wang, voici ma petite sœur, Sun Ruonan! » Puis, lui lançant un regard sévère, il s'exclama: « C'est le disciple central de l'Omniscient, Wang Lin. Pourquoi ne l'as-tu pas encore salué?! »
 
-Sun Rounan fronça le nez et salua Wang Lin d'une voix mélodieuse, pareille au chant d'un oiseau: « Rounan salue le grand frère Wang! »
+Sun Rounan fronça le nez et salua Wang Lin d'une voix mélodieuse, pareille au chant d'un oiseau: « Ruonan salue le grand frère Wang! »
 
 Wang Lin sourit et hocha la tête. Il ne lui accorda pas un second regard avant que son attention ne se porte sur la matrice de transfert.
 
@@ -64,7 +64,7 @@ Il ne restait que trois jours avant l'ouverture!
 
 Le nombre de cultivateurs environnants avait atteint un seuil effrayant; on comptait au moins 10 000 personnes. Cependant, tous n'avaient pas l'intention d'entrer. En réalité, la majorité était venue simplement pour assister à la phase de marée.
 
-Après tout, ce phénomène ne se produisait qu'une fois tous les 5 000 ans, ce qui représentait une vie entière pour certains cultivateurs.
+Après tout, ce phénomène ne se produisait qu'une fois tous les 5 000 ans, ce qui représentait une vie entière, voire l'éternité, pour certains cultivateurs.
 
 Si l'on n'est pas capable d'atteindre le stade Yin et Yang et de franchir la première étape, on ne peut espérer vivre 5 000 ans.
 
@@ -102,7 +102,7 @@ Tous les habitants de la planète Tian Yun savaient que le Saint de l'Épée Lin
 
 Bien que l'Omniscient ait toujours eu une longueur d'avance, le Saint de l'Épée ne s'était jamais découragé et n'avait jamais cessé de progresser.
 
-L'Omniscient possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Lou!
+L'Omniscient possédait les Sept Disciples du Destin Céleste, tandis qu'il avait formé les Douze Épées de la Secte de l'Épée Da Luo!
 
 Les Sept Disciples du Destin Céleste détenaient des héritages de sorts célestes, alors que les Douze Épées étaient protégées par des esprits de bêtes démoniaques.
 
@@ -140,4 +140,4 @@ Pour échapper à Situ Nan, il s'était réfugié ici afin de retrouver son viei
 
 « Comment as-tu pu être si gravement blessé? » Le Saint de l'Épée vit immédiatement que les blessures de Cupidité n'étaient pas encore cicatrisées.
 
-Les yeux de Cupidité brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Lou pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de l'Omniscient! »
+Les yeux de Cupidité brillaient d'une lueur spectrale lorsqu'il répondit lentement: « C'est une longue histoire. Je suis allé à la Secte de l'Épée Da Luo pour te chercher. Quand j'ai appris que tu étais ici, je me suis précipité, car je voulais t'offrir une opportunité inouïe! Si nous nous alliions, tu pourras enfin surpasser ce vieux fou de l'Omniscient! »

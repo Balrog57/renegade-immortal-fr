@@ -16,7 +16,7 @@ Wang Lin joignit les mains devant l'Oiseau Vermillon. Ce dernier était égaleme
 
 Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le junior Wang Lin salue le premier Oiseau Vermillon. »
 
-L'Oiseau Vermillon, vêtu de rouge, afficha une expression complexe en regardant Wang Lin, plongé dans une profonde réflexion.
+L'Oiseau Vermillon, vêtu de rouge, afficha une expression complexe en regardant Wang Lin, et resta silencieux.
 
 Wang Lin reprit calmement: « Une chose me laisse perplexe. Quel est votre lien avec celui de la Terre Déchue? »
 
@@ -34,13 +34,13 @@ Le visage du Général Tigre Blanc se crispa, mais il resta silencieux.
 
 « Je fais abstraction de ce qui se passe dans la Terre Déchue. Aujourd'hui, je suis venu pour conclure un accord avec vous, Senior », déclara calmement Wang Lin.
 
-« L'Ancien Royaume Céleste, ou ce que l'on appelle le cœur de la grotte du Souverain Céleste aux Sept Couleurs, abrite les disciples blessés de la Secte des Sept Dao. Ce sont eux, les soi-disant cieux, les cultivateurs de l'Ancien Royaume Céleste.
+« L'Ancien Royaume Céleste, ou ce que l'on appelle le cœur de la grotte du Souverain Céleste aux Sept Couleurs, abrite les disciples blessés de la Secte des Sept Dao. Ce sont eux, les soi-disant Célestes, les cultivateurs de l'Ancien Royaume Céleste.
 
 « Si je décidais de déployer toute ma puissance, quelles seraient mes chances, selon vous, de tuer tout le monde ici avant qu'ils ne guérissent et de transformer cet Ancien Royaume Céleste en un royaume mort? » Les paroles de Wang Lin étaient posées, mais elles firent froncer les sourcils des quatre généraux.
 
 Sans l'Arc de Li Guang, les quatre généraux n'auraient pas cru Wang Lin, mais après avoir vu l'arme, une pression invisible pesait sur leurs cœurs.
 
-« L'Arc de Li Guang est une arme extrêmement puissante du Continent Astral Immortel. Cet arc n'est pas aisé à manier. J'ignore d'où vous avez tiré cette goutte de sang céleste, mais même si vous pouvez utiliser l'arc grâce à elle, cela perturbera l'énergie céleste contenue dans ce sang à chaque fois que vous tirerez. Vous n'êtes pas un être céleste, vous ne pourrez donc pas reconstituer la force de cette goutte. Combien de flèches pourrez-vous tirer? » Ce n'était pas l'Oiseau Vermillon qui parlait, mais le Dragon Azure. En observant Wang Lin, ses yeux brillaient d'une intensité vive.
+« L'Arc de Li Guang est une arme extrêmement puissante du Continent Astral Immortel. Cet arc n'est pas aisé à manier. J'ignore d'où vous avez tiré cette goutte de sang céleste, mais même si vous pouvez utiliser l'arc grâce à elle, chaque flèche consumera l'énergie céleste contenue dans ce sang. Vous n'êtes pas un être céleste, vous ne pourrez donc pas reconstituer la force de cette goutte. Combien de flèches pourrez-vous tirer? » Ce n'était pas l'Oiseau Vermillon qui parlait, mais le Dragon Azure. En observant Wang Lin, ses yeux brillaient d'une intensité vive.
 
 « Trois flèches me suffiraient pour détruire cet endroit! Et ce, malgré les innombrables statues qui vous entourent et ce temple étrange niché dans les profondeurs! Si je ne m'abuse, ce temple est la sortie de cette grotte, une issue censée être totalement scellée et inviolable. Il s'y trouve de nombreuses créatures étranges, et c'est probablement le lieu le plus puissant de l'Ancien Royaume Céleste.
 
@@ -52,7 +52,7 @@ La Tortue Noire, qui était restée muette jusqu'alors, médita un instant avant
 
 « Le fait que cet endroit soit une grotte ou vos plans respectifs m'importent peu. Je sais seulement que je suis né dans le Royaume Intérieur, et que celui-ci est en guerre contre le Royaume Extérieur. Le Royaume Intérieur manque de puissance pour affronter le Royaume Extérieur, et même avec l'Arc de Li Guang, je ne pourrais pas exterminer tous les cultivateurs du Royaume Extérieur.
 
-« Vous êtes les anciens cieux de l'Ancien Royaume Céleste. Je veux que vous quittiez cet endroit, que vous vous frayiez un chemin vers le Royaume Extérieur par le massacre et que vous mettiez fin à la guerre! » Les yeux de Wang Lin s'illuminèrent en parlant.
+« Vous êtes les anciens Célestes de l'Ancien Royaume Céleste. Je veux que vous quittiez cet endroit, que vous vous frayiez un chemin vers le Royaume Extérieur par le massacre et que vous mettiez fin à la guerre! » Les yeux de Wang Lin s'illuminèrent en parlant.
 
 L'Oiseau Vermillon réfléchit et murmura: « Le Royaume Extérieur possède également son propre Ancien Royaume Céleste... On y trouve des membres de la Secte des Sept Dao qui servent les concubines impériales célestes, et ils ne sont pas aussi blessés que vous. S'ils n'en sont pas sortis ces dernières années, c'est parce que bien que l'Ancien Royaume Céleste soit divisé en deux, un lien profond les unit toujours. Si nous ouvrions la porte pour quitter l'Ancien Royaume Céleste, ils pourraient également en sortir. À ce moment-là, la guerre entre les Royaumes Intérieur et Extérieur s'intensifierait. Cela pourrait même détruire cette grotte! »
 
@@ -78,7 +78,7 @@ Les quatre généraux méditèrent en silence. Wang Lin avait promis de détruir
 
 L'Oiseau Vermillon regarda Wang Lin et demanda: « Que voulez-vous obtenir en retour de cet accord? »
 
-« Je veux l'anéantissement du Royaume Extérieur!
+« Je veux que les cultivateurs du Royaume Extérieur soient anéantis jusqu'au dernier!
 
 « Je veux qu'aucun cultivateur du Royaume Intérieur ne meure après votre départ!
 
@@ -86,7 +86,7 @@ L'Oiseau Vermillon regarda Wang Lin et demanda: « Que voulez-vous obtenir en re
 
 « Ma dernière requête est qu'une fois tout cela terminé, je puisse me rendre sur le Continent Astral Immortel! Et là-bas, vous me fournirez toutes les ressources dont j'ai besoin! » Wang Lin tapota son front de sa main droite. Un filet de son Sens Divin s'en échappa et se condensa dans sa paume en un fil de fumée semblable à du duvet de saule.
 
-« Si vous acceptez, utilisez vos Sens Divins pour sceller un vœu Dao. Si vous rompez ce vœu, vous mourrez! Si vous refusez, je sortirai l'Arc de Li Guang et je détruirai cet Ancien Royaume Céleste! » Les paroles de Wang Lin étaient inflexibles. Il ne laissait aucune place à l'hésitation.
+« Si vous acceptez, utilisez vos Sens Divins pour sceller un vœu Dao. Si vous rompez ce vœu, votre Dao s'éteindra et votre être se dissipera! Si vous refusez, je sortirai l'Arc de Li Guang et je détruirai cet Ancien Royaume Céleste! » Les paroles de Wang Lin étaient inflexibles. Il ne laissait aucune place à l'hésitation.
 
 Les quatre méditèrent en silence en échangeant des regards. L'hésitation s'installa; ils ne pouvaient accepter immédiatement, car les troisième et quatrième conditions étaient extrêmement ardues.
 

@@ -85,14 +85,14 @@ Il lança un dernier regard profond à Wang Lin avant de se détourner. Il march
 À l'âge de 6 215 ans, on me remit la Marque de l'Oiseau Vermillon et j'atteignis mon premier éveil. Je surpassai tous les autres éveillés pour devenir le premier d'entre eux.
 À l'âge de 7 912 ans, avec l'aide du quatrième Empereur Divin, je terminai mon second éveil. Dès lors, je fus choisi pour être le prochain Empereur Divin, le jeune seigneur de la Secte!
 
-À l'âge de 11 463 ans, le Clan du Tatouage envahit le monde extérieur et sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir mon deuxième Fléau Céleste grâce à son aide.
+À l'âge de 11 463 ans, le Clan du Tatouage, venu du monde extérieur, sema le chaos. Notre Secte aida le Royaume Céleste à combattre ce clan! Par la suite, le quatrième Empereur Divin partit avec les trois autres vers le monde extérieur. Avant leur départ, je fus désigné cinquième Empereur Divin! À cette époque, je venais de franchir mon deuxième Fléau Céleste grâce à son aide.
 
 C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Sectes Divines! Les Quatre Sectes ne sont pas originaires de ce Royaume Scellé. Ils sont venus de l'extérieur il y a fort longtemps...
 
-En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de culture, à l'époque où le Royaume Céleste Antique existait encore. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
+En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de culture, à l'époque où le Royaume Céleste Antique existait encore, avant que les quatre royaumes célestes ne soient séparés. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
 
 Cette planète est toujours sous le contrôle de ma Secte Divine Oiseau Vermillon, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
 
-Après que les quatre Empereurs Divins eurent pris le contrôle du Système Stellaire du Vide Brillant, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit pas découverte, même après des millénaires.
+Après que les quatre Empereurs Divins eurent pris le contrôle du Système Stellaire du Vide Brillant, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit jamais véritablement découverte.
 
-Puis, après des milliers d'années, un phénomène étrange se produisit dans le Royaume Céleste. À cet instant, toutes les créatures du monde semblèrent perdre la raison et sombrer dans un état de chaos total. »
+Puis, après des milliers d'années, un phénomène étrange se produisit dans le Royaume Céleste. À cet instant, toutes les créatures du monde furent saisies d'une brève confusion, comme coupées de toute perception, et plongées dans le chaos. »

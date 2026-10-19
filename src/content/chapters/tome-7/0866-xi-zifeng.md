@@ -46,13 +46,13 @@ Wang Lin réfléchit un instant avant de franchir le réseau de transfert. Lorsq
 
 Il n'y avait plus personne. Il était évident que tous avaient été conduits vers leurs lieux de résidence.
 
-À peine apparu, Wang Lin se retourna aussitôt. Une femme se tenait derrière lui. Elle était d'une beauté éblouissante, telle une sculpture de jade, vêtue d'une robe bleue aux motifs aquatiques.
+À peine apparu, Wang Lin se retourna aussitôt. Une femme se tenait derrière lui. Elle était d'une beauté éblouissante, telle une sculpture de jade, vêtue d'une tunique bleue et d'une jupe de gaze fluide.
 
 « Êtes-vous le Senior Xu Mu? » Sa voix était cristalline et très agréable à l'oreille.
 
 Wang Lin hocha la tête.
 
-« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'une paume. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si le Senior a besoin d'un fourneau de culture pendant sa pratique, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
+« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'une paume. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si le Senior a besoin d'un fourneau de culture pour cultiver à deux, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
 
 Une fois sa phrase achevée, son visage devint encore plus rouge; elle s'inclina et se retira. Sa silhouette était des plus séduisantes et, en partant, elle laissa entrevoir avec subtilité le charme qui émanait de ses formes sous sa robe.
 

@@ -10,13 +10,13 @@ slug: ji-xiantian
 
 La confusion qui habitait le Serpent aux yeux de lune fit place à une clarté soudaine, et son rugissement s'apaisa lentement. Il chargea en avant, devançant l'arbre géant.
 
-De loin, le corps colossal du Serpent aux yeux de lune et ses innombrables tentacules oscillants ressemblaient aux nuages de poussière cosmique enveloppant les étoiles; il n'était en rien moins imposant que l'arbre géant.
+De loin, le corps colossal du Serpent aux yeux de lune et ses innombrables tentacules oscillants ressemblaient à d'immenses nuages sombres couvrant les étoiles; le fracas de son passage n'avait rien à envier à celui de l'arbre géant.
 
 Lie Yunzi observa Wang Lin. Il ressentit une pointe de suspicion en remarquant le changement d'expression de ce dernier lorsque le son émana de la pierre de jade.
 
 Wang Lin, qui avait cultivé pendant des milliers d'années, était extrêmement rusé. Il ne laisserait rien passer inaperçu; il esquissa alors un sourire amer et dit: « Je ne m'attendais pas à ce que cette bête nourrisse une telle rancune. Je ne m'en suis servi à l'époque que pour échapper à la traque de la famille Yao, et pourtant, elle s'est encore souvenue de moi en me voyant. »
 
-Lie Yunzi hocha la tête et répondit: « Une fois cette bataille terminée, n'oublie pas de venir me voir pour consulter les Tableaux de Bataille restants! »
+Lie Yunzi hocha la tête et répondit: « Une fois cette bataille terminée, n'oublie pas de venir me voir pour consulter les Parchemins de Bataille restants! »
 
 Avec une expression respectueuse, Wang Lin dit: « Junior le sait. »
 
@@ -24,7 +24,7 @@ L'ancêtre de la famille Shengong était resté silencieux jusqu'alors, quand il
 
 Wang Lin réfléchit en silence. Un instant plus tard, sans hésiter, il toucha l'espace entre ses sourcils et le Dao de Shengong Hu s'envola. L'ancêtre de la famille Shengong s'en saisit, l'examina un instant, puis le rangea. Il ne prêta plus aucune attention à Wang Lin et reporta son regard vers l'avant.
 
-Le Serpent aux yeux de lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs de Luotian s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
+Le Serpent aux yeux de lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses tentacules hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs de Luotian s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
 
 L'arbre géant suivait de près le Serpent aux yeux de lune en direction de la région nord!
 
@@ -46,7 +46,7 @@ Ces affrontements généraient d'immenses ondes de choc. Tout cultivateur touch�
 
 « Camarades cultivateurs, n'attendez pas de me voir me ridiculiser, attaquez! » Le Saint Démon Noir esquissa un sourire amer et agita sa main droite. Un vent chargé d'une odeur fétide de poisson apparut. Sous l'impulsion de ses mains, ce vent se transforma en une baleine géante devant lui. La créature ouvrit sa gueule et aspira tout sur son passage avec une férocité sans nom.
 
-L'énergie d'origine du monde était aspirée frénétiquement par la baleine formée par le Saint Démon Noir, avant que celle-ci ne lance l'attaque contre le Dieu de Sang.
+L'énergie originelle du monde était aspirée frénétiquement par la baleine formée par le Saint Démon Noir, avant que celle-ci ne lance l'attaque contre le Dieu de Sang.
 
 Au même moment, un pilier de lumière violette descendit du ciel. Ce pilier, dont on ne percevait pas la limite, semblait être apparu de nulle part.
 
@@ -54,7 +54,7 @@ Un rire jaillit du pilier de lumière et une silhouette en émergea! C'était un
 
 « Maître Yan Leizi, votre nom m'est connu depuis longtemps! Ce vieil homme est l'un des nouveaux saints de l'Alliance: le Saint Démon du Dragon des Nuages! »
 
-Les yeux de Maître Yan Leizi s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture d'autrefois s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon des Nuages.
+Les yeux de Maître Yan Leizi s'illuminèrent, mais il ne l'attaqua pas immédiatement. Cependant, les ancêtres des familles de culture transmises jusqu'au royaume des Immortels s'animèrent. Tous trois chargèrent vers le Saint Démon du Dragon des Nuages.
 
 « Les quatre saints de l'Alliance de la Culture sont tous au stade intermédiaire du Briseur du Nirvana. La culture du Dieu de Sang est indéterminée, et il est capable de combattre seul. Les trois autres camarades ne sont qu'au stade initial du Briseur du Nirvana; ils doivent donc unir leurs forces pour espérer tenir! Pourtant, ces individus ne sont pas les plus puissants de cette bataille! » Les yeux de Maître Yan Leizi brillèrent, mais il ne daigna pas regarder le Saint Démon du Dragon des Nuages à la robe jaune. Au lieu de cela, il fixa le vide devant lui et dit calmement: « Les quatre saints de l'Alliance n'agissent jamais seuls. Ji Xiantian, pourquoi te caches-tu encore? »
 
@@ -68,23 +68,23 @@ La région nord entière trembla et une intention meurtrière traversa les yeux 
 
 « Maître Yan Leizi, tu as encore le courage de revenir!!! »
 
-Cette voix était trop aiguë, presque stridente, et portait en elle des fluctuations d'énergie d'origine inimaginables.
+Cette voix était trop aiguë, presque stridente, et portait en elle des fluctuations d'énergie originelle inimaginables.
 
-Alors que ce cri résonnait, tous les cultivateurs de Luotian furent saisis de tremblements. Certains crachèrent du sang tandis que leur énergie d'origine s'échappait de leurs corps, entraînant leur mort immédiate!
+Alors que ce cri résonnait, tous les cultivateurs de Luotian furent saisis de tremblements. Certains crachèrent du sang tandis que leur énergie originelle s'échappait de leurs corps, entraînant leur mort immédiate!
 
 Même l'un des 18 Lou Fu s'effondra soudainement sous la violence de ce cri!
 
-Une quantité infinie d'énergie d'origine provenant du monde afflua des cultivateurs et du Lou Fu déchus pour pénétrer dans la silhouette féminine.
+Une quantité infinie d'énergie originelle provenant du monde afflua des cultivateurs et du Lou Fu déchus pour pénétrer dans la silhouette féminine.
 
-« Ji Xiantian, je ne t'ai pas vue depuis de nombreuses années. Tu es toujours aussi efféminée! » Les yeux de Maître Yan Leizi restèrent calmes alors qu'il agitait sa main droite. Des flammes infinies enveloppèrent immédiatement la zone et, en se propageant, repoussèrent tous les cultivateurs de Luotian à plus de 33 kilomètres.
+« Ji Xiantian, je ne t'ai pas vue depuis de nombreuses années. Tu es toujours ni homme ni femme, comme autrefois! » Les yeux de Maître Yan Leizi restèrent calmes alors qu'il agitait sa main droite. Des flammes infinies enveloppèrent immédiatement la zone et, en se propageant, repoussèrent tous les cultivateurs de Luotian à plus de 33 kilomètres.
 
 Bien que la distance fût de 33 kilomètres, elle restait dans le rayon d'action des Lou Fu. C'est ainsi que la grande guerre commença véritablement. Une multitude de cultivateurs de l'Alliance et de Luotian s'engagèrent dans des combats à mort.
 
-C'était une bataille chaotique; la moindre imprudence pouvait provoquer l'effondrement du corps et l'extinction de l'âme d'origine! À l'origine, les cultivateurs de Luotian n'étaient pas de taille face à ceux de l'Alliance; l'un se remettait du choc tandis que l'autre était préparé. Cependant, sous l'influence des Lou Fu, la situation s'équilibra instantanément.
+C'était une bataille chaotique; la moindre imprudence pouvait provoquer l'effondrement du corps et l'extinction de l'âme originelle! À l'origine, les cultivateurs de Luotian n'étaient pas de taille face à ceux de l'Alliance; l'un se remettait du choc tandis que l'autre était préparé. Cependant, sous l'influence des Lou Fu, la situation s'équilibra instantanément.
 
 Il devint alors difficile de prédire le vainqueur. Toutefois, à petite échelle, l'Alliance conservait l'avantage!
 
-Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux camps subirent des pertes. Au loin, un cultivateur de l'Alliance cracha du sang et tenta de battre en retraite. Mais avant même d'avoir parcouru cent pieds, sa poitrine fut transpercée par une épée volante lancée au hasard. Son âme d'origine s'échappa alors, mais fut immédiatement frappée par les ondes d'un sort, provoquant son effondrement définitif.
+Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux camps subirent des pertes. Au loin, un cultivateur de l'Alliance cracha du sang et tenta de battre en retraite. Mais avant même d'avoir parcouru cent pieds, sa poitrine fut transpercée par une épée volante lancée au hasard. Son âme originelle s'échappa alors, mais fut immédiatement frappée par les ondes d'un sort, provoquant son effondrement définitif.
 
 Les yeux de trois cultivateurs de Luotian devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
 
@@ -100,16 +100,16 @@ Le sang et les âmes d'origine absorbés rendaient les 17 Lou Fu encore plus dé
 
 Au centre du champ de bataille, les flammes de Maître Yan Leizi étaient monstrueuses, semblant illuminer la moitié de la région. Face à lui, Ji Xiantian dégageait un froid infini qui provoquait des craquements constants. Bien que ces bruits ne fussent pas assourdissants, chaque combattant aux alentours pouvait les entendre distinctement.
 
-Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants, s'élançant droit vers le ciel. Ji Xiantian était entouré de glaces semblables à des épines acérées pointées vers les cieux, faisant face à Maître Yan Leizi.
+Parallèlement à ces craquements, d'innombrables glaciers surgirent, imposants, s'élançant droit vers le ciel. Ji Xiantian était entouré de glaces semblables à de gigantesques lames acérées pointées vers les cieux, faisant face à Maître Yan Leizi.
 
 « Maître Yan Leizi, nous t'avons laissé échapper lors de la bataille d'il y a des dizaines de milliers d'années. Aujourd'hui, en l'absence de Zhong Xuanzi, je vais te tuer ici et maintenant! » La voix tranchante de Ji Xiantian était comme une lame de glace, empreinte d'un froid absolu et d'une intention meurtrière sans fin.
 
 Ce Ji Xiantian ressemblait à une femme extrêmement séduisante. Pourtant, en regardant de plus près, on remarquait que sa poitrine était plate et que, malgré sa petite taille, sa pomme d'Adam était bien visible! C'était manifestement un homme!
 
-Le regard de Maître Yan Leizi resta calme alors qu'il levait la main droite vers le vide. L'énergie d'origine du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort! »
+Le regard de Maître Yan Leizi resta calme alors qu'il levait la main droite vers le vide. L'énergie originelle du monde se rassembla frénétiquement pour former une sphère de flammes blanches dans sa paume. Il fixa Ji Xiantian et dit lentement: « Quand je suis parti, j'ai déclaré que si le jour venait où je reviendrais, je ferais disparaître l'Alliance de la Culture. Peu importe si le ciel se couvre de sang après ma mort! »
 
 À ce moment précis, dans la région occidentale, avec le Serpent aux yeux de lune en tête et l'arbre géant en soutien, ils convergeaient vers la région nord...
 
 Sur l'arbre géant, Wang Lin regardait devant lui. Une pointe d'incertitude flottait dans ses yeux, particulièrement lorsqu'il posait son regard sur le Serpent aux yeux de lune.
 
-« Enfant divin ancien... » Un éclat de lumière froide, presque imperceptible, passa dans les yeux de Wang Lin.
+« Enfant de l'Ancien Dieu... » Un éclat de lumière froide, presque imperceptible, passa dans les yeux de Wang Lin.

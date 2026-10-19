@@ -16,7 +16,7 @@ Le temps s'écoulait lentement. Tous les cultivateurs démoniaques observaient l
 
 Au fil du temps, les lumières rouges autour de l'homme aux cheveux roux tournoyaient de plus en plus vite, mais leur quantité diminuait inexorablement. Il laissa échapper plusieurs rugissements puissants. Le fait de forcer continuellement ces lumières à sortir épuisait son corps. Son visage devint féroce et ses veines saillirent, devenant d'un vert spectral, comme si des vers s'agitaient sous sa peau.
 
-Parmi les nombreux cultivateurs démoniaques, le Magicien Démon Céleste observait la scène avec un sentiment d'amertume. Il avait déployé tant d'efforts pour son plan, pour qu'il soit anéanti à l'ultime instant. Cela lui déchirait le cœur. En voyant que l'homme aux cheveux roux brisait le sceau, il fut envahi par le désespoir.
+Parmi les nombreux cultivateurs démoniaques, le Magicien Démon Céleste observait la scène avec un sentiment d'amertume. Il avait déployé tant d'efforts pour son plan, pour qu'il soit anéanti à l'ultime instant. Cela lui déchirait le cœur. En voyant que l'homme aux cheveux roux brisait le sceau, il sentit poindre un certain désespoir.
 
 Lorsque l'homme aux cheveux roux briserait le sceau, ouvrirait la Mer de la Connaissance et obtiendrait l'héritage de la mémoire, il remarquerait qu'il en manquait un tiers... Avec sa puissance, l'homme aux cheveux roux serait capable d'utiliser une technique pour découvrir que c'était le Magicien Démon Céleste qui la détenait. À ce moment-là, la seule issue pour lui serait la mort.
 
@@ -32,15 +32,15 @@ L'homme aux cheveux roux utilisait simplement les fragments d'âme pour marquer 
 
 Il n'avait transmis cette formule à personne; même le Seigneur Démon des Six Désirs en ignorait l'existence. C'est grâce à cette formule et à ses innombrables années de culture que, lorsqu'il fut capturé par l'homme aux cheveux roux et forcé de fusionner avec un fragment d'âme, il put prendre l'initiative de le supprimer au lieu de s'y fondre.
 
-Il observa le groupe de Dou Mu. Il y a plusieurs années, il avait commencé à soupçonner que, parmi les milliers de cultivateurs présents, il n'était pas le seul à avoir pu supprimer son fragment d'âme. Il soupçonnait qu'il y en avait d'autres.
+Il observa le groupe de Dou Mu. Il y a de nombreuses années, il avait commencé à soupçonner que, parmi les milliers de cultivateurs présents, il n'était pas le seul à avoir pu supprimer son fragment d'âme. Il soupçonnait qu'il y en avait d'autres, qui attendaient leur heure.
 
 Ces personnes étaient très probablement les dix Généraux de la Mer de Sang.
 
 Le cœur du Magicien Démon Céleste trembla. Si ces hommes étaient comme lui, ils agiraient dès que le sceau se briserait. Si cela était vrai, il aurait encore une chance.
 
-En y pensant, son cœur s'emballa d'excitation. Il prit une profonde inspiration pour se calmer et leva les yeux.
+En y pensant, son cœur s'emballa d'excitation. Il prit une profonde inspiration pour se calmer, puis se mit à observer attentivement.
 
-Chaque fois que Wang Lin dévorait une lumière rouge, son noyau d'âme grandissait. Et à mesure qu'il croissait, son esprit gagnait en clarté. La coordination entre Wang Lin et le dévoreur d'âmes devenait de plus en plus fluide. Le tourbillon de fragments d'âme autour de l'homme aux cheveux roux s'affaiblissait tandis que leur nombre diminuait.
+Chaque fois que Wang Lin dévorait une lumière rouge, son noyau d'âme grandissait. Et à mesure qu'il croissait, son esprit gagnait en clarté. La coordination entre Wang Lin et le dévoreur d'âmes devenait de plus en plus fluide. Le tourbillon de fragments d'âme autour de l'homme aux cheveux roux pâlissait peu à peu, tandis que leur nombre diminuait.
 
 Mais soudain, la mer de sang environnante se souleva. Tout le sang au sol commença à flotter, formant des dizaines de milliers de fragments d'âme qui foncèrent vers l'homme aux cheveux roux.
 
@@ -56,7 +56,7 @@ Sur ces mots, il fit un geste brusque de la main droite. Un cultivateur démonia
 
 Il hurla de nouveau et encore. Ses mains griffaient frénétiquement sa propre chair. En un clin d'œil, son corps fut couvert de plaies et de sang. Normalement, le corps de ces cultivateurs ne pouvait même pas supporter un seul fragment d'âme; en recevoir soudainement plus de dix signifiait une mort certaine.
 
-D'ordinaire, l'homme aux cheveux roux n'utilisait pas cette méthode extrême car elle était inutile: dès que le cultivateur mourait, les fragments d'âme lui revenaient, sans aider à briser le sceau. Mais la situation avait changé. Il avait presque réussi. S'il n'utilisait pas cette méthode pour retarder l'impact des fragments, ceux-ci s'engouffreraient dans son corps dès la rupture de la barrière, rendant tous ses efforts antérieurs vains.
+D'ordinaire, l'homme aux cheveux roux n'utilisait pas cette méthode extrême car elle était inutile: dès que le cultivateur mourait, les fragments d'âme lui revenaient, sans aider à briser le sceau. Mais la situation avait changé. Il avait presque réussi. S'il n'utilisait pas cette méthode pour disperser les fragments, ceux-ci s'engouffreraient dans son corps dès la rupture de la barrière, rendant tous ses efforts antérieurs vains.
 
 L'homme aux cheveux roux ignora le mourant. Sa main droite dessina un symbole dans les airs. Un emblème doré apparut et se posa sur le cultivateur, l'enveloppant d'une lumière radieuse.
 
@@ -68,7 +68,7 @@ L'homme aux cheveux roux eut un regard glacial. Il ne tenta pas d'arrêter le cu
 
 Dans un fracas assourdissant, le corps du cultivateur explosa alors qu'il pénétrait la faille. Sa chair et son sang furent projetés partout. Un fragment d'âme pourpre apparut et fonça vers l'homme aux cheveux roux, rejoignant les autres à l'extérieur de la barrière.
 
-Une pensée traversa l'esprit de l'homme aux cheveux roux. Il ouvrit soudainement ses deux mains et, dans un rugissement, il saisit l'air; une centaine de cultivateurs furent instantanément projetés en l'air. Leurs visages étaient empreints de peur et d'impuissance, tandis que certains affichaient un soulagement paradoxal. Ils volèrent vers la barrière et de nombreux fragments d'âme pénétrèrent leurs corps, les condamnant comme les précédents.
+Son regard jeta un éclair. Il ouvrit soudainement ses deux mains et, dans un rugissement, il saisit l'air; une centaine de cultivateurs furent instantanément projetés en l'air. Leurs visages étaient empreints de peur et d'impuissance, tandis que certains affichaient un soulagement paradoxal. Ils volèrent vers la barrière et de nombreux fragments d'âme pénétrèrent leurs corps, les condamnant comme les précédents.
 
 Après avoir utilisé cette centaine de personnes comme tampon, le nombre de fragments à l'extérieur de la barrière avait diminué d'un peu moins de la moitié. Cependant, la barrière aux cinq couleurs n'était plus aussi solide qu'avant et se mit à trembler, comme prête à se briser à tout moment.
 
@@ -76,7 +76,7 @@ L'homme aux cheveux roux ne dit rien, mais ses mains saisirent à nouveau plus d
 
 Le sourire froid de l'homme aux cheveux roux s'élargit. Il ne tua pas ces cultivateurs immédiatement, mais détourna son regard après les avoir observés un instant. Bien que les tuer fût facile, le retour des fragments d'âme vers lui aurait trop impacté sa barrière. Il n'était pas pressé de les achever.
 
-Wang Lin observait la scène. Il savait que l'homme aux cheveux roux ne s'en prendrait pas à lui, car il avait encore besoin de lui pour absorber les fragments restants. Parmi ceux qui avaient réussi à fuir, le groupe de Dou Mu ne figurait pas. Tous les dix restaient assis là, immobiles et sans expression.
+Wang Lin observait la scène. Il savait que l'homme aux cheveux roux ne s'en prendrait pas à lui, car il avait encore besoin de lui pour absorber les fragments restants. Parmi ceux qui avaient réussi à fuir, le groupe de Dou Mu ne figurait pas. Tous les dix restaient assis là, calmes et sans expression.
 
 À l'extérieur de la barrière, près de quatre cents cercles dorés flottaient. Dans chacun d'eux se trouvait un cultivateur ensanglanté, contenant chacun plus de dix fragments d'âme.
 
@@ -106,6 +106,6 @@ La barrière aux cinq couleurs entourant l'homme aux cheveux roux tremblait de p
 
 Au même moment, tous les cônes de pierre de la Mer de Sang, exception faite de celui où siégeait l'homme aux cheveux roux, se brisèrent en même temps dans un fracas, se transformant en poudre rouge d'où perçait une lueur rouge, comme si des fragments d'âme s'y condensaient. À l'instant de l'éclatement, les cultivateurs qui étaient assis sur chaque pilier bondirent pour s'écarter.
 
-Le visage de l'homme aux cheveux roux s'assombrit. Serrant les dents, il saisit immédiatement 300 des quelque 600 cultivateurs restants et les traîna vers la barrière.
+Le visage de l'homme aux cheveux roux s'assombrit. Serrant les dents, il saisit immédiatement plus de 300 des quelque 600 cultivateurs restants et les traîna vers la barrière.
 
-À cet instant précis, la barrière aux cinq couleurs se brisa, mais au moment même de sa rupture, l'homme aux cheveux roux utilisa toute sa puissance pour forcer les fragments d'âme à s'engouffrer dans le corps des 300 cultivateurs.
+À cet instant précis, la barrière aux cinq couleurs se brisa, mais au moment même de sa rupture, l'homme aux cheveux roux utilisa toute sa puissance pour forcer les fragments d'âme à s'engouffrer dans le corps de ces plus de trois cents cultivateurs.

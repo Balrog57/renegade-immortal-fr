@@ -92,7 +92,7 @@ Ces derniers jours, presque tous les membres de la famille Teng s'étaient réfu
 
 Teng Huayuan, voyant ses proches rassemblés, devint encore plus sombre. Il savait que Wang Lin était déjà en route.
 
-La Cité de la Famille Teng était plongée dans la panique. Dès leur arrivée, les membres de la famille comprirent pourquoi l'Ancêtre Teng ne s'était pas déplacé pour traquer le tueur.
+La Cité de la Famille Teng était plongée dans la panique. Dès leur arrivée, les membres de la famille comprirent pourquoi l'Ancêtre Teng ne s'était pas déplacé pour mettre fin au massacre.
 
 Ce n'était pas par manque de volonté, mais parce que la zone de 5 000 kilomètres entourant la cité était verrouillée par une restriction qui permettait d'entrer, mais interdisait toute sortie.
 
@@ -108,11 +108,11 @@ Cette journée ensoleillée et sans nuages marquait le neuvième jour depuis le 
 
 Dans tout le pays de Zhao, là où les membres de la famille Teng avaient autrefois résidé, il ne restait plus trace d'eux. Ils avaient tous été tués ou s'étaient enfuis vers la Cité de la Famille Teng.
 
-C'était le jour où la famille Teng serait anéantie. Même des centaines d'années plus tard, lorsque les habitants de Zhao évoqueraient cette date, ils en frissonneraient.
+C'était le jour où la famille Teng serait anéantie. Même des centaines d'années plus tard, lorsque les cultivateurs de Zhao évoqueraient cette date, ils en frissonneraient.
 
 Ce fut le jour où l'équilibre des pouvoirs à Zhao bascula totalement. Ce fut aussi le jour où une rivière de sang coula sur la terre.
 
-En ce jour, le sang versé à la Cité de la Famille Teng suffirait à recouvrir le monde.
+En ce jour, le sang versé à la Cité de la Famille Teng suffirait à recouvrir la terre.
 
 Ce fut également le jour où tout le pays de Zhao entendit le nom de « Wang Lin », le cultivateur aux cheveux blancs qui glaça les cœurs de tous.
 

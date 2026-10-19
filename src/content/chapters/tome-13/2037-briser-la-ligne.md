@@ -34,7 +34,7 @@ Des craquements résonnèrent dans son corps et son bras droit fut repoussé. Il
 
 Wang Lin avait déjà vu ce genre de regard chez l'Omniscient, mais il n'avait jamais été aussi explicite. Cela était dû au fait que sa culture avait atteint le niveau de Grand Empyréen.
 
-« L'Omniscient est déjà mort et le Souverain Céleste aux Sept Couleurs a disparu. Qui êtes-vous?! » rugit Wang Lin, tandis que son corps s'étendait à nouveau. Il était désormais un géant de plus de 10 000 pieds. Son rugissement fut comme une bourrasque, et son pied droit s'abattit sur la formation.
+« L'Omniscient est déjà mort et le Souverain Céleste aux Sept Couleurs a été anéanti. Qui êtes-vous?! » rugit Wang Lin, tandis que son corps s'étendait à nouveau. Il était désormais un géant de plus de 10 000 pieds. Son rugissement fut comme une bourrasque, et son pied droit s'abattit sur la formation.
 
 Des grondements tonitruants éclatèrent, mais lorsque le pied de Wang Lin toucha la formation, celui-ci trembla sous l'effet d'une puissante force de rebond qui le projeta en arrière.
 
@@ -42,7 +42,7 @@ Des grondements tonitruants éclatèrent, mais lorsque le pied de Wang Lin touch
 
 « Qui suis-je? Hormis moi-même, il n'y a qu'une seule autre personne qui le sait. Et tu le sauras très bientôt! » La formation autour du vieil homme brilla intensément et se mit à bourdonner. À mesure qu'elle s'activait, la terre elle-même se mit à trembler.
 
-« Quel genre de réseau de transfert peut bien faire trembler la terre ainsi? » Un éclair de froideur traversa le regard de Wang Lin. Peu importait que cet homme soit l'Omniscient ou le Souverain Céleste aux Sept Couleurs, il était l'Enseignant Impérial du Dao Antique responsable de la capture du fragment d'âme de Wan Er. C'était un homme que Wang Lin devait tuer!
+« Quel genre de réseau de transfert peut bien faire trembler la terre ainsi? » Un éclair de froideur traversa le regard de Wang Lin. Peu importait que cet homme soit l'Omniscient ou le Souverain Céleste aux Sept Couleurs, il était l'Ancien Maître Impérial du Dao responsable de la capture du fragment d'âme de Wan Er. C'était un homme que Wang Lin devait tuer!
 
 Voyant l'intensité de la formation croître, Wang Lin prit une profonde inspiration et des grondements sourds émanèrent de son corps. Les veines bleues sur sa peau se gonflèrent, lui donnant une apparence extrêmement féroce.
 
@@ -70,7 +70,7 @@ Une fois revenu à sa taille normale, il avança vers la formation. Il regarda c
 
 Le vieil homme dit lentement: « Cette formation n'est effectivement pas qu'un simple réseau de transfert... Son véritable effet est d'ouvrir une porte antique... Malheureusement, ton massacre n'est pas assez puissant... »
 
-« Tu ne peux ni briser cette formation, ni en arrêter l'activation. Autant s'asseoir et discuter un instant. Ce vieil homme pourra peut-être dissiper certains de tes doutes. » Le vieil homme sourit à Wang Lin.
+« Tu ne peux ni briser cette formation, ni en arrêter l'activation. Autant s'asseoir et discuter un instant. Je pourrai peut-être dissiper certains de tes doutes. » Le vieil homme sourit à Wang Lin.
 
 Wang Lin resta silencieux un moment avant de secouer la tête. Il fit un pas en avant et un soleil gigantesque apparut derrière lui. Ce soleil, noir et blanc, émettait une lumière bicolore qui paraissait tout à fait surnaturelle dans ce monde.
 
@@ -94,7 +94,7 @@ Tenant cette âme, Wang Lin ferma les yeux et son niveau de culture continua de 
 
 Une tête floue était dissimulée à l'intérieur de ce soleil gigantesque: c'était la tête de l'Ancêtre Céleste, que Wang Lin avait récupérée au Palais Dao Antique pour l'intégrer au soleil.
 
-Au moment où l'âme de l'Empereur Céleste rejoignit le soleil et la tête de l'Ancêtre Céleste, ce dernier s'étendit à nouveau, atteignant cent fois sa taille originale!
+Au moment où l'âme de l'Empereur Céleste rejoignit le soleil et la tête de l'Ancêtre Céleste, le soleil s'étendit à nouveau, atteignant cent fois sa taille originale!
 
 Le corps de Wang Lin trembla et il poussa un rugissement. Le soleil de Grand Empyréen prit encore plusieurs fois plus d'ampleur avant que les yeux de Wang Lin ne s'ouvrent brusquement.
 

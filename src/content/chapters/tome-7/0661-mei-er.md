@@ -8,7 +8,7 @@ slug: mei-er
 ---
 « Messager Céleste du Tonnerre... » L'expression de Wang Lin ne changea pas alors qu'il les regardait calmement. Il ne nia ni n'admit rien.
 
-Bien que le cœur de Ran Yue fût sous le choc, elle se calma rapidement. Voyant que Wang Lin restait silencieux, elle commença à spéculer. Bien que les sorts de Wang Lin fussent impressionnants, le statut d'un Messager Céleste du Tonnerre était extraordinaire; elle nourrissait donc elle aussi des soupçons.
+Bien que le cœur de Ran Yue fût sous le choc, elle se calma rapidement. Voyant que Wang Lin restait silencieux, elle commença à spéculer. Bien que les sorts de Wang Lin fussent assez semblables à ceux d'un Messager, le statut d'un Messager Céleste du Tonnerre était extraordinaire; elle nourrissait donc elle aussi des soupçons.
 
 De plus, ce qui la surprit véritablement, c'était son incapacité à percer le niveau de culture de Wang Lin. Cela ne faisait qu'accroître l'incertitude quant à son identité.
 
@@ -94,7 +94,7 @@ Un vieil homme se trouvait au cœur de ce rayon noir. Son visage émacié, empre
 
 Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils parfaitement dessinés, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
 
-Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une broche en jade blanc en forme de papillon, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
+Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une broche en jade blanc en forme de deux papillons, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
 
 Cette femme n'était en rien moins belle que Papillon Rouge; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
 
@@ -116,8 +116,8 @@ Le vieil homme détourna les yeux. La femme devant lui était une rencontre fort
 
 Le domaine impitoyable n'était pas l'apanage d'un seul système stellaire, et il existait de multiples méthodes pour le cultiver. La clé résidait dans la compréhension du cœur. S'il était rare qu'un individu atteigne seul le stade des Mille Illusions, cela n'était pas en soi exceptionnel. Ce qui l'avait poussé à l'accepter comme disciple, c'était ce signe ténu de son évolution vers le stade des Dix Mille Illusions.
 
-Il était le Grand Ancien de la famille Huan sur la planète Mille Illusions, la planète principale du domaine Nord du système stellaire de Luotian. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait son talent. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
+Il était le Grand Ancien de la famille Huan sur la planète Mille Illusions, la planète principale du domaine Nord du système stellaire de Luotian. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait le talent de cette femme. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
 
 C'est pour cette raison qu'il avait pris la décision immédiate de faire d'elle sa disciple!
 
-Après avoir passé des siècles à ses côtés, il avait appris à l'aimer de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire de Luotian.
+Après avoir passé des siècles à ses côtés, il avait appris à la chérir de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire de Luotian.

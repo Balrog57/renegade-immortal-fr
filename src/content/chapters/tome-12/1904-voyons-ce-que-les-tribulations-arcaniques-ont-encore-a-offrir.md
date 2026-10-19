@@ -52,7 +52,7 @@ Pourtant, il était extrêmement rare que quelqu'un réussisse avec une telle ai
 
 Les cultivateurs du Continent du Démon Vert manifestèrent leur respect. Ils scrutèrent la zone soumise à la pression de la tribulation, attendant que le Seigneur Démon Vert en sorte.
 
-Wang Lin était toujours assis sur la queue du scorpion, les yeux fixés sur le ciel. Les trois dernières Tribulations Arcaniques l'avaient déçu. Il attendait maintenant l'arrivée de la quatrième, espérant qu'elle soit à la hauteur.
+Wang Lin était toujours assis sur la queue du scorpion, les yeux fixés sur le ciel. Les trois précédentes Tribulations Arcaniques l'avaient déçu. Il attendait maintenant l'arrivée de la quatrième, espérant qu'elle soit à la hauteur.
 
 Contempler depuis un belvédère la splendeur éphémère de cette Tribulation Arcanique ne relevait pas des paroles, mais de l'action. Avec un calme olympien, Wang Lin contemplait la beauté des Tribulations Arcaniques.
 

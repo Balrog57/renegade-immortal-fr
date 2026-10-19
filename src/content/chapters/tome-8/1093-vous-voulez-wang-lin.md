@@ -68,13 +68,13 @@ Alors qu'il avançait, son armure émettait des cliquetis métalliques; il ignor
 
 Toute l'énergie originelle du feu sembla s'emballer, encerclant l'homme en armure pour former un vortex autour de lui. Une pression colossale s'abattit alors sur la salle.
 
-Ce n'était pas seulement l'énergie présente dans la pièce qui changeait; toute l'énergie originelle de la planète et du champ stellaire environnant semblait converger rapidement vers cet homme. Ce changement soudain provoqua une onde de choc de pression qui se propagea partout.
+Ce n'était pas seulement l'énergie présente dans la pièce qui changeait; toute l'énergie originelle du feu de la planète et du champ stellaire environnant semblait converger rapidement vers cet homme. Ce changement soudain fit déferler la majesté du ciel et de la terre, qui se répandit partout.
 
 Quelques cultivateurs suivaient l'homme. Ils étaient quatre au total, tous âgés et au stade Briseur du Nirvana. Ils portaient des robes rouges, bien que d'une nuance plus claire ou plus sombre que celle de Lie Yunzi.
 
 Les quatre entrèrent avec l'homme en armure, se tenant derrière lui tout en observant calmement les trois autres.
 
-L'homme en armure s'avança devant tout le monde et releva sa cape avant de s'asseoir. Ses yeux, semblables à des flammes, perçèrent l'intérieur du casque pour se poser sur les trois prétendants.
+L'homme en armure s'avança devant tout le monde et releva sa cape avant de s'asseoir. Ses yeux, semblables à des flammes, perçèrent l'intérieur du casque pour se poser sur les trois interlocuteurs.
 
 Il dégageait une majesté absolue. De plus, l'énergie originelle qui l'entourait empêchait tout Sens Divin de l'espionner. Même si quelqu'un parvenait à transpercer cette barrière énergétique, très peu de gens seraient capables d'identifier Wang Lin.
 
@@ -102,7 +102,7 @@ L'homme en armure le contempla un instant avant de détourner les yeux vers Mo Z
 
 Mo Zhi réprima ses soupçons et dit: « Empereur Divin, je viens en tant que représentant du pays de Chu Yun pour vous présenter mes félicitations. Mon maître m'a chargé d'apporter des présents! » En parlant, sa main droite s'élança vers le vide, créant une fissure. Cette faille n'était pas stable; elle était manifestement perturbée par l'énergie originelle ambiante.
 
-Voyant la fissure sur le point de s'effondrer dès son apparition, l'homme en armure leva sa main droite. L'énergie autour de la faille se dispersa et celle-ci se stabilisa instantanément.
+Voyant la fissure sur le point de s'effondrer dès son apparition, l'homme en armure leva sa main droite et la pointa vers la faille. L'énergie autour de la faille se dispersa et celle-ci se stabilisa instantanément.
 
 Cette scène fit contracter les pupilles de la belle femme. Même Lie Yunzi plissa les yeux.
 
@@ -112,7 +112,7 @@ La dernière chose que Mo Zhi sortit fut un petit drapeau bleu et vert. Dès son
 
 Les yeux de l'homme en armure se plissèrent alors qu'il fixait le petit drapeau, une lueur étrange brillant dans son regard.
 
-« Ceci est un présent que mon Maître m'a expressément ordonné d'offrir à l'Empereur Divin. C'est un esprit que mon Maître a scellé il y a des centaines d'années! »
+« Ceci est un présent que mon Maître m'a expressément ordonné d'offrir à l'Empereur Divin. C'est un esprit que mon Maître a raffiné et scellé il y a des centaines d'années! »
 
 La main droite de Wang Lin s'élança dans le vide pour saisir le petit drapeau. Après l'avoir examiné avec attention, il regarda Mo Zhi et dit: « Merci beaucoup. »
 

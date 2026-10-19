@@ -16,7 +16,7 @@ Un grondement tonitruant résonna. À l'instant même où l'invincible Empreinte
 
 Cependant, l’empreinte palmaire du Souverain ne fit que marquer une pause avant de poursuivre sa course. Wang Lin leva les yeux et afficha une expression farouche en pointant le ciel. Des éclats de lumière aux sept couleurs jaillirent, formant une lance qui fonça vers l'empreinte.
 
-Les deux forces entrèrent à nouveau en collision, provoquant des sons monstrueux. Le corps de Wang Lin fut emporté par les vents et il recula de plus de 10 000 pieds. Ses mains tremblaient et ses jambes étaient couvertes de sang.
+Les deux forces entrèrent à nouveau en collision, provoquant des sons monstrueux. Le corps de Wang Lin fut emporté par les vents et il recula de plusieurs dizaines de milliers de pieds. Ses mains tremblaient et ses jambes étaient couvertes de sang.
 
 Pourtant, la gigantesque empreinte palmaire ne se désintégra pas, bien qu’elle se fût légèrement dissipée et ne fût plus aussi solide qu'auparavant. L'empreinte hurla alors qu'elle retombait sur Wang Lin.
 
@@ -64,7 +64,7 @@ Détruire le Royaume Céleste Antique du Royaume Extérieur et semer le chaos da
 
 Ses yeux brillèrent. Alors que le Souverain était sur le point de le rejoindre, Wang Lin s'arrêta brusquement. Sa main gauche s'avança et l'Arc de Li Guang apparut soudainement entre ses mains!
 
-À l'instant où l'Arc de Li Guang se manifesta, l'expression du Souverain changea radicalement. Il s'arrêta par réflexe et recula même de plus de 1 000 pieds. Ses yeux étaient empreints de choc et d'incrédulité!
+À l'instant où l'Arc de Li Guang se manifesta, l'expression du Souverain changea radicalement. Il s'arrêta par réflexe et recula même de plus de 2 000 pieds. Ses yeux étaient empreints de choc et d'incrédulité!
 
 « Impossible! Tu n'as la puissance que pour deux tirs, je ne peux me tromper, c'est impossible! Tu ne fais que sortir l'arc pour nous leurrer. Tu ne peux pas bander cet arc! » Le Souverain refusait de l'admettre. Il ne pouvait supporter que ses plans échouent encore et encore. Un tel coup était mortel pour lui; il menaçait de briser sa confiance et d'ébranler son Dao!
 
@@ -90,7 +90,7 @@ Un puits illusoire colossal surgit derrière l'empreinte. Le puits s'étendit so
 
 Simultanément, un soleil rouge éclatant apparut au sein de ce domaine entouré par les eaux du puits. La puissance de la loi d'origine se manifesta.
 
-Le Souverain était devenu fou. En avançant, il frappa son propre front de la main. Une perle osseuse de la taille d'un poing jaillit soudainement de son crâne. Cette perle grise émettait une lueur blanche et, dès son apparition, la puissance du Souverain décupla. Il chargea alors de front vers Wang Lin.
+Le Souverain était devenu fou. En avançant, il frappa son propre front de la main. Une perle osseuse de la taille d'un poing jaillit soudainement de son crâne. Cette perle grise émettait une lueur blanche et, dès son apparition, la puissance du Souverain fut multipliée par plusieurs. Il chargea alors de front vers Wang Lin.
 
 « Je vais te faire croire, je vais te forcer à t'en souvenir! » Wang Lin ferma ses yeux froids pour que les autres ne voient pas l'éclat doré de son regard. Bandant l'arc grâce à son sens divin, il tira davantage sur la corde avec sa main droite afin d'augmenter la tension, puis il relâcha brusquement!
 

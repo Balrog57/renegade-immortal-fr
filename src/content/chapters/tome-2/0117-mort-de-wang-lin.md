@@ -40,7 +40,7 @@ L'expression de Teng Huayuan changea brusquement. À cet instant précis, une on
 
 Tout ce qui se trouvait dans ce périmètre fut transformé en un océan de glace.
 
-Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Perle des Mille Illusions de la Cité des Illusions, mais aussi la Glace Bleue de la Secte de l'Inframonde. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
+Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Métamorphose des Mille Illusions de la Cité des Illusions, mais aussi la Glace Bleue de la Secte de l'Inframonde. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
 
 Le géant dans le ciel fut également surpris; il jeta un regard lourd de sens vers le passage de la Vallée de Jue Ming et laissa échapper un sourire étrange.
 
@@ -72,7 +72,7 @@ Il le rattrapa en un clin d'œil, tendit la main et cria: « Wang Lin, crois-tu 
 
 La main droite de Wang Lin était totalement broyée. Il utilisa son énergie spirituelle pour geler son bras et stopper l'hémorragie. Il n'osait pas toucher le sac de Teng Huayuan, le maintenant uniquement par sa technique d'attraction.
 
-Teng Huayuan était hors de lui. Devoir traiter avec un junior de l'Établissement des Fondations devant tant de ses pairs était déjà une humiliation profonde. S'il avait instantanément capturé ou tué Wang Lin, la situation aurait été supportable, mais il s'était laissé piéger par une illusion avant d'être entravé par cette glace bleue. Pour couronner le tout, bien que ce ne fût que pour un court instant, Wang Lin avait réussi à lui dérober son sac de rangement.
+Teng Huayuan était hors de lui. Devoir traiter avec un junior de l'Établissement des Fondations devant tant de ses pairs était déjà une humiliation profonde. S'il avait instantanément capturé ou tué Wang Lin, la situation aurait été supportable, mais il s'était laissé piéger par une illusion avant d'être entravé par cette glace bleue. Pour couronner le tout, Wang Lin avait réussi à lui dérober son sac de rangement.
 
 Il se sentait aussi insulté que s'il avait reçu une gifle en public, et ce n'était pas une simple gifle, mais une série de coups répétés.
 

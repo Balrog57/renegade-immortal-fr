@@ -8,7 +8,7 @@ slug: maitre-vent-creux-2
 ---
 Au moment où le vieil homme sortit le bouclier, les yeux de Wang Lin s'illuminèrent. Il pouvait sentir une faible aura d'ancien dieu émanant du petit bouclier!
 
-« Un trésor d'ancien dieu! » Voyant l'homme s'échapper, la Lance Tueuse de Dieux continua de l'attaquer avant de devenir plus transparente et de finir par se dissiper. Un éclair de froideur passa dans les yeux de Wang Lin alors qu'il faisait un pas, provoquant des ondulations sous ses pieds. C'était la première fois que Wang Lin utilisait la Distorsion Spatiale sous l'influence de la planète Tian Yun!
+« Un trésor d'ancien dieu! » Voyant l'homme s'échapper, la Lance Tueuse de Dieux, malgré ses attaques répétées, devint peu à peu translucide avant de se dissiper. Un éclair de froideur passa dans les yeux de Wang Lin alors qu'il faisait un pas, provoquant des ondulations sous ses pieds. C'était la première fois que Wang Lin utilisait la Distorsion Spatiale sous l'influence de la planète Tian Yun!
 
 Il fusionna soudainement avec le monde et disparut.
 
@@ -52,7 +52,7 @@ Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'em
 
 Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
-Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face à vous et je n'en ai aucun regret. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
+Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Fu Fengzi. Aujourd'hui, j'ai perdu face devant vous et je me soumets de tout cœur. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
 
 Wang Lin regarda calmement Chen Feng et dit lentement: « Mon sceau n'est pas puissant. Si vous voulez le lever, vous le pourrez facilement. »
 
@@ -82,13 +82,13 @@ Chen Feng hocha la tête et ne perdit plus de temps en paroles avant de s'asseoi
 
 Tout au long du voyage, ils restèrent silencieux. Bientôt, une planète bleue apparut devant eux. Cette planète était magnifique et dégageait une riche aura d'énergie spirituelle.
 
-« C'est la planète Esprit de l'Eau, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après un disciple du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
+« C'est la planète Esprit de l'Eau, elle appartient aux trois frères Chen. On dit que la planète a été nommée d'après une jeune fille de la descendance du Maître Yi Chen », dit Chen Feng en ouvrant les yeux. Une trace d'intention malveillante brillait dans son regard.
 
-Il avait été très troublé par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
+Il avait été très attiré par cette femme au corps d'esprit de l'eau. S'il n'avait pas craint la personne qui protégeait les trois frères Chen, il l'aurait déjà prise pour en faire son fourneau de culture.
 
 « Les trois frères Chen! » Wang Lin regarda la planète bleue, mais après réflexion, décida de passer son chemin. Bien que cette planète fût très propice à sa culture en isolation, il ne lui serait pas pratique de s'en emparer, car il connaissait les frères.
 
-Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la planète bleue. Ces trois faisceaux ressemblaient à trois dragons rugissants qui chargeaient vers l'extérieur.
+Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la planète bleue. Ces trois faisceaux ressemblaient à trois dragons rugissants qui chargeaient vers l'extérieur; en s'entrecroisant, ils formaient une tempête mugissante.
 
 « Camarades cultivateurs, pourquoi rôdez-vous devant notre planète?! » rugit le Maître Yi Chen.
 
@@ -96,9 +96,9 @@ Alors qu'il s'apprêtait à partir, trois rayons de lumière jaillirent de la pl
 
 Le rugissement s'interrompit soudainement et trois personnes sortirent des faisceaux de lumière. C'étaient les trois frères Chen!
 
-Ils revenaient tout juste. En raison de l'incident, la vente aux enchères de l'Œil Fantôme avait été interrompue avant même d'avoir commencé, ce qui les avait contraints à partir.
+Ils revenaient tout juste. En raison de l'incident, le Marché de l'Œil Fantôme avait été interrompu avant même d'avoir commencé, ce qui les avait contraints à partir.
 
-Alors qu'ils cultivaient sur leur propre planète, ils avaient ressenti les auras de deux cultivateurs du second niveau à l'extérieur et s'étaient envolés sans hésiter.
+Alors qu'ils cultivaient sur leur propre planète, ils avaient ressenti les auras de plusieurs cultivateurs du second niveau à l'extérieur et s'étaient envolés sans hésiter.
 
 En voyant le corps gigantesque de Lei Ji, bien que leurs expressions restassent neutres, ils furent choqués intérieurement. Pour qu'un membre de l'Alliance possède une monture du Clan des Démons Géants, il devait être un vieux monstre tel que Ling Tianhou ou l'Omniscient.
 

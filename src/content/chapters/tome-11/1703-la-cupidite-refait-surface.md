@@ -34,9 +34,9 @@ Le Daoïste aux Sept Couleurs fut stupéfait. Il ne pouvait l'empêcher, car c'�
 
 Ce cri jaillit de sa propre bouche, mais aussi de celle du Daoïste aux Sept Couleurs dans la première illusion. Les deux rugissements entrèrent en collision avec celui de Wang Lin, créant une force destructrice!
 
-La corne formée par les six essences vola en éclats instantanément. Wang Lin cracha du sang, sentant son corps tout entier sur le point de se briser. Simultanément, les neuf soleils se dispersèrent et un impact puissant fut projeté vers lui.
+La corne formée par les six essences vola en éclats instantanément. Wang Lin cracha du sang, sentant son corps tout entier sur le point de se briser, et fut violemment projeté. Simultanément, les neuf soleils se dispersèrent et un impact puissant fut projeté vers lui.
 
-Face à ce danger imminent, Wang Lin utilisa son Sortilège de l'Immortel Antique pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
+Face à ce danger imminent, Wang Lin utilisa son Sort de l'Ancien Immortel pour se rétablir. D'un revers de main, il fit surgir la voile fantomatique qui l'enveloppa. Au moment où l'impact allait le frapper, Wang Lin disparut.
 
 À mille pieds de là, à l'extérieur de l'espace mystérieux rempli de bêtes féroces où se trouvait le Daoïste aux Sept Couleurs, Wang Lin ouvrit les yeux. Il cracha du sang et son regard était terne, mais il recula sans la moindre hésitation.
 
@@ -54,7 +54,7 @@ Bien que très loin, Wang Lin entendit ce rugissement colérique. Le visage pâl
 
 Il fallait le faire. S'il n'avait pas brisé le plan du Daoïste aux Sept Couleurs pour se rendre à l'autel, il n'aurait fait que retarder sa propre mort.
 
-Si tout ce qui se trouvait dans cette illusion était réel, alors une fois la troisième âme trouvée, il n'y aurait plus aucun espoir pour le monde de la grotte!
+Si tout ce qui se trouvait dans cette illusion était réel, alors une fois la troisième âme trouvée, il n'y aurait plus aucun espoir pour lui ni pour le monde de la grotte!
 
 Tout passerait sous le contrôle total du nouveau Souverain Céleste aux Sept Couleurs. À ce moment-là, Wang Lin n'aurait plus aucune emprise sur son propre destin!
 
@@ -78,7 +78,7 @@ Si l'autel restait en place, c'était parce qu'un de ses coins semblait connect�
 
 L'espace auquel il était lié n'était pas intact; on y trouvait également plusieurs failles spatiales dont provenait la lumière.
 
-C'était comme si une fléchette avait transpercé un morceau de papier mais s'y était coincée: il y avait naturellement une ouverture là où l'obscurité pénétrait le papier.
+C'était comme si une fléchette avait transpercé un morceau de papier mais s'y était coincée: il y avait naturellement des fissures là où le papier avait été transpercé.
 
 Des éclats d'aura d'un Être Ancien émanaient de l'autel, mais ils ne se propageaient pas très loin, comme si une force invisible les contenait.
 

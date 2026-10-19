@@ -110,4 +110,4 @@ Devant lui se dressait un navire gigantesque, de la taille d'une cité mortelle.
 
 La voile du navire ondulait sans qu'aucun vent ne soufflât, arborant un visage fantomatique qui offrait un spectacle terrifiant! Wang Lin et Fan Shanlu se précipitèrent à travers les barrières protectrices. Le corps de Fan Shanlu émit une lueur qui permit de franchir les couches sans encombre.
 
-Dès qu'il eut posé le pied à terre, Wang Lin interpella Fan Shanlu: « Qui est-il, au juste?! » Cette question lui brûlait le cœur depuis bien trop longtemps!
+Dès qu'il eut posé le pied sur le pont, Wang Lin interpella Fan Shanlu: « Qui est-il, au juste?! » Cette question lui brûlait le cœur depuis bien trop longtemps!

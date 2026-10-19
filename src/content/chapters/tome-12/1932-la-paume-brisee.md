@@ -46,7 +46,7 @@ Le duel entre les deux bêtes marines provoqua des grondements tonitruants et de
 
 Simultanément, la belle Exalté Empyréen Hai Zi observait Wang Lin avancer. Elle ne le détestait pas vraiment; au contraire, il y a trois ans, elle n'avait eu de lui qu'une vague impression. Son cœur n'avait éprouvé aucune fluctuation, comme si elle avait simplement croisé un inconnu.
 
-Après l'échec de Wang Lin lors de cette bataille passée, l'Exalté Empyréen Hai Zi l'avait oublié. Mais aujourd'hui, tout était différent. Wang Lin réapparaissait trois ans plus tard et l'avait immobilisée pendant plus de dix respirations avec un seul point!
+Après l'échec de Wang Lin lors de cette bataille passée, l'Exalté Empyréen Hai Zi l'avait oublié. Mais aujourd'hui, tout était différent. Wang Lin réapparaissait trois ans plus tard et l'avait immobilisée pendant plus de dix respirations d'un seul doigt!
 
 C'était tout simplement inacceptable pour elle, et cela l'exaspérait au plus haut point! Il faut dire que bien qu'elle fût une Exalté Empyréen, elle était aussi une cultivatrice féminine. En tant que femme, être ainsi stoppée sans pouvoir opposer la moindre résistance la rendait aussi embarrassée qu'en colère!
 
@@ -54,7 +54,7 @@ Bien que l'Arbre de la Mer Montagneuse puisse condenser l'essence du bois, cela 
 
 Cependant, que ce soit il y a trois ans ou aujourd'hui, Wang Lin était resté tout aussi indifférent. Cela agaçait la belle Exalté Empyréen Hai Zi, qui avait donc délibérément décidé de lui rendre la tâche difficile.
 
-Dotée d'une culture puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer Montagneuse sans que personne n'ose troubler sa paix.
+Dotée d'une culture puissante et d'un statut noble, elle ne prêtait guère attention aux cultivateurs ordinaires, à l'exception de quelques rares Ascendants Empyréens. C'est grâce à ce rang qu'elle pouvait occuper toute la Mer Montagneuse sans que personne n'ose troubler sa paix.
 
 Pourtant, elle n'aurait jamais imaginé être ainsi retenue pendant plus de dix respirations!
 
@@ -62,7 +62,7 @@ Face à l'arrivée de l'Exalté Empyréen Hai Zi, Wang Lin fronça les sourcils.
 
 À cet instant, il laissa échapper un reniflement froid. Alors que l'Exalté Empyréen Hai Zi s'approchait, Wang Lin fit un pas en avant. À ce pas, 97 images rémanentes apparurent et chargèrent vers elle!
 
-Alors qu'elle approchait, Wang Lin leva soudainement la main droite et l'agita vers l'Exalté Empyréen Hai Zi!
+Alors qu'elle approchait, Wang Lin leva soudainement la main droite et frappa de la paume en direction de l'Exalté Empyréen Hai Zi!
 
 Au moment où il leva sa paume, les 97 images rémanentes levèrent également leurs mains droites. 98 Empreintes de l'Esprit de la Guerre fusionnèrent pour n'en former qu'une seule et volèrent vers l'Exalté Empyréen Hai Zi.
 
@@ -76,7 +76,7 @@ Lorsque l'oiseau bleu s'envola, l'Exalté Empyréen Hai Zi leva sa main de jade 
 
 Après avoir prononcé ces mots, le sceau ovale contenant 70 sorts gonfla brusquement. 26 traits se divisèrent et doublèrent, transformant la fusion des 70 sorts en une puissance de 96!
 
-Ces 96 traits équivalaient à 96 sorts fusionnés. Le sceau ovale dégageait une aura terrifiante alors qu'il fonçait sur Wang Lin.
+Ces 96 traits équivalaient à la fusion de 90 sorts. Le sceau ovale dégageait une aura terrifiante alors qu'il fonçait sur Wang Lin.
 
 L'Empreinte de l'Esprit de la Guerre de Wang Lin percuta l'oiseau bleu. Un grondement tonitruant retentit tandis que l'oiseau s'effondrait pour redevenir une cloche. Le reste de l'Empreinte vola vers l'avant, mais au moment où elle toucha le sceau, elle se désintégra silencieusement!
 
@@ -94,7 +94,7 @@ Près de l'Arbre de la Mer Montagneuse, à l'extérieur des couches de sceaux, d
 
 Cependant, cette aura était si singulière qu'elle ne se propageait pas du tout. Elle n'était remarquée ni par Wang Lin, ni par l'Exalté Empyréen Hai Zi qui combattaient à l'extérieur.
 
-Tandis que des grondements tonnerre résonnaient, encore plus de points fantomatiques apparurent. Il y en avait pas moins de 100 000, et ils fusionnèrent en un temps record.
+Tandis que des grondements de tonnerre résonnaient, encore plus de points fantomatiques apparurent. Il y en avait pas moins de 100 000, et ils fusionnèrent en un temps record.
 
 Ils ne formèrent pas le visage précédent, mais une paume brisée!
 

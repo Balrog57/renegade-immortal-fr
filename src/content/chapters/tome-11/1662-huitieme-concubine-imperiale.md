@@ -12,7 +12,7 @@ Elle était d'une grande beauté; bien qu'inférieure à Mu Bingmei, elle n'en d
 
 Son visage pâle accentuait sa splendeur, lui conférant un air de fragilité mêlé à une détermination sans faille.
 
-La femme en violet et Wang Lin se contemplèrent. Après un long moment, la femme finit par dire d'une voix glaciale: « Zi Xia. » Sa voix semblait un peu rauque, comme si elle n'avait pas parlé depuis une éternité.
+La femme en violet et Wang Lin se contemplèrent. Après un long moment, la femme finit par dire d'une voix glaciale: « Zi Xia. » Sa voix semblait un peu hésitante, comme si elle n'avait pas parlé depuis une éternité.
 
 « Seriez-vous l'Empereur Céleste Zi Xia du Royaume Céleste de la Foudre? » Wang Lin avait vaguement deviné son identité. Il joignit les mains en signe de respect.
 
@@ -26,7 +26,7 @@ L'expression de Wang Lin resta calme, mais ses yeux brillèrent d'un éclat impe
 
 Gardant son calme, Wang Lin demanda avec lenteur: « Quelle concubine impériale céleste ai-je tuée? »
 
-« Tu as tué la deuxième concubine, et celle que tu as scellée est la cinquième... Celle qui s'est échappée est la sixième. » La voix de Zi Xia n'était plus rauque, elle était désormais bien plus fluide, mais son ton demeurait glacial.
+« Tu as tué la deuxième concubine, et celle que tu as scellée est la cinquième... Celle qui s'est échappée est la sixième. » La voix de Zi Xia n'était plus hésitante, elle était désormais bien plus fluide, mais son ton demeurait glacial.
 
 Les yeux de Wang Lin s'illuminèrent. Il avait rencontré la majorité des huit concubines impériales célestes. À cet instant, leurs visages se dessinèrent dans son esprit. La quatrième concubine était celle qui avait tenté de contrôler Tuo Sen et qui était restée piégée dans l'ancienne tombe, incapable de s'en échapper.
 
@@ -54,11 +54,11 @@ Le froid dans le regard de Wang Lin s'intensifia. Il fixa Zi Xia, qui continuait
 
 « Tes exigences sont excessives! »
 
-« Absurdité! Qui es-tu pour me parler sur ce ton? N'agis-tu pas ainsi pour éveiller le Souverain Céleste et obtenir une immense fortune? Fais ce que je te dis. Une fois la tâche accomplie, je rapporterai naturellement tes services au Souverain Céleste. » Les yeux en forme de phénix de Zi Xia fixèrent Wang Lin, son expression devenant sombre.
+« Insolence! Qui es-tu pour me parler sur ce ton? N'agis-tu pas ainsi pour éveiller le Souverain Céleste et obtenir une immense fortune? Fais ce que je te dis. Une fois la tâche accomplie, je rapporterai naturellement tes services au Souverain Céleste. » Les yeux en forme de phénix de Zi Xia fixèrent Wang Lin, son expression devenant sombre.
 
 Wang Lin fut un instant stupéfait par l'audace de Zi Xia, puis il éclata de rire. Tandis qu'il riait, ses yeux devinrent glacials.
 
-« Ainsi, c'est donc cela. Toutes les huit concubines du Souverain Céleste ne l'ont pas trahi. Il reste encore toi, la huitième concubine, qui es loyale. Mais oublie tes ordres de capturer les autres; je ne te donnerai même pas la cinquième! » Wang Lin agita ses manches et ricana avec mépris.
+« Ainsi, c'est donc cela. Les huit concubines du Souverain Céleste n'ont pas toutes trahi. Il reste encore toi, la huitième concubine, qui es loyale. Mais oublie tes ordres de capturer les autres; je ne te donnerai même pas la cinquième! » Wang Lin agita ses manches et ricana avec mépris.
 
 Les yeux de Zi Xia se plissèrent à son tour. Elle sentait vaguement qu'elle s'était trompée de cible. Elle ne connaissait que peu de choses sur Wang Lin, si ce n'est qu'il était le disciple de l'ancien Seigneur du Royaume Scellé. Elle savait aussi qu'il avait accompli de grandes choses pour le Royaume Intérieur, notamment lors de la bataille et du massacre précédents.
 
@@ -72,7 +72,7 @@ Cependant, le rire et le rejet de Wang Lin ramenèrent brusquement Zi Xia à la 
 
 « L'ancien Seigneur du Royaume Scellé ne t'a-t-il rien dit sur sa mission, ni sur ses origines? »
 
-« Le Continent Astral Immortel, la Secte des Sept Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, même si elle n'était motivée que par ses propres intérêts, il aurait déjà balayé cette femme qui osait se croire son égale.
+« Le Continent Astral Immortel, la Secte des Sept Dao. Bien sûr que je le sais! » Wang Lin fixa froidement Zi Xia. S'il n'avait pas tenu compte de l'aide qu'elle avait apportée au Royaume Intérieur, quels qu'aient été ses objectifs, il l'aurait déjà chassée sans même s'en soucier, cette femme égarée.
 
 À ces mots, le visage de Zi Xia se décomposa. Elle recula instinctivement de plus de cent pieds, le visage marqué par la stupeur.
 
@@ -94,9 +94,9 @@ Wang Lin resta impassible, regardant la femme en violet avec une indifférence t
 
 « Disparais. Si tu n'avais pas tant aidé le Royaume Intérieur, je t'aurais déjà tuée simplement pour ton appartenance à la Secte des Sept Dao! » Les yeux de Wang Lin s'illuminèrent d'une intention meurtrière qui frappa de plein fouet la femme en violet.
 
-Cette dernière laissa échapper un gémissement et son visage se décomposa. Elle recula prestement et ne dit plus un mot, se transformant en un rayon de lumière violette qui s'évanouit rapidement.
+Cette dernière, l'esprit ébranlé, fut saisie d'effroi et son visage se décomposa. Elle recula prestement et ne dit plus un mot, se transformant en un rayon de lumière violette qui s'évanouit rapidement.
 
-« Le Souverain Céleste aux Sept Couleurs... Je trouverai un moyen de le ressusciter. Cependant, ce ne sera pas pour la fortune, mais pour... le tuer!! Le tuer, et cette grotte n'aura plus de maître. Alors, je m'emparerai du Dao Céleste et j'emmènerai les habitants de cette grotte vers le Continent Astral Immortel! »
+« Le Souverain Céleste aux Sept Couleurs... Je trouverai un moyen de le réveiller. Cependant, ce ne sera pas pour la fortune, mais pour... le tuer!! Le tuer, et cette grotte n'aura plus de maître. Alors, je m'emparerai du Dao Céleste et j'emmènerai les habitants de cette grotte vers le Continent Astral Immortel! »
 
 « J'ai été un cultivateur défiant le ciel toute ma vie. Si je dois agir, ce sera selon mes propres termes. Comment pourrais-je me faire le chien de quelqu'un, supplier pour ma survie ou pour qu'on m'aide à sortir d'ici? »
 
@@ -104,13 +104,13 @@ Cette dernière laissa échapper un gémissement et son visage se décomposa. El
 
 Son regard se porta sur la direction prise par la femme en violet, sans même poser de question concernant le Cercueil Évitant les Cieux. Il n'en avait pas besoin. S'il parvenait à quitter cet endroit pour rejoindre le Continent Astral Immortel, il saurait tout, y compris la méthode pour ressusciter Wan Er.
 
-Toutefois, en cas d'échec, poser la question serait inutile. Mourir aux côtés de Wan Er serait alors la seule issue possible.
+Toutefois, en cas d'échec, poser la question serait inutile. Mourir aux côtés de Wan Er serait alors le dernier élan de courage d'un homme.
 
 Wang Lin détourna le regard et se retourna. Il observa la Formation de Scellement du Royaume qui s'étiolait, ses yeux brillant d'une lueur déterminée. Il s'approcha de la structure semblable à une toile d'araignée, s'assit et ferma les yeux. Sa culture s'activa et il commença à absorber l'énergie du monde.
 
 Tandis qu'il cultivait, l'énergie originelle de la Mer des Nuages affluait de toutes parts. Elle circulait dans son corps, absorbée par son âme originelle et sa chair, aidant son corps d'Ancien Dieu à se régénérer.
 
-Simultanément, la main droite de Wang Lin s'étendit pour extraire des sphères de lumière grâce à son Empreinte du Karma. Il les broya pour en inhaler la puissance essentielle. Cette essence pénétra ses six essences, permettant à ces dernières de redémarrer lentement.
+Simultanément, la main droite de Wang Lin s'étendit pour extraire des sphères de lumière grâce à son Empreinte du Karma. Il les broya pour en inhaler la puissance essentielle par ses sept orifices. Cette essence pénétra ses six essences, permettant à ces dernières de redémarrer lentement.
 
 Après avoir atteint la troisième étape, l'énergie originelle ne pouvait plus qu'accélérer la récupération de son pouvoir d'Ancien Dieu; elle n'apportait aucune aide directe à sa culture.
 

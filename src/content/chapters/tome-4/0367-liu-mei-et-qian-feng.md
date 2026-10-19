@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 367 - Liu Mei and Qian Feng
 slug: liu-mei-et-qian-feng
 ---
-Wang Lin franchit la porte de lumière. Lorsqu'il réapparut sur l'autel, tout le monde avait disparu, comme si personne n'y avait jamais été. Après avoir regardé autour de lui, il constata qu'il était le seul survivant.
+Wang Lin franchit la porte de lumière. Lorsqu'il réapparut sur l'autel, tout le monde avait disparu, comme si personne n'y avait jamais été. Après avoir regardé autour de lui, il constata qu'il était seul sur l'autel.
 
 Un morceau de jade flottait dans les airs, dégageant une douce lueur.
 
@@ -24,7 +24,7 @@ Trois jours plus tard, une scène étrange se produisit dans les montagnes arri�
 
 Le Mont Suzaku était la terre sainte de Suzaku. À l'avant se trouvait le palais de Suzaku et, à l'arrière, ses montagnes sacrées où l'on ne pouvait pénétrer sans l'autorisation du Suzaku actuel.
 
-Ces montagnes n'étaient pas très vastes; elles ne formaient en réalité qu'une immense grotte.
+Cette zone interdite n'était pas très vaste; ce n'était en réalité qu'une immense grotte.
 
 Cette grotte était divisée en quatre niveaux. À cet instant, deux bassins profonds se trouvaient au deuxième niveau.
 
@@ -46,7 +46,7 @@ L'homme siégeait au-dessus du bassin de flammes et la femme au-dessus du bassin
 
 L'homme n'était pas particulièrement beau, mais il dégageait une aura légèrement maléfique. Cependant, cette aura n'était pas répulsive; au contraire, elle inspirait aux gens une étrange sensation d'intimité.
 
-La femme n'était en rien moins belle que Papillon Rouge; elle pouvait être considérée comme un trésor national. De plus, comparée à Papillon Rouge, cette jeune fille possédait un charme plus subtil, ce qui la rendait encore plus séduisante.
+La femme n'était en rien moins belle que Papillon Rouge; elle pouvait être considérée comme un trésor national. De plus, comparée à Papillon Rouge, cette jeune fille possédait un charme plus envoûtant, ce qui la rendait encore plus séduisante.
 
 Si Wang Lin avait été présent, il aurait senti que cette femme lui était familière.
 
@@ -124,7 +124,7 @@ Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de
 
 « Je vais entrer en culture de méditation prolongée. J'espère qu'à mon retour, tu auras déjà réussi. » Après un long moment, le vieil homme détourna son regard et disparut dans un éclair de lumière rouge.
 
-Liu Mei se leva. Ses vêtements fins collaient à sa peau, révélant une silhouette aux courbes parfaites et exquises.
+Liu Mei se leva. Ses vêtements fins collaient à sa peau, révélant une silhouette aux courbes parfaites et exquises. Elle soupira, sortit du bassin froid et, d'un geste de la main droite, fit monter une brume blanche autour de son corps. Lorsque la brume se dissipa, une beauté incomparable apparut.
 
 Elle portait une robe intérieure rose pâle sous une robe blanche qui laissait entrevoir son cou gracieux. Les plis de sa jupe, traînant sur plus d'un mètre, flottaient avec légèreté, tels des reflets de lune splendides sur le sol.
 

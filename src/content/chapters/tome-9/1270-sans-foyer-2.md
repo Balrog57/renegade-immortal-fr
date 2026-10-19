@@ -26,7 +26,7 @@ L'amertume sur le visage de Li Qianmei s'intensifia, mais sa détermination devi
 
 « Je veux y aller... »
 
-« Une personne ordinaire ne peut pas forcer la Secte Divine à annuler un concours de rang 8. Cet ordre a été émis par l'Ancien Supérieur de la Secte Divine, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Brise-Ciel s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
+« Une personne ordinaire ne peut pas forcer la Secte Divine à annuler un concours de rang 8. Cet ordre a été émis par le Grand Ancien de la Secte Divine, Shui Daozi! Avec ton niveau de culture, peux-tu faire quoi que ce soit face à Shui Daozi? Peux-tu l'arrêter? Sans parler de toi, même si toute ma Secte Brise-Ciel s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
 
 Li Qianmei se mordit la lèvre inférieure jusqu'au sang... La détermination dans ses yeux ne faiblit pas, elle devint plus ardente encore.
 
@@ -42,7 +42,7 @@ Voyant Li Qianmei cracher du sang, la détermination dans les yeux de son maîtr
 
 « Maître... Vous pouvez empêcher votre disciple de partir, mais vous ne pourrez pas m'empêcher de mourir... » Li Qianmei baissa la tête. Sa voix était douce, empreinte d'un adieu.
 
-« Toi! » Les yeux du maître de Li Qianmei brillèrent et il leva rapidement sa main droite. Un marquage se forma, traversa la formation et vint se poser sur le corps de Li Qianmei. Cela permit de supprimer immédiatement l'énergie d'origine chaotique qui bouillonnait en elle.
+« Toi! » Les yeux du maître de Li Qianmei brillèrent et il leva rapidement sa main droite. Un marquage se forma, traversa la formation et vint se poser sur le corps de Li Qianmei. Cela permit de supprimer immédiatement l'énergie originelle chaotique qui bouillonnait en elle.
 
 Li Qianmei afficha un sourire misérable en levant la tête. Du sang perlant encore au coin de sa bouche, elle dit doucement: « Maître, vous pouvez arrêter Qianmei pour le moment, vous pouvez l'arrêter pour trois mois, mais ne pouvez-vous pas m'arrêter pour toute une vie! Il n'a toujours pas répondu à ma troisième question. S'il meurt vraiment, Qianmei rejoindra le monde où il est allé. J'attendrai là-bas qu'il réponde à ma troisième question... Vous m'avez dit quand j'étais enfant que dans une vie, on a parfois besoin d'une obsession et du courage de la poursuivre. On a aussi besoin du courage de lutter, de poursuivre... Si les cultivateurs n'ont ni l'obsession ni le courage, ils ne peuvent atteindre aucun Grand Dao. »
 
@@ -56,7 +56,7 @@ Le visage du maître de Li Qianmei était extrêmement sombre, empreint de doule
 
 L'expression des anciens de la Secte Brise-Ciel changea radicalement, et l'un d'eux s'écria: « Maître de Secte, quelles sont vos intentions?! »
 
-« Dégagez! » Le maître de Li Qianmei redressa soudainement la tête et poussa un rugissement. L'aura de celui qui avait surmonté la troisième Calamité Céleste jaillit de son corps. Les trois anciens crachèrent du sang et furent projetés en arrière.
+« Dégagez! » Le maître de Li Qianmei redressa soudainement la tête et poussa un rugissement. L'aura de celui qui avait surmonté le troisième Fléau Céleste jaillit de son corps. Les trois anciens crachèrent du sang et furent projetés en arrière.
 
 « Li Qianmei, ton Maître attend ton choix! » Le regard du maître de Li Qianmei se posa sur elle. Bien que sa voix fût calme, elle tremblait imperceptiblement.
 
@@ -78,7 +78,7 @@ Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillar
 
 « La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Shui Daozi, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
 
-Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des millénaires!
+Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des dizaines de milliers d'années!
 
 Tout comme le brouillard dans la Mer des Nuages, combien de personnes pouvaient réellement percer les brumes?
 

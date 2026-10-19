@@ -12,7 +12,7 @@ Bang! Bang!
 
 Les sphères de glace continuaient de pleuvoir sur lui; il ripostait par des coups de poing, mais leur nombre était tel que la puissance cumulée des collisions créa un fracas assourdissant.
 
-D'innombrables fissures supplémentaires parcoururent le sol de Xue Yue à cet instant.
+D'innombrables fissures supplémentaires parcoururent le sol de Xue Yu à cet instant.
 
 L'expression de Li Yuanfeng devint féroce alors qu'il hurlait: « Ceng Niu, meurs! »
 
@@ -48,11 +48,11 @@ Bang! Bang!
 
 Après deux explosions sourdes, les deux silhouettes noires poussèrent des gémissements de douleur. La puissance du choc balaya toute la brume noire, révélant les deux bras sectionnés.
 
-Le regard de Wang Lin s'anima. Sa main traça un sceau et pointa vers les membres. Un rayon d'énergie spirituelle jaillit avec rapidité pour envelopper les bras coupés.
+Le regard de Wang Lin s'anima. Sa main traça un sceau et pointa vers les membres. Deux rayons d'énergie spirituelle jaillirent avec rapidité pour envelopper les bras coupés.
 
 Wang Lin tonna: « Scelle! »
 
-L'énergie spirituelle se mua promptement en chaînes, emprisonnant les deux bras. Alors que ces derniers se débattaient, Wang Lin prit le contrôle immédiat du drapeau de l'âme et du drapeau de la restriction situés à proximité.
+L'énergie spirituelle se mua promptement en chaînes, emprisonnant les deux bras. Alors que ces derniers se débattaient, Wang Lin fit aussitôt surgir le drapeau de l'âme et le drapeau des restrictions, qui se placèrent autour des bras.
 
 Il hurla une nouvelle fois: « Scelle! »
 
@@ -74,15 +74,15 @@ Le sang coulait de la bouche de Li Yuanfeng et sa vision se brouillait, mais une
 
 « Même si je meurs, je t'entraînerai dans ma chute! » rugit Li Yuanfeng. Ses yeux devinrent injectés de sang et une force destructrice colossale émana de lui.
 
-Wang Lin ne paniqua nullement et déclara calmement: « L'autodestruction d'un cultivateur de Transformation de l'Âme... Li Yuanfeng, je pourrais simplement déchirer l'espace pour partir, mais le pays entier de Xue Yue devrait mourir avec toi. Celui que tu emmèneras dans la tombe ne sera pas moi, mais l'intégralité de Xue Yue. »
+Wang Lin ne paniqua nullement et déclara calmement: « L'autodestruction d'un cultivateur de Transformation de l'Âme... Li Yuanfeng, je pourrais simplement déchirer l'espace pour partir, mais le pays entier de Xue Yu devrait mourir avec toi. Celui que tu emmèneras dans la tombe ne sera pas moi, mais l'intégralité de Xue Yu. »
 
 Sur ces mots, il tendit sa main droite et une faille spatiale apparut. Des vagues de vent destructeur s'échappèrent de la brèche, mais elles n'eurent aucun effet sur Wang Lin.
 
-Li Yuanfeng commença à lutter. Bien qu'il fût égoïste, il était né à Xue Yue et entretenait un attachement émotionnel profond envers sa patrie.
+Li Yuanfeng commença à lutter. Bien qu'il fût égoïste, il était né à Xue Yu et entretenait un attachement émotionnel profond envers sa patrie.
 
-Après un court instant, il esquissa un sourire amer. Il ignorait s'il parviendrait à blesser Ceng Niu, mais Xue Yue disparaîtrait indubitablement de la planète.
+Après un court instant, il esquissa un sourire amer. Il ignorait s'il parviendrait à blesser Ceng Niu, mais Xue Yu disparaîtrait indubitablement de la planète.
 
-Son regard se fit solennel. Il fixa Wang Lin, prit une profonde inspiration et dit: « Ce vieil homme admet sa défaite, mais le pays de Xue Yue n'a rien à voir là-dedans. Si tu acceptes d'épargner son peuple, ce vieil homme te permettra de me punir comme bon te semble. »
+Son regard se fit solennel. Il fixa Wang Lin, prit une profonde inspiration et dit: « Ce vieil homme admet sa défaite, mais le pays de Xue Yu n'a rien à voir là-dedans. Si tu acceptes d'épargner son peuple, ce vieil homme te permettra de me punir comme bon te semble. »
 
 Le regard de Wang Lin resta glacial alors qu'il pointait Li Yuanfeng. Il activa la technique d'extraction de l'âme et un rayon d'énergie spirituelle frappa le front du vieil homme, entre ses sourcils.
 
@@ -102,11 +102,11 @@ Wang Lin réfléchit un instant avant de ramasser les deux bras encore prisonnie
 
 Tous les cultivateurs au stade de la Formation de l'Âme avaient suivi le combat via leur Sens Divin. En voyant Li Yuanfeng périr, une vague d'indignation les submergea.
 
-Alors qu'il flottait dans les cieux, le Sens Divin de Wang Lin balaya Xue Yue pour diffuser un message impérieux:
+Alors qu'il flottait dans les cieux, le Sens Divin de Wang Lin balaya Xue Yu pour diffuser un message impérieux:
 
-« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yue, et aucune secte de culture ne pourra y subsister, sans quoi je reviendrai! »
+« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yu, et aucune secte de culture ne pourra y subsister, sans quoi je reviendrai! »
 
-Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation du Cycle de la Vie et de la Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yue.
+Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation du Cycle de la Vie et de la Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yu.
 
 « Scelle! »
 
@@ -116,9 +116,9 @@ Deux marques furent imprimées sur le front des cultivateurs: l'une légère et 
 
 Une fois sa tâche accomplie, Wang Lin frappa son sac de rangement et la bête moustique apparut pour l'emporter au loin.
 
-À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa position de plus puissant être sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; beaucoup étaient même convaincus qu'il avait déjà atteint ce niveau.
+À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa place de plus puissant sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; beaucoup étaient même convaincus qu'il avait déjà atteint ce niveau.
 
-Nul ne doutait de sa puissance: il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yue et contraint un pays de culture de rang 5 à rétrograder au rang 3.
+Nul ne doutait de sa puissance: il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yu et contraint un pays de culture de rang 5 à rétrograder au rang 3.
 
 Ces événements laissèrent tous ceux qui en entendirent parler dans un état de choc et de stupeur.
 
@@ -126,9 +126,9 @@ Ces événements laissèrent tous ceux qui en entendirent parler dans un état d
 
 À ses côtés, un homme se tenait respectueusement. Ce dernier avait le visage large et de grandes oreilles; si Wang Lin avait été présent, il l'aurait immédiatement reconnu.
 
-« Ce Ceng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Ceng Niu t'a aidé à faire de Xue Yue un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine de l'Indifférence aux Mille Émotions a progressé. »
+« Ce Ceng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Ceng Niu t'a aidé à faire de Xue Yu un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine Impitoyable des Mille Illusions a progressé. »
 
-L'homme aux grandes oreilles acquiesça respectueusement. Il tourna le regard vers Xue Yue, affichant une expression de mélancolie et de nostalgie.
+L'homme aux grandes oreilles acquiesça respectueusement. Il tourna le regard vers Xue Yu, affichant une expression de mélancolie et de nostalgie.
 
 Une fois l'homme parti, le vieil homme se leva et rangea les pièces de bronze. Il murmura pour lui-même: « Il reste encore 12 ans. Zhu Quezi, nous avions convenu que celui qui perdrait subirait une punition pendant mille ans. Dans 12 ans, ma propre pénitence touchera à sa fin! »
 

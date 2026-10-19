@@ -50,7 +50,7 @@ Le Maître du Dao Rêve Bleu ferma les yeux et murmura pour lui-même: « Tu ne 
 
 « Tous vous, cultivateurs du monde des grottes, vous avez résisté avec obstination, pensant que cette formation pourrait bloquer ce vieil homme. Désormais, la formation est sur le point de céder. Attendez simplement que ce vieil homme entre, et vous tous deviendrez la nourriture de ma culture! » La voix était faible au début, mais elle devint bientôt un tonnerre fracassant qui résonna à travers tout le Royaume Céleste. Tous levèrent les yeux vers le ciel.
 
-Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans Maître Âme Écarlate, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Écarlate.
+Personne dans le Royaume Céleste ne connaissait précisément le niveau de culture de Wang Lin, mais puisque celui-ci pouvait apparaître ici sans que Maître Âme Écarlate ne le remarque, il était évident que sa puissance n'était pas ordinaire. Cependant, nul ne savait s'il pourrait vaincre Maître Âme Écarlate.
 
 L'expression de Maître Nan Yunzi était détendue — il n'était nullement inquiet. À voir comment Wang Lin pouvait lui créer un nouveau corps d'un simple geste de la main, il savait à quel point l'homme était puissant.
 
@@ -80,7 +80,7 @@ Des silhouettes de sang jaillirent de la brèche pour remplir le ciel. Ces figur
 
 Tandis que ces silhouettes de sang surgissaient, un jeune homme vêtu de rouge sortit de l'ouverture. Il affichait une arrogance mêlée d'une intention meurtrière. Dès son apparition, sa voix résonna à travers le monde:
 
-« Votre fragile formation a été détruite par mon Maître. Vous, misérables cultivateurs, je veux voir comment vous allez résister cette fois! Mu Bingmei, une fois que mon Maître se sera amusé avec toi, je te ferai comprendre la différence entre moi et ce Wang Lin... » Le jeune homme riait de façon hystérique en avançant. Il baissa les yeux, mais ses paroles s'interrompirent net.
+« Votre fragile formation a été détruite par mon Maître. Vous, misérables cultivateurs, je veux voir comment vous allez résister cette fois! Mu Bingmei, une fois que mon Maître t'aura dressée, je te ferai comprendre la différence entre moi et ce Wang Lin... » Le jeune homme riait de façon hystérique en avançant. Il baissa les yeux, mais ses paroles s'interrompirent net.
 
 Il vit Maître Nan Yunzi le narguer du regard, et celui-ci possédait désormais un corps physique. Il vit également la belle Mu Bingmei; elle le regardait avec froideur, comme si elle contemplait un mort.
 
@@ -94,9 +94,9 @@ Cette personne ressemblait exactement à la statue qu'il avait vue sur la planè
 
 Pourtant, le tremblement de son âme lui criait la vérité: ce jeune homme aux cheveux blancs était bel et bien l'ancêtre de la planète Suzaku. Le Seigneur du Royaume des Sceaux de jadis, Wang Lin!
 
-« Et alors s'il est vraiment lui? Il n'est pas de taille face à mon Maître! » L'expression du jeune homme changea tandis qu'il prenait une profonde inspiration. Inconsciemment, il recula et plissa les yeux.
+« Et alors s'il est vraiment lui? Il n'est pas de taille face à mon Maître! » L'expression du jeune homme changea tandis qu'il prenait une profonde inspiration. Inconsciemment, il recula, et son expression devint soudain féroce.
 
-« Intéressant, tu as trouvé quelqu'un de si semblable. Penses-tu que grâce à lui... » Avant qu'il ne puisse achever sa phrase, le jeune homme aux cheveux blancs leva les yeux vers lui. Son regard était d'un calme absolu, mais il fit frémir tout le corps du jeune homme en rouge.
+« Intéressant, vous avez trouvé quelqu'un de si semblable. Pensez-vous que grâce à lui... » Avant qu'il ne puisse achever sa phrase, le jeune homme aux cheveux blancs leva les yeux vers lui. Son regard était d'un calme absolu, mais il fit frémir tout le corps du jeune homme en rouge.
 
 Wang Lin détourna les yeux et dit calmement: « Treize, tue-le! »
 
@@ -122,10 +122,10 @@ Wang Lin regarda calmement Maître Âme Écarlate se précipiter vers lui.
 
 Avant qu'il ne puisse agir, le petit serpent sur l'épaule de Liu Jinbiao brilla soudainement d'un éclat intense et poussa un rugissement qui déchira les cieux.
 
-Le rugissement secoua le monde et fit bourdonner les oreilles de tous les cultivateurs du Royaume Céleste. Le corps de Maître Âme Écarlate trembla et il s'immobilisa, fixant le sol comme une poule déconcertée.
+Le rugissement secoua le monde et fit bourdonner les oreilles de tous les cultivateurs du Royaume Céleste. Le corps de Maître Âme Écarlate trembla et il s'immobilisa, fixant le serpent, figé comme un coq de bois.
 
 « Ceci... ceci est... »
 
-Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle de dragon marin géant et rugit face au saisissant Maître Âme Écarlate:
+Le petit serpent s'envola rapidement et grandit à vue d'œil sous les regards stupéfaits des cultivateurs. Il retrouva promptement sa taille originelle de dragon marin géant et rugit face à Maître Âme Écarlate, pétrifié:
 
 « Dragon Marin... d'Or... Exalté!!! » Maître Âme Écarlate eut l'impression de rêver.

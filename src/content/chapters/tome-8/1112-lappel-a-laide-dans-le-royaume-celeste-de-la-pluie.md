@@ -88,7 +88,7 @@ Une tête trônait sur chaque branche. On y trouvait des mâles et des femelles,
 
 Il existait un esprit des temps anciens appelé « Ji », dont la forme était humaine. Au lieu de naître, il fut créé, et devint adulte en trois jours. Il tenta de dévorer les cieux à contre-courant et périt vaincu; sa tête se changea en sang. Un monstre nommé Ji Qiong naquit de son cadavre!
 
-Cette bête naissait avec une seule tête, et chaque fois qu'elle dévorait un monde, elle gagnait une nouvelle tête ainsi que de nouveaux sorts. Elle osait défier le monde et pouvait dormir pour l'éternité.
+Cette bête naissait avec une seule tête, et chaque fois qu'elle dévorait un monde, elle gagnait une nouvelle tête ainsi que de nouveaux sorts, et ses pouvoirs divins se multipliaient. Elle osait défier le monde et pouvait dormir pour l'éternité.
 
 À cet instant, au sein du Royaume Céleste de la Pluie, tout était paisible comparé à la Terre de l'Ancien Dieu, si l'on excepte les fissures qui déchiraient le ciel et les tremblements constants de la terre.
 

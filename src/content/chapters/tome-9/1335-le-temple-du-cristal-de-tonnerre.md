@@ -28,7 +28,7 @@ La Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il
 
 Par exemple, Yu Fei n'avait jamais voyagé au-delà de 50 000 kilomètres. Bien que les habitants de ce rayon le connaissent, dès qu'il quittait la zone, il redevenait un inconnu. Il en allait de même pour Grand Rouge.
 
-C'est pourquoi Wang Lin ne se souciait guère de son soudain changement de niveau de culture. Il leur fallut près d'un mois pour atteindre le centre, Wang Lin n'utilisant aucun sortilège.
+C'est pourquoi Wang Lin ne se souciait guère de son soudain changement de niveau de culture. Il leur fallut un bon demi-mois pour atteindre le centre, Wang Lin n'utilisant aucun sortilège.
 
 En volant, Grand Rouge déployait toute sa force et utilisait sans cesse son art invincible pour flatter Wang Lin. Cependant, il ne se contentait pas de paroles; il se montrait aussi très efficace. Souvent, un simple regard de Wang Lin suffisait pour qu'il sache exactement quoi faire. Tout au long du voyage, Grand Rouge s'était montré d'une loyauté exemplaire.
 
@@ -46,7 +46,7 @@ Une fois entrés dans le périmètre du Temple, la densité de cultivateurs augm
 
 À cet instant précis, une aura d'une puissance inouïe émana de derrière Wang Lin et Grand Rouge. Cette aura se propageait comme une vague grondante, accompagnée de fracas de tonnerre. Les expressions des cultivateurs alentour changèrent instantanément, tous tournant leurs regards avec respect.
 
-C'était un homme d'âge moyen portant une couronne taoïste, les mains derrière le dos. En passant devant Wang Lin, il créa une puissante bourrasque de vent.
+C'était un homme d'âge moyen vêtu de noir, portant une couronne taoïste, les mains derrière le dos. En passant devant Wang Lin, il créa une puissante bourrasque de vent.
 
 « Un vieux monstre Ascendant! »
 

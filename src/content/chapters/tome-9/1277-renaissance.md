@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1277 - Rebirth
 slug: renaissance
 ---
-Au cours de cette bataille, Wang Lin avait déjà stupéfié Shui Daozi à plusieurs reprises. À présent, Shui Daozi contemplait l'étrange météore qui avait percuté le Système Stellaire Antique il y a des éons et que le Souverain avait lui-même raffiné!
+Au cours de cette bataille, Wang Lin avait déjà stupéfié Shui Daozi à plusieurs reprises. À présent, Shui Daozi contemplait l'étrange météore qui avait percuté le Système Stellaire Antique il y a des éons et que le Souverain, alors au stade tardif du Vide Spirituel, avait lui-même raffiné!
 
 Ce météore, composé d'un métal inconnu, avait été façonné par le Souverain durant 10 000 ans pour devenir 108 clous aux sept couleurs! Ils étaient nommés les Clous Divins du Vide aux Sept Couleurs!
 
@@ -50,7 +50,7 @@ Un fracas tonitruant retentit alors que le clou aux sept couleurs s'enfonçait d
 
 Le visage de Shui Daozi devint livide tandis qu'il composait un sceau, tentant de résister au clou. Pourtant, il avait une fois de plus sous-estimé Wang Lin!
 
-Il avait voulu sortir la femme du cercueil pour franchir la limite de Wang Lin! Li Muwan était le point de non-retour de Wang Lin!
+Il avait voulu sortir la femme du cercueil pour franchir la limite de Wang Lin! Le dragon a une écaille inversée : la toucher, c'est s'attirer sa colère! Li Muwan était le point de non-retour de Wang Lin!
 
 Si Wang Lin était déjà en proie à la démence face à une crise de vie ou de mort, il devint véritablement insensé lorsque Shui Daozi s'en prit à Li Muwan. Cette folie n'était pas différente d'être transpercé par le clou aux sept couleurs!
 

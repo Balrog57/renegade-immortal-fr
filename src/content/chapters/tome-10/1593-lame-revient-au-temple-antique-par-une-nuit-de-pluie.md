@@ -20,7 +20,7 @@ Après un long moment, une légère teinte de couleur revint sur le visage de Wa
 
 « Ai-je rêvé d'une immortelle ou... une immortelle a-t-elle rêvé de moi? » Wang Lin ne comprenait pas. C'était comme si ce rêve embrumé avait changé la trajectoire même de sa vie.
 
-Wang Lin s'engagea sur le chemin principal et reprit sa marche vers la ville du comté. Il n'avait plus l'envie d'observer les environs, marchant silencieusement avec son sac en bambou sur le dos. Le craquement de ses pas résonnait à chaque enjambée.
+Wang Lin s'engagea sur le chemin principal et reprit sa marche vers la ville du comté. Il n'avait plus l'envie d'observer les environs, marchant silencieusement avec son sac en bambou sur le dos. Le sac en bambou, ballotté à chaque enjambée, grinçait sans cesse.
 
 Le soleil se leva, le soleil se coucha.
 
@@ -108,6 +108,6 @@ Ses cris emplissaient le temple et éveillaient la pitié de Wang Lin. Il tourna
 
 Dans un soupir, Wang Lin sortit de son sac sa nourriture séchée et fixa le feu. Il écouta la pluie tomber dehors et commença à manger silencieusement.
 
-La pluie tombait paisiblement du ciel, enveloppant la montagne, la terre et le temple. Dans ce sanctuaire, près du feu, deux âmes rêveuses qui ne semblaient pas appartenir à ce monde s'étaient installées.
+La pluie tombait paisiblement du ciel, enveloppant la montagne, la terre et le temple. Dans ce sanctuaire, près du feu, deux âmes rêveuses qui ne semblaient pas appartenir à ce monde s'étaient rencontrées.
 
-L'une contemplait les flammes, l'autre grignotait sa cuisse de poulet. Entre eux, la statue arborait un sourire insaisissable, comme si elle les observait tous deux.
+L'une contemplait les flammes, l'autre grignotait sa cuisse de poulet. Entre eux, la statue arborait un sourire insaisissable, comme si elle les observait tous deux, à jamais.

@@ -7,7 +7,7 @@ en: Chapter 771 - Yao Family (2)
 slug: la-famille-yao-2
 ---
 
-Alors qu'il résistait au nuage noir, il continuait d'être repoussé par sa contraction. Ce cycle se poursuivit jusqu'à ce que les nuages noirs montrent des signes d'effondrement. Les yeux de Wang Lin devinrent froids et il ouvrit la bouche pour cracher de l'énergie originelle.
+Sous cette résistance, le nuage noir alternait sans cesse entre contraction et dispersion, jusqu'à ce que les nuages noirs montrent des signes d'effondrement. Les yeux de Wang Lin devinrent froids et il ouvrit la bouche pour cracher de l'énergie originelle.
 
 Cette énergie originelle pénétra le nuage noir et lui donna soudainement l'impression d'être imprégné d'un pouvoir infini, le faisant se contracter frénétiquement. Cependant, à cet instant, la résistance émanant de l'Ancêtre Sanguin augmentait elle aussi sans fin.
 
@@ -19,13 +19,13 @@ Une fois les nuages noirs dissipés, cela signifierait que le drapeau du milliar
 
 Wang Lin cria: « Trois âmes primaires, apparaissez! » À l'intérieur du nuage, les trois âmes primaires, incluant le Qilin et la quatrième âme, se condensèrent immédiatement et lancèrent leur attaque contre l'Ancêtre Sanguin.
 
-À travers les nuages, Wang Lin pouvait voir le Qilin se transformer en fumée noire pour envelopper l'Ancêtre Sanguin. La tête du Qilin prit forme et mordit le cou de l'Ancêtre Sanguin. La quatrième âme volait sans cesse à l'intérieur et à l'extérieur de l'Ancêtre Sanguin. Chaque fois qu'elle pénétrait dans l'âme originelle de l'Ancêtre Sanguin, elle en ressortait avec une immense quantité d'énergie originelle.
+À travers les nuages, Wang Lin pouvait voir le Qilin se transformer en fumée noire pour envelopper l'Ancêtre Sanguin. La tête du Qilin prit forme au sommet du crâne de l'Ancêtre Sanguin et le mordit sans relâche. La quatrième âme volait sans cesse à l'intérieur et à l'extérieur de l'Ancêtre Sanguin. Chaque fois qu'elle pénétrait dans l'âme originelle de l'Ancêtre Sanguin, elle en ressortait avec une immense quantité d'énergie originelle.
 
 Il y avait également cette figure humaine formée par la dernière âme primaire. Elle se transforma en gaz noir qui entoura l'Ancêtre Sanguin, ralentissant ses mouvements.
 
 Le visage de l'Ancêtre Sanguin affichait une expression féroce et une lumière rouge jaillit de son corps tandis qu'il récitait un chant complexe. La lueur rouge brilla avec frénésie, remplissant progressivement les nuages noirs jusqu'à ce qu'ils paraissent violets!
 
-Un rugissement sortit de la bouche de l'Ancêtre Sanguin: « Âme de sang, effondre-toi! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
+Un rugissement sortit de la bouche de l'Ancêtre Sanguin: « Effondrement du Dieu du Sang! » La lumière rouge autour de son corps était presque démoniaque et son âme originelle libéra soudainement un pouvoir inimaginable. Le Qilin laissa immédiatement échapper un gémissement misérable et l'impact de cette force le fit se dissiper rapidement. Terrifié, il lâcha prise instantanément et recula.
 
 Les âmes primaires autour de l'Ancêtre Sanguin s'effondrèrent et reculèrent promptement. Même la quatrième âme qui avait pénétré l'âme originelle de l'Ancêtre Sanguin fut capturée par ce dernier. Dans une pression impitoyable, des fissures apparurent sur elle avant qu'elle ne se dissipe en battant en retraite.
 
@@ -51,7 +51,7 @@ Il laissa échapper un sourire amer et ses yeux furent remplis de folie. C'est p
 
 « Ancêtre Sanguin, je ne te tuerai pas et je te donnerai une chance de revoir Yao Xixue! Si tu exploses, tu ne reverras jamais Yao Xixue! » La voix de Wang Lin était glaciale.
 
-L'Ancêtre Sanguin réfléchit silencieusement et la folie dans ses yeux disparut lentement. Les yeux de Wang Lin s'illuminèrent alors que sa main forma un sceau et qu'il cria: « Collecte! »
+L'Ancêtre Sanguin réfléchit silencieusement et la folie dans ses yeux disparut lentement. Les yeux de Wang Lin s'illuminèrent alors que sa main forma un sceau et qu'il cria: « Rassemblement! »
 
 Les nuages noirs environnants entourèrent immédiatement l'Ancêtre Sanguin. Le Fouet du Karma apparut également et s'enroula autour de lui. Les trois âmes primaires endommagées réapparurent et commencèrent à dévorer frénétiquement.
 
@@ -81,7 +81,7 @@ Il savait que l'Ancêtre Sanguin pouvait entendre!
 
 « Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter?! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté!
 
-« Je vous ai donné une chance, mais le Senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
+« Je vous ai donné une chance, mais le Senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. Un enfant mal éduqué est la faute du père: je le savais déjà il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
 
 Il avait seulement besoin d'avoir la conscience tranquille, et cela suffisait!
 
@@ -105,11 +105,11 @@ S'il n'y avait pas eu les moqueries des personnes derrière lui, il serait déj�
 
 L'Ancien aux côtés du jeune homme dégageait une aura impitoyable. Il donnait parfois des conseils au jeune homme et, chaque fois qu'il le faisait, Li Yuan en souffrait davantage.
 
-Il ne restait que trois des huit épées volantes. Les autres avaient été perdues lors de l'usage de sorts. Le vieil homme les avait attrapées avec désinvolture, en avait effacé le sens divin et les avait renvoyées vers le jeune homme.
+Il ne restait que trois des huit épées volantes. Les autres, pendant qu'il lançait ses sorts, avaient été attrapées avec désinvolture par le vieil homme, qui en avait effacé le sens divin et les avait renvoyées vers le jeune homme.
 
 Peu après, le jeune homme les offrait à la femme à ses côtés.
 
-Un sentiment d'indignation bouillonnait dans le cœur de Li Yuan. Les rires cristallins et la voix plaintive de la femme ne faisaient qu'aggraver son sort.
+Un sentiment d'indignation bouillonnait dans le cœur de Li Yuan. Les rires cristallins et la voix minaudante de la femme ne faisaient qu'aggraver son sort.
 
 Tout au long du chemin, il avait accumulé encore plus de blessures. Il n'avait pas le temps de se soigner et son bras droit commençait à pourrir. Des insectes blancs s'agitaient dans sa chair. Ce n'étaient pas des asticots, mais des insectes venimeux libérés par le jeune homme qui le suivait.
 

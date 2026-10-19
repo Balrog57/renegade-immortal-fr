@@ -38,7 +38,7 @@ L'homme nommé Qing tremblait, tandis que la femme à ses côtés lui serrait la
 
 Ses sentiments ébranlaient les cieux, son émotion remuait la terre!
 
-Le sortilège de réincarnation ne pouvait dissimuler une obsession millénaire…
+L'aura immortelle du sortilège ne pouvait dissimuler une obsession millénaire…
 
 « Mon nom est Qing… » murmura doucement l'homme en regardant Wang Lin. Même face à lui, une certaine froideur émanait encore de son corps.
 
@@ -114,6 +114,6 @@ C'est là ma réponse pour vous. » Les yeux de Wang Lin étaient empreints de n
 
 À cet instant, une brise souffla, faisant flotter les cheveux de l'homme et de la femme. Deux mèches de leurs chevelures s'entrelacèrent comme deux papillons dansants.
 
-Wang Lin ne brisa pas le sceau mémoriel de l'homme, mais lui offrit un choix. Il le regarda profondément avant de détourner les yeux. Il se tint sur le dragon marin qui l'emporta au loin.
+Wang Lin ne brisa pas le sceau mémoriel de l'homme, mais lui offrit un choix. Il le regarda profondément avant de détourner les yeux. Il se tint sur le dragon marin, qui poussa un rugissement et l'emporta au loin en un instant.
 
 « Zhou Yi, Grand Frère Zhou, oublie-moi, oublie la grotte, oublie ta vie antérieure. Dans cette vie, chéris ceux qui sont près de toi. Elle est celle que tu as attendue toute une vie pour qu'elle se retourne, la silhouette de tes rêves. » Wang Lin laissa échapper un soupir.

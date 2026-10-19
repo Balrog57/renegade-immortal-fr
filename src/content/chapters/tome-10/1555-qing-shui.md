@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1555 - Qing Shui !"
 slug: qing-shui
 ---
-Parce que cet homme faisait face à Wang Lin, celui-ci pouvait lire son expression: elle était empreinte de joie et de choc! C'était comme s'il éprouvait un immense bonheur en absorbant la puissance de cette Tortue Noire, mais au moment même où son excitation atteignait son paroxysme, un événement terrifiant survint, causant sa mort. Voilà ce qui expliquait cette expression mêlée de joie et de stupeur!
+Parce que cet homme, assis en tailleur, faisait face à Wang Lin, celui-ci pouvait lire son expression: elle était empreinte de joie et de choc! C'était comme s'il éprouvait un immense bonheur en absorbant la puissance de cette Tortue Noire, mais au moment même où son excitation atteignait son paroxysme, un événement terrifiant survint, causant sa mort. Voilà ce qui expliquait cette expression mêlée de joie et de stupeur!
 
 Wang Lin n'avait jamais vu cet homme auparavant, mais il pressentait qu'il devait s'agir de l'Empereur Divin de la Tortue Noire, celui qui avait trahi les Quatre Sectes Divines pour rejoindre l'Alliance!
 
@@ -14,11 +14,11 @@ Les Quatre Sectes Divines ainsi que l'ancien Empereur Divin de l'Oiseau Vermillo
 
 En voyant la Tortue Noire et l'homme d'âge moyen, Wang Lin commença à formuler ses propres hypothèses.
 
-Cette gigantesque créature de pierre en forme de tortue noire ressemblait au dragon colossal qu'il avait aperçu dans l'Ancienne Tombe. L'aura qui s'en dégageait était absolument saisissante!
+Cette gigantesque créature de pierre en forme de tortue noire ressemblait aux deux dragons colossaux qu'il avait aperçus dans l'Ancienne Tombe. L'aura qui s'en dégageait était absolument saisissante!
 
 Bien que cette aura fût celle d'un être mort, la puissance qu'elle dégageait lorsqu'elle était encore vivante bouleversa Wang Lin. Il détourna le regard et s'élança. En un instant, il fila vers le sommet du plus haut pic.
 
-Le brouillard de sang rejeté par les 100 000 cultivateurs se précipita vers Wang Lin par derrière. Cependant, celui-ci l'ignora totalement pour atteindre instantanément la cime de la plus haute montagne.
+Le brouillard de sang rejeté par les 100 000 cultivateurs, condensé en une masse, se précipita vers Wang Lin par derrière. Cependant, celui-ci l'ignora totalement pour atteindre instantanément la cime de la plus haute montagne.
 
 Alors qu'il approchait, un rugissement frénétique retentit du sommet. Ce cri fit trembler tout ce qui l'entourait et fit fouetter les vêtements de Wang Lin par le vent.
 
@@ -42,7 +42,7 @@ C'était un index aux sept couleurs, long de cent pieds, qui semblait être appa
 
 Il paraissait exister depuis une éternité. Des fils rouges semblaient s'échapper de l'espace entre les sourcils de Qing Shui pour être absorbés par ce doigt.
 
-Wang Lin en eut le cuir chevelu engourdi. Il pressentait que ces 100 000 montagnes n'étaient pas de simples reliefs. Cette formation jouait un rôle spécial, et Qing Shui en était le pivot céleste!
+Wang Lin en eut le cuir chevelu engourdi. Il pressentait que ces 100 000 montagnes n'étaient pas de simples reliefs. Cette formation jouait un rôle spécial, et Qing Shui en était visiblement l'élément clé!
 
 « Tortue Noire pétrifiée, formation des 100 000 montagnes, 100 000 cultivateurs morts-vivants dont le sang est condensé en ressentiment pour se transformer en intention meurtrière... Quelle est cette maudite formation?! » songea Wang Lin silencieusement tout en progressant. En un éclair, il franchit l'interstice des nuages septicolores et se retrouva à moins de mille pieds de Qing Shui!
 
@@ -64,7 +64,7 @@ Alors qu'il rugissait, l'éclair rouge fonça sur Wang Lin. La proximité étant
 
 C'était l'Essence du Massacre!
 
-Des grondements tonitruants résonnèrent. Lorsque l'éclair fut sur le point de le percuter, Wang Lin forma un sceau et balaya l'air de la main. L'éclair rouge heurta sa paume et s'effondra. Wang Lin sentit son bras engourdi tandis que la puissance du Royaume Ji s'infiltrait dans son corps. Il sentit cette force tenter de dévaster son esprit, mais il parvint rapidement à la réprimer.
+Des grondements tonitruants résonnèrent. Lorsque l'éclair fut sur le point de le percuter, Wang Lin forma un sceau et balaya l'air de la main. L'éclair rouge heurta sa paume et s'effondra. Wang Lin sentit ses mains engourdies tandis que la puissance du Royaume Ji s'infiltrait dans son corps. Il sentit cette force tenter de dévaster son esprit, mais il parvint rapidement à la réprimer.
 
 Alors qu'il s'apprêtait à franchir la distance restante, Qing Shui ouvrit la bouche et poussa le rugissement le plus puissant que Wang Lin ait entendu depuis son arrivée.
 
@@ -104,7 +104,7 @@ Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrê
 
 « Le but de tout cela est de créer l'Essence du Massacre... ou peut-être est-il plus juste de dire que le Senior Frère Qing Shui sert de fourneau pour la produire!! »
 
-« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Culture avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux sous l'ancien Empereur Céleste. Elle porte l'aura du clan de la Tortue Noire, et en tant que descendant, l'Empereur Divin n'a eu d'autre choix que de trahir les Quatre Sectes! Seule une telle tentation pouvait le pousser à la trahison! »
+« Je comprends maintenant... L'Empereur Divin de la Tortue Noire a trahi les Quatre Sectes Divines parce que l'Alliance de Culture avait découvert ce corps de Tortue Noire. Cette créature était probablement l'un des quatre grands généraux de l'ancien Empereur Céleste. Son corps ne se décompose pas depuis dix mille ans et elle porte l'aura du clan de la Tortue Noire. En tant que descendant, l'Empereur Divin voulait s'approprier la puissance de son ancêtre, et c'est pour cela qu'il a trahi les Quatre Sectes! Seule une telle tentation pouvait faire de lui un traître! »
 
 « Le Senior Frère Qing Shui est venu ici pour comprendre l'origine de sa folie. Il a dû découvrir quelque chose qui l'a rendu fou à nouveau! Ce doigt aux sept couleurs est la source de tout cela. Le gaz rouge qu'il absorbe, c'est l'Essence du Massacre! » Wang Lin recula, l'esprit en plein tumulte. Il saisissait enfin la vérité!
 
@@ -120,4 +120,4 @@ La lumière aux sept couleurs persistait dans le ciel, et la silhouette semblait
 
 L'esprit de Wang Lin fut ébranlé. En contemplant ce qui se jouait dans le brouillard sanglant, il fut tout aussi horrifié que lorsqu'il avait découvert les 7 Millions de Mondes du Clan du Tonnerre Dispersé. Une spéculation terrifiante lui traversa l'esprit!
 
-« Cultiver le Dao... »
+« Nourrir le Dao... »

@@ -22,7 +22,7 @@ Wang Zhuo avait bel et bien tenu sa promesse envers Wang Lin. Il lui avait permi
 
 Wang Lin poussa un soupir. En revenant cette fois-ci, il trouvait la planète Suzaku terriblement étrangère. Même face à ses propres descendants, il ne ressentait aucune affection pour eux.
 
-La seule chose qui l'habitait était une mélancolie et une douleur lancinante au cœur. Il ne trouvait aucune trace d'attachement parmi ces gens.
+La seule chose qui l'habitait était une mélancolie et une tristesse légère au cœur. Il ne trouvait aucune trace d'attachement parmi ces gens.
 
 Pour la première fois, il ressentit personnellement que le passage du temps était comme un fleuve impitoyable qui emportait tous ses précieux souvenirs du passé...
 
@@ -32,15 +32,15 @@ Les huit anciens se tenaient devant l'ensemble des descendants du clan Wang, age
 
 Le regard de Wang Lin descendit depuis la tablette supérieure pour se poser sur l'une d'elles. Celle-ci indiquait: « Ancêtre Wang Yu ».
 
-Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan des Immortels Délaissés était en guerre contre Suzaku, ils capturaient des jeunes enfants capables de cultiver. L'un d'eux était Wang Yu.
+Wang Lin avait une vague impression de ce nom, Wang Yu. À l'époque où le Clan des Immortels Délaissés était en guerre contre Suzaku, ils capturaient des jeunes enfants. L'un d'eux était Wang Yu.
 
 « La vie de cet enfant s'est également éteinte... » La tristesse qui entourait Wang Lin s'intensifia. Il ressentait une émotion complexe au plus profond de son être. En un clin d'œil, des centaines d'années s'étaient écoulées. En regardant en arrière, il constatait que le temps avait tout transformé. Il était devenu difficile de trouver ne serait-ce qu'une seule personne qu'il avait connue.
 
 Tout en réfléchissant, il se détourna et sortit de la salle ancestrale. En observant la foule agenouillée sur la place, bien qu'ils partagent tous son sang, il n'avait pas l'impression d'être parmi ses proches.
 
-« Vous êtes désormais livrés à vous-mêmes. Plus aucun cultivateur ne s'immiscera dans le monde mortel! Quant à la Grande Dynastie Wang, si certains possèdent les compétences nécessaires, alors vous pourrez conserver cet héritage pendant des milliers d'années. »
+« Vous êtes désormais livrés à vous-mêmes. Plus aucun cultivateur ne s'immiscera dans le monde mortel! Quant à la Grande Dynastie Wang, si certains possèdent les compétences nécessaires, alors vous pourrez conserver cet héritage pendant mille ans. »
 
-« Mais si vous n'êtes que des êtres confus et impitoyables, cette richesse ne vous servira à rien! Bien que les événements passés aient été causés par l'influence du ressentiment, cette dynastie est imprégnée de tristesse. Si cela a été provoqué par ma famille Wang, alors vous devriez tous simplement devenir des civils! »
+« Mais si vous n'êtes que des êtres confus et impitoyables, cette richesse ne vous servira à rien! Bien que les événements passés aient eu leurs causes, vous avez été entraînés par ce ressentiment, cette dynastie est imprégnée de tristesse. Si cela a été provoqué par ma famille Wang, alors vous devriez tous simplement devenir des civils! »
 
 Après avoir réglé le karma de la famille Wang, Wang Lin jeta un regard froid à tous ses descendants, agita ses manches et s'élança dans les airs. Ta Shan et le garçon à la grosse tête le suivirent, ainsi que Lei Ji, dont la stature atteignait les trente pieds.
 
@@ -48,7 +48,7 @@ Une fois Wang Lin parti, la place retomba dans un silence de mort. Après un lon
 
 Wang Lin voyageait entre ciel et terre. Malgré le règlement du karma de ses descendants, la mélancolie dans son cœur ne s'atténuait pas. Il se dirigea vers la Secte du Ciel Nuageux.
 
-En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut un centipède de milliers de pieds de long fendant rapidement l'air, portant plusieurs cultivateurs sur son dos. L'un d'eux dégageait l'aura d'un immortel; il portait une robe jaune et une épée dans le dos.
+En chemin, son expression changea alors qu'il scrutait l'horizon. Il aperçut un centipède de plusieurs centaines de pieds de long fendant rapidement l'air, portant plusieurs cultivateurs sur son dos. L'un d'eux dégageait l'aura d'un immortel; il portait une robe jaune et une épée dans le dos.
 
 La brise légère faisait flotter ses vêtements, lui conférant une élégance suprême.
 
@@ -98,7 +98,7 @@ Neuf rayons de lumière déchirèrent le ciel et chutèrent brusquement devant T
 
 Après avoir réglé le karma à la Secte du Ciel Nuageux, Wang Lin s'élança dans les cieux. Les poissons yin et yang apparurent et tournèrent lentement au-dessus de sa tête. En résolvant le karma de ses descendants et celui de la Secte du Ciel Nuageux, sa compréhension du karma avait soudainement progressé.
 
-« L'illumination de mon domaine est le pivot de la seconde étape. Selon le domaine du karma, toute cause karmique doit engendrer un effet karmique. Seul un karma complet peut former un cycle, et ce n'est qu'en accomplissant d'innombrables cycles que je pourrai véritablement parfaire mon propre karma. Je ne m'attendais pas à ce que mon retour sur la planète Suzaku s'inscrive dans cette logique. » Wang Lin soupira et ferma les yeux. Son sens divin enveloppa la planète entière.
+« L'illumination de mon domaine est le pivot de la seconde étape. Selon le domaine du karma, toute cause karmique doit engendrer un effet karmique. Seul un cycle de causes et d'effets permet un accomplissement complet, et ce n'est qu'après d'innombrables accomplissements que je pourrai véritablement parfaire mon propre karma. Je ne m'attendais pas à ce que mon retour sur la planète Suzaku s'inscrive dans cette logique. » Wang Lin soupira et ferma les yeux. Son sens divin enveloppa la planète entière.
 
 « Domaine du karma... Je dois rembourser tous ceux qui m'ont aidé. Je dois clore tout karma avec ceux que j'ai lésés... » Tandis qu'il méditait, le sens divin de Wang Lin se propagea comme une tempête à travers la planète Suzaku. Peu de temps après, son sens divin était présent en chaque recoin de l'astre.
 

@@ -16,7 +16,7 @@ Au même instant, une expression de douleur marqua son visage alors que les vêt
 
 C'était un morceau de bois vert!
 
-À l'apparition de ce bois sacré, des rugissements de dragons résonnèrent à travers le monde. D'innombrables Dragons Azure, longs de centaines de milliers de pieds, surgirent dans l'infini ciel étoilé. Leurs hurlements firent vibrer l'éther.
+À l'apparition de ce bois sacré, des rugissements de dragons résonnèrent à travers le monde. D'innombrables Dragons Azure, longs de dizaines de milliers de pieds, surgirent dans l'infini ciel étoilé. Leurs hurlements firent vibrer l'éther.
 
 Cela déclencha une ondulation phénoménale qui se propagea dans toutes les directions, soulevant un vent violent qui semblait troubler jusqu'au monde des mortels.
 

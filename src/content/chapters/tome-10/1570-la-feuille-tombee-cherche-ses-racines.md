@@ -14,7 +14,7 @@ Le sol était recouvert d'herbe et, au gré du vent, un parfum embaumait l'air.
 
 Les quatre personnes avaient initialement des expressions graves alors qu'elles s'inclinaient devant la statue de pierre qui se dressait devant elles. Après avoir entendu les paroles du fou, les trois disciples se retournèrent vers lui, le regard féroce et empreint de mépris.
 
-Cette montagne était reliée aux marches. C'était le plus haut sommet de la planète Suzaku, sculpté en une statue monumentale grâce à un puissant sortilège. Elle représentait un cultivateur dont la main gauche formait un sceau tandis que la main droite tenait une hache géante, le regard tourné vers les cieux. La pression invisible qui s'en dégageait donnait l'impression que cet être s'apprêtait à combattre les cieux!
+Cette montagne était reliée aux marches. C'était le plus haut sommet de la planète Suzaku, sculpté en une statue monumentale grâce à un puissant sortilège. Elle représentait un cultivateur dont la main gauche formait un sceau tandis que la main droite tenait la Hache Brise-Ciel, le regard tourné vers les cieux. La pression invisible qui s'en dégageait donnait l'impression que cet être s'apprêtait à combattre les cieux!
 
 L'escalier menait au pied de la statue. Par conséquent, tous les cultivateurs arrivant sur la planète Suzaku tombaient immédiatement sur elle. En descendant, en raison de la différence d'altitude, la pression émanant de la statue devenait de plus en plus écrasante, comme si chaque pas vers le bas était un acte d'adoration.
 
@@ -24,9 +24,9 @@ Elle représentait Wang Lin lors de la première bataille de la Mer des Nuages!
 
 Cependant, le visage de la statue était flou, empêchant quiconque de distinguer ses traits avec précision.
 
-« Ceci est une statue du Seigneur du Royaume Scellé lors de la première bataille de la Mer des Nuages. Elle fut érigée juste après qu'il eut terrassé l'ancêtre du Clan de l'Hirondelle de Feu et l'Estimé Nan Zhao. Il se tenait seul face à l'armée de l'Extérieur, composée de dizaines de milliers de cultivateurs, et aucun d'entre eux n'osait faire le moindre pas en avant! » Les paroles du vieil homme résonnèrent, incitant ses trois disciples à se retourner pour lui rendre hommage.
+« Ceci est une statue du Seigneur du Royaume Scellé lors de la première bataille de la Mer des Nuages. Elle fut érigée juste après qu'il eut terrassé l'ancêtre du Clan des Moineaux de Feu et l'Estimé Nan Zhao. Il se tenait seul face à l'armée de l'Extérieur, composée de dizaines de milliers de cultivateurs, et aucun d'entre eux n'osait faire le moindre pas en avant! » Les paroles du vieil homme résonnèrent, incitant ses trois disciples à se retourner pour lui rendre hommage.
 
-« Après cette première bataille, le nom du Seigneur du Royaume Scellé devint célèbre dans le Domaine Intérieur, et l'on apprit qu'il venait de la planète Suzaku. Les cultivateurs du Domaine Intérieur se rassemblèrent et, sous la direction de plusieurs puissants Anciens et du seigneur de la planète Suzaku, Zhou Wutai, le plus haut sommet fut transformé en une statue du Seigneur du Royaume Scellé », continua la voix de l'homme.
+« Après cette première bataille, le nom du Seigneur du Royaume Scellé devint célèbre dans le Royaume Intérieur, et l'on apprit qu'il venait de la planète Suzaku. Les cultivateurs du Royaume Intérieur se rassemblèrent et, sous la direction de plusieurs puissants Anciens et du seigneur de la planète Suzaku, Zhou Wutai, le plus haut sommet fut transformé en une statue du Seigneur du Royaume Scellé », continua la voix de l'homme.
 
 Wang Lin regarda silencieusement la statue et secoua doucement la tête dans un soupir. Il se souvenait vaguement que cette montagne appartenait au pays de Suzaku et qu'elle était sa terre sacrée. Pourtant, tout avait été transformé.
 
@@ -48,15 +48,15 @@ Ces neuf grandes sectes occupaient la majeure partie du territoire.
 
 En avançant, Wang Lin aperçut la Secte de l'Affinement de l'Âme. Le souvenir de Du Tian était toujours là, mais la Secte de l'Affinement de l'Âme n'était plus la même. La montagne avait disparu, remplacée par un lac entouré de nombreux pavillons d'où émanaient des ondes d'énergie spirituelle, mais il s'agissait désormais d'une autre secte.
 
-C'était ici que Situ Nan s'était réveillé. Ses paroles dominantes résonnaient encore aux oreilles de Wang Lin, mais il ne décelait plus aucune aura familière.
+C'était ici que Situ Nan s'était réveillé. Ses paroles tyranniques, capables de faire cesser la pluie, résonnaient encore aux oreilles de Wang Lin, mais il ne décelait plus aucune aura familière.
 
 Le Clan des Démons Géants du passé apparut dans son esprit, mais lui aussi avait changé. L'endroit où résidait autrefois le clan n'était plus qu'une vaste prairie. Des nomades mortels y circulaient, vêtus de simples tuniques ou torse nu, marchant parmi un troupeau de moutons tout en entonnant des chants joyeux. Quelques chiens parmi le troupeau aboyaient avec enthousiasme; leurs aboiements se mêlaient aux chansons sans paraître déplacés, conférant au tableau une atmosphère de paisible insouciance.
 
 « Cet endroit aussi... a changé... » Wang Lin ressentit une profonde mélancolie et poursuivit sa marche. Le fou le suivait en silence. Il percevait la solitude de Wang Lin et ressentait lui aussi le mal du pays.
 
-Après un long moment, le pays de Xue Yu apparut. La terre enneigée n'était plus qu'un souvenir. La neige avait fondu depuis longtemps. L'endroit était devenu une jungle dense qui ne ressemblait en rien au passé. Même les cités avaient été dévorées par la végétation.
+Après un long moment, le pays de Xue Yu apparut. La terre enneigée n'était plus qu'un souvenir. La neige avait fondu depuis longtemps. L'endroit était devenu une jungle dense qui ne ressemblait en rien au passé. Même les cités avaient été rasées, n'étant plus que des ruines englouties par la végétation.
 
-Enfouie sous cette jungle se trouvait également cette cité mortelle particulière, celle qui avait été le témoin de près de cent ans de la vie de Wang Lin. C'était là qu'un enfant nommé Ceng Niu avait grandi.
+Enfouie sous cette jungle se trouvait également cette capitale mortelle particulière, celle qui avait été le témoin de près de cent ans de la vie de Wang Lin. C'était là qu'un enfant nommé Ceng Niu avait grandi.
 
 En contemplant la jungle en contrebas, le cœur de Wang Lin se serra. C'était un sentiment indescriptible. Il avait l'impression que ce n'était plus sa maison...
 
@@ -78,7 +78,7 @@ Après être resté là, immobile et stupéfait, Wang Lin poussa un soupir et re
 
 Il se dirigea vers la Mer des Diables. La mer elle-même n'était plus la même. Autrefois, bien que la brume se fût dissipée, le bassin géant subsistait. Désormais, quelqu'un l'avait comblé pour en faire l'un des domaines de l'une des neuf grandes sectes.
 
-La grotte où il avait partagé sa vie avec Li Muwan avait disparu. Wang Lin la contempla depuis les cieux et sentit son cœur se déchirer. Il aurait voulu voir cette grotte, le corps du dragon géant, et cet endroit précis où Li Muwan avait mis toute son âme pour façonner ce jade.
+La grotte où il avait partagé sa vie avec Li Muwan avait disparu. Wang Lin la contempla depuis les cieux et sentit son cœur se déchirer. Il aurait voulu voir cette grotte, le corps du dragon géant, et cet endroit précis où Li Muwan avait mis tout son cœur.
 
 Il se détourna, accablé de tristesse.
 
@@ -90,9 +90,9 @@ Les transformations de la planète Suzaku l'avaient rendue bien plus belle, mais
 
 Les autres ne voyaient en elle que la patrie du Seigneur du Royaume Scellé et cherchaient à en faire une terre sainte. Ils ne comprenaient pas que cette terre sainte était vide. Était-ce vraiment ce que Wang Lin désirait?
 
-Tout cela n'était qu'une façade. Wang Lin ne se souciait ni de son prestige ni de sa renommée. Il n'était qu'un homme ordinaire, et même en tant que cultivateur, il n'était qu'un simple cultivateur.
+Tout cela n'était qu'une façade. Wang Lin ne se souciait ni de son prestige ni de sa renommée. Il n'était qu'un homme ordinaire; même devenu le Seigneur du Royaume Scellé, il restait un simple cultivateur.
 
-Il ne voulait qu'un foyer, un pays natal où il pourrait se remémorer le passé en toute sérénité. Une trace de familiarité pour ressentir un peu de chaleur après plus de 2 000 ans d'une culture cruelle. Juste une once de chaleur...
+Il ne voulait qu'un foyer, un pays natal où il pourrait se remémorer le passé en toute sérénité. Une trace de familiarité pour ressentir un peu de chaleur après plus de 2 000 ans d'une culture glaciale. Juste une once de chaleur...
 
 Mais cette chaleur était devenue un luxe inaccessible. Il la cherchait, mais ne trouvait que du vide.
 

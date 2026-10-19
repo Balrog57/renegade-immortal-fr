@@ -14,7 +14,7 @@ Il n'avait aucune intention de prendre l'initiative de voler des jades célestes
 
 Ainsi, même s'il devait tuer, il conserverait la supériorité morale. De plus, avec sa puissante culture, personne sur la planète Ran Yun n'oserait le contester.
 
-Après huit cents ans de culture, Wang Lin avait non seulement acquis de la sagacité, mais il savait également déjouer les complots les plus sinistres. Cependant, il révélait rarement sa part d'ombre. Maintenant qu'il avait changé d'apparence, même un connaisseur ne pourrait l'identifier par ce seul trait.
+Après huit cents ans de culture, Wang Lin avait non seulement acquis de la sagacité, mais il avait aussi appris la perfidie. Cependant, il révélait rarement sa part d'ombre. Maintenant qu'il avait changé d'apparence, même une personne qui le connaissait ne pourrait l'identifier par ce seul trait.
 
 Une pointe d'hésitation passa dans le regard du vieil homme. Peu de temps après, il laissa échapper un long soupir et, tout en tenant le miroir de bronze, demanda: « Combien de jades célestes voulez-vous pour ceci? »
 
@@ -34,7 +34,7 @@ Wang Lin les attrapa. Après avoir utilisé son sens divin pour vérifier l'exac
 
 Ce dernier l'attrapa immédiatement et l'examina avec soin. Son visage s'illumina de joie avant qu'il ne demande avec hésitation: « En avez-vous d'autres? »
 
-Wang Lin regarda le vieil homme et sortit une broche de son sac de rangement.
+Wang Lin regarda le vieil homme et sortit une broche à cheveux de son sac de rangement.
 
 « Ceci est également un pseudo-trésor céleste. » Une pointe de déception passa dans les yeux du vieil homme. Il adressa un signe de tête à Wang Lin avant de se retourner et de quitter le Pavillon du Bambou Vert.
 
@@ -44,7 +44,7 @@ En marchant dans la rue, Wang Lin déploya son sens divin, et un sourire moqueur
 
 « Je vais vous donner une chance! » Wang Lin changea de direction vers l'une des portes de la ville. Il franchit les remparts, sortit une épée volante et s'élança droit devant.
 
-Sa vitesse n'était pas rapide, car il maintenait celle d'un cultivateur de la Formation du Noyau. Après avoir parcouru plus d'un millier de kilomètres, un immense nuage de brouillard apparut soudainement devant lui. Ce brouillard était extrêmement étrange et semblait surgir du néant.
+Sa vitesse n'était pas rapide, car il maintenait celle d'un cultivateur de la Formation du Noyau. Après avoir parcouru plusieurs milliers de kilomètres, un immense nuage de brouillard apparut soudainement devant lui. Ce brouillard était extrêmement étrange et semblait surgir du néant.
 
 En un clin d'œil, le brouillard se condensa pour former une main qui s'abattit sur Wang Lin en produisant un sifflement strident.
 
@@ -62,7 +62,7 @@ Il éprouvait un immense regret. Il n'aurait jamais dû suivre les ordres de l'A
 
 Ce qui l'effrayait davantage encore, c'était que l'individu le poursuivait toujours. Cette pression de vie ou de mort était telle qu'il était sur le point de s'effondrer.
 
-Plus d'un millier de kilomètres passèrent en un éclair. Lorsque l'homme entra dans la ville, son visage était d'une pâleur extrême. La majeure partie de son Âme Naissante s'était déjà dispersée. Il cracha une nouvelle bouchée de sang avant de se précipiter vers le manoir de la famille Sun, situé au centre de la ville.
+Plusieurs milliers de kilomètres passèrent en un éclair. Lorsque l'homme entra dans la ville, son visage était d'une pâleur extrême. La majeure partie de son Âme Naissante s'était déjà dispersée. Il cracha une nouvelle bouchée de sang avant de se précipiter vers le manoir de la famille Sun, situé au centre de la ville.
 
 Arrivé là, il ne put plus contenir la dispersion de son âme. Il cria d'une voix rauque: « Sauvez-moi! » Comme s'il avait puisé dans ses dernières forces, son corps se courba et il s'effondra brutalement.
 
@@ -78,7 +78,7 @@ Simultanément, diverses silhouettes jaillirent du manoir des Sun, certaines s'�
 
 À cet instant, le visage de l'Ancien Sun était d'une sévérité extrême.
 
-Celui qui avait parlé était un vieillard au visage rouge. Il fixa froidement Wang Lin dans les airs et demanda: « De quelle famille viens-tu? Sais-tu que faire irruption chez la famille Sun est un crime impardonnable?! »
+Celui qui avait parlé était un vieillard au visage rouge. Il fixa froidement Wang Lin dans les airs et demanda: « De quelle famille viens-tu? Sais-tu que faire irruption chez la famille Sun est une catastrophe monstrueuse?! »
 
 Wang Lin sourit, pointa l'Ancien Sun du doigt et déclara: « Je suis venu pour lui! »
 
@@ -88,7 +88,7 @@ Wang Lin secoua la tête. Il désigna l'homme inconscient et sourit: « Il est c
 
 L'Ancien Sun laissa échapper un reniflement de mépris, mais les deux vieillards à ses côtés froncèrent les sourcils. Pour eux, l'affaire était limpide: ils supposèrent que le vieil homme Sun avait été avide des biens de cet inconnu et qu'incapable d'agir lui-même, il avait envoyé un subalterne.
 
-Cependant, l'Ancien Sun était bien un aîné de la famille Sun. Puisque les faits étaient là, ils prendraient indubitablement son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
+Cependant, l'Ancien Sun était bien un aîné de la famille Sun. Les faits étant ce qu'ils étaient, ils devaient à tout prix prendre son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
 
 Une lueur de froideur dans les yeux, Wang Lin leva sa main droite et l'abattit. Soudain, des rugissements tonnèrent tandis qu'une pression écrasante s'abattait directement sur le manoir de la famille Sun.
 

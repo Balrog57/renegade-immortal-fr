@@ -28,7 +28,7 @@ La scène était d'une tragédie extrême. Seule une haine monstrueuse pouvait p
 
 Ce ressentiment était la source de son massacre. C'était sa haine envers le Ciel et envers le Souverain Céleste qui contrôlait le destin. Les cultivateurs du Royaume Extérieur arrivaient justement à envahir les lieux à ce moment précis; ils allaient donc devoir subir sa colère!
 
-« Trop de gens sont déjà morts dans cette bataille, alors moi, Wang Lin, je ne me soucie pas d'en tuer davantage. Puisque vous cherchez tous à tuer pour une cause précise, alors moi, Wang Lin, je vais vous aider. Je veux voir ce que vous convoitez tant! »
+« Trop de gens sont déjà morts dans cette bataille, alors moi, Wang Lin, je ne me soucie pas d'en tuer davantage. Puisque vous cherchez tous à tuer pour une cause précise, alors moi, Wang Lin, je vais vous aider. Je veux voir ce que vous cherchez tant! »
 
 « Le Royaume Intérieur a déjà trop perdu, maintenant c'est au tour du Royaume Extérieur! » Les hurlements incessants résonnaient à ses oreilles. Son expression demeurait calme tandis qu'il avançait vers la Rivière Invoquée.
 
@@ -40,13 +40,13 @@ Dès que Wang Lin pénétra dans la Rivière Invoquée, une odeur de sang entêt
 
 Ces flocons enveloppèrent la zone et, à mesure que Wang Lin progressait, des craquements se firent entendre. L'espace derrière lui se figea, émettant une lueur rouge, avant qu'un froid monstrueux ne commence à se propager.
 
-Les yeux de Wang Lin prirent une teinte rougeâtre. Son Sens Divin se déploya et enveloppa toute la Rivière Invoquée. Alors que son Sens Divin couvrait l'intégralité du fleuve, l'aura choquante d'un cultivateur du troisième niveau émana des profondeurs de la rivière.
+Les yeux de Wang Lin prirent une teinte rougeâtre. Son Sens Divin se déploya et enveloppa toute la Rivière Invoquée. Alors que son Sens Divin couvrait l'intégralité du fleuve, l'aura choquante d'un cultivateur de la troisième étape émana des profondeurs de la rivière.
 
 Cette aura dégageait une sensation de surprise; il semblait avoir été pris au dépourvu par le Sens Divin de Wang Lin. S'il s'était agi de l'époque précédant le Dao du Rêve, Wang Lin aurait peut-être froncé les sourcils, mais désormais, il ne daignerait même pas regarder cette personne.
 
 Cette aura appartenait à un cultivateur du stade avancé du Vide Spirituel, mais Wang Lin osait même tuer des cultivateurs du Vide Arcanique; il n'avait donc nul besoin de prendre au sérieux un simple cultivateur du Vide Spirituel!
 
-D'un pas assuré, Wang Lin ignora l'aura du cultivateur du troisième niveau et arriva devant une planète. Cette dernière abritait des milliers de cultivateurs du Royaume Extérieur.
+D'un pas assuré, Wang Lin ignora l'aura du cultivateur de la troisième étape et arriva devant une planète. Cette dernière abritait des milliers de cultivateurs du Royaume Extérieur.
 
 La plupart d'entre eux cultivaient les yeux fermés. Certains s'amusaient ou abusaient de leurs fours de culture. D'autres riaient sauvagement en massacrant des mortels, tandis que d'autres encore dévoraient la culture de cultivateurs du Royaume Intérieur capturés.
 
@@ -68,7 +68,7 @@ Une pression écrasante les enveloppa, formant une force de suppression absolue.
 
 « Qui... qui est là?! »
 
-« Serait-ce un cultivateur du troisième niveau du Royaume Intérieur? Mais tous leurs experts de ce niveau sont à Luotian! Comment quelqu'un a-t-il pu franchir toutes les barrières pour arriver ici?! »
+« Serait-ce un cultivateur de la troisième étape du Royaume Intérieur? Mais tous leurs experts sont à Luotian! Comment quelqu'un a-t-il pu franchir toutes les barrières pour arriver ici?! »
 
 De nombreux cultivateurs, qu'ils soient en train d'utiliser des fours de culture ou d'exploiter des mortels et des captifs du Royaume Intérieur, furent frappés de stupeur. Tremblants de sueur froide, ils s'envolèrent vers les cieux.
 
@@ -80,9 +80,9 @@ Cette paume portait également une marque vacillante. Parfois nette, parfois flo
 
 Ce symbole était une porte; c'était la Porte des Dix Mille Vides, formée d'innombrables ossements blancs! Après avoir été détruite, cette porte avait été imprimée sur la paume de Wang Lin!
 
-Dès que les milliers de cultivateurs virent la porte, les doigts de la paume se refermèrent lentement, comme pour former un poing. Les cultivateurs ressentirent un grondement sourd alors que des filaments d'aura semblaient être arrachés de leurs corps pour être aspirés vers le ciel.
+Dès que les milliers de cultivateurs virent la porte, les doigts de la paume se refermèrent lentement, comme pour former un poing. Les cultivateurs ressentirent un grondement sourd alors que des filaments d'aura semblaient être arrachés de leurs sept orifices pour être aspirés vers le ciel.
 
-Lorsqu'une Marque du Karma était utilisée sur un cultivateur du troisième niveau, elle extrayait son essence sans affecter sa vie. Mais pour ceux qui n'avaient pas atteint ce stade, la Marque du Karma extrayait l'âme, l'âme originelle, la force vitale et toutes les substances éthérées de leur corps!
+Lorsqu'une Marque du Karma était utilisée sur un cultivateur de la troisième étape, elle extrayait son essence sans affecter sa vie. Mais pour ceux qui n'avaient pas atteint ce stade, la Marque du Karma extrayait l'âme, l'âme originelle, la force vitale et toutes les substances éthérées de leur corps!
 
 La Marque du Karma était terrifiante. Dès son apparition, le ciel changeait de couleur et les nuages se dispersaient. Ici, l'attaque de Wang Lin était chargée d'une colère et d'une intention meurtrière qui la rendaient encore plus effrayante!
 
@@ -98,7 +98,7 @@ Les hurlements misérables recommencèrent à résonner. Ces cris provenant de m
 
 « À peine quelques milliers... ce n'est toujours pas assez! » Wang Lin se retourna et marcha vers une autre planète qu'il avait repérée grâce à son Sens Divin.
 
-Au plus profond de la Rivière Invoquée, le Sens Divin du cultivateur du troisième niveau stationné dans ce système stellaire jaillit. Il se condensa pour former une ombre, et son corps originel s'élança depuis sa position. Il verrouilla Wang Lin du regard et vola vers lui depuis les lointains.
+Au plus profond de la Rivière Invoquée, le Sens Divin du cultivateur de la troisième étape stationné dans ce système stellaire jaillit. Il se condensa pour former une ombre, et son corps originel s'élança depuis sa position. Il verrouilla Wang Lin du regard et vola vers lui depuis les lointains.
 
 Wang Lin voulait que cette personne vienne; il l'avait laissé le repérer. Autrement, cet individu n'aurait pas été qualifié pour le trouver!
 

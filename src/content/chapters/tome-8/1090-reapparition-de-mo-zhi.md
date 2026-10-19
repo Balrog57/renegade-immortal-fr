@@ -10,7 +10,7 @@ Depuis la fondation des Quatre Sectes Divines, l'apparition d'un nouvel Empereur
 
 Bien que le Royaume Céleste fût souverain, à l'apogée des Quatre Sectes Divines, alors que les quatre Empereurs Divins étaient présents, même le Royaume Céleste de la Pluie devait leur témoigner un grand respect. Chaque fois qu'un nouvel Empereur Divin émergeait, le Royaume Céleste envoyait des cadeaux de félicitations.
 
-À cette époque, l'Alliance de Culture n'existait pas encore; il n'y avait que le Royaume du Vide Brillant. Pour être plus précis, le Royaume du Vide Brillant était un vassal du Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
+À cette époque, l'Alliance de Culture n'existait pas encore; il n'y avait que le Royaume du Vide Brillant. Pour être plus précis, le Royaume du Vide Brillant était une branche directement rattachée au Royaume Céleste, chargé de superviser tous les cultivateurs des royaumes inférieurs.
 
 Cependant, en raison de la puissance des Quatre Sectes Divines et d'autres raisons particulières, le Royaume Céleste avait permis aux Quatre Sectes Divines et au Royaume du Vide Brillant de coexister.
 
@@ -48,7 +48,7 @@ Une autre personne ressentit cette fluctuation: un vieil homme vêtu de noir. Il
 
 Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable de percer les confins du système stellaire, et ses yeux s'illuminèrent.
 
-« Le nouvel Empereur Divin des Quatre Sectes Divines... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin de l'Oiseau Vermillon. Dans ce cas, la pièce devient bien plus intéressante... Maître Éternel, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
+« Le nouvel Empereur Divin des Quatre Sectes Divines... Cette fluctuation contient une trace d'énergie originelle de feu; il doit donc s'agir du nouvel Empereur Divin de l'Oiseau Vermillon. Dans ce cas, la pièce devient bien plus intéressante... Maître Wuji, il est impossible que vous ne fassiez pas votre apparition lorsque l'Alliance sombrera dans le chaos! »
 
 Dans la partie sud de l'Alliance, au plus profond de la Secte des Cadavres, se trouvait un immense cercueil noir. Des chaînes l'entouraient selon une structure octogonale, le reliant à un autre cercueil.
 
@@ -66,7 +66,7 @@ La Secte Chu Yun occupait la planète principale et régnait en maître sur le p
 
 Dans la pièce secrète de la Secte Chu Yun siégeait un vieil homme à l'apparence très bienveillante. À cet instant, l'énergie originelle ondula. Il ouvrit les yeux et, après une longue réflexion, murmura doucement: « Mo Zhi. »
 
-À peine eut-il parlé que des ondulations apparurent devant lui, et un jeune homme chauve vêtu de vert en sortit. Il joignit les mains devant le vieil homme et dit respectueusement: « Mo Zhi salue son maître. »
+À peine eut-il parlé que des ondulations apparurent devant lui, et un homme chauve vêtu de vert en sortit. Il joignit les mains devant le vieil homme et dit respectueusement: « Mo Zhi salue son maître. »
 
 « Un nouvel Empereur Divin est apparu dans les Quatre Sectes Divines. Va chercher cinq pilules célestes de qualité suprême, cent pilules célestes ordinaires, mille trésors célestes... et aussi l'esprit que j'ai affiné il y a cinq ans en guise de cadeau! »
 

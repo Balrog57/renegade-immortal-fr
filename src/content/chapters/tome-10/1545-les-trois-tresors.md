@@ -100,7 +100,7 @@ Les deux se contemplèrent un moment avant qu'une tête ne surgisse du second ra
 
 « Vous deux, accompagnez-le et attendez-moi ici, sur cette planète. Pendant ce temps, ne laissez personne lui faire de mal! » Wang Lin était un homme de peu de mots, mais ses ordres imposaient une pression écrasante.
 
-Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigner dans la distance. Avec Xu Liguo, qui possédait un niveau de culture décent, et Liu Jinbiao, qui excellait dans l'art de la tromperie, ce fou devrait être en sécurité sur cette planète protégée.
+Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigner dans la distance. Avec Xu Liguo, qui possédait un niveau de culture décent, et Liu Jinbiao, qui excellait à lire les visages et les humeurs, ce fou devrait être en sécurité sur cette planète protégée.
 
 Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Culture!
 

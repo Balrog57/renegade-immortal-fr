@@ -12,9 +12,9 @@ Ce fragment était le dernier vestige du pouvoir de sa lignée céleste.
 
 Craignant que d'autres ne le remarquent, Wang Lin ferma les yeux lorsqu'il décocha la seconde flèche. Il savait qu'il possédait encore la force pour un tir supplémentaire, mais ce serait le dernier!
 
-La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement; les huit Poissons-Œil qui avaient déjà ouvert leurs yeux l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de culture.
+La flèche s'élança et le monde trembla. L'espace se plia tel un tissu de soie, comme sur le point de s'effondrer. Le Daoïste aux Sept Couleurs poussa un rugissement; les huit Poissons-Œil, aux yeux à peine entrouverts, l'avaient déjà déstabilisé. Lorsque la seconde flèche de Wang Lin jaillit, le Daoïste aux Sept Couleurs fut encore plus stupéfait et déploya toute sa puissance de culture.
 
-Une lumière aux sept couleurs se répandit, créant sept écrans lumineux de teintes différentes devant lui. À peine apparus, les huit Poissons-Œil convergèrent.
+Une lumière aux sept couleurs se répandit, créant sept écrans lumineux de teintes différentes devant lui, où apparaissaient d'innombrables glyphes. À peine apparus, les huit Poissons-Œil convergèrent.
 
 Les huit Poissons-Œil se rétractèrent en se rapprochant. Sous l'éclat d'une lumière noire, ils se transformèrent en huit flèches!
 
@@ -28,7 +28,7 @@ Le Grand Empyréen Xuan Luo contemplait calmement les huit Poissons-Œil. Il ét
 
 Les neuf Flèches de Li Guang se mêlèrent, rendant impossible l'identification de la véritable. Elles foncèrent droit sur le Daoïste aux Sept Couleurs. Son expression changea brusquement et les écrans lumineux qui l'entouraient se distordirent dans un fracas de tonnerre!
 
-Les sept écrans de lumière s'effondrèrent, entraînant avec eux les huit Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Œil. Ils atterrirent non loin de l'endroit où le premier avait disparu, et les neuf Poissons-Œil étaient désormais à leur dernier souffle.
+Les sept écrans de lumière s'effondrèrent, entraînant avec eux les huit Flèches de Li Guang. Pourtant, celles-ci ne se dissipèrent pas; elles se reformèrent en huit Poissons-Œil. Ils atterrirent non loin du premier, expulsé lors de l'effondrement de la planète de culture, et les neuf Poissons-Œil étaient désormais à leur dernier souffle.
 
 Cet effondrement créa une onde de choc qui obscurcit la vision et le Sens Divin. La neuvième Flèche de Li Guang perça tout sur son passage pour atteindre le Daoïste aux Sept Couleurs.
 
@@ -60,7 +60,7 @@ Des grondements de tonnerre résonnèrent lorsque la troisième flèche entra en
 
 Les neuf soleils explosèrent, libérant une force destructrice indescriptible. Le Général Dragon Azure était trop proche et fut frappé par cette onde dévastatrice. Son corps s'effondra et il mourut instantanément!
 
-Le monde commença à se briser. Ce monde était en train d'être détruit!
+Le monde commença à se briser. Ce monde venait de périr!
 
 Cependant, ce n'était pas la fin. Cette force destructrice représentait la pleine puissance du Daoïste aux Sept Couleurs, et les 300 mondes en décomposition ne pouvaient y résister. À mesure que l'onde se propageait, les 300 mondes commencèrent à s'effondrer les uns après les autres.
 

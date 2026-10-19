@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 5 - The Return
 slug: le-retour
 ---
-En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Seule une jeune fille avait progressé presque autant que Wang Lin.
+En fin de compte, aucun des onze jeunes n'avait réussi l'épreuve. Seule une jeune fille avait également pénétré jusqu'à 6,6 mètres, sans aller plus loin.
 
 Ce jour-là, tous les jeunes ayant échoué au test furent renvoyés au pied de la montagne. Les disciples de la Secte Heng Yue les raccompagnèrent chez eux un par un. Celui qui raccompagna Wang Lin était le même jeune homme, du nom de Zhang, qui les avait amenés jusqu'ici. Wang Zhuo et Wang Hao se tenaient à ses côtés.
 
@@ -68,7 +68,7 @@ Le père de Wang Zhuo était transporté de joie. Il tapota lourdement les épau
 
 Le visage du père de Wang Hao affichait également une expression anxieuse tandis qu'il fixait son fils. Alors qu'il s'apprêtait à poser une question, Wang Hao bâilla et dit fièrement: « Père, ne demande pas. Ton fils est déjà un disciple de la Secte Heng Yue. »
 
-Le père de Wang Hao fut extatique. Il saisit sa coupe et la vida d'un trait. Wang Zhuo afficha un air de dégoût. Il lança avec mépris: « Troisième Oncle, tu as engendré un fils remarquable. Il a fait honte à la famille Wang. Devant tout le monde, il n'a su que flatter l'immortel et, ce n'est qu'en lui offrant des pots-de-vin qu'il a pu devenir son assistant. »
+Le père de Wang Hao fut extatique. Il saisit sa coupe et la vida d'un trait. Wang Zhuo afficha un air de dégoût. Il lança avec mépris: « Troisième Oncle, tu as engendré un fils remarquable. Il a fait honte à la famille Wang. Devant tout le monde, il n'a su que flatter l'immortel et, ce n'est qu'en lui offrant des présents qu'il a pu devenir son assistant. »
 
 Wang Hao haussa les sourcils et répondit: « Je suis heureux, et alors? À l'avenir, nous verrons qui possède les techniques de culture les plus puissantes, et nous verrons alors qui a fait honte à la famille. »
 

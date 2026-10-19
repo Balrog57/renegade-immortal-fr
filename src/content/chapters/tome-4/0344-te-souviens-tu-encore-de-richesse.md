@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 344 - Do you still remember Wealth
 slug: te-souviens-tu-encore-de-richesse
 ---
-Son immense trompe paraissait très menaçante. La bête moustique se montrait extrêmement méfiante envers le crapaud tonnerre, n'arrêtant pas d'émettre des sons de protestation.
+Son immense trompe paraissait très menaçante. La bête moustique se montrait extrêmement méfiante envers le crapaud tonnerre, n'arrêtant pas de pousser des cris stridents.
 
 Le crapaud tonnerre fixait la bête moustique avec une expression provocatrice.
 
@@ -84,7 +84,7 @@ Puis, Wang Lin prit une inspiration, rangea le crapaud tonnerre et la bête mous
 
 ***
 
-Dans la maison de l'ancien Zhou, au village des Fleurs d'Abricot, une femme contemplait un bébé de genre féminin avec tendresse.
+Dans la maison de la famille Zhou, au village des Fleurs d'Abricot, une femme contemplait un bébé de genre féminin avec tendresse.
 
 « Ru Er, ton père est allé au village des Zhang te chercher du ginseng pour fortifier ton corps. Je ne comprends pas ce qui arrive à cet enfant pour qu'elle soit si faible. »
 
@@ -140,7 +140,7 @@ Wang Lin monta sur le dos de la bête moustique et s'envola vers le Cimetière d
 
 À cet instant, au cœur de la Mer des Démons, quelque chose s'agitait parmi les Étoiles Brisées du Chaos.
 
-Dans la mer de sang située dans les terres de l'Ancien Dieu.
+Dans la mer de sang située dans le corps de l'Ancien Dieu.
 
 L'aspect de la mer de sang avait radicalement changé. La plupart des piliers avaient disparu; seul celui sur lequel trônait Ta Sen subsistait.
 

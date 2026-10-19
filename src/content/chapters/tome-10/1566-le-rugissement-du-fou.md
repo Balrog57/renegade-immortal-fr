@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1566 - The Madman’s Roar
 slug: le-rugissement-du-fou
 ---
-Une onde invisible se propagea dans toutes les directions, prenant les deux hommes pour centre. Cette ondulation s'étendit à travers le monde.
+Une onde invisible se propagea dans toutes les directions dans un grondement, prenant les deux hommes pour centre. Cette ondulation s'étendit à travers le monde avec une puissance immense.
 
-Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il enterra profondément au cœur de Treize!
+Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il enterra profondément au plus profond de l'âme de Treize!
 
 « Je ne te donnerai aucun trésor, seulement cette graine d'essence! »
 
@@ -38,7 +38,7 @@ Il avait promis une chance de survie à ce démon ancien, et Wang Lin n'oubliait
 
 Le ciel étoilé était silencieux la nuit, si ce n'est pour les grondements des cultivateurs en plein combat. Pour l'instant, Wang Lin progressait silencieusement vers l'horizon.
 
-Sa progression paraissait lente, mais en réalité, chaque pas couvrait de vastes distances. C'était une technique semblable au Repliement Spatial.
+Sa progression paraissait lente, mais en réalité, chaque pas couvrait de vastes distances. C'était une technique semblable à la Déformation Spatiale.
 
 Wang Lin ne se rendit pas dans le Royaume Céleste de la Pluie. Ce n'était pas par manque de volonté, mais par manque de temps. Il passa devant l'entrée cachée du Royaume Céleste de la Pluie et jeta un regard en arrière. Il devait d'abord aller chercher le fou.
 
@@ -48,7 +48,7 @@ En ce moment même, dans une cité mortelle de cette planète, l'automne était 
 
 C'était une petite ville, sans grand éclat. Peu d'habitants y résidaient, et les rues étaient pour la plupart désertes. Seuls quelques commerces étaient ouverts, et les rafales automnales faisaient trembler les enseignes, conférant au lieu une atmosphère lugubre.
 
-Quelques étals occupaient le coin d'une rue, où des serveurs discutaient paresseusement entre eux. Bien qu'ils fussent vêtus de plusieurs couches de vêtements, ils ne pouvaient échapper à la morsure du vent.
+Quelques étals occupaient le coin d'une rue, où des serveurs bâillaient et discutaient paresseusement entre eux. Bien qu'ils fussent vêtus de plusieurs couches de vêtements, ils ne pouvaient échapper à la morsure du vent.
 
 Le bruissement des feuilles mortes résonnait sur le sol alors que le vent les faisait rouler dans la rue. Certaines s'accumulaient contre les étals, bloquées par les tables, avant de glisser plus loin.
 
@@ -60,7 +60,7 @@ Ce rire fut interrompu par la feuille. Il grommela quelque chose, frappa son vis
 
 Tout en piétinant la feuille, il poussa un rugissement:
 
-« Petite feuille, tu oses défier ce Roi?! Humph, humph, voyons comment ce Roi va te traiter! » Il piétina l'objet plus de dix fois avant que le vent ne l'emporte enfin, le forçant à abandonner.
+« Petite feuille, tu oses défier ce Roi?! Humph, humph, voyons comment ce Roi va te traiter! » Il piétina l'objet pendant plus de dix instants avant que le vent ne l'emporte enfin, le forçant à abandonner.
 
 C'était le fou. Les deux hommes derrière lui, habitués à ses excentricités, se contentèrent d'échanger un regard.
 
@@ -90,7 +90,7 @@ Sous l'impatience du fou, le trio atteignit le bord de la rue où se trouvait un
 
 Un réseau de transfert se trouvait dans l'arrière-boutique. Ce dispositif était rudimentaire et semblait avoir été installé récemment. Le fou, debout devant le réseau, hurla sur Xu Liguo.
 
-Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé une cultivatrice au stade du Yang Corporel. Elle avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, elle craint que cela se sache et doit donc être particulièrement prudente. »
+Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé un cultivateur au stade du Yang Corporel. Il avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, il craint que cela se sache et doit donc être particulièrement prudent. »
 
 Le visage du fou était marqué par l'impatience et il pinça les lèvres. « Nous venons ici depuis tant de jours et nous n'avons pas réussi une seule fois! Si ce n'est pas un succès cette fois, ce Roi ne jouera plus! Ce n'est pas aussi amusant que tu le prétends; quel genre de divertissement ce Roi n'a-t-il pas déjà expérimenté? »
 

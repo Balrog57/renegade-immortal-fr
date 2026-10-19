@@ -140,7 +140,7 @@ Wang Lin prit le deuxième flacon en partant de la droite. Ce qu'il contenait é
 
 Après avoir ingéré plusieurs bouteilles d'un coup, Wang Lin constata que si la vitesse de dissipation de l'énergie spirituelle n'avait pas ralenti, le taux d'absorption par son corps s'était soudain accéléré.
 
-Pour une personne normale, ce gain de vitesse ne se traduirait que par une absorption légèrement plus rapide.
+Pour une personne normale, ce gain de vitesse ne se traduirait que par une absorption légèrement plus rapide, qui lui permettrait tout de même de gagner un peu plus d'énergie spirituelle.
 
 Mais avec la tactique de l'Ancien Dieu, cette légère accélération offrait à Wang Lin suffisamment de temps pour capturer la masse d'énergie spirituelle qui, normalement, se serait dissipée.
 
@@ -180,7 +180,7 @@ Wang Lin se méfiait de tous. Bien que Zhou Lin lui ait été sympathique et soi
 
 Sous le balayage de son Sens Divin, il ne perçut qu'une fluctuation d'énergie spirituelle provenant du fourneau à pilules; tout le reste semblait normal.
 
-Dès que Zhou Lin entra dans la pièce, il toucha sa sacoche et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de deux pas, retourna les mains et projeta un éclat de lumière spirituelle. Les trois jades brillèrent d'une lueur verte et le fourneau, secoué tout entier, s'enfonça lentement de dix centimètres dans le sol.
+Dès que Zhou Lin entra dans la pièce, il toucha son sac de rangement et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de deux pas, retourna les mains et projeta un éclat de lumière spirituelle. Les trois jades brillèrent d'une lueur verte et le fourneau, secoué tout entier, s'enfonça lentement de dix centimètres dans le sol.
 
 Zhou Lin prit une grande inspiration et saisit le fourneau. Après l'avoir fait pivoter d'un demi-tour de gauche à droite, un rayon de lumière apparut sur le mur devant lui.
 

@@ -12,7 +12,7 @@ Quelques jours plus tard, Wang Lin retourna à la grotte où il s'était trouvé
 
 Wang Lin prit une profonde inspiration et ferma lentement les yeux. Il guida l'énergie spirituelle chaotique dans son corps pour qu'elle circule le long de ses méridiens. Le temps s'écoula. Il fit lentement circuler son énergie spirituelle à travers son corps et son noyau afin de réparer la circulation de l'énergie spirituelle.
 
-Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau.
+Peu à peu, son noyau se rétablit et sa culture retrouva le sommet du stade avancé de la Formation du Noyau, celui de la pseudo-Formation du Noyau.
 
 Simultanément, Wang Lin coupa brusquement la circulation de son pouvoir spirituel dans ses canaux. Ensuite, il rassembla l'énergie spirituelle de son corps et la projeta violemment contre la restriction du lotus.
 
@@ -84,7 +84,7 @@ Wang Lin toussa à plusieurs reprises. Il forma un sceau de la main pour créer 
 
 Il leva la tête et scruta les environs. La lumière vive du soleil frappa ses yeux, le faisant cligner des paupières. En observant son nouvel environnement, il comprit qu'il n'était plus dans la Mer des Démons. Les montagnes étaient parées de verdure et des bêtes volantes inconnues planaient dans le ciel.
 
-Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ce dernier mois, bien que la brume se soit dissipée, le ciel lointain était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
+Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ce dernier mois et quelques, bien que la brume se soit dissipée, le ciel lointain était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
 
 Il prit une profonde inspiration, se tourna vers le réseau de transfert et sortit son épée empoisonnée. Il en fit sauter à coups d'épée quelques morceaux des matériaux du dispositif, qu'il rangea dans son sac de rangement. Ce n'est qu'alors qu'il se sentit apaisé.
 

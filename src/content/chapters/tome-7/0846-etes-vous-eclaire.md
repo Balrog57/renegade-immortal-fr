@@ -22,9 +22,9 @@ Une brise légère souffla, faisant onduler les rideaux. Les yeux des deux occup
 
 Même la fillette fut envahie par cette perplexité. Seule la petite bête commença soudainement à émettre des grognements hostiles, montrant ses dents. Semblant avoir oublié ses blessures, elle bondit derrière le dos de la fille. Elle leva les yeux vers le ciel et poussa un long rugissement.
 
-La peur luttait avec une force intérieure qui l'empêchait de reculer. À cet instant, elle ne remarqua même pas qu'une traînée de sang s'échappait de sa patte bandée.
+La peur luttait avec une force intérieure qui l'empêchait de reculer. À cet instant, elle ne remarqua même pas qu'une tache de sang suintait de sa patte bandée.
 
-« Le Dao des cieux est infini, le chemin du Dao est sans limites. L'acte bienveillant d'aujourd'hui créera une cause karmique... À l'avenir, le cycle s'accomplira et l'effet karmique se formera... » Une voix antique résonna à travers le monde, empreinte d'une pointe d'illumination.
+« Le Dao des cieux est infini, le chemin du Dao est sans limites. L'acte bienveillant d'aujourd'hui créera une cause karmique... À l'avenir, le cycle s'accomplira et ce lien karmique sera dénoué... » Une voix antique résonna à travers le monde, empreinte d'une pointe d'illumination.
 
 Le corps de la petite bête trembla, mais elle poussa un nouveau rugissement. Ses yeux brillaient d'intelligence alors qu'elle contemplait le ciel. Elle sentait une aura capable de l'étouffer, mais elle refusait de battre en retraite!
 
@@ -94,7 +94,7 @@ La tristesse dans les yeux de l'homme en robe jaune s'intensifia. Une brise sile
 
 Wang Lin voyageait, cherchant sans relâche à confirmer son Dao. Parfois il était confus, parfois il doutait, parfois il était perplexe. Le Dao des cieux étant infini, tenter de s'en saisir était une tâche ardue.
 
-Alors qu'il suivait le vent, Wang Lin sembla traverser un rêve. Dans ce rêve, il avait l'impression d'être devenu la planète Qing Ling. Il pouvait voir, entendre et ressentir les actions de chaque être vivant sur cette planète.
+Alors qu'il suivait le vent, Wang Lin sembla traverser un rêve. Dans ce rêve, il avait l'impression d'être devenu la planète Qing Ling. Il pouvait voir, entendre, ressentir et comprendre les actions de chaque être vivant sur cette planète.
 
 Il vit la naissance d'un nourrisson, la mort d'un vieillard, l'affection des parents, le regard d'un amant, les adieux, les retrouvailles, les actes de vertu et les maux infinis...
 
@@ -102,7 +102,7 @@ Il vit la naissance d'un nourrisson, la mort d'un vieillard, l'affection des par
 
 L'énergie spirituelle sur la planète Qing Ling devint plus dense, mais elle portait une trace de confusion. Quiconque la cultivait se retrouvait immédiatement immergé dans un royaume mystérieux, semblant fusionner avec la planète elle-même. À cet instant, leurs esprits étaient involontairement asservis à la poursuite d'un résultat.
 
-La quête de Wang Lin se poursuivit et le temps passa lentement. Pour lui, cela semblait sans fin alors qu'il s'épanouissait sur toute la planète Qing Ling.
+La quête de Wang Lin se poursuivit et le temps passa lentement. Pour lui, cela semblait sans fin alors qu'il se répandait sur toute la planète Qing Ling.
 
 Au coucher du soleil, dans une école de village, après le départ de la plupart des enfants, un jeune garçon restait seul pour balayer la cour. Une brise légère souffla et le fit sursauter. Ses yeux brillèrent alors qu'il posait son balai pour se diriger vers la demeure du maître.
 
@@ -138,7 +138,7 @@ Dès que la voix du garçon retentit, un silence de mort s'installa. L'expressio
 
 Le garçon secoua la tête. Une fois assis, son corps trembla et il retrouva sa normalité. Personne ne remarqua que la brise avait quitté l'école.
 
-La brise se répandit sur toute la planète Qing Ling. Presque chaque érudit de la planète fut interrogé par divers moyens sur cette même question. À la fin, ils eurent tous des réponses différentes, mais nul ne put donner de réponse claire.
+La brise se répandit sur toute la planète Qing Ling. Presque chaque sage de la planète fut interrogé par divers moyens sur cette même question. À la fin, ils eurent tous des réponses différentes, mais nul ne put donner de réponse claire.
 
 Confus, Wang Lin demeurait plongé dans son rêve, cherchant sans fin. Il semblait pouvoir se diviser en d'innombrables incarnations pour chercher le véritable sens du Dao.
 
@@ -148,11 +148,11 @@ Il poussa un lourd soupir avant de prendre son parapluie pour sortir par cette j
 
 « Qu'est-ce que le Dao... Je pensais être rempli de savoir et avoir percé les mystères du monde. Pourtant, j'ai été déconcerté par ce que cet étrange spectre m'a demandé... Qu'est-ce que le Dao... »
 
-Perdu dans ses pensées, le vieil homme Xie se dirigea inconsciemment vers la partie nord de la ville. Là, un autre vieillard était assis au bord de la rivière, portant un imperméable et jetant son filet pour pêcher.
+Perdu dans ses pensées, le vieil homme Xie se dirigea inconsciemment vers la partie nord de la ville. Là, un autre vieillard était assis au bord de la rivière, portant un imperméable de paille et un chapeau conique, et jetant son filet pour pêcher.
 
 Le vieil homme nommé Xie l'observa sans grande attention et murmura pour lui-même: « Qu'est-ce que le Dao... »
 
-À cet instant, le pêcheur poussa un cri de joie en remontant son filet, qui débordait de poissons. Les poissons se débattaient frénétiquement, ouvrant la bouche pour tenter d'avaler l'eau de la rivière. Leurs yeux semblaient emplis de désespoir tandis que leurs corps s'agitaient violemment dans les mailles!
+À cet instant, le pêcheur poussa un cri de joie en remontant son filet, qui contenait plusieurs gros poissons. Les poissons se débattaient frénétiquement, ouvrant la bouche pour tenter d'avaler l'eau de la rivière. Leurs yeux semblaient emplis de désespoir tandis que leurs corps s'agitaient violemment dans les mailles!
 
 Cette scène frappa le vieil homme Xie comme la foudre. Tout son corps trembla alors qu'il fixait les poissons et le pêcheur qui remontait sa prise.
 

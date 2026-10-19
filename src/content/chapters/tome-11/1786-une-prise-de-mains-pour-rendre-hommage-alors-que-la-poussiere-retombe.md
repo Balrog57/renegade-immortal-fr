@@ -34,7 +34,7 @@ Wang Lin avait attendu ce jour pendant une éternité. Depuis qu'il avait appris
 
 En contemplant cette porte dorée, il sembla entrer en transe. Plus de 2 000 ans de souvenirs défilèrent dans son esprit. Il était passé du statut d'enfant d'un village de montagne à celui qu'il était aujourd'hui, celui qui ouvrait la porte du monde caverne.
 
-Ce chemin fut amer; peu de gens pouvaient comprendre les épreuves qu'il avait endurées et ses innombrables confrontations avec le destin, pour le meilleur comme pour le pire.
+Ce chemin fut amer; peu de gens pouvaient comprendre les épreuves qu'il avait endurées et les innombrables croisements du destin, faits d'affection comme de bienfaits.
 
 « Wan Er, j'ai ouvert la porte du monde caverne. C'est là que je t'éveillerai... C'est ma promesse. » Wang Lin regarda la porte, le cœur serré de tristesse en pensant à Li Muwan.
 
@@ -42,7 +42,7 @@ Ce chemin fut amer; peu de gens pouvaient comprendre les épreuves qu'il avait e
 
 Wang Lin fixa la porte dorée. En un instant, il eut l'impression de voir toute sa vie défiler à travers elle.
 
-La troisième concubine, Tang Shan, mordit sa lèvre inférieure en fixant la porte, les larmes coulant sur ses joues. Elle regrettait son foyer, sa secte, son maître et ses semblables. Elle était restée trop longtemps dans ce monde caverne. Elle aurait dû être devenue insensible, mais sa nostalgie s'était muée en une volonté farouche de continuer à attendre.
+La troisième concubine, Tang Shan, mordit sa lèvre inférieure en fixant la porte, les larmes coulant sur ses joues. Elle regrettait son foyer, sa secte, ses proches et son maître. Elle était restée trop longtemps dans ce monde caverne. Elle aurait dû être devenue insensible, mais sa nostalgie s'était muée en une volonté farouche de continuer à attendre.
 
 Elle avait réussi à tenir jusqu'à ce jour.
 
@@ -120,7 +120,7 @@ Le Général Tigre Blanc fut surpris, les yeux brillants de gratitude. Il s'incl
 
 Les trois se transformèrent en trois traînées de lumière et volèrent vers la porte dorée tandis que Wang Lin restait pensif. Ils disparurent dans l'ouverture pour retourner sur le Continent Astral Immortel.
 
-La troisième concubine, Tang Shan, mordit sa lèvre inférieure et s'avança vers la porte dorée. À environ cent pieds de celle-ci, elle s'arrêta et regarda Wang Lin.
+La troisième concubine, Tang Shan, mordit sa lèvre inférieure et s'avança vers la porte dorée. À plusieurs centaines de pieds de celle-ci, elle s'arrêta et regarda Wang Lin.
 
 « Merci... »
 
@@ -132,7 +132,7 @@ Tang Shan ouvrit la bouche comme pour dire quelque chose, mais resta silencieuse
 
 Wang Lin ne répondit pas. Le regard de Tang Shan s'obscurcit alors qu'elle était enveloppée par la lumière dorée. Personne, hormis elle, ne vit ses yeux s'éteindre tandis qu'elle disparaissait lentement dans la porte.
 
-À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà du Maître du Dao Rêve Bleu et des autres pour se fixer sur le vide, derrière lui. Il joignit les mains face au néant.
+À cet instant, tous ceux qui n'appartenaient pas au monde caverneux étaient partis un à un. Le regard de Wang Lin glissa au-delà du Maître du Dao Rêve Bleu et des autres pour se fixer sur le vide, à mille pieds derrière lui. Il joignit les mains face au néant.
 
 Il n'y avait rien, rien ne semblait anormal. Aucune ondulation, aucun signe, mais les paroles de Wang Lin résonnèrent solennellement:
 

@@ -24,7 +24,7 @@ Le Maître Nan Yunzi eut le souffle coupé. Il devinait déjà qui avait eu la c
 
 Treize, Maître Lu Fu et l'affaibli Empereur Divin Dragon Azure tremblèrent tous, regardant le vortex près de la Porte du Vide avec une excitation fébrile. En particulier, Treize était transporté par l'émotion.
 
-Le Maître Long Pan sourit en contemplant le vortex. Il semblait voir la silhouette qui, autrefois, avait rugi furieusement contre lui.
+Le Maître Long Pan sourit en contemplant le vortex. Il semblait voir la silhouette qui, autrefois, l'avait vertement réprimandé.
 
 « Seigneur du Royaume Scellé! Seigneur du Royaume Scellé! »
 
@@ -62,7 +62,7 @@ Cependant, en tant que l'un des Cinq Maîtres, il ne pouvait pas simplement fuir
 
 L'expression de Wang Lin demeura indifférente. Alors que le Maître Céleste Dieu du Vide approchait, il ferma les yeux avant de les rouvrir soudainement. À cet instant, l'aura d'un grand érudit se propagea de lui. C'était l'aura de celui qui a compris les cieux et ne craint ni les fantômes ni les dieux!
 
-Même les cieux auraient dû reculer devant une telle aura, et même les spectres auraient dû trembler. Même les lois du monde se distordaient devant elle. C'était une force appartenant aux humains, celle d'un grand érudit de l'humanité!
+Même les cieux auraient dû reculer devant une telle aura, et même les spectres auraient dû trembler. Même les lois du monde devenaient vaines devant elle. C'était une force appartenant aux humains, celle d'un grand érudit de l'humanité!
 
 Les cultivateurs étaient aussi des humains. Même s'ils atteignaient la troisième étape, ils restaient humains!
 
@@ -86,7 +86,7 @@ Wang Lin agita ses manches. Après avoir fait reculer le Maître Céleste Dieu d
 
 « Tonnerre, feu, karma, vie et mort, vrai et faux, massacre. Six essences portant mon nom, Wang Lin, je vous ordonne de briser la Porte du Vide! » Les paroles de Wang Lin se propagèrent et la Porte du Vide émit une pression infinie.
 
-Briser la Porte du Vide!
+Franchir la Porte du Vide!
 
 Wang Lin leva la tête vers la Porte qui surplombait la scène. Il avait attendu ce jour pendant plus de 2 000 ans. Il avait trop longtemps attendu!
 
@@ -100,7 +100,7 @@ Il s'élança vers le haut. Sous les yeux des dizaines de milliers de cultivateu
 
 Une fois la porte brisée, il serait un cultivateur de la troisième étape!
 
-Une fois la porte brisée, il pourrait agir selon ses désirs!
+Une fois la porte brisée, il pourrait dominer le monde!
 
 Une fois la porte brisée, il serait qualifié pour connaître le secret ultime séparant les Royaumes Intérieur et Extérieur!
 

@@ -108,7 +108,7 @@ Au moment de descendre, il jeta un dernier regard vers le bateau avant de s'élo
 
 Cependant, à cet instant précis, un hurlement retentit depuis les nuages tourbillonnants au loin. Au son de ce cri fracassant, Wang Lin leva instinctivement les yeux et vit une scène inimaginable.
 
-Des rayons de lumière capables de percer les cieux jaillirent à travers les nuages noirs. L'un d'eux s'arrêta soudainement au-dessus de Wang Lin, révélant une femme vêtue de bleu. Elle baissa les yeux et son regard croisa celui de Wang Lin.
+Des rayons de lumière capables de percer les cieux jaillirent à travers les nuages noirs. L'un d'eux, orné d'ondulations d'eau, s'arrêta soudainement au-dessus de Wang Lin, révélant une femme vêtue de bleu. Elle baissa les yeux et son regard croisa celui de Wang Lin.
 
 « Hein… » La confusion se lut dans ses yeux.
 

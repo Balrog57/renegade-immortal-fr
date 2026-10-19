@@ -26,7 +26,7 @@ Ce genre de comportement existait dans chaque secte, ce n'était donc pas un inc
 
 La jeune femme nommée Zhou, assise aux côtés de Wang Lin, fronça les sourcils. Elle lança un regard dégoûté à Wang Zhuo, puis murmura à l'oreille de Wang Lin: « Junior frère Wang Lin, si je n'étais pas venue, il ne t'aurait pas pris pour cible. Je... »
 
-Wang Lin secoua la tête. Wang Zhuo ne s'en prenait pas à lui depuis seulement quelques jours. Dès le premier jour de leur rencontre, Wang Zhuo s'était efforcé de le ridiculiser. Tous les disciples intérieurs le méprisaient à cause des rumeurs selon lesquelles il avait été admis dans la secte par un suicide et s'était attiré les faveurs des Anciens par des actes vils.
+Wang Lin secoua la tête. Cela faisait longtemps que Wang Zhuo s'en prenait à lui. Dès le premier jour de leur rencontre, Wang Zhuo s'était efforcé de le ridiculiser. Tous les disciples intérieurs le méprisaient à cause des rumeurs selon lesquelles il avait été admis dans la secte par un suicide et s'était attiré les faveurs des Anciens par des actes vils.
 
 Surtout, il n'était qu'au 3ème niveau de Condensation de Qi, ce qui faisait de lui le plus faible de tous ces disciples.
 

@@ -25,7 +25,7 @@ Cupidité étant le plus proche, cette sensation était cent fois plus intense p
 
 À cet instant, l'Écran Montagne et Rivière prit possession de la zone, comme si l'espace avait disparu. Pourtant, malgré cela, le doigt perça l'écran tout en s'abattant avec force.
 
-Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Cupidité cracha une large bouffée de sang en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
+Des bruits de craquements résonnèrent et d'innombrables fissures apparurent sur l'écran. Cupidité cracha une large bouffée de sang de son âme originelle en battant en retraite précipitamment; il continuait de saigner abondamment, ses blessures étant trop graves.
 
 Le doigt de l'ancien dieu ne s'arrêta pas et s'abattit sur Cupidité.
 
@@ -161,7 +161,7 @@ Cependant, ce souvenir était trop ancien et n'était plus qu'un flou total; seu
 
 Il recula progressivement, ses tentacules oscillant d'avant en arrière tout en dégageant une pression terrifiante. En chemin, de nombreux cultivateurs remarquèrent le Serpent aux yeux de lune. Pourtant, ils n'eurent qu'un seul regard avant que leurs poils ne se hérissent et qu'ils ne tombent dans un état de choc total. Ils firent demi-tour et s'enfuirent, maudissant leur incapacité à s'échapper plus vite.
 
-Le Serpent aux yeux de lune s'arrêta quelque part entre les cinq planètes principales du domaine nord, et son corps commença à se replier lentement en une sphère. Ses innombrables tentacules se rétractèrent progressivement jusqu'à réintégrer son corps.
+Le Serpent aux yeux de lune s'arrêta à l'intérieur du périmètre des cinq planètes principales du domaine nord, et son corps commença à se replier lentement en une sphère. Ses innombrables tentacules se rétractèrent progressivement jusqu'à réintégrer son corps.
 
 Des bouffées de brume jaillirent du corps du Serpent aux yeux de lune et enveloppèrent la zone.
 
@@ -205,7 +205,7 @@ Cette planète était sans nom et située dans une zone extrêmement reculée du
 
 Wang Lin ayant laissé un fragment de son Sens Divin sur la garde céleste, il put naturellement observer cette planète. Le sentiment de confort devenait de plus en plus intense. Il comprit toutefois que la source de cet apaisement ne résidait pas dans cette petite planète, mais bien dans ses profondeurs. Cependant, une force mystérieuse bloquait son Sens Divin, l'empêchant d'examiner la planète plus précisément.
 
-Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment de bien-être.
+Malgré cela, cette petite planète procurait toujours à Wang Lin un sentiment de bien-être, bien que moins intense que celui des profondeurs.
 
 « Cet endroit est parfait pour établir une grotte de culture! » Les yeux de Wang Lin s'illuminèrent. Il récupéra l'os du Serpent aux yeux de lune et rejoignit la garde céleste. Bientôt, la petite planète apparut devant lui.
 

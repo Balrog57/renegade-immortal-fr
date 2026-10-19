@@ -10,7 +10,7 @@ L'Ancien en chef du Clan du Tonnerre Dispersé affichait une expression venimeus
 
 À l'origine, il ne considérait pas Wang Lin comme une menace; il pensait pouvoir l'éliminer aisément avec le seul pouvoir du quatrième Fléau Céleste. Cependant, à cet instant précis, lorsqu'il ressentit cette crise de vie ou de mort — un sentiment auquel il n'avait pas été confronté depuis des dizaines de milliers d'années — son esprit s'éclaircit.
 
-S'il n'avait pas été disposé à subir des blessures et à briser le dernier sceau pour déployer la pleine puissance de sa culture du cinquième Fléau Céleste, l'impact qu'il venait de subir l'aurait gravement blessé, voire tué!
+S'il n'avait pas été disposé à subir des blessures et à briser le dernier sceau pour déployer la pleine puissance de sa culture du cinquième Fléau Céleste, l'impact qu'il venait de subir l'aurait gravement blessé, voire anéanti, corps et âme!
 
 L'onde de choc du tonnerre était comme une vague colérique qui avait brisé toutes ses protections. À cet instant, un éclair rouge fonça droit sur lui. Cet éclair contenait une trace de la puissance des cieux et fit trembler la marque de son clan jusqu'à ce qu'une fissure n'y apparaisse.
 
@@ -38,7 +38,7 @@ Le centre du vortex était d'un noir absolu, et un tonnerre infini y bouillonnai
 
 Ce sort était infiniment proche de la capacité des cultivateurs de la troisième étape à extraire le pouvoir des Flammes Joss!
 
-Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas utilisé le Bouclier de Lumière et d'Ombre pour se protéger, il aurait été gravement atteint!
+Wang Lin, au loin, avait le visage légèrement pâle. Il avait été frappé par l'impact et avait subi des blessures. S'il n'avait pas immédiatement utilisé le Monde du Vent et de la Pluie pour y résister, il aurait été gravement atteint!
 
 C'était une bataille acharnée. On pouvait dire que c'était l'adversaire le plus puissant que Wang Lin ait affronté dans sa vie! Le Shui Daozi était un cultivateur de la troisième étape et avait été contraint de battre en retraite avant même de pouvoir tuer Wang Lin. Cependant, ce n'était pas Wang Lin qui l'avait forcé à fuir, mais le Seigneur du Royaume Scellé!
 
@@ -70,9 +70,9 @@ GRAOUUU!!
 
 Wang Lin s'approchait avec un tonnerre infini, mais dès qu'il fut proche, tout le tonnerre autour de lui s'effondra. Lui-même fut affecté par le rugissement. Il trembla violemment comme si son corps allait exploser. Puis il cracha du sang et fut projeté en arrière. L'incrédulité se lisait dans ses yeux!
 
-« Un véritable dragon du tonnerre antique! » Wang Lin recula, l'expression extrêmement sombre.
+« Un dragon du tonnerre antique entier! » Wang Lin recula, l'expression extrêmement sombre.
 
-La tête de dragon géante luttait pour sortir du vortex avec une aura monstrueuse. Son corps mesurait plus de 100 000 pieds de long et chacune de ses écailles vertes contenait le tonnerre!
+La tête de dragon géante luttait pour sortir du vortex avec une aura monstrueuse. Son corps mesurait des centaines de milliers de pieds de long et chacune de ses écailles vertes contenait le tonnerre!
 
 En surgissant, elle fit s'effondrer l'espace environnant. C'était comme si son simple mouvement pouvait détruire le monde!
 
@@ -98,9 +98,9 @@ Une crise de vie ou de mort surgit dans l'esprit de Wang Lin. Son visage était 
 
 La puissance des dragons du tonnerre antiques dépassait tout ce qu'il avait imaginé. Ils étaient bien plus forts que celui qu'il avait dévoré autrefois!
 
-« C'est un véritable dragon du tonnerre antique!! Cependant, ces espèces sont éteintes, donc ces huit ne sont pas réels, mais formés d'âmes. Néanmoins, si ces huit dragons explosent en même temps, ils me tueront instantanément. Même mon corps de Dieu Antique ne pourra pas y résister à cause des limites de mes étoiles!
+« C'est un dragon du tonnerre antique adulte!! Cependant, ces espèces sont éteintes, donc ces huit ne sont pas réels, mais formés d'âmes. Néanmoins, si ces huit dragons explosent en même temps, ils me tueront instantanément. Même mon corps de Dieu Antique ne pourra pas y résister à cause des limites de mes étoiles!
 
-« Pourtant, c'est parce que j'ai dévoré la moitié de l'âme d'un dragon du tonnerre antique que j'ai pu créer l'essence de tonnerre. Si je parviens à dévorer ces huit dragons, ma puissance de tonnerre augmentera considérablement! » Les blessures de Wang Lin s'aggravaient sous le bombardement incessant. Son âme originelle était sur le point de s'effondrer et son corps atteignait ses limites.
+« Pourtant, c'est parce que j'ai dévoré la moitié d'un dragon du tonnerre antique que j'ai pu créer l'essence de tonnerre. Si je parviens à dévorer ces huit dragons, ma puissance de tonnerre augmentera considérablement! » Les blessures de Wang Lin s'aggravaient sous le bombardement incessant. Son âme originelle était sur le point de s'effondrer et son corps atteignait ses limites.
 
 « Que faire?! L'âme! L'âme!! Bien que ces dragons aient été puissants de leur vivant, ils ne sont plus que des âmes désormais! Il me faut une chance! » Les yeux de Wang Lin étaient injectés de sang alors qu'il affrontait le déluge, et une lueur étrange brilla dans son regard. Il ne recula plus, mais poussa un rugissement envers les huit dragons qui n'était pas moins puissant que le leur!
 

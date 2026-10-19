@@ -12,7 +12,7 @@ Ces lueurs rouges semblaient contenir une aura puissante et se propageaient vers
 
 C'était comme si... la statue céleste pleurait deux traînées de sang...
 
-« Je... m'étais trompé... » Li Yuan fixa la statue de pierre en marmonnant, ses yeux empreints de confusion.
+« Me serais-je trompé... » Li Yuan fixa la statue de pierre en marmonnant, ses yeux empreints de confusion.
 
 Le regard de Wang Lin était glacial. Ce Li Yuan n'était pas dangereux en soi. Avec une culture au sommet du stade avancé de l'Ascendant, Wang Lin pourrait facilement l'emporter. Cependant, une aura puissante émanait de l'intérieur du corps de Li Yuan, et la source de cette puissance était l'empreinte d'esclave!
 
@@ -34,7 +34,7 @@ Les préparatifs de Li Yuan étaient très probablement achevés; il ne pouvait 
 
 C'était parce que Li Yuan avait vu le Fouet du Karma lorsqu'il l'avait utilisé lors du combat contre le cultivateur Yin Illusoire. C'est pour cette raison que Li Yuan l'avait choisi.
 
-Le Fouet du Karma affecte le karma!
+Le Fouet du Karma frappe le karma!
 
 L'échec d'il y a des dizaines de milliers d'années n'était pas dû au serviteur, aux trésors ou à la famille Ge. C'était parce que le Céleste refusait d'être ressuscité de cette manière. Le Céleste ne voulait pas payer le prix de la vie de tous ses descendants pour libérer son âme scellée.
 
@@ -58,9 +58,9 @@ En ajoutant le changement survenu chez Li Yuan sous la statue de pierre, Wang Li
 
 Pour être plus précis, il y avait bien une seule âme dans le corps de Li Yuan, mais cette âme possédait deux facettes distinctes. L'une était le véritable Li Yuan, l'autre était l'âme résiduelle logée dans l'empreinte d'esclave.
 
-Le conflit entre les deux empêchait Li Yuan d'utiliser toute la puissance des restrictions de sa famille. Chaque fois qu'il utilisait une restriction, celle-ci montrait des signes d'effondrement. La Restriction des 18 Pruniers était ainsi, tout comme les lignes noires formées par la Restriction de l'Annihilation.
+Le conflit entre les deux empêchait Li Yuan d'utiliser toute la puissance des restrictions de sa famille. Chaque fois qu'il utilisait une restriction, celle-ci montrait des signes d'effondrement. La Restriction des 18 Pruniers était ainsi, tout comme les lignes noires formées par la Restriction d'Annihilation.
 
-Après avoir compris tout cela, Wang Lin resta à l'intérieur du Tableau Montagne et Rivière et fixa silencieusement Li Yuan.
+Après avoir compris tout cela, Wang Lin resta à l'intérieur du Écran des Montagnes et des Rivières et fixa silencieusement Li Yuan.
 
 Il trouva ce Li Yuan quelque peu pitoyable.
 
@@ -80,7 +80,7 @@ De plus en plus de fissures apparurent sur la statue à cet instant. À mesure q
 
 « Pourquoi ne voulez-vous pas vous réveiller... Je veux juste que la garde de l'épée ne soit plus vide. Le maître pourra toujours se tenir sur la garde, et moi, je me tiendrai au bout de l'épée pour vous aider à combattre les cieux et la terre... » murmura Li Yuan, les yeux emplis de chagrin.
 
-Wang Lin, immobile dans le Tableau Montagne et Rivière, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet du Karma.
+Wang Lin, immobile dans le Écran des Montagnes et des Rivières, observait la scène en silence. Il n'avait aucun grief, de vie ou de mort, contre Li Yuan. Il poussa un soupir et rangea le Fouet du Karma.
 
 « C'est à cause d'une paranoïa extrême qu'il s'est égaré. Après le premier échec il y a des dizaines de milliers d'années, sa conviction était instable. Maintenant qu'il a échoué une seconde fois, sa foi s'est effondrée. »
 
@@ -100,7 +100,7 @@ Enfin, lorsque le dernier rayon de lumière quitta la statue pour entrer dans le
 
 Le parchemin qui avait absorbé toute cette lumière émit un éclat fulgurant. Une flamme apparut au coin du document et grandit lentement. Le parchemin commença à brûler par les bords.
 
-Ce n'était pas qu'un seul bord, mais tous les contours du parchemin s'embrasèrent simultanément. Une fumée verte s'en échappa et ne se dissipa point.
+Ce n'était pas qu'un seul bord, mais tous les contours du parchemin s'embrasèrent simultanément. Une fumée verte s'en échappa, monta vers le ciel et ne se dissipa point.
 
 En voyant cela, l'excitation dans les yeux de Li Yuan devint plus intense encore.
 
@@ -118,7 +118,7 @@ Une légère fumée oscillait près de la garde. Il était difficile de dire s'i
 
 La silhouette sur la garde de l'épée s'éleva dans les airs et agita doucement la main, appelant Li Yuan.
 
-Li Yuan, qui se tenait au sol, fut pris d'un tremblement immédiat. Une rune complexe apparut sur son front: c'était l'empreinte d'esclave. Tandis que l'empreinte vacillait, l'âme résiduelle qu'elle contenait s'échappa vers le ciel pour atterrir au bout de l'épée.
+Li Yuan, toujours agenouillé au sol, fut pris d'un tremblement immédiat. Une rune complexe apparut sur son front: c'était l'empreinte d'esclave. Tandis que l'empreinte vacillait, l'âme résiduelle qu'elle contenait s'échappa vers le ciel pour atterrir au bout de l'épée.
 
 La fumée verte s'élança dans les airs et disparut sans laisser de trace.
 

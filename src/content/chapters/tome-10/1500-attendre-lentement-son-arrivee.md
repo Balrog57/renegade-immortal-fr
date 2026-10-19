@@ -8,7 +8,7 @@ slug: attendre-lentement-son-arrivee
 ---
 Des sons de toux saccadés semblaient rompre le silence de la cour. Ce bruit était très ancien, comme s'il émanait d'une personne touchant à ses dernières années. Même le vent semblait redoubler d'intensité à chaque écho de la toux.
 
-Le vent hurlait, faisant vaciller violemment la lanterne qui tremblait comme si elle expirait son dernier souffle.
+Le vent hurlait, faisant vaciller violemment la lanterne, comme si un souffle venu de l'au-delà s'engouffrait avec lui.
 
 Le vent agitait la lanterne comme s'il voulait s'engouffrer dans la cour pour emporter l'âme qui luttait... Tandis que la lanterne oscillait, on pouvait lire, tracé en cinabre rouge, le caractère « Sun » (孙) sur sa paroi.
 
@@ -104,7 +104,7 @@ Sun Ling observa la silhouette de Wang Lin s'effacer peu à peu. Elle eut l'impr
 
 Le sourire sur le visage de la vieille femme s'accentua, mais une légère rougeur apparut sous son sourire.
 
-La lumière matinale se répandit sur la terre, chassant la froideur de la nuit. Même le vent d'automne devint moins glacial, empreint d'une douce chaleur argentée.
+La lumière matinale se répandit sur la terre, chassant la froideur de la nuit. Même le vent d'automne devint moins glacial, empreint d'une douce chaleur.
 
 Des feuilles jaunes, rouges et fanées volaient dans le vent. Le spectacle était magnifique.
 
@@ -118,12 +118,12 @@ Un bateau solitaire naviguait sur l'océan. Wang Lin se tenait sur ce frêle esq
 
 « Ping Er, la montagne est comme la fierté, la rivière est la pensée, et la mer est le cœur. Je t'ai emmené conquérir la montagne pour que tu acquières de la fierté. Pour ne pas succomber aux cieux, ni au destin. Où que tu sois, tu dois avoir la fierté de garder la tête haute! »
 
-« Je t'ai emmené conquérir cette rivière pour que tu réalises que le flux incessant de l'eau contient la foi. Sans foi, cette rivière ne peut s'apaiser, et sans foi, un homme n'est qu'une enveloppe vide! »
+« Je t'ai emmené conquérir cette rivière pour que tu réalises que le flux incessant de l'eau contient la foi. Sans foi, cette rivière ne pourrait pas couler, et sans foi, un homme n'est qu'une enveloppe vide! »
 
-« Ton père t'a emmené conquérir cet océan pour que tu aies un cœur aussi vaste que l'abîme. Avec un cœur semblable à la mer, les autres ne sont plus rien! »
+« Ton père t'a emmené conquérir cet océan pour que tu aies un cœur aussi vaste que la mer. Avec un cœur semblable à la mer, toutes les épreuves ne sont plus rien! »
 
 Wang Lin traversa la montagne, la rivière et l'océan. Il parcourut les plaines, les jungles et tout ce qu'il avait vu avec Wang Ping autrefois. Bien qu'il fût un Dieu Ancien à sept étoiles, bien qu'il fût célèbre dans le Royaume Extérieur, et même s'il allait bientôt ébranler le Royaume Intérieur par sa renommée...
 
-Il n'en demeurait pas moins un père... Un mortel qui regrettait son fils, Wang Ping... En pensant à son foyer, ses pensées devinrent mélancoliques. Il sentit l'âme de Wang Ping émaner de la Perle Défiant le Ciel. Les cheveux blancs et la silhouette solitaire. Wang Lin quitta ce lieu chargé de souvenirs inoubliables et disparut progressivement dans le lointain, ne laissant derrière lui qu'un soupir mélancolique.
+Il n'en demeurait pas moins un père... Un mortel qui regrettait son fils, Wang Ping... En pensant à son foyer, ses pensées devinrent mélancoliques. Il sentit en lui l'âme de Wang Ping, contenue dans la Perle Défiant le Ciel. Les cheveux blancs et la silhouette solitaire. Wang Lin quitta ce lieu chargé de souvenirs inoubliables et disparut progressivement dans le lointain, ne laissant derrière lui qu'un soupir mélancolique.
 
 Ran Yun, comme son nom l'indique : « Ran » évoque la forme, l'idée du saule qui retombe, comme un nuage qui descend lentement à l'horizon avant de se dissiper... La vieillesse approche lentement...

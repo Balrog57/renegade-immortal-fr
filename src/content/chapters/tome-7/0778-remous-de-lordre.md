@@ -64,17 +64,17 @@ Li Yuan secoua la tête: « Je ne ressens rien. Que voulez-vous dire par là, fr
 
 Wang Lin réfléchit un instant avant de fixer le regard de Li Yuan. Son attention se porta entre les sourcils de l'homme et il dit soudainement: « Frère Li, dissipez la restriction qui siège entre vos sourcils. »
 
-Li Yuan acquiesça. La source de sa restriction cardiaque se trouvait précisément là. Alors que la restriction se dissipait lentement, au moment même où elle disparut, le visage de Li Yuan devint livide. Ses yeux virèrent au rouge sang, injectés de fureur.
+Li Yuan acquiesça. La source de sa restriction cardiaque se trouvait précisément là. Alors que la restriction se dissipait lentement, au moment même où elle disparut, le visage de Li Yuan devint livide. Ses yeux s'exorbitèrent, injectés de sang.
 
-Il prit une inspiration brusque et la restriction cardiaque réapparut. Ce n'est qu'alors qu'il put retrouver son calme. Ses yeux, empreints d'effroi, s'exclamèrent: « Je l'ai senti! »
+Il prit une inspiration brusque et la restriction cardiaque réapparut. Ce n'est qu'alors qu'il put retrouver son calme. Les yeux emplis d'effroi, il dit d'une voix grave: « Je l'ai senti! »
 
 Les yeux de Wang Lin brillèrent et il dit lentement: « Il semble que je ne sois pas le seul à éprouver cela! » Sur ce, il leva son index droit; l'énergie originelle de son corps jaillit et il commença à tracer.
 
-Des lignes courbes se formèrent au mouvement de l'index de Wang Lin. Ces tracés libérèrent une lueur argentée tandis qu'il achevait le symbole. Cependant, la ligne inférieure restait brisée, comme si le sceau était incomplet.
+Des lignes courbes se formèrent au mouvement de l'index de Wang Lin. Ces tracés libérèrent une lueur tandis qu'il achevait le symbole. Cependant, la ligne inférieure restait brisée, comme si la rune était incomplète.
 
 Wang Lin demanda: « Le frère Li reconnaît-il ce symbole? »
 
-« Il m'est un peu familier... » Li Yuan fixa la rune et se mit à réfléchir. Après un long moment, il s'assit pour fouiller méthodiquement dans sa mémoire tous les symboles qu'il avait étudiés ou observés.
+« Il m'est un peu familier... » Li Yuan fixa la rune et se mit à réfléchir. Après un long moment, il s'assit pour fouiller méthodiquement dans sa mémoire tous les symboles qu'il avait étudiés ou observés dans les anciens ouvrages.
 
 Une demi-bâton d'encens plus tard, Li Yuan fronça les sourcils: « Il existe quatre symboles similaires. Cependant, comme celui-ci est manifestement incomplet, il est impossible de déterminer lequel des quatre il s'agit! Frère Xu, où avez-vous obtenu ce symbole? »
 

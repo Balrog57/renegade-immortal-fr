@@ -8,7 +8,7 @@ slug: remerciements
 ---
 La silhouette aux sept couleurs dit lentement: « Il reste encore six épines de scellement, tu peux continuer. »
 
-Wang Lin réfléchit silencieusement et réprima la pensée qui l'assaillait. Sa main droite tendit vers la cinquième épine, située au niveau du dantian.
+Wang Lin réfléchit silencieusement et réprima ses doutes. Sa main droite tendit vers la cinquième épine, située au niveau du dantian.
 
 « Cette cinquième épine scelle son origine! » La voix éthérée de la silhouette aux sept couleurs résonna à l'oreille de Wang Lin.
 
@@ -34,7 +34,7 @@ Une branche reliait encore le fruit. La silhouette aux sept couleurs coupa la ti
 
 Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept couleurs lui inspirait la même sensation que l'Omniscient. Il ne pouvait deviner les intentions de cet être. Cette personne lui avait permis de sauver Qing Shui, lui avait révélé le secret des Anciens, et venait même de lui offrir un Fruit du Dao!
 
-Rien de tout cela ne pouvait être fait sans raison; il devait y avoir un piège!
+Rien de tout cela ne pouvait être fait sans raison; il devait y avoir quelque chose qui clochait!
 
 Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques pouces du sommet du crâne de Qing Shui!
 
@@ -82,7 +82,7 @@ Wang Lin ressentait une crainte intense envers cet être. Il ignorait pourquoi i
 
 « Pourquoi? » demanda Wang Lin d'une voix rauque.
 
-« Il n'est qu'un jeu. Si tu veux le sauver, emmène-le simplement. Quant au pourquoi... je veux voir si les cultivateurs spirituels peuvent traverser le merveilleux changement que ce petit garçon Zhan a connu s'ils ont de la chance... Peut-être pourrai-je utiliser cela pour le trouver... »
+« Il n'est qu'un jeu. Si tu veux le sauver, emmène-le simplement. Quant au pourquoi... je veux voir si les cultivateurs spirituels, comme ce petit garçon adepte de la source de la guerre, peuvent connaître un merveilleux changement... Peut-être pourrai-je utiliser cela pour le trouver... »
 
 « Que cherchez-vous? » Wang Lin fronça les sourcils, incapable de saisir le sens de ces paroles.
 
@@ -98,19 +98,19 @@ Son corps retrouva sa liberté, mais ce qui venait de se passer laissa une empre
 
 « Que cherche-t-il... Si le "petit Zhan" dont il parle est le Vieux Fantôme Zhan, alors quel changement incroyable a-t-il subi... Ce changement permettrait à l'homme aux sept couleurs de trouver ce qu'il recherche... » Tout en réfléchissant silencieusement, Wang Lin recula et observa le vide là où le Royaume aux Sept Couleurs avait disparu.
 
-« L'affaire avec Qing Shui n'était qu'un jeu... » Une lueur de froideur passa dans les yeux de Wang Lin. Il prit Qing Shui et se rendit sur une planète abandonnée, proche du Quartier Général de l'Alliance.
+« L'affaire avec Qing Shui n'était qu'un jeu... » Une lueur de froideur passa dans les yeux de Wang Lin. Il prit Qing Shui et se rendit sur une planète abandonnée, hors de la zone du Quartier Général de l'Alliance.
 
 Il n'y avait ni cultivateurs ni énergie spirituelle sur cette planète, seulement quelques bêtes sauvages. Pourtant, pour Wang Lin, c'était le lieu idéal pour lever le sceau de Qing Shui.
 
 Wang Lin s'installa dans une vallée et déposa le corps inconscient de Qing Shui devant lui. Il prit une profonde inspiration et ferma les yeux, tentant de réprimer la force de rejet intense qui agitait son propre corps. Ce fut laborieux, et il ne parvint qu'à atténuer l'âpreté de la douleur.
 
-D'innombrables épines étaient enfouies dans sa chair. Bien qu'invisibles, la douleur ressentie à chaque respiration lui rappelait sans cesse leur présence. Le prix pour sauver Qing Shui était exorbitant.
+D'innombrables épines étaient enfouies dans sa chair. Bien qu'invisibles, la douleur ressentie à chaque respiration lui rappelait sans cesse leur présence. Le prix pour sauver Qing Shui était très lourd.
 
 Pourtant, même s'il pouvait choisir à nouveau, il le ferait sans l'ombre d'une hésitation, peu importe si cela contredisait ses plans ou paraissait stupide.
 
 S'il avait attendu toutes ces années pour sauver Qing Shui, c'était parce qu'avec son niveau de culture de l'époque, il n'avait aucune chance de réussir. Mais avec son niveau actuel, l'espoir était là. S'il avait attendu d'atteindre le troisième échelon, d'avoir une force encore plus grande, il ne saurait jamais si Qing Shui serait encore en vie...
 
-Parfois, celui qui calcule tout froidement, chaque gain et chaque perte, est un être qui ignore ce que sont les émotions.
+Parfois, celui qui calcule tout froidement, chaque gain et chaque perte, en pensant d'abord à son propre intérêt, est un être qui ignore ce que sont les émotions.
 
 Malgré le danger, il devait agir! S'il s'était agi de lui, Wang Lin savait qu'avec la personnalité de Qing Shui, celui-ci aurait fait la même chose. Il aurait sauvé Wang Lin!
 

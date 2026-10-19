@@ -8,7 +8,7 @@ slug: moi-ton-pere-jabandonne
 ---
 C'était comme s'il était redevenu ce garçon qui avait vu de ses propres yeux l'Empereur Céleste Bai Fan lever la main pour invoquer neuf dragons noirs. Les cieux et la terre en avaient changé de couleur, et toutes les créatures auraient dû périr devant ces neuf dragons rugissants.
 
-Les yeux de Wang Lin révélèrent une lueur mystérieuse tandis que ses mains traçaient un sceau. Le regard des deux dragons noirs laissa échapper un éclat démoniaque!
+Les yeux de Wang Lin révélèrent une lueur mystérieuse tandis que ses mains traçaient un sceau. Le regard des deux dragons noirs laissa échapper une lueur sombre!
 
 Cette lumière était profonde; c'était comme si, à cet instant précis, ces deux dragons noirs avaient acquis une âme ou s'étaient éveillés d'un sommeil millénaire. Ils portaient en eux une aura antique alors que le puissant vent noir s'élançait vers les quatre lames célestes!
 
@@ -44,7 +44,7 @@ Ce dernier recula rapidement, le teint livide.
 
 Quatre lames avaient suffi à détruire un dragon noir; une telle bataille était déjà stupéfiante. Le regard de Wang Lin devint glacial alors que le second dragon noir chargeait.
 
-« Tu ne veux pas te battre? Pourquoi recules-tu! » Wang Lin fit un pas en arrière et fusionna avec le dragon noir, avant de s'élancer vers l'homme à la robe noire.
+« Tu ne veux pas te battre? Pourquoi recules-tu! » Wang Lin fit un pas en avant et fusionna avec le dragon noir, avant de s'élancer vers l'homme à la robe noire.
 
 Les yeux de l'homme brillèrent d'une puissante intention de combat. Il s'immobilisa tandis que ses mains s'activaient devant son corps, et il hurla: « Lame Céleste Tueuse de Démons! »
 
@@ -72,7 +72,7 @@ L'homme à la robe noire recula promptement, le visage pâle. La destruction des
 
 Après un rire dément, il planta son pied droit derrière lui pour stopper son recul. Lorsque son pied toucha le sol, un fracas retentit dans l'espace derrière lui et de nombreuses fissures apparurent.
 
-« Magnifique! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Yin Illusoire. À l'étape Corporel Yang, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant! »
+« Magnifique! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Yin Illusoire. À l'étape Yang Corporel, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant! »
 
 L'homme à la robe noire, Nangong Han, riait comme un fou tout en formant un sceau de ses mains. En un éclair, l'espace devant lui se tordit et neuf lames illusoires apparurent soudainement.
 
@@ -86,7 +86,7 @@ Profitant de l'effondrement des lames, Wang Lin pointa ses doigts vers le milieu
 
 Les pupilles de Nangong Han se contractèrent; il ressentit une crise de vie ou de mort qu'il n'avait jamais connue auparavant. À cet instant, il n'hésita pas: sa paume libéra un éclair argenté qui percuta le doigt de Wang Lin!
 
-Dans un fracas, une puissante énergie d'origine s'engouffra dans le corps de Nangong Han. Son corps frissonna et fut projeté en arrière. Du sang jaillit de sa poitrine, mais il força la blessure à se refermer. Ce qui l'effrayait par-dessus tout, c'était que l'énergie d'origine de son adversaire était composée de deux flux, l'un blanc et l'autre noir. Ces deux flux causaient une destruction constante à l'intérieur de lui et étaient d'une ténacité extrême. On y percevait également des fluctuations de domaine!
+Dans un fracas, une puissante énergie d'origine s'engouffra dans le corps de Nangong Han. Son corps frissonna et fut projeté en arrière. Du sang jaillit de sa poitrine, mais il le retint de force. Ce qui l'effrayait par-dessus tout, c'était que l'énergie d'origine de son adversaire était composée de deux flux, l'un blanc et l'autre noir. Ces deux flux causaient une destruction constante à l'intérieur de lui et étaient d'une ténacité extrême. On y percevait également des fluctuations de domaine!
 
 Wang Lin avait déjà perdu toute sensibilité dans ses doigts. Bien que son attaque surprise eût réussi, son adversaire était parvenu à la parer, et une partie de l'énergie d'origine de l'ennemi avait pénétré son propre corps. Il pouvait la contenir, mais l'énergie de Nangong Han était comme une lame d'une acuité extrême cherchant à le déchirer de l'intérieur.
 

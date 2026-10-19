@@ -70,7 +70,7 @@ Même avec son niveau de culture, il ressentit l'envie de reculer pour l'éviter
 
 « Ce n'est même pas un corps complet, et pourtant il dégage une telle pression... » Du Qing prit une profonde inspiration, le désir brillant dans ses yeux. Il voulait lui aussi former son propre corps véritable d'essence.
 
-« 188 ramifications et trois veines enfantines, mais je n'arrive toujours pas à former entièrement le corps véritable d'essence... La difficulté de ce corps véritable est vraiment trop grande... Avec un tel niveau de difficulté, il n'est pas étonnant que je n'aie jamais vu le moindre corps véritable d'essence dans le monde des grottes. Les ressources du monde des grottes ne permettent pas d'en achever un seul; c'est tout simplement impossible. » Wang Lin soupira. Il connaissait désormais la difficulté de former un corps véritable d'essence et se sentait profondément ému.
+« 188 veines secondaires et trois veines enfantines, mais je n'arrive toujours pas à former entièrement le corps véritable d'essence... La difficulté de ce corps véritable est vraiment trop grande... Avec un tel niveau de difficulté, il n'est pas étonnant que je n'aie jamais vu le moindre corps véritable d'essence dans le monde des grottes. Les ressources du monde des grottes ne permettent pas d'en achever un seul; c'est tout simplement impossible. » Wang Lin soupira. Il connaissait désormais la difficulté de former un corps véritable d'essence et se sentait profondément ému.
 
 « Plus cela progresse, plus l'essence de feu requise est grande. Je me demande quelle quantité d'essence de feu sera nécessaire pour former la tête... » Wang Lin songea tandis que le corps véritable d'essence de feu dépourvu de tête se transformait en un océan de flammes et pénétrait dans l'œil gauche de Wang Lin.
 
@@ -106,6 +106,6 @@ Ce cri était extrêmement perçant et possédait le pouvoir de choquer l'esprit
 
 Le Roi Moustique émergea du brouillard noir. Sa bouche immense, son corps montagneux après s'être rétracté et les pointes noires qui couvraient sa peau terrifièrent Du Qing!
 
-« Camarade Du, vous êtes trop lent, vous devez suivre le rythme », dit lentement Wang Lin avant de s'engouffrer dans le Roi Moustique. Le Roi Moustique chargea en avant et disparut sans laisser de trace.
+« Camarade Du, vous êtes trop lent, vous devez suivre le rythme », dit lentement Wang Lin avant de monter sur le Roi Moustique. Le Roi Moustique chargea en avant et disparut sans laisser de trace.
 
 Sa vitesse laissa Du Qing stupéfait.

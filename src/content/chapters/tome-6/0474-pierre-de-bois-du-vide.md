@@ -11,11 +11,11 @@ Il faut dire que la plupart des personnes qui se rendaient ici entraient par la 
 
 Quant à ceux qui entraient par la porte est, il s'agissait soit de leur première visite en ville, soit de clients de grande importance!
 
-Le jeune homme dit rapidement: « Aîné, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si l'Aîné le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
+Le jeune homme dit rapidement: « Senior, Junior se nomme Li Dannan. J'ai grandi dans la ville de Ming Mei. Si le Senior le souhaite, Junior peut vous servir de guide afin de vous éviter bien des ennuis. Cela ne vous coûtera que dix pierres d'esprit de haute qualité... »
 
 Wang Lin regarda le jeune homme, réfléchit un instant, puis hocha la tête. Dix pierres d'esprit de haute qualité, c'était un peu onéreux; avec une telle somme, on pouvait acquérir certains trésors ou pilules de faible qualité. Cependant, juste avant de se rendre à la Tombe du Suzaku, Wang Lin avait dérobé de nombreuses pierres d'esprit au Clan des Immortels Délaissés, il était donc extrêmement riche en ce moment.
 
-Li Dannan afficha immédiatement une expression respectueuse et demanda: « Aîné, recherchez-vous des trésors magiques, des jades célestes ou des matériaux? Ou peut-être des runes ou des sorts? »
+Li Dannan afficha immédiatement une expression respectueuse et demanda: « Senior, recherchez-vous des trésors magiques, des jades célestes ou des matériaux? Ou peut-être des runes ou des sorts? »
 
 Wang Lin répondit calmement: « Je cherche la pierre de bois du vide. En avez-vous entendu parler? »
 
@@ -31,7 +31,7 @@ Sa fabrication exigeait des matériaux et des méthodes de raffinage exceptionne
 
 Wang Lin dit simplement: « C'est exact; c'est précisément ce que je recherche. Existe-t-il un magasin qui en vende? » Voyant que le jeune homme connaissait l'objet, les dix pierres d'esprit de haute qualité n'étaient pas gaspillées.
 
-Li Dannan prit une expression tourmentée. Il hésita un instant et dit: « Aîné, je n'en ai entendu parler que par autrui: quelqu'un en vend au marché libre, mais le prix est exorbitant. Hormis pour accélérer légèrement les épées volantes, cet article n'a aucune autre utilité, de sorte que personne ne l'a jamais acheté. Plus tard, le vendeur l'a confié au stand d'un ami. Si l'Aîné le souhaite, je peux vous y conduire. Cependant, c'est extrêmement cher; si l'Aîné cherche des matériaux, ne serait-il pas préférable d'opter pour autre chose? »
+Li Dannan prit une expression tourmentée. Il hésita un instant et dit: « Senior, je n'en ai entendu parler que par autrui: quelqu'un en vend au marché libre, mais le prix est exorbitant. Hormis pour accélérer légèrement les épées volantes, cet article n'a aucune autre utilité, de sorte que personne ne l'a jamais acheté. Plus tard, le vendeur l'a confié au stand d'un ami. Si le Senior le souhaite, je peux vous y conduire. Cependant, c'est extrêmement cher; si le Senior cherche des matériaux, ne serait-il pas préférable d'opter pour autre chose? »
 
 Wang Lin répondit d'un ton calme: « J'en ai un usage précis. Montre-moi le chemin! »
 
@@ -43,9 +43,9 @@ Le sol était tapissé de stands installés par des cultivateurs. On y trouvait 
 
 Tout en marchant, Li Dannan expliqua à Wang Lin les règles du marché libre. N'étant plus aussi nerveux, il s'autorisa même quelques plaisanteries tout en lui expliquant le fonctionnement de la place.
 
-« Aîné, regardez ce cultivateur chauve. Il vient ici tous les quelques années et propose toujours des objets rares. »
+« Senior, regardez ce cultivateur chauve. Il vient ici tous les quelques années et propose toujours des objets rares. »
 
-« Aîné, cet homme vêtu d'une robe de taoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend est faux; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
+« Senior, cet homme vêtu d'une robe de taoïste noire et blanche n'est pas là depuis longtemps, mais tout ce qu'il vend est faux; il a déjà trompé bien des gens. Il y a quelques jours, j'ai vu quelqu'un le traquer, je ne m'attendais donc pas à le revoir ici. Celui qui le poursuivait a soit échoué, soit péri. »
 
 Wang Lin observait chaque personne que Li Dannan désignait.
 
@@ -53,7 +53,7 @@ Peu après, ils arrivèrent, à l'arrière du marché, devant un large stand. Li
 
 Le propriétaire du stand était un homme au visage rubicond. Il regarda Li Dannan en souriant: « Petit garnement, quel trésor de mon étal a attiré ton attention? » Alors qu'il parlait, son regard balaya nonchalamment Wang Lin, mais ses yeux se figèrent instantanément et ses pupilles se rétractèrent.
 
-Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux: « Aîné, junior est Zhang Hualin. Je me demande ce que l'Aîné recherche. »
+Grâce à sa culture, il comprit d'un seul coup d'œil que Wang Lin n'était pas un individu ordinaire. Il devint immédiatement respectueux: « Senior, junior est Zhang Hualin. Je me demande ce que le Senior recherche. »
 
 Wang Lin fixa le vieil homme au visage rouge et dit: « La pierre de bois du vide! »
 
@@ -61,7 +61,7 @@ Le vieil homme fut stupéfait: « Le prix de cet objet n'est pas bas, et je ne l
 
 Li Dannan eut un sourire amer: « Cinq pierres d'esprit de qualité supérieure... c'est un prix astronomique. Hormis dans les pays de culture de rang 7, les pierres d'esprit de qualité supérieure sont trop rares, et il existe de meilleurs matériaux qui ne coûtent pas aussi cher dans ces pays. »
 
-Le vieil homme au visage rouge soupira: « Ce prix est vraiment excessif, mais cet ami à moi est bien trop têtu. Aîné, qu'en pensez-vous... »
+Le vieil homme au visage rouge soupira: « Ce prix est vraiment excessif, mais cet ami à moi est bien trop têtu. Senior, qu'en pensez-vous... »
 
 Wang Lin réfléchit un instant et dit: « Laisse-moi la voir. »
 
@@ -75,7 +75,7 @@ L'expression du vieil homme changea et il prit une profonde inspiration. Il avai
 
 Wang Lin examina la pierre de bois du vide. Après avoir confirmé qu'il s'agissait du bon article, il fit un geste pour la ranger dans son propre sac de rangement.
 
-« Aîné... » L'expression du vieil homme était devenue lugubre.
+« Senior... » L'expression du vieil homme était devenue lugubre.
 
 Mais avant qu'il ne puisse achever sa phrase, cinq pierres d'esprit en forme de losange, émettant une lueur blanche, apparurent devant lui.
 
@@ -91,11 +91,11 @@ Quant à Wang Lin, après avoir quitté le stand, il jeta un regard distrait der
 
 Wang Lin dit d'un ton plat: « Li Dannan! »
 
-Li Dannan s'approcha rapidement et répondit respectueusement: « Aîné, Junior est là! » Il était encore plus déférent qu'auparavant; la démonstration de force de Wang Lin lors de l'achat de la pierre l'avait profondément marqué.
+Li Dannan s'approcha rapidement et répondit respectueusement: « Senior, Junior est là! » Il était encore plus déférent qu'auparavant; la démonstration de force de Wang Lin lors de l'achat de la pierre l'avait profondément marqué.
 
 Wang Lin demanda: « Si des trésors aussi importants sont échangés ici, il y a naturellement d'autres cultivateurs qui rôdent. Pourquoi tant de gens acceptent-ils encore de commercer dans un tel endroit? »
 
-Li Dannan répondit promptement: « L'Aîné l'ignore peut-être, mais la plupart des personnes qui fréquentent ces étals ne viennent pas seules; elles n'ont donc pas peur d'être espionnées.
+Li Dannan répondit promptement: « Le Senior l'ignore peut-être, mais la plupart des personnes qui fréquentent ces étals ne viennent pas seules; elles n'ont donc pas peur d'être espionnées.
 
 « Quant à ceux qui s'en inquiètent, ils peuvent confier leurs objets à un stand de confiance pour qu'ils soient vendus, puis revenir une fois la transaction terminée. Cela évite bien des ennuis inutiles.
 
@@ -105,9 +105,9 @@ Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi q
 
 Wang Lin leva les yeux vers le ciel et demanda: « Y a-t-il de l'encre de neige ici? »
 
-« De l'encre de neige... » Li Dannan réfléchit longuement mais ne trouva rien. Il sourit amèrement: « Aîné, Junior ne sait pas ce que c'est. »
+« De l'encre de neige... » Li Dannan réfléchit longuement mais ne trouva rien. Il sourit amèrement: « Senior, Junior ne sait pas ce que c'est. »
 
-Soudain, les yeux de Li Dannan s'illuminèrent: « Aîné, bien que je ne sache pas ce que c'est, la boutique du clan Shang collecte d'innombrables matériaux. Peut-être ont-ils ce dont vous avez besoin. »
+Soudain, les yeux de Li Dannan s'illuminèrent: « Senior, bien que je ne sache pas ce que c'est, la boutique du clan Shang collecte d'innombrables matériaux. Peut-être ont-ils ce dont vous avez besoin. »
 
 Wang Lin détourna le regard et dit calmement: « Oh? Parle-moi d'eux. »
 

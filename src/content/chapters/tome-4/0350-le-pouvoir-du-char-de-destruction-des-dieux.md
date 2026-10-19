@@ -56,7 +56,7 @@ Tout cela se produisit au moment précis où la brume noire se dissipa. À peine
 
 Le regard du colosse se verrouilla sur Wang Lin. Il se déplaça avec célérité pour lui barrer la route.
 
-La vieille femme, quant à elle, fixa le vieil homme Hu et se lança à sa poursuite. Un autre chaman à six feuilles porta son regard sur Qiu Siping.
+La vieille femme, quant à elle, fixa le vieil homme Hu et s'élança pour l'intercepter. Un autre chaman à six feuilles porta son regard sur Qiu Siping.
 
 Qiu Siping eut l'impression d'être traqué par une bête féroce. Bientôt, un pouvoir mystérieux enveloppa son corps, le paralysant totalement. Il vit le chaman lui adresser un sourire sinistre, puis sa vision s'obscurcit alors qu'il perdait connaissance.
 
@@ -98,7 +98,7 @@ La volonté de combat dans ses yeux s'intensifia et il cria: « Chi Mu, guerrier
 
 Le regard de Wang Lin devint glacial et il répliqua: « Wang Lin, cultivateur de la Formation de l'Âme! »
 
-Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 10 mètres devant lui. Wang Lin sentit immédiatement sa main s'engourdir.
+Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 10 mètres devant lui. Wang Lin sentit immédiatement ses mains s'engourdir.
 
 « Si mon corps originel était ici, je pourrais certainement rivaliser avec cet homme », pensa Wang Lin, les yeux brillants. Il agita la main droite et le piège à bêtes vola vers l'avant.
 

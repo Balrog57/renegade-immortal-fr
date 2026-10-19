@@ -38,7 +38,7 @@ Il ne voulait pas payer un tel prix pour une simple suspicion; c'est pourquoi il
 
 Une tristesse profonde envahit les yeux de Chen Long alors qu'il contemplait ses frères apprentis à ses côtés. Il ferma les yeux, puis les rouvrit brusquement, laissant poindre une rare lueur de détermination!
 
-« Mes frères apprentis... Je vous demande pardon! Je suis vraiment inutile... » Chen Long serra les dents et pointa rapidement l'espace entre ses sourcils. Un rayon de lumière rouge y apparut instantanément, se transformant en énergie d'épée.
+« Mes frères apprentis... Je vous demande pardon! Je suis vraiment impuissant... » Chen Long serra les dents et pointa rapidement l'espace entre ses sourcils. Un rayon de lumière rouge y apparut instantanément, se transformant en énergie d'épée.
 
 C'était l'énergie d'épée de Ling Tianhou, mais elle était plusieurs fois plus puissante que celles que Wang Lin avait vues auparavant. Elle appartenait à un tout autre ordre de grandeur.
 
@@ -86,13 +86,13 @@ Il était sur le point de relâcher l'énergie d'épée dans sa main quand la vo
 
 « Frère aîné, c'est moi! »
 
-Wu Ma fut surpris et retira sa main droite. Mais juste au moment où il allait parler, une main apparut silencieusement du brouillard sur sa droite. Un index pressa l'espace entre les sourcils de Wu Ma.
+Wu Ma fut surpris et retira sa main droite. Mais juste au moment où il allait parler, une main apparut silencieusement du brouillard, sur le côté. Un index pressa l'espace entre les sourcils de Wu Ma.
 
 Les yeux de Wu Ma s'écarquillèrent et il cracha une bouchée de sang. Ses yeux brûlaient d'injustice; il voulut réactiver l'énergie qu'il venait de retirer, mais sans succès.
 
 Après exactement dix respirations, Zhou Yi arracha Wang Lin du brouillard violet pour le propulser à l'extérieur!
 
-« Dommage, il reste encore une épée! » soupira Wang Lin.
+« Dommage, il m'en manque encore une! » soupira Wang Lin.
 
 Parmi les quatre disciples de la Secte de l'Épée Da Luo, en comptant l'épée d'avant, Wang Lin n'avait pris que trois épées, ainsi que deux filaments d'énergie d'épée!
 

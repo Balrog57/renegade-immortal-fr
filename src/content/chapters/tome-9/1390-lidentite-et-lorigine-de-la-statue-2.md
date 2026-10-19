@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1390 - The Identity and Origin of the Statue (2)
 slug: lidentite-et-lorigine-de-la-statue-2
 ---
-« Outre la statue et l'esprit de bois ancestral, j'ai obtenu tous mes trésors auprès de ces têtes. Cependant, durant les cent années passées là-bas, je ne me suis aventuré que le long de la bordure extérieure. Je n'osais pas m'approcher des régions intérieures, je ne savais donc pas ce qui s'y trouvait.
+« Outre la statue et l'Esprit d'Arbre Antique, j'ai obtenu tous mes trésors auprès de ces têtes. Cependant, durant les centaines d'années passées là-bas, je ne me suis aventuré que le long de la bordure extérieure. Je n'osais pas m'approcher des régions intérieures, je ne savais donc pas ce qui s'y trouvait.
 
 « Un jour, alors que je me déplaçais entre deux rochers, j'ai rencontré une multitude de fissures spatiales. Avec mon niveau de culture, j'en serais sans aucun doute mort; je n'ai pu que battre en retraite et pénétrer dans les profondeurs de cet endroit.
 
@@ -62,7 +62,7 @@ Les yeux de Cupidité brillaient de joie. Durant ces centaines d'années, il ava
 
 « Je ne prendrai pas tes trésors sans raison, tu peux partir... » Cupidité se remémora les paroles de Wang Lin avant son départ, et une expression complexe se dessina sur son visage.
 
-Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Cupidité était sorti du Royaume Intérieur avant lui et avait collecté tous ces trésors pour lui. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
+Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner vers le Clan des Scorpions Noirs. Cupidité, malgré la barrière entre le Royaume Intérieur et le Royaume Extérieur, était arrivé avant lui dans le Système Stellaire Antique et lui avait remis tous ces trésors. Après avoir obtenu les richesses durement acquises de Cupidité, sans compter la joie d'avoir rencontré quelqu'un de son monde, comment Wang Lin aurait-il pu vouloir le tuer?
 
 « Ce Cupidité est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
 
@@ -82,7 +82,7 @@ Les cultivateurs de l'Évasion Nuageuse acquiescèrent tous. Même les plus haut
 
 Le patriarche et les anciens de l'Évasion Nuageuse se tenaient respectueusement aux côtés de Zhong Grand Rouge, affichant des sourires flatteurs et hochant la tête sans cesse.
 
-« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Grand Rouge d'un seul doigt, mais il devait désormais le servir avec les plus grands égards.
+« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Grand Rouge d'un seul doigt, des centaines de fois, mais il devait désormais le servir avec les plus grands égards.
 
 Zhong Grand Rouge savourait le massage des cultivatrices. Il laissa échapper un reniflement et dit fièrement: « Puisque vous reconnaissez votre erreur, je devrais vous donner une chance de vous repentir, mais... »
 

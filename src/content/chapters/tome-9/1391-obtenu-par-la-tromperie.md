@@ -8,13 +8,13 @@ slug: obtenu-par-la-tromperie
 ---
 Le Clan de l'Évasion Nuageuse ne quitta pas la planète; ils n'oseraient pas partir tant que Wang Lin ne l'aurait pas permis.
 
-Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en culture en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de 50 kilomètres autour de la grotte.
+Après le retour de Wang Lin, celui-ci créa une vaste grotte et se mit en culture en isolement. Il installa des restrictions telles que personne ne puisse faire le moindre pas dans un rayon de plusieurs centaines de kilomètres autour de la grotte.
 
-Le Clan des Scorpions Noirs possédant le statut le plus élevé, ils occupèrent la zone la plus proche de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement à proximité.
+Le Clan des Scorpions Noirs, au statut le plus élevé, occupa une zone située à plusieurs centaines de kilomètres de la grotte. Le Clan de l'Évasion Nuageuse, impuissant, ne put que s'établir temporairement dans une autre direction.
 
 Zhong Grand Rouge était extrêmement arrogant; il se déplaçait entre les deux clans à sa guise. La joie d'être au centre de tous les regards était une sensation qu'il n'avait jamais connue au sein du Clan du Tonnerre Dispersé.
 
-À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, avant que le messager ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
+À l'intérieur de la grotte, Wang Lin siégeait en méditation. Plus tôt, au Clan du Dragon Blindé, avant que le messager ne parte, celui-ci lui avait annoncé qu'un événement crucial se produirait dans trois mois: ce jour-là, les Anciens Délaissés seraient restructurés.
 
 Certains conserveraient leur statut, tandis que d'autres seraient remplacés.
 
@@ -38,15 +38,15 @@ Par conséquent, il pouvait utiliser le lien avec son propre sang pour localiser
 
 À l'instant où la faille s'ouvrit, un cri plaintif en émana. Ce cri, chargé de tristesse, aurait pu faire trembler les cœurs les plus fermes.
 
-« Grand-père Xu, Little Biao sait qu'il a eu tort! Grand-père Xu, je vous en prie, laissez partir Little Biao, je n'oserai plus jamais vous tromper! » Un autre cri retentit, mêlé aux éclats de rire de Xu Liguo.
+« Grand-père Xu, Petit Biao sait qu'il a eu tort! Grand-père Xu, je vous en prie, laissez partir Petit Biao, je n'oserai plus jamais vous tromper! » Un autre cri retentit, mêlé aux éclats de rire de Xu Liguo.
 
 « Tomber entre les mains de ton Grand-père Xu est une bénédiction pour toi! Ton Grand-père Xu est seul depuis des milliers d'années, je ne te tuerai pas. Mon petit précieux Jinbiao, sois sans crainte, ton Grand-père Xu ne sera pas trop cruel... »
 
 Ces hurlements misérables résonnaient de façon tragique... Wang Lin fronça les sourcils et laissa échapper une toux sèche. Alors que sa toux résonnait dans l'espace de stockage, les cris s'arrêtèrent brusquement. Peu après, la voix excitée de Xu Liguo retentit et il sortit précipitamment de l'espace de stockage.
 
-Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait d'être attaqué, et il paraissait extrêmement hagard. Ses yeux étaient pétrifiés par l'horreur alors que Xu Liguo le présentait devant Wang Lin.
+Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait d'être violé, et il paraissait extrêmement hagard. Ses yeux étaient pétrifiés par l'horreur alors que Xu Liguo le présentait devant Wang Lin.
 
-« Maître, avez-vous besoin d'aide? Ce petit vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
+« Maître, y a-t-il encore une bonne affaire à arranger? Ce petit vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
 
 Wang Lin ne daigna pas un regard à Xu Liguo, mais fixa Liu Jinbiao, qui se mit à trembler. Son cœur était envahi par une peur indicible. Après avoir été jeté dans l'espace de stockage, il avait subi les tourments de Xu Liguo. Il était dévasté et misérable; chaque pensée évoquant Xu Liguo était pour lui un véritable cauchemar.
 

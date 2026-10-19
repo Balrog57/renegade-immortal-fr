@@ -94,7 +94,7 @@ Zhao Yu demanda soudainement: « S'agit-il d'une attaque empoisonnée? »
 
 Zhou Hai secoua la tête: « Ce Senior ne présentait aucun signe d'utilisation de poison, ce ne peut donc pas être la Vieille Poisonneuse. De plus, elle n'a pas une telle puissance. J'ai également observé discrètement les membres de la Secte de l'Origine. Leur révérence et leur sentiment de gloire n'étaient pas feints; cette personne était bel et bien leur Grand Oncle-Maître. »
 
-« C'est vrai. » Feng Peishan hocha la tête et ajouta: « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
+« C'est vrai. » Feng Peishan hocha la tête et ajouta: « Si cette personne était réellement liée à la Vieille Poisonneuse ou connaissait l'affaire du jade et de la recette, il serait resté caché sans intervenir. Avec sa culture, ce serait un jeu d'enfant. Il n'aurait pas blessé Zhou Hai ni forcé Zhao Yu et moi à payer un tel prix. »
 
 Zhao Yu acquiesça. En repensant aux événements, il dit: « Ce Grand Oncle-Maître de la Secte de l'Origine est trop puissant. Même dans une région de rang 6, il serait une figure de proue. Heureusement qu'il ne l'a blessé que sans le tuer. Sinon... » Il laissa sa phrase en suspens en regardant Zhou Hai.
 
@@ -104,13 +104,13 @@ Zhou Hai resta silencieux, le cœur glacé par la peur.
 
 « Ce Lu Yuncong n'est pas simple! » Feng Peishan ne semblait plus vouloir en parler et conclut: « Oublions cela. Nous trois devrons être plus prudents à l'avenir. Partons vers un autre continent. » Les trois hommes, emmenant les disciples de leurs sectes respectives, s'envolèrent vers l'horizon.
 
-« Il n'est pas aisé d'attirer l'attention du Grand Ancien... L'origine de ce Lu Yuncong semble également très mystérieuse... » À l'intérieur du rayon de lumière, Feng Peishan secoua la tête et cessa d'y songer.
+« Celui qui retient l'attention du Grand Ancien ne peut être quelqu'un de simple... L'origine de ce Lu Yuncong semble également très mystérieuse... » À l'intérieur du rayon de lumière, Feng Peishan secoua la tête et cessa d'y songer.
 
 Le regard de Wang Lin se détacha de l'horizon. Sa décision était prise dès avant son attaque. Sur le continent sauvage, il avait eu très peu de temps. Bien qu'il ait détourné les soupçons sur ce qui s'était passé, il avait tout de même laissé quelques indices.
 
 Il n'avait pas la capacité ni le temps de les effacer. Plus important encore, plus il tenterait d'effacer ses traces, plus il risquait d'en créer de nouvelles.
 
-« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai d'autre choix que de me rendre dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte de l'Origine, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
+« L'essentiel pour moi est d'augmenter mon niveau de culture le plus vite possible! Si je suis découvert, je n'aurai qu'à me rendre plus tôt dans le Royaume Céleste du Vent! » D'après les souvenirs de la Vieille Poisonneuse et les archives de la Secte de l'Origine, il savait que le Royaume Céleste du Vent était ouvert. L'entrée se trouvait dans la partie nord de la région de rang 8, mais presque personne n'osait s'y aventurer profondément; ils se contentaient de collecter des trésors en périphérie.
 
 « Le Royaume Céleste du Vent est mon atout pour éliminer Tuo Sen... » Une lueur de froideur apparut dans les yeux de Wang Lin. S'il accordait tant d'importance à la technique de mutation apprise dans les souvenirs de la vieille femme, c'était parce qu'une fois maîtrisée, ses chances de réussite dans le Royaume Céleste du Vent seraient bien plus grandes.
 

@@ -14,7 +14,7 @@ Si le cœur de Wang Lin était activé, alors tout s'animerait!
 
 Au moment où Wang Lin ferma les yeux, il les rouvrit soudainement. Son regard était aussi calme qu'une eau dormante. Il comprit que tout n'était qu'une épreuve pour son cœur.
 
-Tant que son cœur resterait serein, le monde serait serein. Cependant, apaiser son cœur était une tâche ardue, surtout avec toutes les perturbations qui l'entouraient. Bien qu'il paraisse calme à présent, il ne s'était pas encore totalement apaisé.
+Tant que son cœur resterait serein, le monde serait serein. Cependant, apaiser son cœur était une tâche ardue, surtout au milieu de cette irritation. Bien qu'il paraisse calme à présent, il ne s'était pas encore totalement apaisé.
 
 Pour l'instant, il n'avait calmé que son corps!
 
@@ -30,9 +30,9 @@ Grâce à ce calme intérieur, le vortex planétaire ralentit encore de plusieur
 
 Le troisième souffle du neuvième cycle!
 
-Dès que le troisième souffle passa, après que le corps et l'âme de Wang Lin se furent apaisés, son âme originelle se calma également. Avec son âme originelle en paix, Wang Lin se sentit flotter là, ses cheveux blancs ondulant au gré du vide. Son visage n'était plus pâle, mais empreint d'une simple sérénité.
+Dès que le troisième souffle passa, après que le corps et l'âme de Wang Lin se furent apaisés, son âme originelle se calma également. Avec son âme originelle en paix, Wang Lin eut l'impression de flotter, détaché du monde des mortels, ses cheveux blancs ondulant au gré du vide. Son visage n'était plus pâle, mais empreint d'une simple sérénité.
 
-À ses yeux, la rotation de la planète des Cinq Éléments ralentissait encore davantage; elle n'était plus un vortex. Elle avait retrouvé l'apparence d'une planète et, bien qu'il ne puisse plus distinguer les paysages à sa surface, il pouvait en percevoir la vitesse d'un simple regard.
+À ses yeux, la rotation de la planète des Cinq Éléments ralentissait encore davantage; elle n'était plus un vortex. Elle avait retrouvé l'apparence d'une planète et, bien qu'il ne distingue pas encore clairement les paysages à sa surface, il pouvait en percevoir la vitesse d'un simple regard.
 
 Contemplant la planète des Cinq Éléments, Wang Lin esquissa un lent sourire. Un sourire profondément paisible, exempt de toute colère. C'était comme s'il avait percé à jour les secrets de l'univers.
 
@@ -46,7 +46,7 @@ Il n'appartenait pas au Monde des Grottes; il venait de la Secte Gui Yi, sur le 
 
 Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer des signes de rupture de la formation en si peu de temps. Bien que la formation ici fût bien plus faible que celle du Continent Astral Immortel, il s'agissait bel et bien d'une véritable Roue du Cœur aux Neuf Cycles!
 
-« C'est impossible... Même s'il était capable de comprendre la formation, elle avait déjà atteint le neuvième cycle. Le temps est limité, il est impossible que son cœur s'apaise à temps durant ce neuvième cycle! » L'homme en robe dorée serra les poings et marmonna ces mots avec incrédulité.
+« C'est impossible... Même s'il était capable de comprendre la formation, elle avait déjà atteint le neuvième cycle. Le temps est limité, il est impossible qu'il parvienne à arrêter complètement la roue avant l'arrivée du neuvième souffle! » L'homme en robe dorée serra les poings et marmonna ces mots avec incrédulité.
 
 À ses côtés, Na Duo laissait paraître une peur profonde en observant le changement autour de Wang Lin. Il avait conscience de l'étrangeté de la formation. Il haleta, incapable de prononcer le moindre mot pendant un long moment.
 
@@ -114,7 +114,7 @@ L'homme en robe dorée subissait le même sort. Son visage était livide. Sa mai
 
 Dès l'entrée dans ce quatrième cycle, tous les cultivateurs, hormis Na Duo et l'homme en robe dorée, tombèrent inconscients. Bien qu'évanouis, la douleur sur leurs visages restait marquée et s'intensifiait.
 
-Leur énergie mentale était drainée et leurs corps se flétrissaient rapidement. Outre leur esprit, c'était leur propre force vitale qui s'épuisait!
+Leur énergie mentale était drainée et leurs corps se flétrissaient rapidement. Outre leur esprit, c'était aussi leur longévité qui s'épuisait!
 
 Na Duo souffrait également. Il ne tint qu'un instant dans ce quatrième cycle avant de sombrer dans l'inconscience.
 

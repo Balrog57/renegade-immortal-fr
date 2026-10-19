@@ -18,7 +18,7 @@ Ce changement soudain surprit l'Enseignant Impérial, mais avant qu'il ne puisse
 
 « Cela... » Alors que l'Enseignant Impérial s'apprêtait à s'expliquer, le rugissement de Ming Dao fit trembler tout le lieu. Il se rua sur Wang Lin telle une bête sauvage!
 
-« Si tu ne me donnes pas d'explication raisonnable, notre accord est rompu! » L'expression de Wang Lin était extrêmement sombre et colérique. Face à l'assaut de Ming Dao, il agita sa main droite.
+« Si vous ne me donnez pas d'explication raisonnable, notre accord est rompu! » L'expression de Wang Lin était extrêmement sombre et colérique. Face à l'assaut de Ming Dao, il agita sa main droite.
 
 D'un geste, son pouvoir de massacre et de destruction sembla se condenser en un nuage noir qui fonça vers Ming Dao. Tandis que le nuage approchait, Ming Dao poussa un rugissement, les yeux égarés par la folie. Il leva la main gauche et neuf filaments de gaz vert apparurent soudainement autour de ses cinq doigts. Après avoir formé neuf cercles, ceux-ci s'étendirent et volèrent vers le nuage noir.
 
@@ -30,7 +30,7 @@ Tout en réfléchissant, il leva la main droite et une minuscule silhouette fait
 
 Wang Lin recula également, puis redressa soudainement la tête après quelques pas. Il fixa Ming Dao, qui avait été repoussé vers l'Enseignant Impérial. Une intention meurtrière brilla dans ses yeux alors qu'il avançait, sa robe noire se transformant en un nuage d'ombre. Wang Lin ne fit plus qu'un avec ce nuage noir et se précipita vers le fou, qui était entravé par les neuf chaînes.
 
-« Tue-le ou soumets-le, et notre accord pourra reprendre! » Alors que la voix de Wang Lin résonnait, le sang contenant son serment sanguin explosa en une brume écarlate. Cette brume enveloppa l'autel ainsi que l'Enseignant Impérial.
+« Tuez-le ou soumettez-le, et notre accord pourra reprendre! » Alors que la voix de Wang Lin résonnait, le sang contenant son serment sanguin explosa en une brume écarlate. Cette brume enveloppa l'autel ainsi que l'Enseignant Impérial.
 
 Cette explosion soudaine permit à l'aura de Wang Lin d'envelopper l'Enseignant Impérial. Cette aura était si puissante qu'il serait difficile pour quiconque ne percevant que les énergies de distinguer le vrai du faux!
 
@@ -72,7 +72,7 @@ Cela enveloppa son corps d'une lueur dorée non moins puissante que celle qui av
 
 L'apparition de cette force fit douter Wang Lin de ses spéculations précédentes. Cette lumière le laissait incertain: l'Empereur Céleste avait-il choisi le fou ou Ming Dao?
 
-« Wang Lin, tu as déplacé la chaîne, l'Empereur Céleste le sait déjà — il peut arriver à tout moment. Vite, aide-moi à supprimer Ming Dao pour que je puisse te transférer son pouvoir! » Le visage de l'Enseignant Impérial était livide. Il avait perdu le cristal et ne disposait plus de beaucoup de temps. Ses paroles étaient empreintes d'urgence; à cet instant, il se souciait peu du stratagème de Wang Lin.
+« Wang Lin, tu as déplacé la chaîne, l'Empereur Céleste le sait déjà — il peut arriver à tout moment. Vite, aide-moi à soumettre Ming Dao pour que je puisse te transférer son pouvoir! » Le visage de l'Enseignant Impérial était livide. Il avait perdu le cristal et ne disposait plus de beaucoup de temps. Ses paroles étaient empreintes d'urgence; à cet instant, il se souciait peu du stratagème de Wang Lin.
 
 Le corps de Ming Dao était baigné de lumière dorée, mais la décomposition ne cessait pas — elle s'intensifiait à mesure que l'éclat devenait plus fort. Des lambeaux de chair pourrie tombaient et il semblait être plongé dans une agonie sans fin. Ses yeux, voilés par la folie, ne voyaient plus rien alors qu'il rugissait et chargeait Wang Lin.
 
@@ -88,7 +88,7 @@ Alors qu'un grondement retentissait, avant même que Wang Lin ne puisse en voir 
 
 « Shang Xuandao, oses-tu trahir cet Empereur?! »
 
-La paume dorée contenait la force destructrice d'un Grand Empyréen. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, le palais entier fut secoué!
+La paume dorée contenait la force destructrice d'un Grand Empyréen. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, sa force augmenta prodigieusement et le palais entier fut secoué!
 
 Le visage de l'Enseignant Impérial devint instantanément livide. Alors que la paume se refermait, il hurla:
 

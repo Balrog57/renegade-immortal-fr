@@ -60,7 +60,7 @@ Au moment où l'âme démoniaque apparut, une énergie démoniaque jamais vue pa
 
 Il dévora le Sens Divin de Ling Tianhou, puis une aura violente explosa en lui. Un domaine tyrannique commença à ravager l'intérieur de son corps. Le démon poussa un rugissement, et une pointe de clarté apparut dans son expression tourmentée.
 
-À cet instant précis, l'esprit originel de Wang Lin trembla en percevant l'instabilité de l'âme démoniaque. Sans hésiter, il projeta un fragment de Sens Divin dans l'âme démoniaque pour activer l'empreinte. Bien que celle-ci ne fût pas stable, elle avait été gravée durant les cent dernières années.
+À cet instant précis, l'esprit originel de Wang Lin trembla en percevant l'instabilité de l'âme démoniaque. Sans hésiter, il projeta un fragment de Sens Divin dans l'âme démoniaque pour activer l'empreinte. Bien que celle-ci ne fût pas stable, elle avait été gravée durant près d'un siècle.
 
 Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en filaments noirs et perdant sa consistance solide. Wang Lin la remit rapidement dans son sac de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de trente-trois mètres!
 

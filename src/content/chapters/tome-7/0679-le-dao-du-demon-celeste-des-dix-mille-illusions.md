@@ -64,7 +64,7 @@ La voix de Wang Lin était empreinte d'indifférence lorsqu'il répondit lenteme
 
 Liu Mei eut un léger sourire: « Et alors? Aujourd'hui, vous ne pourrez pas vous échapper. Si vous n'aviez pas atteint le stade d'Ascendant, cela n'aurait pas eu d'importance, mais puisque c'est le cas, laissons-nous régler notre différend de la planète Suzaku. Laissez-moi vous envoyer rejoindre Li Muwan... »
 
-« Vous cherchez la mort! » Wang Lin frappa son sac de rangement et la Formation de l'Épée des Sept Étoiles s'élança immédiatement. Elle se divisa en sept rayons de lumière qui foncèrent droit sur Liu Mei.
+« Vous cherchez la mort! » Wang Lin frappa son sac de rangement et la Formation d'Épées aux Sept Étoiles s'élança immédiatement. Elle se divisa en sept rayons de lumière qui foncèrent droit sur Liu Mei.
 
 D'un geste neutre, Liu Mei pointa le centre de ses sourcils avec sa main de jade; un rayon de lumière rouge en jaillit et enveloppa soudainement son corps, prenant l'apparence d'une femme.
 
@@ -78,7 +78,7 @@ Papillon Rouge fixa Wang Lin et dit calmement: « Notre querelle doit également
 
 « Quel genre de sort est-ce là?! » Les pupilles de Wang Lin se rétractèrent imperceptiblement. La Liu Mei qu'il voyait venait de se transformer en Papillon Rouge. Grâce à son sens divin, il confirma qu'il s'agissait de la véritable Papillon Rouge, sans aucune trace de l'aura de Liu Mei.
 
-Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation de l'Épée des Sept Étoiles se referma. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
+Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation d'Épées aux Sept Étoiles se referma. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
 
 L'arrogance dans les yeux de Papillon Rouge s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à atteindre environ 330 mètres de large, s'abattant sur Wang Lin telle une montagne gigantesque.
 

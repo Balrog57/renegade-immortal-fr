@@ -8,7 +8,7 @@ slug: en-route-vers-allheaven
 ---
 La Formation de la Vie et de la Mort avait évolué à partir du vortex pour se solidifier en une roue. Si elle restait immobile, la vie et la mort demeuraient immobiles. Si elle tournait, alors la vie et la mort s'inverseraient!
 
-Tandis que la roue géante pivotait, des grondements tonitruants semblèrent sourdre du lointain. Le son perça le vide pour atteindre la zone enveloppée de brume. Lorsque la roue s'anima, le destin de la vie et de la mort fut scellé.
+Tandis que la roue géante pivotait, des grondements tonitruants semblèrent sourdre du lointain. Le son perça le vide pour atteindre la zone enveloppée de brume. Lorsque la roue s'anima, le destin de la vie et de la mort fut décidé.
 
 Une pression colossale émana de la roue et s'abattit sur le continent qui se trouvait à mi-chemin du trou creusé par la Formation de Scellement du Royaume.
 
@@ -76,7 +76,7 @@ Cet endroit était Luotian. C'était là que se trouvaient beaucoup de personnes
 
 Wang Lin marcha vers Luotian tandis que les hurlements des dizaines de milliers de têtes résonnaient à travers les étoiles. Sous ses pas, la roue immobile le suivait.
 
-« Formation du Karma, manifeste-toi! » La voix de Wang Lin résonna faiblement. Les dizaines de milliers de têtes volèrent au-dessus de lui et pivotèrent pour former un nouveau vortex gigantesque.
+« Formation du Karma, achevée! » La voix de Wang Lin résonna faiblement. Les dizaines de milliers de têtes volèrent au-dessus de lui et pivotèrent pour former un nouveau vortex gigantesque.
 
 Wang Lin leva sa main droite et écarta ses cinq doigts. Puis il pressa la paume vers le bas, et le vortex tourna avec une célérité accrue. Les dizaines de milliers de têtes semblèrent fusionner, au point qu'il devint impossible de les distinguer individuellement.
 

@@ -10,7 +10,7 @@ Au moment où Wang Lin s'éloigna, le corps de Zi Shu gisait déjà au sol. Il s
 
 L'âme originelle de Zi Shu s'était déjà effondrée, causant la chute de son corps depuis les cieux.
 
-La différence entre lui et Wang Lin était trop abyssale; il n'avait même pas pu utiliser l'énergie d'épée que son maître lui avait offerte avant de mourir.
+La différence entre lui et Wang Lin était trop abyssale; il n'avait même pas pu utiliser l'énergie d'épée que son maître lui avait offerte.
 
 Le cœur de Wang Lin était empreint d'une folie féroce, et l'énergie spirituelle céleste qui coulait dans son corps se déplaçait comme des vagues tumultueuses entre ses méridiens et son âme originelle. Conjuguée à la stimulation du fruit, il ressemblait à un dieu de la guerre porté par une intention meurtrière monstrueuse.
 
@@ -24,7 +24,7 @@ Quiconque nourrirait une intention meurtrière serait tué par Wang Lin sans la 
 
 Il existait une planète privée, loin de la planète Tian Yun, nommée planète Mo. Cette planète appartenait à un être appelé l'Ancêtre Mo. Sa culture avait atteint le stade de l'Yin Illusoire de la phase Yin et Yang.
 
-Cette fois-ci, avec son niveau de culture actuel, il avait perdu la qualification pour entrer dans la Terre des Esprits Démons. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
+Cette fois-ci, avec son niveau de culture actuel, il avait dépassé le niveau requis pour entrer dans la Terre des Esprits Démons. Cependant, parmi ses trois disciples, hormis le disciple principal, les deux autres étaient entrés.
 
 À cet instant, deux jeunes hommes vêtus de robes grises volaient à travers le ciel du Pays des Démons de Feu. Il s'agissait des deux disciples directs de l'Ancêtre Mo!
 
@@ -102,7 +102,7 @@ Les dix généraux démons furent surpris et dirigèrent leurs regards glacials 
 
 L'homme d'âge moyen acquiesça.
 
-Le général démon Yin Dong s'élança, se transformant en un rayon de lumière verte pour foncer vers Wang Lin.
+Le général démon Yin Dong s'élança, se transformant en un rayon de lumière bleue pour foncer vers Wang Lin.
 
 Les yeux de Yin Dong devinrent froids, révélant une intention meurtrière. Il devait accomplir ce meurtre avec panache devant le Vice-Commandant en Chef. S'il parvenait à attirer son attention, il serait sur la voie du succès!
 
@@ -112,13 +112,13 @@ Les yeux de Yin Dong devinrent froids, révélant une intention meurtrière. Il 
 
 « Intrus, arrête-toi! » hurla Yin Dong en plein vol, injectant toute sa force démoniaque dans ce cri pour créer un effet de choc.
 
-Ce rugissement fut comme un coup de tonnerre résonnant à travers la cité. Aussitôt, les 100 000 soldats se mirent au garde-à-vous et une aura meurtrière enveloppa la zone.
+Ce rugissement fut comme un coup de tonnerre résonnant à travers la cité. Aussitôt, les 100 000 soldats poussèrent des acclamations et une aura meurtrière enveloppa la zone.
 
 L'homme d'âge moyen laissa paraître une pointe d'admiration pour ce talent: « Ce Yin Dong n'est pas mauvais; il sait utiliser son aura pour faire pression! »
 
 Yin Dong se sentit fier en percevant l'intention meurtrière dans l'air. Cependant, il ignorait que cette intention le menait droit aux portes sanglantes de l'enfer!
 
-Cette puissante intention meurtrière fut immédiatement perçue par Wang Lin, dont les sens étaient exacerbés par son état actuel. Cette aura était si forte qu'elle provoqua, dans l'esprit dément de Wang Lin, une multiplication par plusieurs de son intention de combat.
+Cette puissante intention meurtrière fut immédiatement perçue par Wang Lin, dont les sens étaient exacerbés par son état actuel. Cette aura était si forte qu'elle provoqua, dans l'esprit dément de Wang Lin, une multiplication d'innombrables fois de son intention de combat.
 
 Il ne ralentit nullement et pressa le pas. Yin Dong laissa échapper un reniflement méprisant et s'apprêtait à exécuter une technique, mais à cet instant précis, Wang Lin leva soudainement la tête. Ses yeux brillaient d'une lueur rouge effrayante alors qu'il levait la main pour pointer l'avant. Instantanément, un éclat noir large d'une dizaine de mètres, issu du doigt de la mort, jaillit.
 
@@ -130,6 +130,6 @@ Le silence, un silence étrange et pesant, envahit les remparts. Les yeux de l'h
 
 « Tuez! » Dans ce silence, Wang Lin poussa un rugissement. Des filaments d'énergie de massacre jaillirent de son corps pour se muer en dragons. En un instant, plus de 30 000 dragons d'énergie de massacre apparurent, saturant l'air. Wang Lin se trouvait ainsi entouré par ces 30 000 créatures, tel un dieu démon descendant sur le monde.
 
-« Que chaque commandant en chef écoute les ordres et prépare la formation! » Un cri retentit de la part d'un vieil homme parmi les généraux démons, entraînant le mouvement immédiat des 100 000 soldats!
+« Que chaque commandant en chef écoute les ordres et prépare la formation pour anéantir l'ennemi! » Un cri retentit de la part d'un vieil homme parmi les généraux démons, entraînant le mouvement immédiat des 100 000 soldats!
 
 Au moment où la légion démoniaque s'anima, les 30 000 filaments d'aura meurtrière descendirent sur eux. Un bain de sang était sur le point de commencer!

@@ -44,13 +44,13 @@ Wang Lin agita sa manche; le monde autour d'eux se déforma et ils disparurent t
 
 Voyant que Wang Lin s'apprêtait à entrer dans la chambre, le Prince Ji Du hésita. Il semblait vouloir dire quelque chose, mais paraissait craindre de parler.
 
-Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du: « Si tu veux devenir l'Empereur Shi Antique, alors le Grand Empyréen Song Tian est la clé. S'il te reconnaît comme l'unique candidat, alors tout sera simple. »
+Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le Prince Ji Du: « Si tu veux devenir l'Empereur Shi Antique, alors le Grand Empyréen Song Tian est la clé. S'il te désigne, alors tout sera simple. »
 
 Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 « Le fils ignore ce qu'il a pu faire pour provoquer Seigneur Song. Généralement, lorsque je vais le voir, il ne me reçoit pas, et même quand je le rencontre au palais, il est très froid.
 
-« Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple du Seigneur Song.
+« Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il est sur le point d'être accepté comme disciple du Seigneur Song.
 
 « Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Shi Antique penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 
@@ -62,7 +62,7 @@ Le Prince Ji Du eut immédiatement l'impression d'avoir été totalement percé 
 
 Il posa un genou à terre et dit respectueusement: « Le fils est toujours en préparation. Je ne me résous pas à échouer et à être nommé roi pour être envoyé au loin. Une fois que j'aurai perdu ma chance de devenir empereur, il n'y aura pas de seconde chance.
 
-« Que ce soit par l'intelligence ou la ruse, je suis supérieur à ce Chi Man. Je ne suis pas prêt à abandonner.
+« Que ce soit par l'intelligence ou le caractère, je suis supérieur à ce Chi Man. Je ne m'avoue pas vaincu.
 
 « J'espère que le Parrain m'aidera. Une fois que je serai devenu l'empereur, je respecterai mon accord précédent et je n'oserai pas revenir sur ma parole! »
 
@@ -92,17 +92,17 @@ Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé
 
 « Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant des collections du Grand Empyréen Gémeaux.
 
-Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression immense y régnait, capable de voiler le fonctionnement du ciel et de la terre. Les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
+Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression immense y régnait, capable de voiler le fonctionnement du ciel et de la terre. Même sans être anéanties, les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
 
 Cela ressemblait énormément à ce que l'Ancien Maître Impérial du Dao avait affirmé. C'est pourquoi, un an plus tôt, Wang Lin avait permis à l'Ancien Maître Impérial d'activer la formation et d'ouvrir le Royaume Divin Immémorial.
 
 « Le corps de Wan Er ne peut survivre au Royaume Divin Immémorial, et selon l'Ancien Maître Impérial, bien que le sang d'âme puisse compenser cela, une goutte est manifestement loin d'être suffisante...
 
-« L'Ancien Maître Impérial a pris tant de peine pour ouvrir le Royaume Divin Immémorial. Il a utilisé la vérité comme appât et la réincarnation de Wan Er comme leurre pour m'y entraîner... Quoi qu'il en soit, son but est de me faire croire en lui; il doit donc dire au moins la vérité concernant Wan Er.
+« L'Ancien Maître Impérial a pris tant de peine pour ouvrir le Royaume Divin Immémorial. Il a utilisé la vérité comme appât et l'affranchissement de Wan Er de la réincarnation comme leurre pour m'y entraîner... Quoi qu'il en soit, son but est de me faire croire en lui; il doit donc dire au moins la vérité concernant Wan Er.
 
-« Sinon, je n'aurais pas besoin d'y aller! » Wang Lin réfléchit silencieusement. La raison principale pour laquelle il allait aider Ji Du était qu'il avait besoin de plus de sang d'âme. Pour en obtenir davantage, il devait se rendre au Temple Ancestral pour affronter la dernière épreuve!
+« Sinon, je n'aurais pas besoin d'y aller! » Wang Lin réfléchit silencieusement. La raison principale pour laquelle il allait aider Ji Du était qu'il avait besoin de plus de sang d'âme. Pour en obtenir davantage, il devait se rendre au Temple Ancestral pour affronter la troisième et dernière épreuve!
 
-C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancien et peut-être d'obtenir plus de sang d'âme!
+C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancien et peut-être d'obtenir plus de sang d'âme, comme lors de la deuxième épreuve!
 
 « Je ne peux plus retourner dans le Dao Antique, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empyréens. Ce droit appartient à l'empereur actuel.
 

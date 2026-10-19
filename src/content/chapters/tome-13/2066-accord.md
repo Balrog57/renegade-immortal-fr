@@ -8,13 +8,13 @@ slug: accord
 ---
 Les chants du ciel, de la terre, du vent, du tonnerre, des nuages, de la pluie, des organes internes, du corps et du sang résonnèrent.
 
-Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le cri du nouveau-né!
+Les trois signes — le ciel doré et la terre noire, les yeux argentés, et le cri du nouveau-né, qui ressemblait à une mélodie sans en être une!
 
-Les neuf chants et les trois signes faisaient l'objet de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Antique recevait un héritier.
+Les neuf chants et les trois signes faisaient l'objet de nombreuses légendes sur le Continent Astral Immortel. Cependant, la racine de presque toutes ces légendes était que, lorsque les neuf chants et les trois signes apparaissaient, l'Ancêtre Céleste ou l'Ancêtre Ancien recevait un héritier.
 
-À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Antique, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Antique. Au centre du vaste bassin, le Grand Empyréen Gu Dao fut le témoin personnel de l'accomplissement de la légende.
+À cet instant, dans la cité ancestrale céleste et dans les trois cités impériales du clan Ancien, des fissures apparurent sur la statue de l'Ancêtre Céleste et sur celles de l'Ancêtre Ancien. Au centre du vaste bassin, le Grand Empyréen Gu Dao fut le témoin personnel de l'accomplissement de la légende.
 
-À ce moment précis, la silhouette apparue au-dessus du clan Antique se tenait là, le regard tourné vers le ciel, tandis qu'une autre figure gigantesque, formée de la même façon, s'était manifestée au-dessus du clan Céleste.
+À ce moment précis, la silhouette apparue au-dessus du clan Ancien se tenait là, le regard tourné vers le ciel, comme s'il avait péri, tandis qu'une autre figure gigantesque, formée de la même façon, s'était manifestée au-dessus du clan Céleste.
 
 Ces deux figures semblaient soutenir les cieux, mais entre elles, une troisième silhouette surgit. Dès son apparition, une lumière éclatante envahit le monde.
 
@@ -28,27 +28,27 @@ Wang Lin avait les yeux clos. Alors que son avatar dans le vide fusionnait avec 
 
 Wang Lin comprit vaguement qu'une fois ses essences éthérées accomplies, ses pouvoirs célestes et antiques fusionneraient totalement. Dès lors, il n'y aurait plus de pouvoir céleste ou antique dans son corps, seulement sa propre force.
 
-À ce moment-là, il posséderait assez de puissance pour lancer le filet du karma dans la réincarnation et retrouver son véritable moi.
+À ce moment-là, il posséderait assez de puissance pour lancer le filet du karma dans la réincarnation et repêcher son véritable moi.
 
 Il ignorait combien de temps s'était écoulé; cela sembla durer une éternité, ou peut-être seulement un instant. Wang Lin ouvrit les yeux et, en levant le regard, il vit le pied issu du sort de Gu Dao. Celui-ci semblait avoir perdu sa capacité à l'entraver alors qu'il descendait.
 
-À quelques centaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
+À quelques dizaines de pieds de Wang Lin, il laissa échapper un soupir. Après s'être fusionné avec son avatar dans le vide et avoir provoqué l'apparition des neuf chants et des trois signes, son niveau de culture surpassait toutes les existences du Continent Astral Immortel.
 
-Même si l'Ancêtre Céleste et l'Ancêtre Antique étaient présents, il serait digne de les affronter.
+Même si l'Ancêtre Céleste et l'Ancêtre Ancien revenaient à la vie, il serait digne de les affronter.
 
-Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Antique, on trouverait également les empreintes de Wang Lin.
+Désormais, sur le Continent Astral Immortel, aux côtés des légendes de l'Ancêtre Céleste et de l'Ancêtre Ancien, on trouverait également les empreintes de Wang Lin.
 
-Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le Domaine du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à cent pieds de lui, il pointa du doigt.
+Aux yeux de Wang Lin, le sort actuel de Gu Dao n'avait fait qu'effleurer le stade du Piétinement des Cieux. Il réfléchit silencieusement et, alors que le pied géant n'était plus qu'à dix pieds de lui, il pointa du doigt.
 
 Sur ce geste, le pied géant trembla et se brisa en d'innombrables fragments devant Wang Lin. Une tempête puissante dispersa les débris à travers le monde, sous les yeux du Grand Empyréen Gu Dao.
 
 Gu Dao resta silencieux, plongé dans ses pensées. Son visage parut plus vieux encore, marqué par une trace de fatigue et de soulagement.
 
-« Je ne peux pas vous arrêter... Mais j'espère que dans trois cents ans, lorsque le Royaume Divin Immémorial s'ouvrira, vous entrerez du côté du clan Antique... » Gu Dao regarda Wang Lin tout en joignant les mains et en s'inclinant profondément.
+« Je ne peux pas vous arrêter... Mais j'espère que dans trois cents ans, lorsque le Royaume Divin Immémorial s'ouvrira, vous entrerez du côté du clan Ancien... » Gu Dao regarda Wang Lin tout en joignant les mains et en s'inclinant profondément.
 
 Wang Lin resta silencieux. Il observa le Grand Empyréen Gu Dao, puis hocha la tête.
 
-« Merci... » Gu Dao ferma les yeux et, en les rouvrant, retrouva son expression habituelle. Le brouillard enveloppa à nouveau son corps jusqu'à le recouvrir entièrement. La brume tourbillonna et l'emporta vers la direction du clan Antique.
+« Merci... » Gu Dao ferma les yeux et, en les rouvrant, retrouva son expression habituelle. Le brouillard enveloppa à nouveau son corps jusqu'à le recouvrir entièrement. La brume tourbillonna et l'emporta vers la direction du clan Ancien.
 
 Wang Lin fixa l'endroit où Gu Dao s'était volatilisé jusqu'à ce que le brouillard et les grondements de tonnerre disparaissent. Il se tourna vers la tempête marine et marcha vers elle.
 
@@ -64,7 +64,7 @@ Ces sept individus étaient les sept Grands Empyréens du Continent Astral Immor
 
 Ils se connaissaient tous, mais bien qu'appartenant à deux camps différents, ils ne souhaitaient pas combattre. Au lieu de cela, ils déployèrent tous leur Sens Divin pour observer la zone et réfléchir en silence.
 
-Ji Du et les autres ne franchirent pas le mur de mer et ne firent aucun pas vers le clan Antique, mais cela n'entravait en rien leur Sens Divin.
+Ji Du et les autres ne franchirent pas le mur de mer et ne firent aucun pas vers le clan Ancien, mais cela n'entravait en rien leur Sens Divin.
 
 Xuan Luo ferma les yeux. Lorsque son Sens Divin se déploya, son corps trembla. Cette bataille avait dû être cataclysmique. Bien qu'elle fût terminée, les altérations des lois subsistaient encore.
 
@@ -90,7 +90,7 @@ Quant au Grand Empyréen Gémeaux, les deux fillettes s'étaient depuis longtemp
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
-Alors qu'ils étaient tous plongés dans leurs pensées, Ji Du prit soudain la parole: « Trois compagnons cultivateurs du clan Antique, ce vieil homme a une suggestion. »
+Alors qu'ils étaient tous plongés dans leurs pensées, Ji Du prit soudain la parole: « Trois compagnons cultivateurs du clan Ancien, ce vieil homme a une suggestion. »
 
 Après ses paroles, Song Tian et les autres lui jetèrent des regards froids.
 
@@ -116,7 +116,7 @@ Les trois possédaient aussi leurs propres méthodes; ils n'avaient donc pas peu
 
 Après la moitié d'un bâton d'encens, les sept étaient prêts. Ji Du sortit un jade et le montra aux six autres. Ils formèrent tous des sceaux et entamèrent l'incantation.
 
-Sept rayons de lumière jaillirent et enveloppèrent le champ de bataille. Un instant plus tard, un grondement tonnerre retentit et les sept portèrent leur attention sur la scène.
+Sept rayons de lumière jaillirent et enveloppèrent le champ de bataille. Un instant plus tard, un grondement de tonnerre retentit et les sept portèrent leur attention sur la scène.
 
 Ils virent progressivement deux silhouettes apparaître au sein de la lumière qui recouvrait le champ de bataille. L'une était Gu Dao, drapée de brume, et l'autre était également floue, mais les sept reconnurent immédiatement son aura.
 

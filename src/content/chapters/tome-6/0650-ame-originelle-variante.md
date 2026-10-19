@@ -10,11 +10,11 @@ Le corps et les cheveux de Wang Lin commencèrent à flotter dans l'air, comme g
 
 Le dragon de tonnerre ancestral refusait de se soumettre, rendant le processus de dévoration extrêmement périlleux. Le dragon continuait de lutter, et plus ses efforts étaient vigoureux, plus la puissance des éclairs qu'il dégageait s'intensifiait.
 
-La violence des décharges poussa l'âme originelle de Wang Lin au bord de l'effondrement imminent. Sans sa ténacité hors du commun, l'âme originelle d'un cultivateur normal se serait déjà désintégrée.
+La violence des décharges poussa l'âme originelle de Wang Lin au bord de l'effondrement imminent. Sans sa ténacité hors du commun, son âme originelle se serait déjà désintégrée.
 
 Soudain, l'âme originelle de Wang Lin ouvrit ses yeux étroitement clos. Des éclairs jaillirent de son regard, comme si lui-même était le dragon de tonnerre ancestral. Il pressentait que si son âme originelle restait à l'intérieur de son enveloppe physique, son corps en subirait les contrecoups directs, ce qui entraînerait sa mort certaine.
 
-Son âme originelle s'échappa immédiatement de son corps. Le regard déterminé, sans la moindre hésitation, il plongea sa main dans son âme originelle pour saisir le dragon de tonnerre et en arracher une petite portion.
+Son âme originelle s'échappa immédiatement de son corps. Le regard déterminé, sans la moindre hésitation, il plongea sa main dans son âme originelle pour saisir le dragon de tonnerre, semblable à un méridien, et en arracher une petite portion.
 
 Le dragon poussa un rugissement soudain, provoquant une décharge massive d'éclairs de la part de l'âme originelle de Wang Lin. La foudre frappa les parois, produisant une multitude de craquements stridents.
 
@@ -24,15 +24,15 @@ Grâce au soutien de ces forces extérieures, ce cycle de scellement et de dévo
 
 Son corps perdit progressivement son éclat et se flétrit lentement. Cependant, il ne mourut pas; il était entré dans un état d'animation suspendue afin de préserver sa vitalité.
 
-Les jours devinrent des années. Ce jour-là, le dragon de tonnerre à l'intérieur de l'âme originelle de Wang Lin ne luttait plus aussi violemment, mais ses résistances persistaient. Pourtant, d'innombrables restrictions brillaient sur son corps, s'empilant les unes sur les autres pour former le sceau du dragon!
+Les jours devinrent des années. Ce jour-là, le dragon de tonnerre à l'intérieur de l'âme originelle de Wang Lin ne luttait plus aussi violemment, mais ses résistances persistaient. Pourtant, d'innombrables restrictions brillaient sur son corps, s'empilant les unes sur les autres pour former des écailles de dragon superposées!
 
 Au fil des ans, l'âme originelle de Wang Lin avait progressivement rétréci. Elle ne mesurait plus qu'environ un mètre de haut, soit à peine la taille de l'Âme Naissante d'un cultivateur!
 
 Bien qu'amoindrie, son âme originelle dégageait une puissance tonitruante. Elle n'était plus cristalline, mais émettait des éclairs incessants, comme si des millions de serpents d'argent s'agitaient en son sein.
 
-Wang Lin ouvrit les yeux, et des grondements de tonnerre résonnèrent autour de lui. Deux rayons de foudre jaillirent de ses pupilles tels deux dragons avant de disparaître dans l'obscurité.
+Wang Lin ouvrit les yeux, et des grondements de tonnerre résonnèrent autour de lui. Deux rayons de foudre jaillirent de ses pupilles tels deux dragons filant vers l'extérieur de la fissure avant de disparaître dans l'obscurité.
 
-Son âme originelle se déplaça pour rejoindre son corps. Lorsque Wang Lin jeta un regard sur sa propre enveloppe, des éclairs traversèrent son regard, empreint d'une froideur et d'une indifférence absolues.
+Son âme originelle se déplaça pour rejoindre son corps. Lorsque Wang Lin jeta un regard sur sa propre enveloppe, des éclairs traversèrent son regard, empreint d'une froideur et d'une indifférence absolues, rappelant le cycle des réincarnations.
 
 Ses muscles s'étaient déjà atrophiés, le laissant réduit à une simple carcasse osseuse. Sans la lueur de vitalité émanant entre ses sourcils, ce corps ne serait plus qu'un cadavre.
 
@@ -42,7 +42,7 @@ Instantanément, la foudre parcourut chaque fibre de son être. Ses muscles retr
 
 Wang Lin expira longuement. Cet air était grisâtre et chargé de foudre. Ses yeux brillaient comme un éclair déchirant le ciel. Il se mit à réfléchir profondément.
 
-« Ce voyage fut extrêmement périlleux, mais ma récolte dépasse l'imagination. Bien que j'ignore si c'est une chance ou une malédiction... mon âme originelle a totalement métamorphosé. Désormais, elle ressemble davantage à... un éclair de tribulation divine! »
+« Ce voyage fut extrêmement périlleux, mais ma récolte dépasse l'imagination. Bien que j'ignore si c'est une chance ou une malédiction... mon âme originelle a totalement métamorphosé, comme si elle avait été assimilée. Désormais, elle ressemble davantage à... un éclair de tribulation divine! »
 
 Wang Lin poursuivit sa réflexion, puis leva la tête pour regarder au-delà de la fissure.
 

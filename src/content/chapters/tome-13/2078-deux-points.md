@@ -28,9 +28,9 @@ Toute cette puissance se concentra autour du Maître Âme Écarlate sans en lais
 
 Lorsque son corps s'effondra, le Maître Âme Écarlate perdit la raison.
 
-Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyréen. Il avait même voulu s'amuser avec l'amante d'un Grand Empyréen et avait pris le descendant d'un Grand Empyréen pour disciple.
+Il ne pouvait accepter cette réalité. Il n'osait croire qu'il avait eu des intentions hostiles envers quelqu'un qui avait raffiné l'âme de l'Empereur Céleste, que même Dao Yi craignait, et qui était lui-même un Grand Empyréen. Il avait même voulu dresser l'amante d'un Grand Empyréen et avait pris le descendant d'un Grand Empyréen pour disciple.
 
-Il avait même poussé le descendant de ce Grand Empyréen à se rebeller contre lui.
+Il avait même poussé le descendant de ce Grand Empyréen à se rebeller contre ce même Grand Empyréen.
 
 Absurde, absolument ridicule!
 
@@ -46,11 +46,11 @@ En partant, Wang Lin laissa une partie de son Dao et de ses sorts dans le Royaum
 
 Une formation de protection parfaite, une immense quantité de pilules et de textes de Dao, ainsi que la compréhension des essences éthérées par Wang Lin... Tout cela rendrait le Royaume Céleste extrêmement fort et garantirait que des incidents comme celui du Maître Âme Écarlate ne se reproduisent plus jamais.
 
-Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir raccompagné Wang Lin, le Maître du Dao Rêve Bleu se mit en culture isolée.
+Avant de s'en aller, Wang Lin et le Maître du Dao Rêve Bleu discutèrent longuement. Nul autre qu'eux ne sut de quoi ils avaient parlé, et après avoir regardé Wang Lin s'éloigner, le Maître du Dao Rêve Bleu se mit en culture isolée.
 
 Wang Lin partit. Il voyagea à travers le vaste système stellaire pour atteindre la planète Suzaku. Il resta assis devant sa propre statue pendant plusieurs jours avant de repartir. Il se rendit ensuite sur la planète Tian Yun, devenue une ruine lors de la grande guerre.
 
-Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre des Esprits Démoniaques. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il retrouva le parchemin qu'il avait jadis scellé là. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
+Là, Wang Lin déploya son Sens Divin et trouva l'entrée de la Terre des Esprits Démoniaques. Dans ce lieu familier qui fut autrefois la grotte de l'Empereur Céleste Qing Lin, il retrouva le parchemin qu'il avait jadis scellé au fond d'un abîme. Il libéra la femme qui s'y trouvait et lui permit d'entrer en réincarnation.
 
 La mystérieuse femme de l'époque n'avait plus d'importance pour Wang Lin.
 
@@ -62,7 +62,7 @@ Dans le Royaume Extérieur, son premier arrêt fut la Terre Déchue. Là, il vit
 
 Quelques jours plus tard, Wang Lin leva le sceau de la Terre Déchue pour permettre aux habitants de partir à leur guise. Il emporta avec lui l'objet le plus précieux de ce lieu: l'aiguille d'une boussole.
 
-Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Estimé Esprit Dispersé, cet ami qu'il admirait tant autrefois.
+Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Estimé Esprit Dispersé, cet ami qui l'avait tant touché autrefois.
 
 De même, Wang Lin aperçut un bébé sur une planète de culture dans le Royaume Extérieur.
 
@@ -96,9 +96,9 @@ Une vague illumination traversa l'esprit de Wang Lin, mais ce ne fut qu'un écla
 
 Il caressa le crâne et murmura pour lui-même: « Si la réincarnation existe vraiment, alors lorsque le passé et le présent se rencontrent, le passé se dissipe et cesse d'exister... Seul le présent demeure... »
 
-Après avoir rangé le crâne, Wang Lin ressentit un immense apaisement. Alors qu'il commençait à douter de lui-même, une peur profonde monta dans son cœur face à cet objet.
+Après avoir rangé le crâne, Wang Lin ressentit un immense apaisement. Alors qu'il avait une vague intuition sur lui-même, une peur profonde monta dans son cœur face à cet objet.
 
-Ce n'était pas peur du crâne lui-même, mais de l'origine de cette chose. Il hésita. Si la réincarnation existait réellement, cela appartenait-il à... Wang Ping?
+Ce n'était pas peur du crâne lui-même, mais de l'apparition de cette chose. Il hésita. Si la réincarnation existait réellement, cela appartenait-il à... Wang Ping?
 
 Désormais, il avait trouvé la réponse.
 
@@ -112,11 +112,11 @@ Le sceau de Xu Liguo avait été levé depuis longtemps. Après avoir retrouvé 
 
 Le dragon de mer les accompagnait, veillant à ce que personne dans le monde des grottes ne puisse leur nuire. Seuls eux avaient le droit d'intimider les autres; personne n'avait la moindre chance de l'inverse.
 
-Avant son départ, Liu Jinbiao avait confié avec sérieux à Xu Liguo qu'il souhaitait poursuivre la forme ultime de la tromperie. Il estimait que leur coopération était excellente, mais qu'une autre personne pourrait la rendre parfaite.
+Avant son départ, Liu Jinbiao avait confié avec sérieux à Xu Liguo qu'il souhaitait poursuivre la forme ultime de la tromperie. Il estimait que leur coopération manquait encore de perfection, et qu'une autre personne pourrait la rendre parfaite.
 
 Xu Liguo avait accepté. Après en avoir discuté, ils avaient porté leur attention sur Zhong Grand Rouge avec une pointe de nostalgie. Ils décidèrent que leur première étape serait de retrouver Zhong Grand Rouge.
 
-Treize, fidèle à lui-même, restait sur la planète Suzaku. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
+Treize, fidèle à lui-même, restait sur la planète Suzaku, en retraite. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
 
 Son niveau de culture avait progressé au cours des dix dernières années. Plus important encore, il avait hérité du Dao de Wang Lin et de la quasi-totalité de ses sorts.
 

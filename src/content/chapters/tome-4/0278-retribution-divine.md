@@ -8,7 +8,7 @@ slug: retribution-divine
 ---
 Mais il était trop tard!
 
-Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme; elle se situait très probablement au sommet du stade intermédiaire. Les techniques de cette femme devaient impérativement contenir son domaine; si Wang Lin se faisait capturer, le danger serait absolu.
+Plus tôt, lorsque Wang Lin avait sorti la marionnette, il avait pris une décision. En ce moment même, il jouait sa vie. La vieille femme n'était clairement pas une simple cultivatrice au stade initial de la Formation de l'Âme; elle se situait très probablement au sommet du stade intermédiaire. Les techniques d'une telle femme renfermaient naturellement un domaine; si elles le touchaient, le danger serait absolu.
 
 L'écart entre leurs niveaux de culture était trop immense; même en tentant de fuir, il ne serait pas plus rapide qu'elle.
 
@@ -18,21 +18,21 @@ Il devait remporter la victoire le plus vite possible, avant que la vieille femm
 
 Wang Lin n'hésita pas un instant. Au moment où il lança la marionnette de l'Âme Naissante, il prit une profonde inspiration et un mince fil s'échappa lentement de sa main.
 
-Un fragment de rétribution divine!
+Un fil de rétribution divine!
 
-En complément, il pouvait également se cacher à l'intérieur de la perle défiant le ciel. Cependant, cela restait son dernier recours, car il préférait utiliser ce fragment de rétribution divine plutôt que de permettre à la vieille femme de découvrir la perle.
+En complément, il pouvait également se cacher à l'intérieur de la perle défiant le ciel. Cependant, cela restait son dernier recours, car il préférait utiliser ce fil de rétribution divine plutôt que de permettre à la vieille femme de découvrir la perle.
 
-La perle défiant le ciel était son secret le mieux gardé et ne devait en aucun cas être exposée. Mais sans ce fragment de rétribution divine, il n'aurait eu d'autre choix que de se réfugier dans la perle.
+La perle défiant le ciel était son secret le mieux gardé et ne devait en aucun cas être exposée. Mais sans ce fil de rétribution divine, il n'aurait eu d'autre choix que de se réfugier dans la perle.
 
-Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume Ji pour activer le fragment de rétribution divine.
+Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume Ji pour activer le fil de rétribution divine.
 
-Ce fragment était l'atout qui avait permis à Wang Lin de survivre à de nombreuses crises, et il devait encore s'en servir aujourd'hui pour rester en vie.
+Ce fil était l'atout qui avait permis à Wang Lin de survivre à de nombreuses crises, et il devait encore s'en servir aujourd'hui pour rester en vie.
 
 Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer; c'était parce que de nombreux cultivateurs de Xue Yu étaient présents. Il aurait pu la menacer, mais une fois qu'elle serait partie prévenir d'autres cultivateurs, il se retrouverait dans une situation périlleuse.
 
-La situation idéale était donc de la tuer avec ce fragment avant même qu'elle ne s'en rende compte.
+La situation idéale était donc de la tuer avec ce fil avant même qu'elle ne s'en rende compte.
 
-Bien qu'il éprouvât un pincement au cœur en l'utilisant, Wang Lin n'était pas un homme indécis. Le fragment de rétribution divine disparut et des nuages rouges surgirent dans le ciel.
+Bien qu'il éprouvât un pincement au cœur en l'utilisant, Wang Lin n'était pas un homme indécis. Le fil de rétribution divine fila droit vers le ciel, et des nuages rouges surgirent.
 
 Ces nuages apparurent de manière mystérieuse. En un instant, la voûte céleste fut recouverte de rouge. Quant à l'aura bleu foncé, elle ne pouvait absolument rivaliser avec ces nuages; elle s'écarta du passage des nuages rouges comme si elle n'osait entraver leur route.
 
@@ -40,25 +40,25 @@ Ce fut le spectacle auquel la vieille femme fut confrontée dès qu'elle retrouv
 
 Elle ne reconnut pas immédiatement la nature de ce phénomène, mais dès qu'elle aperçut les nuages rouges, une terreur profonde l'envahit, et elle n'hésita pas à se réfugier dans la tour de glace.
 
-À cet instant, Papillon Rouge, vêtue de blanc, observa les nuages rouges avec un regard curieux.
+À cet instant, Papillon Rouge, vêtue de blanc, observa les nuages rouges, à plus de 10 000 kilomètres de là, avec un regard curieux.
 
-L'homme d'âge moyen à l'apparence maladive derrière elle devint soudainement extrêmement vigilant. Son air souffreteux disparut totalement alors qu'il fixait les nuages rouges.
+L'homme d'âge moyen à l'apparence maladive derrière elle fut soudain saisi de surprise et de vigilance. Son air souffreteux disparut totalement alors qu'il fixait les nuages rouges.
 
 Sans dire un mot, il abandonna purement et simplement sa mission de protection envers Papillon Rouge pour se diriger vers les nuages.
 
 Le visage de Wang Lin était pâle et sa main droite tremblait tandis qu'il regardait la vieille femme s'échapper dans la tour de glace. Ses yeux s'illuminèrent alors qu'il dirigeait les nuages rouges vers la tour.
 
-Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité incroyable. Au moment précis où il apparut, il frappa la tour de glace. Ce fragment d'éclair sembla déclencher le reste des nuages. Des bruits de friction résonnèrent au sein de la masse nuageuse alors que l'électricité rouge s'assemblait pour former un éclair violet aussi épais qu'un bras, avant de s'abattre du ciel.
+Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité incroyable. Au moment précis où il apparut, il frappa la tour de glace. Ce filament d'éclair sembla déclencher le reste des nuages. Dans la masse nuageuse, l'électricité rouge s'assemblait pour former un éclair violet aussi épais qu'un bras, avant de s'abattre du ciel dans un fracas de tonnerre.
 
 La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle réalisa que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
 
 Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante.
 
-Quelle que soit sa bêtise, elle comprit qu'il s'agissait de la mythique rétribution divine.
+Même si elle était peu perspicace, elle comprit qu'il s'agissait de la mythique rétribution divine.
 
 La rétribution divine violette s'écrasa sur la tour de glace. La tour et la vieille femme disparurent sans laisser de trace, comme si elles n'avaient jamais existé.
 
-Wang Lin prit une profonde inspiration et lança un dernier regard mélancolique vers la rétribution divine. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
+Wang Lin prit une profonde inspiration et lança un regard empli d'émotion vers la rétribution divine. Sachant qu'il n'était pas temps de traîner, il fit volte-face pour s'enfuir.
 
 Mais après n'avoir parcouru que 330 mètres, il sentit un puissant Sens Divin balayer les environs. À cet instant, le chapeau de paille sur sa tête brilla, et ce Sens Divin se retira précipitamment.
 
@@ -68,7 +68,7 @@ Terrifié, Wang Lin n'eut pas le temps de s'émerveiller de la capacité du chap
 
 Après que l'éclair de rétribution divine violette eut anéanti la tour de glace et la vieille femme, il commença à se dissiper lentement. Les nuages rouges commencèrent également à se disperser, mais c'est à ce moment précis que l'homme d'âge moyen de Suzaku arriva. Ses yeux étaient injectés de folie alors qu'il fixait les nuages rouges. Il poussa un rugissement et une aura inimaginable se propagea de son corps.
 
-Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à nouveau, comme si elle tentait de se condenser une seconde fois. Cependant, sans le fragment de rétribution divine pour la guider, les nuages ne purent plus se reformer.
+Soudain, la masse de nuages rouges en pleine dissipation commença à bouger à nouveau, comme si elle tentait de se condenser une seconde fois. Cependant, sans le fil de rétribution divine pour la guider, les nuages ne purent plus se reformer.
 
 L'homme d'âge moyen était extrêmement inquiet; il savait que c'était une opportunité rarissime. S'il la manquait, il ignorait s'il reverrait jamais une telle chance de sa vie.
 
@@ -82,7 +82,7 @@ Les nuages étaient déjà très affaiblis et sur le point de disparaître, mais
 
 Voyant les nuages se dissiper jusqu'à ce qu'il n'en reste plus qu'un seul, l'homme d'âge moyen poussa un rugissement de colère et chargea au cœur du phénomène.
 
-Dès que son corps pénétra le nuage rouge, des éclairs violets le frappèrent. Il ressentit une douleur intense, mais aussi un immense plaisir face à la puissance de l'éclair. Cela ne dura toutefois qu'un court instant, car le nuage se dissipa rapidement.
+Dès que son corps pénétra le nuage rouge, des éclairs violets le frappèrent. Il ressentit une douleur intense, mêlée d'une étrange sensation de bien-être face à la puissance de l'éclair. Cela ne dura toutefois qu'un court instant, car le nuage se dissipa rapidement.
 
 L'homme d'âge moyen resta là, fixant le ciel d'un air hébété et lugubre. Plus tôt, lorsque son Sens Divin avait balayé les lieux, il n'avait trouvé que la tour de glace et une lueur dorée. Cette lueur avait fait souffrir son Sens Divin, l'obligeant à se retirer. Depuis, il ne parvenait plus à la ressentir.
 
@@ -98,7 +98,7 @@ Papillon Rouge ne répondit rien. Les sept individus derrière elle n'osèrent q
 
 L'homme se déplaça. Lorsqu'il réapparut, il était derrière Papillon Rouge, arborant à nouveau son air de malade.
 
-Presque tous les cultivateurs de l'Alliance des Quatre Sectes périrent dans l'année suivant la bataille. Seuls quelques-uns eurent la chance de rester cachés dans le nouveau Xue Yu.
+La plupart des cultivateurs de l'Alliance des Quatre Sectes périrent dans l'année suivant la bataille. Seuls quelques-uns eurent la chance de rester cachés dans le nouveau Xue Yu.
 
 Le temps passa lentement. Après avoir vécu là pendant un an, Papillon Rouge suivit l'homme d'âge moyen vers Suzaku.
 
@@ -108,4 +108,4 @@ Après que Xue Yu prit le contrôle du pays, une masse immense de mortels de l'a
 
 Les tours de glace, caractéristiques de Xue Yu, apparurent une à une. Après trois ans, ce territoire appartenait totalement à Xue Yu.
 
-Le temps s'écoula rapidement. Cinq ans plus tard, à un endroit situé au nord, à 15 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel scintilla, et une silhouette irréelle commença peu à peu à prendre corps.
+Le temps s'écoula rapidement. Cinq ans plus tard, sur une plaine de glace située au nord, à 15 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel scintilla, et une silhouette irréelle commença peu à peu à prendre corps.

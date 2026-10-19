@@ -52,7 +52,7 @@ Son bras droit devint engourdi et marqua un temps d'arrêt. À cet instant préc
 
 Le coup balaya la main et l'index de Tuo Sen fut tranché! Depuis le début du combat, c'était la blessure la plus grave que Wang Lin avait infligée à Tuo Sen!
 
-Les yeux de Tuo Sen furent envahis par une intention meurtrière monstrueuse. À cet instant, il ne pensait même plus à dévorer. Son seul désir était de tuer, tuer, tuer, tuer! Tuer ce membre de son propre clan!
+Chaque doigt est relié au cœur : les yeux de Tuo Sen furent envahis par une intention meurtrière monstrueuse. À cet instant, il ne pensait même plus à dévorer. Son seul désir était de tuer, tuer, tuer, tuer! Tuer ce membre de son propre clan!
 
 Cependant, alors que Wang Lin et Tuo Sen s'affrontaient, les vieillards du Clan de la Lune blessés par Tuo Sen se retirèrent immédiatement. Le plus haut gradé était le vieil homme aux cheveux blancs. Il avait une expression féroce et du sang coulait du coin de sa bouche. Il avait compris que Wang Lin ne faisait pas le poids face à Tuo Sen. Une fois qu'un vainqueur serait désigné entre les deux Anciens Dieux, leur Clan de la Lune serait condamné!
 

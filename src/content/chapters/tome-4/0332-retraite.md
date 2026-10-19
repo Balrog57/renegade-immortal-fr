@@ -22,9 +22,9 @@ Liu Fei et Song Qing répondirent sans délai à l'ordre.
 
 Un immense rideau de lumière enveloppa la Secte Ciel Nuageux, la dissimulant à nouveau des regards indiscrets.
 
-Les disciples chanceux qui avaient survécu reçurent tous l'ordre de ne pas sortir. Tous acceptèrent cette directive avec soulagement.
+Les disciples chanceux qui avaient survécu reçurent tous l'ordre de ne pas sortir. Tous acceptèrent cette directive de bon cœur.
 
-Puisqu'ils ne pouvaient nulle part aller, ils discutaient entre eux. Leurs conversations tournaient essentiellement autour d'un seul nom: « Ceng Niu ».
+Ils discutaient entre eux. Leurs conversations tournaient essentiellement autour d'un seul nom: « Ceng Niu ».
 
 Une fois que Liu Fei et Song Qing eurent fini de donner leurs instructions, ils se regardèrent. Ils pouvaient lire l'excitation et la peur dans les yeux de l'autre.
 
@@ -56,7 +56,7 @@ Les yeux de Li Muwan s'illuminèrent et elle murmura: « Vraiment? »
 
 Wang Lin hocha la tête: « Vraiment! Wan Er, tu te sens un peu mieux, alors repose-toi. »
 
-Li Muwan s'endormit peu à peu, la tête appuyée sur l'épaule de Wang Lin. Même dans son sommeil, le sourire ne quitta pas ses lèvres. C'était un sourire qui n'était pas apparu sur son visage depuis cent ans.
+Li Muwan s'endormit peu à peu, la tête appuyée sur l'épaule de Wang Lin. Même dans son sommeil, le sourire ne quitta pas ses lèvres. C'était un sourire qui n'était pas apparu sur son visage depuis plus de cent ans.
 
 Après un long moment, Wang Lin porta délicatement Li Muwan jusqu'à son lit. Il l'installa, la couvrit et sortit de la tour.
 
@@ -64,7 +64,7 @@ Une fois dehors, son expression s'assombrit instantanément.
 
 Sept personnes étaient assises à l'extérieur pour l'attendre. Outre Liu Fei et Song Qing, ainsi que les deux Grands Anciens au stade de l'Âme Naissante tardif, il y avait Ouyang Zi et deux autres anciens de l'Âme Naissante au stade initial, promus au cours des cent dernières années.
 
-Dès que Wang Lin sortit, les sept hommes ouvrirent les yeux et se levèrent. Aucun n'osait respirer. Les souvenirs de ses actes passés les hantaient encore, et le voilà qui réapparaissait, plus puissant que jamais. À leurs yeux, Wang Lin était une figure terrifiante.
+Dès que Wang Lin sortit, les sept hommes ouvrirent les yeux et se levèrent. Aucun n'osait respirer. Les souvenirs de ses actes passés les hantaient encore, et son autorité se faisait à nouveau sentir. À leurs yeux, Wang Lin était une figure terrifiante.
 
 « Pourquoi le corps de Wan Er est-il dans cet état?! Quand je suis parti il y a cent ans, elle allait bien! » La voix de Wang Lin était calme, mais pour ces sept personnes, elle était terrifiante. Les deux nouveaux anciens de l'Âme Naissante reculèrent de quelques pas, le visage déformé par la peur.
 
@@ -84,7 +84,7 @@ Lu Fei soupira secrètement. Song Qing, à ses côtés, ajouta: « Maître de la
 
 Wang Lin leva la tête. Il avait déjà une intuition. Ses yeux, empreints de confusion, murmurèrent: « Continuez. »
 
-Song Qing serra les dents et dit: « Seulement, Wan Er a vécu bien plus longtemps qu'une cultivatrice du stade de la Formation du Noyau ne le devrait. Même avec des techniques défiant le ciel, il sera difficile de la sauver, à moins qu'elle ne parvienne à atteindre le stade de l'Âme Naissante. »
+Song Qing serra les dents et dit: « Seulement, Wan Er a vécu bien plus longtemps qu'une cultivatrice du stade de la Formation du Noyau ne le devrait. Même avec des techniques défiant le ciel pour changer le destin, elle ne pourrait échapper à la mort, à moins qu'elle ne parvienne à atteindre le stade de l'Âme Naissante. »
 
 Wang Lin songea. En soignant le corps de Wan Er, il avait remarqué une aura mortelle omniprésente. C'était comme une lampe dont l'huile s'épuisait. On ne pouvait rien y faire; c'était le signe que la vie touchait à sa fin.
 
@@ -92,7 +92,7 @@ Wang Lin songea. En soignant le corps de Wan Er, il avait remarqué une aura mor
 
 Ils acquiescèrent tous rapidement. Une fois Wang Lin entré, les yeux du Grand Ancien Lu Fei brillèrent. Il fixa l'assemblée d'un regard glacial et déclara d'un ton grave: « Écoutez bien. Si l'identité du Maître de la secte est révélée, le Papillon Rouge de Suzaku viendra sans aucun doute. Nous ne devons faire aucune négligence. »
 
-L'autre Grand Ancien, Tie Yan, eut un sourire en coin. Il comprit immédiatement les pensées de Lu Fei, car elles étaient les siennes. Il ajouta rapidement: « C'est exact. Pour les disciples de rang inférieur, allez-y personnellement et effacez leurs souvenirs! De plus, si l'un d'entre vous laisse fuiter la moindre information, n'oubliez pas que Chu est votre foyer. Ne me reprochez pas ma cruauté! »
+L'autre Grand Ancien, Tie Yan, eut un sourire en coin. Il comprit immédiatement les pensées de Lu Fei, car elles étaient les siennes. Il ajouta rapidement: « C'est exact. Pour les disciples de rang inférieur, allez-y personnellement et effacez leurs souvenirs! De plus, si l'un d'entre vous laisse fuiter la moindre information, n'oubliez pas que vos racines sont à Chu. Ne me reprochez pas ma cruauté! »
 
 Liu Fei et Song Qing ne révéleraient évidemment rien. Leurs regards se tournèrent vers les deux nouveaux anciens de l'Âme Naissante, dont le regard n'était guère amical.
 
@@ -120,11 +120,11 @@ Quant à Wang Lin, le deuxième jour suivant le réveil de Li Muwan, il l'emmena
 
 Wang Lin et Li Muwan parcoururent une grande partie de Chu. Ils discutèrent et rirent tout au long du voyage. Li Muwan ressentait un bonheur inédit et était comblée. Elle resta constamment aux côtés de Wang Lin, tel une petite épouse dévouée.
 
-Finalement, ils s'arrêtèrent dans les profondeurs des montagnes d'une région de Chu. L'endroit était totalement désert; le village le plus proche se trouvait à plus de 10 000 kilomètres.
+Finalement, ils s'arrêtèrent dans les profondeurs des montagnes de Chu, près du Cimetière des Immortels. L'endroit était totalement désert; le village le plus proche se trouvait à plus de 10 000 kilomètres.
 
 Dans l'une des vallées, Wang Lin frappa son sac de rangement et une pagode apparut.
 
-Ce lieu était l'un des points d'accumulation de l'énergie Yin dans Chu. Wang Lin se souvenait que Zhou Yi lui avait dit que cette pagode ne pouvait être placée que dans un endroit chargé d'énergie Yin.
+Ce lieu était un point d'accumulation de l'énergie Yin dans Chu. Wang Lin se souvenait que Zhou Yi lui avait dit que cette pagode ne pouvait être placée que dans un endroit chargé d'énergie Yin.
 
 La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre environ 330 mètres de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
 

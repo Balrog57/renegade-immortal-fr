@@ -40,7 +40,7 @@ En marchant, l'Omniscient sourit et adressa des signes de tête à ceux qu'il co
 
 Ces neuf individus portaient des robes de couleurs différentes, mais leurs regards étaient tous aussi perçants que la foudre et chacun possédait une culture puissante. Parmi eux se trouvait celui qui s'était battu contre Wang Lin pour le titre de véritable disciple de la Division Pourpre, le sixième frère de Wang Lin: Chen Tao!
 
-L'actuel Chen Tao portait une robe pourpre et dégageait une pression colossale. Il était tel une épée prête à être dégainée, libérant sa tranchante acuité.
+L'actuel Chen Tao portait une robe pourpre et dégageait une pression colossale. Il était tel une épée prête à être dégainée, laissant seulement deviner sa tranchante acuité.
 
 Le groupe des dix membres de l'Omniscient se dirigea calmement vers la porte. Chaque cultivateur s'écarta respectueusement, rendant la scène encore plus grandiose que lors de l'arrivée du Saint de l'Épée Ling Tianhou.
 
@@ -80,7 +80,7 @@ Lorsque Wang Lin aperçut le groupe de l'Omniscient au loin, il joignit les main
 
 Le visage de Sun Yunshan était couvert de poussière; ils avaient manifestement dû foncer à toute allure pour arriver à temps. Il sourit doucement et dit: « Une fois entrés, je compterai sur le frère Wang pour veiller sur moi! »
 
-« Aucun problème! » Wang Lin sourit faiblement, fit un pas et se transforma en une nuée de fumée pourpre avant de s'envoler vers l'Omniscient.
+« Aucun problème! » Wang Lin sourit faiblement, fit un pas et se transforma en une volute de fumée avant de s'envoler vers l'Omniscient.
 
 Wang Lin se déplaça comme l'éclair vers l'Omniscient et, avant même qu'il ne soit proche, on entendit un grondement de tonnerre. Son expression était calme, une pointe de gaz gris perçant dans ses yeux. Son apparence actuelle n'était en rien inférieure à celle de l'actuel Chen Tao.
 

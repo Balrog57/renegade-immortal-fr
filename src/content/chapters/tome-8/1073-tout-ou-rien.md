@@ -38,7 +38,7 @@ Une fois ses jambes effondrées, la marque de l'ancien démon entre ses sourcils
 
 Pourtant, ce monde était vaste. Si même la nuit ne pouvait échapper au pouvoir de la Nuit Brisée, comment le Maître du Vide le pourrait-il? Peu importe la distance parcourue dans sa retraite, il ne pouvait fuir la mort. Tandis qu'il reculait, la lumière du soleil se précipita vers lui. Les hurlements du Maître du Vide résonnèrent alors que les rayons le traversaient de part en part, comme un tamis. Il disparut avec un sourire désespéré, consumé par le désespoir...
 
-Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le frère cadet du Maître Zhong Xuan. Il fut autrefois si illustre, et pourtant, il ne put échapper au cycle de la réincarnation, au premier Fléau Céleste et aux conséquences de ses propres méfaits!
+Le Maître du Vide était un puissant cultivateur au sommet du stade de Briseur du Nirvana, doté d'un rang élevé au sein de l'Alliance, et il était même le frère cadet du Maître Zhong Xuan. Il fut autrefois si illustre, et nombre de héros périrent de sa main; pourtant, il ne put échapper au cycle de la réincarnation, au premier Fléau Céleste et aux conséquences de ses propres méfaits!
 
 Le Maître du Vide s'éteignit dans un regret infini et une soif de vivre déçue...
 
@@ -48,13 +48,13 @@ Tout cela se produisit en un instant. À l'instant où le soleil se leva, le Ma�
 
 Un sentiment de crise vitale absolue envahit son cœur. Réprimant sa peur, il laissa échapper un rugissement et ouvrit les bras. Une quantité monstrueuse d'énergie originelle jaillit de son corps pour se transformer en une énergie de massacre sans fin.
 
-Cette énergie de massacre était infinie et recouvrait le ciel tout entier. Le grondement de cette force tenta de couvrir le bruit de la mer, et de supprimer le pouvoir de cette Nuit Brisée qui le poussait presque à la folie.
+Cette énergie de massacre était infinie et recouvrait le ciel tout entier. Le grondement de cette force tenta de couvrir le bruit de la mer, et de supprimer le pouvoir de cette Nuit Brisée qui le terrifiait au point de presque lui faire perdre âme et esprit.
 
-Non seulement lui, mais les deux autres avatars de l'Omniscient pâlirent et déchaînèrent leurs propres sorts. L'Omniscient aux robes jaunes tourna sur lui-même avec rapidité. Son corps se changea en tempête et il s'élança vers le ciel.
+Non seulement lui, mais les deux autres avatars de l'Omniscient pâlirent et déchaînèrent leurs propres sorts. L'Omniscient aux robes jaunes tourna sur lui-même avec rapidité. Une tempête se forma autour de son corps et il s'élança vers le ciel.
 
-Le ciel changea soudainement de couleur et d'innombrables ondulations jaunes apparurent dans les ténèbres, avant que le Doigt du Destin Céleste ne s'abatte violemment.
+Le ciel changea soudainement de couleur et d'innombrables ondulations jaunes apparurent dans les ténèbres, avant que le Doigt du Destin Céleste n'apparaisse dans un fracas.
 
-L'Omniscient aux robes jaunes était celui qui possédait la loi du destin céleste!
+L'Omniscient aux robes jaunes était le détenteur de la technique du Doigt du Destin Céleste de l'Omniscient originel!
 
 À cet instant, alors qu'il rugissait, le doigt géant portait une aura capable de faire s'incliner tous les mortels en adoration tandis qu'il chargeait vers le soleil levant!
 
@@ -80,7 +80,7 @@ Puis, l'innombrable énergie de massacre de l'Omniscient aux robes grises charge
 
 Le visage de l'Omniscient aux robes grises était pâle, mais ses yeux étaient féroces. Il possédait une volonté propre et savait que s'il n'y mettait pas tout ce qu'il avait, il mourrait sous l'effet de ce sort!
 
-Tout donner!! L'Omniscient aux robes grises forma un sceau et le pointa vers son propre corps. Des bruits de craquements résonnèrent en lui et ses yeux devinrent totalement rouges. Soudain, un rayon de lumière jaillit de son front: c'était une épée de sang cramoisi!
+Tout donner!! L'Omniscient aux robes grises forma un sceau avec ses deux mains et le dirigea vers son sort. Des bruits de craquements résonnèrent en lui et ses yeux devinrent totalement rouges. Soudain, un rayon de lumière jaillit de son front: c'était une épée de sang cramoisi!
 
 Cette épée de sang était la racine même de toute l'énergie de massacre qu'il avait cultivée, la source du carnage! Dès que l'épée apparut, le monde fut enveloppé d'une intention meurtrière sans fin. L'Omniscient aux robes grises pointa l'arme, et l'épée de sang chargea le soleil comme un éclair de tonnerre.
 

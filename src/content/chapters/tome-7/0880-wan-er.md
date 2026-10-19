@@ -30,13 +30,13 @@ Sans la culture du domaine, il n'y avait rien à comprendre. Toutes les augmenta
 
 Après l'effondrement du Royaume Céleste, les cultivateurs ne cherchèrent plus à devenir des êtres célestes, car le Royaume Céleste n'existait plus. À la place, leur voie était celle du Dao! Car cultiver le Dao leur permettait d'atteindre l'illumination.
 
-La clé de la culture du Dao résidait dans la compréhension!
+Ressentir, s'éveiller soudainement, voir clair: tout cela dépendait d'une seule chose. La clé de la culture du Dao résidait dans la compréhension!
 
 Comprendre les cieux, soit pour s'y soumettre, soit pour les défier. Sans cette compréhension, il serait extrêmement difficile d'augmenter son niveau de culture.
 
-À cet instant, ce qui se présentait devant Wang Lin et ces cultivateurs, c'étaient deux chemins. L'un consistait à choisir la voie ancienne, l'autre la voie actuelle.
+À cet instant, ce qui se présentait devant Wang Lin et ces 110 cultivateurs, c'étaient deux chemins. L'un consistait à choisir la voie ancienne, l'autre la voie actuelle.
 
-Qing Shui regarda calmement Wang Lin. Il espérait que Wang Lin entrerait dans le bassin céleste et renoncerait au Dao. Il voulait que Wang Lin devienne un véritable être céleste et un disciple authentique de son maître, Bai Fan.
+Qing Shui regarda calmement Wang Lin. Il espérait que Wang Lin entrerait dans le bassin céleste et renoncerait à son domaine. Il voulait que Wang Lin devienne un véritable être céleste et un disciple authentique de son maître, Bai Fan.
 
 Xu Ting réfléchit un instant et fixa Wang Lin. Il serra les dents et marcha vers le bassin céleste. Il avait été arrogant toute sa vie, et parmi ses pairs, nul n'était digne de lui. Après avoir quitté la planète Dong Lin, personne ne l'avait égalé!
 

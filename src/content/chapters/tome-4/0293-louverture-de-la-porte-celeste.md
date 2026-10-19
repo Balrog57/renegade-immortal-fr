@@ -12,7 +12,7 @@ En plus de celle qu'il avait façonnée il y a de nombreuses années, il en poss
 
 Des veines rouges parcouraient ces sculptures, mais aucune d'entre elles ne se touchait.
 
-Le regard de Wang Lin était serein. S'il activait ces neuf sculptures, il devrait être capable de déclencher le pouvoir du domaine du passage du temps, bien que celui-ci soit légèrement inférieur à celui du vieil homme.
+Le regard de Wang Lin était serein. S'il activait ces neuf sculptures, il devrait être capable de déclencher le pouvoir du domaine du passage du temps, bien que celui-ci soit presque identique à celui du vieil homme.
 
 Il rangea les sculptures, prit une profonde inspiration et se mit à cultiver, attendant le jour où la Porte Céleste s'ouvrirait.
 
@@ -26,11 +26,11 @@ Des créatures jamais vues auparavant apparaissaient et disparaissaient. Parfois
 
 Cette scène se répétait en de nombreux endroits à travers Suzaku. Un cultivateur muni d'un Chaudron de Pluie apparaissait là où ces visions surgissaient.
 
-À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant du Clan du Démon Géant tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une antiquité sacrée. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
+À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant du Clan des Démons Géants tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une simplicité antique. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
 
-Sous lui, les chefs de secte du Clan du Démon Géant affichaient tous des expressions très graves.
+Sous lui, les chefs de secte du Clan des Démons Géants affichaient tous des expressions très graves.
 
-« Soyez tous rassurés; avec le trésor de la secte, je vais certainement obtenir une immense quantité d'énergie spirituelle céleste! » La voix de l'homme était empreinte d'une assurance absolue.
+« Soyez tous rassurés; avec le trésor du clan, je vais certainement obtenir de l'énergie spirituelle céleste! » La voix de l'homme était empreinte d'une assurance absolue.
 
 À l'extrémité nord-est de Suzaku, dans une montagne déserte, un jeune homme vêtu de peaux de bêtes, debout sur un immense arbre, contemplait le ciel. Lui aussi tenait un Chaudron de Pluie dans sa main. Il laissa échapper un sourire malveillant, puis s'éleva dans les airs.
 
@@ -38,7 +38,7 @@ Sous ses pieds, une masse noire apparut soudainement en émettant un bourdonneme
 
 Dans la partie sud-ouest de Suzaku, un homme d'âge moyen se tenait sur une tour, observant le ciel avec une expression mélancolique: « Ting Er, la Porte Céleste s'est encore ouverte. Je vais absolument t'obtenir davantage de jades célestes afin que ton corps puisse être préservé pour mille ans de plus. »
 
-Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le bas et saisit la tour. La structure massive s'éleva et rétrécit jusqu'à tenir dans sa paume, puis il s'avança dans l'illusion.
+Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le bas et saisit la tour. La structure massive rétrécit jusqu'à tenir dans sa paume, puis il s'avança dans l'illusion.
 
 Dans la partie nord-ouest de Suzaku, au siège de la Secte des Cadavres, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit: « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste? Mon corps va encore devoir se mettre au travail... »
 
@@ -108,7 +108,7 @@ Quant aux quatre autres, l'un d'eux dégageait une puissance impressionnante. To
 
 Cependant, entre ses sourcils, la forme d'une hache apparaissait et disparaissait par intermittence.
 
-En voyant cette hache, Wang Lin put confirmer que cet homme appartenait au Clan du Démon Géant et qu'il occupait probablement une position très élevée au sein de celui-ci.
+En voyant cette hache, Wang Lin put confirmer que cet homme appartenait au Clan des Démons Géants et qu'il occupait probablement une position très élevée au sein de celui-ci.
 
 Un autre ressemblait à un jeune homme, mais ses yeux trahissaient une soif de sang et une cruauté sans limite. Wang Lin détourna le regard après l'avoir observé un instant. L'aura de cet individu était similaire à celle de son corps principal, bien que légèrement plus faible.
 

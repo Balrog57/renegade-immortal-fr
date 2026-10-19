@@ -12,7 +12,7 @@ Il ne restait qu'une âme originelle brisée, dont la majeure partie des souveni
 
 Une fois transformé en lumière dorée, le Fouet de l'Âme pouvait s'allonger ou se rétracter selon la volonté de Wang Lin. L'âme originelle du Grand Ancien, autrefois tout-puissante, fut ainsi capturée par lui.
 
-Comment Wang Lin aurait-il pu laisser s'échapper l'âme originelle d'un cultivateur du Cinquième Fléau Céleste qui n'était qu'à un pas du troisième stade? Le simple fait de le tuer pour l'intégrer à son Arsenal Magique était déjà une puissance extrême, sans parler de la compréhension du tonnerre contenue dans l'âme originelle du Grand Ancien.
+Comment Wang Lin aurait-il pu laisser s'échapper l'âme originelle d'un cultivateur du Cinquième Fléau Céleste qui n'était qu'à un pas du troisième stade? Le simple fait de le tuer pour en faire une âme capable de « semer des haricots pour faire surgir des soldats » était déjà une puissance extrême, sans parler de la compréhension du tonnerre contenue dans l'âme originelle du Grand Ancien.
 
 Pour les yeux profanes, l'âme originelle du Grand Ancien du Clan du Tonnerre Dispersé était un trésor céleste. Pourtant, pour Wang Lin, elle représentait bien plus qu'un tel trésor: c'était une opportunité d'une fortune inouïe!
 
@@ -20,7 +20,7 @@ Pour les yeux profanes, l'âme originelle du Grand Ancien du Clan du Tonnerre Di
 
 Après la grande bataille, les 7 Millions de Mondes n'étaient plus que ruines. Des fissures spatiales lacéraient l'univers, et la barrière protectrice s'était effondrée. Des tempêtes balayaient tout sur leur passage, dévorant chaque fragment de réalité.
 
-Ces 7 millions de mondes avaient été créés par autrui. La poussière retournait à la poussière, la terre à la terre; tout reprenait sa forme initiale. Les sons de l'effondrement résonnaient comme des cloches funèbres tandis que les 7 Millions de Mondes se dissipaient.
+Ces 7 Millions de Mondes avaient été créés par autrui. La poussière retournait à la poussière, la terre à la terre; tout reprenait sa forme initiale. Les sons de l'effondrement résonnaient comme des cloches funèbres tandis que les 7 Millions de Mondes se dissipaient.
 
 En partant, le cœur de Wang Lin était serein. Bien qu'il ne fût resté que peu de temps dans le Système Stellaire Antique, il avait dévoré un grand nombre de cultivateurs et s'était approprié leurs souvenirs. Wang Lin savait que le Grand Ancien agissait comme le roi du Clan du Tonnerre Dispersé et détenait une autorité absolue.
 
@@ -36,7 +36,7 @@ Le peuple des 7 Millions de Mondes s'était manifesté, et le Clan du Tonnerre D
 
 Alors qu'il avançait, les yeux de Wang Lin brillèrent. Malgré le danger monstrueux, il ne reculerait pas!
 
-Le grondement de l'effondrement des 7 Millions de Mondes s'estompa progressivement. Cette bataille avait été plus intense que celle contre le Daoïste de l'Eau. Contre ce dernier, Wang Lin n'avait eu aucune chance; contre le Grand Ancien, il avait pu espérer, ce qui rendait l'exploit d'autant plus ardu. Sans l'alliance avec le Daoïste Esprit Dispersé, il aurait été impossible de terrasser un cultivateur du Cinquième Fléau Céleste!
+Le grondement de l'effondrement des 7 Millions de Mondes s'estompa progressivement. Cette bataille avait été plus intense que celle contre le Shui Daozi. Contre ce dernier, Wang Lin n'avait eu aucune chance; contre le Grand Ancien, il avait pu espérer, ce qui rendait l'exploit d'autant plus ardu. Sans l'alliance avec le Daoïste Esprit Dispersé, il aurait été impossible de terrasser un cultivateur du Cinquième Fléau Céleste!
 
 À travers la brèche, une lumière éclatante apparut devant lui. Le Daoïste Esprit Dispersé, transportant tout son clan dans l'excitation, surgit dans le domaine stellaire du Clan du Tonnerre Dispersé!
 
@@ -58,7 +58,7 @@ Le Daoïste Esprit Dispersé finit par calmer l'agitation de son cœur. Il se to
 
 « Je n'oublierai jamais l'aide que vous m'avez apportée, cher compagnon de culture. Mon Clan Céleste tout entier s'en souviendra pour des générations. Quel que soit votre souhait, rien de ce que mon Clan Céleste n'oserait refuser! » Après ses paroles, les quelques millions d'âmes sauvées fixèrent Wang Lin avec exaltation. Leurs yeux brillaient de gratitude et tous joignirent les mains en signe de respect.
 
-« Mon Clan Céleste ne craint aucune requête! »
+« Mon Clan Céleste irait au feu et à l'eau, sans jamais désobéir! »
 
 Le Daoïste Esprit Dispersé agita la main, et des éclairs jaillirent de sa paume. Des dizaines de milliers de foudres spirituels volèrent vers Wang Lin.
 
@@ -70,7 +70,7 @@ Wang Lin garda un visage impassible tandis qu'il les recueillait d'un geste de l
 
 Une intention meurtrière traversa les yeux du Daoïste Esprit Dispersé: « Très bien. Je ne peux laisser le Clan du Tonnerre Dispersé impuni. Si je ne profite pas de cette opportunité pour les anéantir, je ne pourrai jamais apaiser la haine d'avoir perdu 90 % de mon clan pour fuir les 7 Millions de Mondes! »
 
-Wang Lin ne perdit plus une seconde et chargea. Des éclairs jaillirent de sa main droite et il se mua en tonnerre. Il agissait avec son corps originel, ce qui le rendait bien plus puissant que lorsqu'il pratiquait la possession!
+Wang Lin ne perdit plus une seconde et chargea. Des éclairs jaillirent de son œil droit et il se mua en tonnerre. Il agissait avec son corps originel, ce qui le rendait bien plus puissant que lorsqu'il pratiquait la possession!
 
 Wang Lin ne redoutait que le Grand Ancien du Cinquième Fléau Céleste; les autres n'étaient pas un problème. S'ils n'avaient pas tous été des cultivateurs de tonnerre, il aurait pu rencontrer quelques difficultés, car deux cultivateurs du Quatrième Fléau Céleste subsistaient dans le clan.
 
@@ -94,7 +94,7 @@ Un instant plus tard, la foudre entourant Wang Lin ressemblait à un lac de tonn
 
 Il existait une légende antique enfouie par le temps, et cette rumeur contenait le plus grand secret pour atteindre le troisième stade!
 
-On racontait qu'il fallait s'appuyer sur les Flammes Joss pour nourrir son essence et lui permettre de croître afin d'espérer ouvrir la porte du ciel. Cela permettait à l'essence de devenir complète et au corps de subir une mutation totale. À partir de ce moment, on ne serait plus un simple cultivateur ordinaire.
+On racontait qu'il fallait s'appuyer sur les Flammes Joss des disciples pour nourrir son essence et lui permettre de croître afin d'espérer ouvrir la porte du ciel. Cela permettait à l'essence de devenir complète et au corps de subir une mutation totale. À partir de ce moment, on ne serait plus un simple cultivateur ordinaire.
 
 Cependant, il existait une rumeur encore plus rare, bien plus ancienne que les Flammes Joss. Dans cette légende, on ne s'appuyait pas sur les flammes, mais sur sa propre compréhension. On utilisait une méthode inconnue pour parfaire son essence, franchir la porte du ciel et devenir un cultivateur du troisième stade capable de faire trembler l'univers!
 

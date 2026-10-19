@@ -26,7 +26,7 @@ La corde de l'arc fut tendue à l'extrême, puis, soudain, une lumière aux sept
 
 Un bourdonnement retentit, suivi du rugissement misérable de la corde brisée. La lumière aux sept couleurs s'envola, portée par l'arc de trajectoire formé par le fragment de corde!
 
-La corde n'était initialement pas longue, mais à cet instant, elle s'étendit à l'infini. Tout ce qui se trouvait dans son sillage fut séparé de l'espace normal!
+La corde n'était initialement pas longue, mais à cet instant, elle s'étendit à l'infini. Tout le ciel étoilé dans son sillage fut tranché!
 
 Le vieux fantôme flou laissa échapper un froid reniflement alors qu'il saisissait l'arc pour le rejeter dans le Royaume Intérieur. Simultanément, il recula rapidement, mais la corde de l'arc le faucha. En temps normal, il n'aurait pas prêté attention à cela, mais cette corde dégageait une lumière aux sept couleurs. Il leva sa main droite et écrivit le mot « bataille » sept fois de suite!
 
@@ -34,7 +34,7 @@ Dès que les sept mots apparurent, ils furent brisés par la corde de l'arc. À 
 
 La corde de l'arc fondit sur le mot blanc et le percuta, le forçant à marquer un temps d'arrêt. Profitant de cette pause, la silhouette floue se replia dans la Formation de Scellement du Royaume.
 
-« Daoïste aux Sept Couleurs, tu as vraiment osé attaquer. C'était ta troisième et dernière chance! Empreinte d'Esprit de Cultivation Millionnaire... Puisque tu as pris l'initiative de briser le sceau, ce vieil homme attendra! »
+« Daoïste aux Sept Couleurs, tu as vraiment osé attaquer. C'était ta troisième et dernière chance! Empreinte des Millions d'Esprits de Cultivation... Puisque tu as pris l'initiative de briser le sceau, ce vieil homme attendra! »
 
 Au moment où il pénétra dans la Formation de Scellement du Royaume, le mot blanc se dissipa et la corde de l'arc frappa violemment la formation.
 
@@ -46,13 +46,13 @@ Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'
 
 Le flou Vieux Fantôme Zhan laissa échapper un ricanement et disparut sans laisser de trace alors que la corde de l'arc se rapprochait.
 
-Il était apparu soudainement et s'était éclipsé tout aussi brusquement. C'était comme s'il n'était venu que pour confirmer quelque chose et ramener l'arc dans le Royaume Intérieur. De son arrivée à son départ, il n'avait même pas daigné regarder l'objet.
+Il était apparu soudainement et s'était éclipsé tout aussi brusquement. C'était comme s'il n'était venu que pour être témoin de quelque chose et ramener l'arc dans le Royaume Intérieur. De son arrivée à son départ, il n'avait même pas daigné regarder l'objet.
 
 Il était inutile de mentionner les cultivateurs présents; y compris Wang Lin, tous étaient insignifiants, semblables à des fourmis.
 
 « Si cet arc reconnaît un maître, il est un trésor. Sinon, il exigera votre force vitale pour être utilisé et sera extrêmement faible! Si l'un d'entre vous le désire, vous pouvez vous en servir pour jouer! » Sa voix résonna puis se dissipa lentement.
 
-Tout cela se produisit en un instant. La corde se rompit, la Formation de Scellement du Royaume s'effondra et d'innombrables vies furent fauchées. La corde semblait avoir libéré toute sa puissance, et l'arc à la corde brisée, que le Vieux Fantôme Zhan avait projeté dans le Royaume Intérieur, se dirigeait droit sur Wang Lin!
+Tout cela se produisit en un instant. La corde balaya tout, la Formation de Scellement du Royaume s'effondra et d'innombrables vies furent fauchées. La corde semblait avoir libéré toute sa puissance, et l'arc à la corde brisée, que le Vieux Fantôme Zhan avait projeté dans le Royaume Intérieur, se dirigeait droit sur Wang Lin!
 
 Était-ce une coïncidence ou non?
 

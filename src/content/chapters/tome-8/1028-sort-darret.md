@@ -58,11 +58,11 @@ Chaque âme dégageait une pression terrifiante. Bien qu'elles fussent mortes de
 
 Seuls ceux possédant certaines qualifications étaient jetés dans le Bassin Funéraire Céleste par l'Empereur Céleste Qing Lin!
 
-Alors que les innombrables âmes rugissaient, le Bassin Funéraire Céleste s'éleva telle une mer déchaînée. Il tourna rapidement sous la femme, créant une force d'aspiration plusieurs fois plus intense qu'auparavant.
+Alors que les innombrables âmes rugissaient, le Bassin Funéraire Céleste s'éleva telle une mer déchaînée. Il tourna rapidement sous la femme, créant une force d'aspiration incomparablement plus intense qu'auparavant.
 
 Cependant, chose étrange, cette force de succion n'affectait que la femme et n'avait aucun effet sur les autres.
 
-Qing Lin ne marqua pas de pause. Ses mains bougèrent et une autre rune apparut pour encercler également la femme. À l'instant où cette rune se manifesta, le vortex tourna deux fois plus vite, comme s'il était devenu la gueule de l'enfer cherchant à la dévorer totalement.
+Qing Lin ne marqua pas de pause. Ses mains bougèrent et une autre rune apparut et flotta à gauche de la femme. À l'instant où cette rune se manifesta, le vortex tourna deux fois plus vite, comme s'il était devenu la gueule de l'enfer cherchant à la dévorer totalement.
 
 Le sang noir s'écoulant de ses orbites commença à couler plus abondamment, comme si elle versait des larmes; seules, ces larmes étaient terrifiantes à contempler.
 
@@ -72,7 +72,7 @@ Plus terrifiant encore, l'espace autour d'elle se brisa sous l'effet de son cri 
 
 En traversant l'air, sa voix créa une série de détonations soniques qui balayèrent la zone. Bientôt, elle engendra une tempête qui fonça vers Qing Lin.
 
-Du sang jaillit des oreilles de Wang Lin. Bien qu'il fît circuler constamment son énergie originelle et possédât le corps d'un dieu ancestral, il fut tout de même blessé.
+Du sang jaillit des oreilles de Wang Lin. Bien qu'il fît circuler constamment son énergie originelle et possédât le corps d'un dieu ancien, il fut tout de même blessé.
 
 C'était comme si un bourdonnement s'était installé dans ses oreilles, et les mêmes mots y résonnaient sans fin.
 
@@ -88,7 +88,7 @@ C'était comme si une loi inimaginable était descendue des cieux; selon la volo
 
 Wang Lin avait surmonté de nombreux dangers grâce au Sort d'Arrêt. On pouvait dire que ce sort était devenu indispensable à sa survie.
 
-Cependant, le Sort d'Arrêt qu'il maîtrisait était celui qu'il avait appris du jade laissé par l'Empereur Céleste Qing Lin. Il n'avait jamais vu personne d'autre l'utiliser. Peu importait l'intensité de ses études, il n'avait jamais pu repousser les limites de ce sort.
+Cependant, le Sort d'Arrêt qu'il maîtrisait était celui qu'il avait appris du jade laissé par l'Empereur Céleste Qing Lin. Il n'avait jamais vu personne d'autre l'utiliser. Il n'avait donc aucune chance de le perfectionner ni d'en percer l'origine.
 
 Pourtant, c'était la première fois qu'il témoignait de l'usage du Sort d'Arrêt par un tiers, et cette personne n'était autre que Qing Lin!
 

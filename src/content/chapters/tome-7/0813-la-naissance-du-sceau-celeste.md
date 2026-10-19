@@ -44,7 +44,7 @@ Le moustique volait joyeusement quand soudain, tous ses poils se hérissèrent; 
 
 La rune brilla et s'imprima sur la bête moustique. Elle se brisa instantanément en liquide doré, enveloppant la créature. Le moustique lutta violemment avant de parvenir à se libérer après quelques instants. Il s'enfuit alors au loin, jetant un regard vers Wang Lin comme s'il s'était senti lésé, tout en poussant un cri.
 
-Les yeux de Wang Lin pétillèrent. En utilisant le pinceau céleste, il n'avait consommé que 10 % de son énergie d'origine, et pourtant la rune était déjà si puissante. S'il utilisait toute sa puissance pour la créer, son effet n'en serait que décuplé.
+Les yeux de Wang Lin pétillèrent. En utilisant le pinceau céleste, il n'avait consommé que 10 % de son énergie d'origine, et pourtant la rune était déjà si puissante. S'il utilisait toute sa puissance pour la créer, son effet en serait multiplié.
 
 Wang Lin rangea le pinceau céleste. Après une courte réflexion, il comprit la vérité: « La véritable capacité de ce trésor réside dans cette rune. Lorsqu'elle était enfermée dans l'objet, sa pleine puissance ne pouvait s'exprimer, mais avec le pinceau, je peux libérer son essence véritable. »
 

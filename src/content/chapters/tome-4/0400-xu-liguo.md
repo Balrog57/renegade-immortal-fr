@@ -16,13 +16,13 @@ Le visage de l'ancêtre du Clan des Démons Géants pâlit tandis qu'il crachait
 
 Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan des Démons Géants et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une trentaine de mètres à sa taille normale, bien que ses yeux brillaient toujours intensément.
 
-Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan des Démons Géants était livide lorsqu'il cria: « Tranche! »
+Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan des Démons Géants était féroce lorsqu'il cria: « Tranche! »
 
 À l'instant même où il prononça ce mot, une puissante énergie d'épée se rassembla sur l'arme céleste et fondit sur Wang Lin.
 
 Xu Liguo laissa échapper un rugissement et hurla: « Wang Lin, je viens me venger! »
 
-L'ancêtre du Clan des Démons Géants afficha un sourire sardonique et éclata de rire: « Wang Lin, regarde ce vieil homme utiliser ton propre trésor pour te tuer! »
+L'ancêtre du Clan des Démons Géants afficha un rictus féroce et rugit: « Wang Lin, regarde ce vieil homme utiliser ton propre trésor pour te tuer! »
 
 Wang Lin esquissa un sourire moqueur. Loin de se dérober, il pointa l'épée céleste du doigt. Soudain, l'épée fit demi-tour et frappa l'ancêtre du Clan des Démons Géants avec la rapidité de la foudre.
 
@@ -74,7 +74,7 @@ Dans un fracas assourdissant, les 3,3 kilomètres environnants se transformèren
 
 « Bête de flammes noires! » cria-t-il tout en enfonçant la torche dans le sol. Il activa ensuite l'énergie céleste de son corps et commença à tracer des sceaux qu'il projeta tous sur la torche.
 
-La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête de plus de trente mètres de haut.
+La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête d'une trentaine de mètres de haut.
 
 Cette créature possédait une tête massive et un corps couvert d'épines enflammées. Elle ressemblait quelque peu à un ours, sans toutefois en être un véritablement.
 
@@ -100,7 +100,7 @@ D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envol�
 
 « Détruisez! » Les yeux de Wang Lin devinrent glacials. Les milliers de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
 
-Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan des Démons Géants. Il ne croyait pas qu'un cultivateur au stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
+Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan des Démons Géants. Il ne croyait pas qu'un cultivateur au début du stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
 
 L'ancêtre prit une profonde inspiration. Ses deux mains formèrent un sceau, faisant apparaître une empreinte gigantesque devant lui. Dans un rugissement, il projeta cette empreinte vers le ciel. Celle-ci se fragmenta rapidement en d'innombrables empreintes plus petites avant de disparaître.
 

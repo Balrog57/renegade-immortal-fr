@@ -8,7 +8,7 @@ slug: neuf-couleurs-fusionnent-en-une
 ---
 Le dragon de cent mille pieds possédait naturellement une quantité immense de sang, mais ce que l'Ancien Oiseau Vermillon convoitait, c'était le sang de dragon flamboyant niché dans la protubérance sur le crâne de la créature.
 
-Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien plus précieux et rare que le reste de son sang. D'un coup magistral, l'Ancien Oiseau Vermillon força l'extraction de tout ce sang flamboyant, qui retomba sur le bâton d'encens ardent.
+Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien plus précieux et rare que le reste de son sang. D'un coup de paume, l'Ancien Oiseau Vermillon força l'extraction de tout ce sang flamboyant, qui retomba sur le bâton d'encens ardent.
 
 À l'instant où les gouttes touchèrent l'objet, elles furent absorbées par le bâton d'encens et disparurent.
 
@@ -26,7 +26,7 @@ Depuis des temps immémoriaux, trop peu de personnes avaient réussi un quatriè
 
 L'Oiseau Vermillon de première génération, de deuxième, de troisième et de quatrième génération... hormis eux, seul Wang Lin y parvenait! Bien que l'ancêtre de la troisième étape du Clan des Moineaux de Feu possédât une once de Feu Éthéré, il n'était pas un véritable Oiseau Vermillon à l'origine; comment aurait-il pu s'éveiller?
 
-Même s'il parvenait à engendrer du Feu Éthéré, cela ne serait rien comparé au feu d'un authentique Oiseau Vermillon!
+Même s'il parvenait à engendrer du Feu Éthéré, ce ne serait qu'une voie déviante comparée au feu d'un authentique Oiseau Vermillon!
 
 La difficulté de ce quatrième éveil était indescriptible. La puissance des sorts de Feu Éthéré pouvait faire trembler n'importe quel cultivateur de terreur.
 
@@ -38,7 +38,7 @@ Simultanément, l'immense Oiseau Vermillon aux neuf couleurs poussa un cri plus 
 
 « Pas assez... il n'y a pas assez de feu! » Wang Lin leva les yeux et des flammes jaillirent de son corps. Le vortex aux neuf couleurs s'échappa de son œil gauche pour former autour de lui une tempête de feu multicolore, une bourrasque capable de consumer le monde entier.
 
-Le quatrième éveil de Wang Lin reposait sur la combustion de son obsession pour embraser le feu du karma. Par conséquent, l'exigence en combustible était décuplée.
+Le quatrième éveil de Wang Lin reposait sur la combustion de son obsession pour embraser le feu du karma. Par conséquent, l'exigence en combustible était plus grande.
 
 À cet instant précis, une lueur rouge sombre jaillit dans l'Épreuve Terrestre et une fine pluie de sang commença à tomber!
 
@@ -68,7 +68,7 @@ L'homme d'âge moyen était le maître de Lu Yun, l'Oiseau Vermillon de la cinqu
 
 Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec l'Oiseau Vermillon de Wang Lin, une noble et majestueuse plainte retentit.
 
-Le feu autour de Wang Lin décupla d'un coup!
+Le feu autour de Wang Lin fut multiplié d'un coup!
 
 Fort de cette puissance, Wang Lin, trônant sur son lotus de feu, poussa un rugissement. Les flammes jaillirent et la tempête aux neuf couleurs enveloppa l'homme et l'oiseau. Tandis que le vortex tournait, les neuf couleurs étaient sur le point de ne former qu'une seule entité!
 
@@ -110,7 +110,7 @@ Le regard de Wang Lin s'illumina. Il agita la main et murmura: « Le feu ici a a
 
 « Sortilège du Dao: Fusion! »
 
-Wang Lin rugit, et les flammes noires et blanches autour de lui tremblèrent. Une force étrange émana de son corps, une puissance capable de lier n'importe quelle matière. À cet instant, le feu blanc se dissipa immédiatement.
+Wang Lin rugit, et les flammes noires et blanches autour de lui tremblèrent. Une force étrange émana de son corps, une puissance capable de fusionner n'importe quelle matière. À cet instant, le feu blanc se dissipa immédiatement.
 
 Il ne restait plus que le feu noir au cœur de la tempête!
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1196 - Sima Mos Secret
 slug: le-secret-de-sima-mo
 ---
-Wang Lin saisit le clou aux sept couleurs et recula rapidement en profitant de l'onde de choc. Il chuta au pied de la montagne tandis que les trois bêtes-aigles rugissaient en sa poursuite, tels trois éclairs de lumière noire.
+Wang Lin saisit le clou aux sept couleurs et recula rapidement en profitant de l'onde de choc. Il atterrit au pied de la montagne tandis que les trois bêtes-aigles rugissaient en sa poursuite, tels trois éclairs de lumière noire.
 
 Sans hésiter, Wang Lin se précipita dans le tunnel. Bravant la douleur fulgurante qui déchirait son corps, il fonça droit devant lui.
 
@@ -14,7 +14,7 @@ Les rugissements des bêtes-aigles résonnaient à ses oreilles, mais elles ne p
 
 Wang Lin trouva un refuge caché dans le tunnel et s'assit. Après avoir déployé de nombreuses restrictions, il sortit des pilules, les avala, puis commença à cultiver.
 
-Bien que son corps fût gravement blessé, l'anatomie de l'Ancien Dieu ne possédait pas seulement une puissance colossale, elle dotait aussi son porteur d'une capacité de régénération inimaginable. Après plusieurs heures, ses blessures commençaient à cicatriser.
+Bien que son corps fût gravement blessé, le corps de l'Ancien Dieu ne possédait pas seulement une puissance colossale, elle dotait aussi son porteur d'une capacité de régénération inimaginable. Après plusieurs heures, ses blessures commençaient à cicatriser.
 
 Cependant, Wang Lin ne partit pas. Il resta assis, faisant circuler l'énergie de l'Ancien Dieu dans chaque fibre de son être. Tandis qu'il guérissait, son énergie originelle circulait avec rapidité à travers son corps.
 
@@ -30,13 +30,13 @@ Il éprouvait encore une crainte persistante envers cet objet. Il avait eu de la
 
 N'importe quel autre cultivateur n'en aurait pas été capable. Même des experts au stade avancé du Briseur du Nirvana seraient morts face à ce clou sans le corps d'un Ancien Dieu.
 
-« Cet objet est indubitablement hors du commun. Non seulement il a brisé l'épée de fer, mais il a aussi transpercé mon corps. Je crains que, si l'épée ne l'avait pas partiellement bloqué, il n'aurait directement pénétré mes os pour les transformer en lumière septicolore en un instant. » Wang Lin fixa le clou dans sa main. Son sens divin se déploya pour y laisser sa propre marque.
+« Cet objet est indubitablement hors du commun. Non seulement il a brisé l'épée de fer, mais il a aussi transpercé mon corps. Je crains que, si l'épée ne l'avait pas partiellement bloqué, il n'aurait directement pénétré mes os pour les transformer en lumière septicolore en un instant. » Wang Lin fixa le clou dans sa main. Son sens divin se déploya pour y laisser sa propre marque, puis il le rangea dans son espace de stockage.
 
 « Bien que j'aie perdu l'épée de fer, j'ai obtenu ce clou aux sept couleurs, encore plus redoutable. Ce sera mon atout maître à l'avenir. Avec lui, même les cultivateurs du stade avancé du Briseur du Nirvana succomberont! »
 
 Tout en réfléchissant, la main droite de Wang Lin plongea dans le vide pour extraire la bague de Pang Decai et la glissa sur son pouce gauche. La défense de ce trésor était excellente; elle constituerait une protection de choix ici.
 
-Puis il sortit un autre objet: la courte épée qui avait été plantée dans l'os de la bête dans la caverne. Malheureusement, il ne pouvait pas encore briser son sceau; il la rangea donc après l'avoir observée.
+Puis il sortit un autre objet: la courte épée qui avait été plantée dans un os de cerf, dans la caverne. Malheureusement, il ne pouvait pas encore briser son sceau; il la rangea donc après l'avoir observée.
 
 La dernière chose qu'il retira fut la petite âme naissante appartenant au Maître Pin Cendré. Bien qu'affaiblie, elle arborait toujours une expression féroce et rugissait contre Wang Lin.
 
@@ -72,7 +72,7 @@ Le paysage se métamorphosa. La vallée, autrefois banale, devint pourpre et les
 
 La vallée était protégée par deux couches de restrictions. La première était une illusion: peu importe les efforts déployés, on ne pourrait jamais atteindre la grotte située à l'intérieur. C'était cette première couche que Pang Decai et ses compagnons tentaient de percer.
 
-Cependant, grâce à sa compréhension profonde des restrictions, Wang Lin en perçut immédiatement le mécanisme. Il leva la main pour faire apparaître la seconde couche, révélant ainsi la véritable apparence de la grotte.
+Cependant, grâce à sa compréhension profonde des restrictions, Wang Lin en perçut immédiatement le mécanisme. Il leva la main pour faire apparaître la seconde couche, révélant ainsi la véritable apparence de la vallée.
 
 Contemplant la lumière noire, Wang Lin esquissa un sourire amer. Cette lueur était identique à celle qui protégeait l'endroit où le Maître Pin Cendré avait récupéré la fiole; les deux étaient des Restrictions Temporelles!
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin pétillèrent. Il s'engagea dans l'ouverture et, une fois q
 
 Une illusion se réinstalla par-dessus. La vallée pourpre retrouva son aspect initial et la terre noire fut de nouveau recouverte de mauvaises herbes. Tout redevint comme avant l'arrivée de Wang Lin.
 
-Après avoir traversé la lumière noire, ce qui s'offrit au regard de Wang Lin fut une vallée verdoyante. Elle n'était pas vaste, mesurant à peine mille pieds de large. Neuf grottes étaient creusées dans les montagnes entourant la vallée, chacune fermée par une porte de pierre.
+Après avoir traversé la lumière noire, ce qui s'offrit au regard de Wang Lin fut une vallée verdoyante. Elle n'était pas vaste, mesurant environ mille pieds de large. Neuf grottes étaient creusées dans les montagnes entourant la vallée, chacune fermée par une porte de pierre.
 
 Un squelette reposait dans la prairie. Il était assis au sol, adossé à la paroi de la vallée, juste devant Wang Lin. Sa tête était baissée et son index droit pointait vers le sol.
 
@@ -106,4 +106,4 @@ Il s'approcha lentement, s'accroupit et l'examina avec soin. Puis il ramassa le 
 
 « Cependant, il était trop tard... Nous avons détruit notre propre espoir de nos propres mains... Nous sommes des pécheurs... Le Maître nous a expulsés de la secte. Je sais qu'il n'avait pas d'autre choix. Je suis parti avec mes compagnons et je me suis perdu dans les brumes de la Mer des Nuages. En contemplant ce brouillard, j'ai ressenti la peur... à cause de ce secret...
 
-« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je croyais au destin, et j'ai fini par lui céder... »
+« Je ne m'attendais pas à ce que cette calamité incommensurable revienne au moment même de notre désespoir. Nous avons échappé au destin une fois, pour revenir ici... Peut-être ne pourrai-je plus jamais quitter cet endroit... Est-ce là le destin? Je crois au destin, je lui voue ma foi... »

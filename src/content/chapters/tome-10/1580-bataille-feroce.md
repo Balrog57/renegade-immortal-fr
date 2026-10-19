@@ -12,7 +12,7 @@ slug: bataille-feroce
 
 Les yeux du vieil homme aux robes grises s'illuminèrent. Au moment où l'Empreinte de l'Esprit de Guerre se rapprochait, il agita la main et une bouteille ronde apparut dans sa paume.
 
-La bouteille était transparente et remplie d'une terre jaune. D'un geste, il fit jaillir la terre; celle-ci s'éleva en une masse de plus en plus dense jusqu'à atteindre des centaines de pieds de large.
+La bouteille était transparente et remplie d'une terre jaune. D'un geste, il fit jaillir la terre; celle-ci s'éleva en une masse de plus en plus dense jusqu'à atteindre près de cent mille pieds de large.
 
 « Essence terrestre, Enterrement Spirituel! »
 
@@ -46,11 +46,11 @@ Sa main droite plongea dans le vide et une fiole de pilules apparut. Juste au mo
 
 Le vieil homme aux robes grises afficha un visage grave. Il ne savait pas ce qu'était cette lumière dorée, mais il avait la sensation de l'avoir déjà vue. Il apparut sur le flanc gauche de Wang Lin et leva son index droit. Un éclair de lumière jaune jaillit, comme si son doigt entier était constitué de terre. Il pointa directement le milieu des sourcils de Wang Lin!
 
-Alors qu'il pointait vers l'avant, d'innombrables âmes de Flammes de Joss jaillirent. Ces âmes se transformèrent en grains de sable pour encercler Wang Lin, s'apprêtant à le décomposer comme l'Empreinte de l'Esprit de Guerre!
+Alors qu'il pointait vers l'avant, d'innombrables âmes de Flammes Joss jaillirent. Ces âmes se transformèrent en grains de sable pour encercler Wang Lin, s'apprêtant à le décomposer comme l'Empreinte de l'Esprit de Guerre!
 
-Au même moment, la vieille femme aux robes noires apparut sur la droite de Wang Lin. Ses yeux brillèrent et sa main droite s'abattit vers la poitrine du jeune homme!
+Au même moment, la vieille femme aux robes noires apparut sur la droite de Wang Lin. Ses yeux brillèrent et sa main droite s'abattit vers la poitrine de Wang Lin!
 
-Les âmes de Flammes de Joss prirent la forme de fantômes entre ses cinq doigts. Elles poussèrent des rugissements cruels en fonçant sur Wang Lin; il était comme si les doigts de cette vieille femme contenaient l'enfer lui-même, saturés d'une intention meurtrière monstrueuse!
+Les âmes de Flammes Joss prirent la forme de fantômes entre ses cinq doigts. Elles poussèrent des rugissements cruels en fonçant sur Wang Lin; il était comme si les doigts de cette vieille femme contenaient l'enfer lui-même, saturés d'une intention meurtrière monstrueuse!
 
 L'homme au regard indifférent fit un pas devant Wang Lin. Son expression demeurait froide et impitoyable alors qu'il levait la main droite. Une énergie glaciale convergea et il frappa de plein fouet la tête de Wang Lin!
 
@@ -62,7 +62,7 @@ Profitant de l'instant où le Fourneau Impérial bloqua l'assaut, Wang Lin laiss
 
 Tout s'était passé trop vite. À peine quelques respirations s'étaient-elles écoulées depuis le début de l'assaut que Wang Lin avait déjà traversé d'innombrables situations de vie ou de mort. Il n'avait pu utiliser ni la plupart de ses sorts, ni ses trésors magiques; même son Empreinte de l'Esprit de Guerre avait été interrompue.
 
-Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Royaume Scellé: une manœuvre massive orchestrée par tout le Système d'Étoiles Anciennes au-delà du royaume.
+Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Royaume Scellé: une manœuvre massive orchestrée par tout le Système Stellaire Antique au-delà du royaume.
 
 Le Souverain n'était toujours pas apparu!
 
@@ -70,7 +70,7 @@ Les concubines impériales célestes n'avaient pas encore agi!
 
 C'était le plus grand danger que Wang Lin ait jamais affronté dans sa vie! C'était une calamité mortelle!
 
-Au moment où le Bouclier de Lumière et d'Ombre s'effondra, un éclat jaillit du bras droit de Wang Lin. Le gant ancien apparut. Il avait besoin de temps, de temps pour déployer davantage de sorts, mais ses ennemis ne lui en laissaient aucune chance!
+Au moment où le Bouclier de Lumière et d'Ombre s'effondra, un éclat jaillit du bras droit de Wang Lin. Le gantelet divin antique apparut. Il avait besoin de temps, de temps pour déployer davantage de sorts, mais ses ennemis ne lui en laissaient aucune chance!
 
 Puisqu'ils ne lui accorderaient pas ce répit, il devait le créer de toutes pièces. Alors que leurs attaques mortelles se rapprochaient, le gant sur son bras droit entra en éruption, libérant une puissance monstrueuse du Dieu Ancien.
 
@@ -90,15 +90,15 @@ Une large ondulation se propagea à la surface.
 
 Les trois adversaires fixèrent l'eau. Après avoir repris leurs esprits, une soif de sang nouvelle envahit leur regard et ils s'apprêtèrent à le poursuivre.
 
-Sous la surface, le gant ancien du bras droit de Wang Lin vola en éclats. Ses yeux brillaient d'une tristesse mêlée d'une pointe de folie. Les trois poursuivants s'apprêtaient à plonger pour le traquer.
+Sous la surface, le gantelet divin antique du bras droit de Wang Lin vola en éclats. Ses yeux brillaient d'une tristesse mêlée d'une pointe de folie. Les trois poursuivants s'apprêtaient à plonger pour le traquer.
 
 Soudain, un vortex dévastateur surgit de l'eau calme. Un poing d'eau gigantesque jaillit vers l'homme en blanc.
 
 Les yeux de ce dernier s'illuminèrent et il frappa la surface de sa main. Une aura glaciale se propagea, transformant le poing d'eau en glace avant qu'il ne se brise. Cependant, Wang Lin poussa un rugissement alors qu'il traversait l'assaut pour percuter cette paume de son propre poing droit.
 
-Ce coup était le plus puissant que Wang Lin puisse porter, au mépris de la force de rejet qui déchirait son corps!
+Ce coup était le plus puissant de Ye Mo que Wang Lin puisse porter, au mépris de la force de rejet qui déchirait son corps!
 
-La tête divine apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc était projeté en arrière sur plusieurs milliers de pieds. Il cracha une gorgée de sang.
+La tête de Ye Mo apparut derrière Wang Lin et des grondements tonitruants retentirent alors que l'homme en blanc était projeté en arrière sur plusieurs milliers de pieds. Il cracha une gorgée de sang.
 
 Du sang doré jaillit du corps de Wang Lin, mais il ne s'arrêta pas. Après avoir repoussé l'homme en blanc, il avança vers le vieil homme aux robes grises. Il leva la main droite et l'éclair de tonnerre doré dans son œil droit scintilla. Le ciel bleu fut envahi d'un tonnerre infini, et des quantités monstrueuses de foudre convergèrent dans la main de Wang Lin alors qu'il s'abattait sur le vieillard!
 

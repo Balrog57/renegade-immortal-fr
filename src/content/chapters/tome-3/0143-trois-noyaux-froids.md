@@ -48,7 +48,7 @@ Wang Lin était certain de pouvoir former son troisième noyau froid d'ici trois
 
 Wang Lin avait tenté l'expérience à plusieurs reprises, mais ne parvenait pas à imprimer son sens divin sur le démon; il devait donc contourner le problème en les nourrissant progressivement.
 
-À ce propos, ces démons étaient d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer des Démons, et la majorité d'entre eux étaient des disciples de la Secte de la Lutte contre le Mal. Selon Sang Muya, toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
+À ce propos, ces démons étaient d'une grande utilité pour lui. Il retirait lentement des âmes du drapeau des âmes pour les offrir au démon, après y avoir imprimé un fragment de son sens divin. Toutes les âmes contenues dans ce drapeau appartenaient à des cultivateurs de la Mer des Démons, et la majorité d'entre eux étaient des disciples de la Secte de la Lutte contre le Mal. Selon Sang Muya, presque toutes ces âmes appartenaient à des individus qui s'étaient battus pour attirer l'attention de leur maître; une fois tués par lui, il avait scellé leurs âmes à l'intérieur.
 
 Le temps passa et, au moment où le démon finit par dévorer la plupart des âmes du drapeau, un fragment du sens divin de Wang Lin se développa en son sein. Le démon lui-même ne réalisa pas que ce fragment s'était développé en lui, car il était trop occupé à réfléchir à des moyens de s'échapper.
 

@@ -14,7 +14,7 @@ L'expression de Mu Bingmei était complexe, empreinte d'une émotion indicible a
 
 Le flot de larmes dans les yeux de Lu Yanfei redoubla d'intensité; deux ruisseaux de larmes coulèrent tandis que la silhouette se rapprochait. Toutes ses rancunes et ses souffrances jaillirent avec ses pleurs.
 
-Wang Lin avait traversé la Mer des Nuages et était arrivé vêtu de tonnerre!
+Wang Lin avait traversé la Mer des Nuages en fendant ciel et terre, vêtu de tonnerre!
 
 À cet instant, non seulement ceux qui connaissaient Wang Lin furent ainsi affectés, mais tous les cultivateurs environnants, y compris les membres de la Secte Éternelle, furent frappés de stupeur.
 
@@ -36,9 +36,9 @@ C'est parce qu'il avait atteint cet état rare qu'il pouvait percevoir ce que nu
 
 Ce qui le terrifiait, c'est que cette loi ne semblait pas appartenir aux cieux. Elle semblait exister hors du contrôle céleste, une loi nouvelle!
 
-Sous l'influence de cette loi, il ressentit lui-même un profond respect, particulièrement en percevant le domaine de l'individu devant lui. Ce domaine paraissait éthéré, et il lui fut impossible d'en saisir la nature en peu de temps!
+Sous l'influence de cette loi, il ressentit lui-même un profond respect, particulièrement en percevant le domaine de l'individu devant lui. Ce domaine était plein de changements entre le réel et l'illusoire, et il lui fut impossible, en peu de temps, de distinguer le vrai du faux!
 
-C'était là sa plus grande crainte. Il n'avait aucune confiance en ses chances de victoire dans un combat à mort contre un tel cultivateur!
+C'était là sa plus grande crainte. Il n'était pas sûr de l'emporter dans un combat à mort contre un tel cultivateur!
 
 « Cet homme est bel et bien blessé, mais ses blessures ne semblent pas trop graves… Il semble qu'il ait eu des préoccupations personnelles qui l'ont retardé. »
 
@@ -52,11 +52,11 @@ Même ses compagnons de la Secte de la Musique Céleste étaient terrifiés.
 
 Non seulement lui, mais la Secte Recherchant la Montagne s'était également tue. Zhao Long fixait la figure dans le ciel, l'expression changée radicalement. Ses pupilles se rétractèrent et son esprit devint vide.
 
-Le Maître de la Secte et le Grand Ancien de la Secte Recherchant la Montagne étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs.
+Le Maître de la Secte et le Grand Ancien de la Secte Recherchant la Montagne étaient d'une pâleur mortelle. Dès qu'ils virent Wang Lin, ils le reconnurent immédiatement comme l'homme qui les avait contraints à déplacer leur continent et à lui rendre respectueusement les honneurs, à son arrivée comme à son départ.
 
 « C'est… C'est… C'est lui!!! » Les deux hommes se regardèrent, partageant la même terreur dans leurs yeux.
 
-Les quelque 100 000 cultivateurs environnants étaient tous issus des régions de rang 6 et 7. Ils avaient tous entendu parler de la scène fracassante qui s'était produite dans ces régions. Même sans l'avoir vue, ils en avaient eu vent par les autres.
+Les quelque 100 000 cultivateurs environnants venaient pour la plupart des régions de rang 6 et 7. Ils avaient tous entendu parler de la scène fracassante qui s'était produite dans ces régions. Même sans l'avoir vue, ils en avaient eu vent par les autres.
 
 Certains vieux monstres avaient personnellement aperçu la silhouette de Wang Lin. En le voyant de plus près maintenant, un tumulte éclata partout!
 
@@ -78,7 +78,7 @@ Wang Lin regarda la fragile Lu Yanfei d'un air désolé et dit doucement: « Je 
 
 Lu Yanfei ne put plus retenir ses larmes; en regardant Wang Lin, elle secoua la tête. Un sourire radieux éclaira son visage alors qu'elle répondait doucement: « Tu n'es pas en retard. Tant que tu es là, il n'est jamais trop tard. »
 
-« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei vers les membres de la Secte de l'Origine.
+« Retourne d'où tu viens. Avec moi ici, personne ne pourra toucher à la Secte de l'Origine! Dans cette compétition, qu'il s'agisse des sectes de rang 5, 6 ou 7, je ferai en sorte que la Secte de l'Origine soit la première! » Wang Lin agita ses manches et une brise légère emporta Lu Yanfei jusqu'aux côtés de la tribune de la Secte Éternelle.
 
 Wang Lin tourna le regard vers la Secte Éternelle et joignit les mains à l'adresse du vieil homme qui avait pris la parole. Cependant, il fut surpris en apercevant Li Qianmei et… Mu Bingmei.
 
@@ -94,7 +94,7 @@ Lu Yuncong n'hésita pas et pointa la Secte de la Musique Céleste: « Lu Yingji
 
 Wang Lin hocha la tête et se tourna vers la Secte de la Musique Céleste. Une lueur de froideur traversa son regard alors qu'il s'élançait dans les airs pour charger la secte adverse.
 
-Dans le secteur de la Secte de la Musique Céleste, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils chargèrent vers la zone de la Secte Éternelle.
+Dans le secteur de la Secte de la Musique Céleste, le visage de Lu Yingjie changea radicalement et il recula. Son maître et les anciens de la secte affichaient tous des visages graves. Son maître le saisit et, contre toute attente, ils s'enfuirent vers la tribune de la Secte Éternelle.
 
 Le Maître de la Secte de la Musique Céleste s'avança pour barrer la route à Wang Lin. Il arborait une expression respectueuse et s'apprêtait à donner des explications.
 
@@ -118,7 +118,7 @@ Mais Wang Lin agita la main et l'interrompit brutalement!
 
 Le doigt hurla en descendant, s'abattant instantanément sur Lu Yingjie et son maître dans un fracas assourdissant. La terre trembla comme si la planète de culture elle-même en était ébranlée!
 
-Le sang éclaboussa partout. Les corps de Lu Yingjie et de son maître volèrent en éclats et leurs âmes d'origine s'effondrèrent. Le vent souffla, propageant une odeur de mort et de sang.
+Le sang éclaboussa partout. Les corps de Lu Yingjie et de son maître volèrent en éclats et leurs âmes d'origine furent brisées et se dissipèrent. Le vent souffla, propageant une odeur de mort et de sang.
 
 « Tuer Lu Yingjie est aussi facile qu'écraser une fourmi. » Les paroles que Lu Yuncong avait prononcées quelques jours plus tôt résonnaient maintenant comme un vent glacial d'hiver!
 

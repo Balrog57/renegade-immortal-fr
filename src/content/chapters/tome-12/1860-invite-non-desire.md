@@ -22,7 +22,7 @@ Wang Lin avait désormais une compréhension profonde du danger que représentai
 
 « Dix de stade initial de la Tribulation du Vide, trois de stade intermédiaire de la Tribulation du Vide... La tâche que l'Ancêtre Taureau Vert m'a confiée est fort ardue... » songea silencieusement Wang Lin. En réalité, lorsqu'il avait accepté les trois conditions, il avait déjà mesuré l'ampleur du défi.
 
-S'il avait accepté, c'était parce que Wang Lin refusait de leur rester redevable pour ces trois cadeaux! Le simple don de l'essence d'eau équivalait à lui offrir une essence entièrement nouvelle!
+S'il avait accepté, c'était parce que Wang Lin refusait de lui rester redevable pour ces trois cadeaux! Le simple don de l'essence d'eau équivalait à lui offrir une essence entièrement nouvelle!
 
 S'il avait dû comprendre et rassembler cette essence par ses propres moyens, cela aurait été tout simplement trop difficile, comme en témoignaient ses essences de feu et de tonnerre. Par conséquent, le poids de ces présents rendait tout refus impossible.
 
@@ -30,7 +30,7 @@ Quant à la pierre spatiale, bien qu'elle paraisse ordinaire, Wang Lin avait le 
 
 Il y avait aussi le dernier cadeau: l'usage unique de la divination. Cela aiderait grandement Wang Lin en cas de crise et pourrait même renverser une situation désespérée!
 
-Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devait honorer sa dette envers la secte!
+Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devait honorer sa dette!
 
 « Il reste encore neuf cultivateurs de stade initial de la Tribulation du Vide à éliminer... Si j'ai pu en tuer un, je peux certainement en tuer neuf autres! Le plus crucial est d'abattre les trois de stade intermédiaire de la Tribulation du Vide. Même si j'explose les 30 millions d'âmes dao, cela ne pourra en tuer qu'un seul... Quant aux deux restants... » Wang Lin fronça les sourcils, mais il ne recula pas. Une lueur froide traversa son regard.
 
@@ -40,7 +40,7 @@ Ces trois cadeaux étaient précieux, et puisqu'il les avait acceptés, il devai
 
 Dans cette pénombre, la silhouette d'une femme apparut au loin, glissant comme une fumée, avant de s'immobiliser devant l'entrée de la grotte de Wang Lin.
 
-Elle observa l'antre avec hésitation. Après avoir longuement réfléchi en silence, elle était sur le point de parler quand la voix calme de Wang Lin résonna depuis l'intérieur.
+Elle observa l'antre avec hésitation. Après avoir longuement réfléchi en silence, elle était sur le point de lui transmettre un message mental quand la voix calme de Wang Lin résonna depuis l'intérieur.
 
 « La camarade cultivatrice Yan Luan vient me rendre visite au plus profond de la nuit. Pourquoi hésiter ainsi dehors? Je vous en prie, entrez. »
 

@@ -38,9 +38,9 @@ Wang Lin baissa la tête et regarda Yao Bingyun, qui ne s'était pas encore éve
 
 Au moment où son doigt toucha le front de Yao Bingyun, les yeux de Wang Lin brillèrent d'une lumière mystérieuse. C'était comme s'il avait fusionné avec le monde.
 
-« La voie véritable n'est pas de dévorer, mais d'emprunter pour comprendre! Emprunter le Dao d'autrui pour confirmer le karma! C'est là la seule façon de permettre au karma d'atteindre son accomplissement! »
+« La voie véritable n'est pas de dévorer, mais d'emprunter pour comprendre! Emprunter le Dao d'autrui pour confirmer le karma! C'est là la bonne façon de permettre au karma d'atteindre son accomplissement! »
 
-Wang Lin prit une profonde inspiration et ferma lentement les yeux. Son domaine apparut. Le poisson noir et blanc dans le ciel tourna lentement avant de descendre, finissant par s'enfoncer dans leurs corps respectifs, celui de Wang Lin et celui de Yao Bingyun.
+Wang Lin prit une profonde inspiration et ferma lentement les yeux. Son domaine apparut. Le poisson noir et blanc dans le ciel tourna lentement avant de descendre, finissant par s'enfoncer dans leurs corps respectifs, celui de Wang Lin et celui de Yao Bingyun, où ils reformèrent le yin et le yang.
 
 La perle défiant les cieux à l'intérieur de Wang Lin commença à pivoter, absorbant lentement le yin et le yang.
 
@@ -70,7 +70,7 @@ La jeune fille leva la tête. Son visage baigné de larmes murmura: « Grande s�
 
 Cette tristesse semblait contenir la puissance nécessaire pour briser le monde. Lorsqu'elle envahit l'espace, elle fit s'effondrer le vide, déclenchant une tempête qui cherchait à tout balayer et à tout déchirer!
 
-Le vide se rompit, exposant en dessous un vaste chemin de terre verdoyante. Sur le sol, deux jeunes filles vêtues de rouge riaient en se poursuivant et en jouant ensemble.
+Le vide se rompit, exposant en dessous une vaste étendue de terre verdoyante. Sur le sol, deux jeunes filles vêtues de rouge riaient en se poursuivant et en jouant ensemble.
 
 Ces deux fillettes n'étaient pas âgées, mais il était évident qu'elles étaient sœurs. La petite fille qui poursuivait son aînée avait une silhouette frêle. Bien que son visage soit illuminé par un sourire, elle était d'une pâleur terrifiante.
 
@@ -108,7 +108,7 @@ Le visage de Yao Yun se décomposa de rage et il hurla: « Pourquoi, Ancêtre?! 
 
 Il regarda les deux filles être emportées dans le hall ancestral, prises de panique et de confusion, comme si elles étaient dévorées par l'édifice lui-même.
 
-De la même manière, tout cela était observé par Wang Lin. Il contemplait cette scène dans un état mystérieux tandis qu'il confirmait le Dao de Yao Bingyun! Tout ceci était la manifestation du Dao de Yao Bingyun; c'était la racine même de son être!
+De la même manière, tout cela était observé par Wang Lin. Il contemplait cette scène dans un état mystérieux tandis qu'il confirmait le Dao de Yao Bingyun! Tout ceci était la manifestation du Dao de Yao Bingyun; c'était la racine même de sa voie!
 
 « Ancêtre, le trésor magique de la famille est-il si crucial? Bingyun et Mengyun n'ont pas de père. Même leur mère n'était qu'un outil à votre service, dont le seul but était de donner naissance à deux enfants fusionnés avec l'esprit du trésor... »
 

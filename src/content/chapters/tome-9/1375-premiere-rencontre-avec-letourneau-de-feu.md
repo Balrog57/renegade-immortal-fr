@@ -50,7 +50,7 @@ En le revoyant, Wang Lin comprit instantanément que cet homme ne provenait pas 
 
 Pour qu'un cultivateur du troisième pas se trouve ici à ce moment précis, il n'y avait pas besoin de deviner ses intentions. Wang Lin savait exactement pourquoi il était là!
 
-« Il est venu pour me tuer... Cependant, il n'est probablement pas venu avec son corps originel; sinon, il ne dégagerait que l'aura d'un cultivateur du cinquième niveau du Fléau Céleste... Bien sûr, il pourrait dissimuler sa culture... Il semble aussi craindre cet endroit. Sinon, il aurait déjà attaqué... »
+« Il est venu pour me tuer... Cependant, il n'est probablement pas venu avec son corps originel; sinon, son aura ne se limiterait pas à celle d'un cultivateur du cinquième niveau du Fléau Céleste... Bien sûr, il pourrait dissimuler sa culture... Il semble aussi craindre cet endroit. Sinon, il aurait déjà attaqué... »
 
 « Le Conseil Souverain est très rapide... Cinquième niveau du Fléau Céleste... » Une étincelle d'intention de combat brilla dans les yeux de Wang Lin alors qu'il esquissait un sourire narquois avant de traverser l'atmosphère de la planète.
 

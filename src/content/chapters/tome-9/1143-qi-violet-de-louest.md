@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1143 - Purple Qi From the West
 slug: qi-violet-de-louest
 ---
-La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes pesaient sur l'esprit des disciples de la Secte de l'Origine, et ils étaient impuissants à les dissiper.
+La saison des pluies dura plusieurs mois, comme si elle ne devait jamais s'arrêter. Les gouttes de pluie incessantes et les nuages épais qui couvraient le ciel pesaient sur l'esprit des disciples de la Secte de l'Origine, et ils étaient impuissants à les dissiper.
 
 En un clin d'œil, Wang Lin était déjà à la Secte de l'Origine depuis dix jours.
 
-Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
+Xu Yun était déjà revenue de chez sa maîtresse, et durant ce temps, elle avait secrètement enquêté sur les trente et un mortels ramenés du Nord, sans rien trouver. Elle avait également observé Wang Lin, mais n'avait rien remarqué d'anormal.
 
 Même sa maîtresse, Lu Yanfei, prenait cette affaire au sérieux. Elle avait même utilisé des sorts pour tenter de trouver des indices, mais sans aucun résultat.
 
@@ -36,7 +36,7 @@ Pendant sa lecture, Wang Lin n'était pas totalement concentré; il réfléchiss
 
 Il regarda calmement Xu Yun. Assis là, il demanda simplement: « Une seule herbe est-elle morte? »
 
-Xu Yun fut surprise. Les herbes étaient bien plus luxuriantes qu'auparavant. Même certaines racines qu'elle avait déjà abandonnées avaient étrangement survécu.
+Xu Yun fut surprise. Les herbes étaient un peu plus luxuriantes qu'auparavant. Même certaines racines qu'elle avait déjà abandonnées avaient étrangement survécu.
 
 Wang Lin ne dit plus rien. Il reprit son rouleau et continua sa lecture.
 
@@ -62,7 +62,7 @@ Xu Yun réfléchit un instant en lançant un regard profond à Wang Lin. Elle mo
 
 Tard dans la nuit, la lampe à huile sur la table était allumée. Dehors, l'obscurité régnait, seul le bruit de la pluie se mêlait aux grondements du tonnerre qui suivait les averses.
 
-Le vent de la montagne s'engouffrait dans le bassin, formant des vortex qui hurlaient dans la nuit. Wang Lin posa son rouleau avant de fermer les yeux pour méditer un instant.
+Le vent de la montagne s'engouffrait dans le bassin, formant des vortex dont montaient des gémissements dans la nuit. Wang Lin posa son rouleau avant de fermer les yeux pour méditer un instant.
 
 Il avait pu tirer beaucoup d'enseignements du rouleau et avait acquis une compréhension vague de la Mer des Nuages. Plus important encore, au cours des quatre derniers jours, il avait pu obtenir une illumination sur l'alchimie grâce à un jade qu'il avait consulté quatre jours plus tôt. Il ouvrit les yeux et leva la tête. Son regard semblait capable de percer les murs de la maison, de traverser la pluie et de contempler directement le ciel au-dessus du bassin.
 
@@ -76,7 +76,7 @@ Lorsqu'il réapparut, il se trouvait au sommet de l'un des piliers, juste à l'e
 
 L'expression de Wang Lin resta sereine alors qu'il poussait la porte du temple pour entrer.
 
-Ce temple n'était pas vaste. Outre les décorations, l'élément le plus frappant était une immense fissure spatiale au centre, d'où s'échappait une lumière violette qui teintait tout le temple de pourpre. Derrière la fissure se trouvait une étagère. Des fluctuations de restrictions émanaient de celle-ci, sur laquelle étaient posés trois objets.
+Ce temple n'était pas vaste. Outre les décorations, l'élément le plus frappant était une immense fissure spatiale au centre, d'où s'échappait une lumière violette qui teintait tout le temple de violet. Derrière la fissure se trouvait une étagère. Des fluctuations de restrictions émanaient de celle-ci, sur laquelle étaient posés trois objets.
 
 Une longue épée, un morceau de jade et une pilule.
 
@@ -96,7 +96,7 @@ Après un nouvel examen, Wang Lin réfléchit. Il reposa le jade et prit la pilu
 
 Mais après avoir médité sur les informations alchimiques contenues dans le jade, il était revenu pour vérifier cette pilule.
 
-D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte de l'Origine. Il s'agissait d'une pilule de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
+D'après le jade, il existait un total de treize rangs de bêtes spirituelles. Les âmes de ces bêtes pouvaient être raffinées en pilules, elles aussi divisées en treize rangs... C'était une pilule transmise de génération en génération au sein de la Secte de l'Origine. Il s'agissait d'une Pilule de Séparation de l'Âme de rang 8, mais malheureusement, c'était une pilule de rang 8 sans âme de bête de rang 8; c'était donc un gaspillage! Une pointe de regret passa dans les yeux de Wang Lin.
 
 En étudiant le jade ces derniers jours, il avait progressivement saisi certains concepts clés de l'alchimie de la Mer des Nuages. Il était venu au temple aujourd'hui pour vérifier si ses suppositions étaient exactes.
 

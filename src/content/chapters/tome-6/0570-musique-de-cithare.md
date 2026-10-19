@@ -30,7 +30,7 @@ Wang Lin soupira. Il n'était pas encore parvenu à percer les secrets de l'Art 
 
 Après une courte réflexion, il déploya son Sens Divin et localisa les deux sergents chargés de ses conditions de vie derrière la fausse montagne. Ces deux hommes craignaient le sort de Wang Lin du plus profond de leur âme et n'osaient s'approcher de lui. Cependant, l'ordre de leur seigneur était sacré; ils avaient donc décidé de monter la garde à l'entrée de la cour pour ne laisser entrer personne.
 
-Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message divin. Peu de temps après, ils pénétrèrent dans la cour. Ils s'arrêtèrent à 10 mètres de lui et saluèrent respectueusement: « Salutations, Vice-Général Wang! »
+Le Sens Divin de Wang Lin balaya les deux sergents, et il leur envoya un message divin. Peu de temps après, ils pénétrèrent dans la cour. Ils s'arrêtèrent à 9,9 mètres de lui et saluèrent respectueusement: « Salutations, Vice-Général Wang! »
 
 Wang Lin déclara calmement: « Je sors. Vous me montrez le chemin. »
 

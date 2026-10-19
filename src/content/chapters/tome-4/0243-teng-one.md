@@ -14,7 +14,7 @@ Mais au même instant, l'homme chétif leva la tête et s'élança de nouveau.
 
 Un sentiment de danger retentit dans l'esprit de Wang Lin, qui esquiva précipitamment sur le côté. Une fois de plus, il échappa de justesse à l'attaque alors que l'homme chétif réapparaissait pour frapper.
 
-Le front couvert de sueur, il digéra rapidement les pilules qu'il venait d'ingérer pour reconstituer l'énergie spirituelle de son corps. Il frappa sa sacoche de rangement et en sortit le fourreau d'une épée antique. Il en tira ensuite une épée volante qu'il glissa dans le fourreau.
+Le front couvert de sueur, il digéra rapidement les pilules qu'il venait d'ingérer pour compenser l'épuisement de son Âme Naissante. Il frappa sa sacoche de rangement et en sortit le fourreau d'une épée antique. Il en tira ensuite une épée volante qu'il glissa dans le fourreau.
 
 Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesque qui s'abattit sur Teng Yi.
 
@@ -56,7 +56,7 @@ Hormis le moment où il avait reformé son corps, aucune des attaques de Teng Yi
 
 Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une marionnette de cadavre desséché façonnée par raffinage, qui ne connaissait que la force brute.
 
-De plus, Teng Yi était rempli de perplexité face aux techniques de Wang Lin, mais au milieu de cette perplexité semblait aussi percer une lueur de compréhension. Wang Lin en conclut que cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
+De plus, Teng Yi était rempli de perplexité face aux techniques de Wang Lin, mais au milieu de cette perplexité semblait aussi percer une lueur de compréhension. Wang Lin en conclut que cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous l'effet de cette technique.
 
 Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng Yi pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
 
@@ -88,7 +88,7 @@ Tandis que l'incantation progressait, le sang doré commença à bouillonner et 
 
 Dès l'apparition du symbole, le ciel s'obscurcit et les nuages disparurent, laissant descendre un rayon de lumière dorée. Dans cette clarté, une figure gigantesque, composée purement d'énergie spirituelle, apparut.
 
-Cette silhouette était immense, sa tête touchant presque les cieux. En se solidifiant, elle puisa une quantité massive d'énergie dans les veines spirituelles de Zhao. Dès cet instant, trois cinquièmes des veines spirituelles de tout Zhao devinrent de simples montagnes ordinaires.
+Cette silhouette était immense, sa tête touchant presque les cieux et ses pieds foulant la terre. En se solidifiant, elle puisa une quantité massive d'énergie dans les veines spirituelles de Zhao. Dès cet instant, trois cinquièmes des veines spirituelles de tout Zhao devinrent de simples montagnes ordinaires.
 
 L'énergie spirituelle qu'elles contenaient affluait à toute vitesse.
 

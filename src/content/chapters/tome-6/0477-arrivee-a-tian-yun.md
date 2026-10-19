@@ -8,7 +8,7 @@ slug: arrivee-a-tian-yun
 ---
 Ce jour-là, un rayon de lumière argentée fendit le vide. Ce rayon ressemblait à un dragon, se déplaçant à travers l'espace sans la moindre obstruction.
 
-Une silhouette se tenait sur ce sillage argenté. Cette personne arborait une longue chevelure flottant derrière elle, un regard fier et des traits acérés; sa longue robe blanche claquait violemment, comme sous l'effet d'un vent impétueux.
+Une silhouette se tenait sur ce sillage argenté. Cette personne arborait une longue chevelure flottant derrière elle, un regard profond et des traits acérés; sa longue robe blanche claquait violemment, comme sous l'effet d'un vent impétueux.
 
 Sa peau, hâlée, dégageait une vitalité profonde et une vigueur spirituelle intense.
 
@@ -18,7 +18,7 @@ Le voyage vers la planète Tian Yun durait depuis plus de six mois. Durant cette
 
 Sa peau n'était plus aussi pâle qu'autrefois sur la planète Suzaku, mais un peu plus sombre, marquée par une force mystérieuse émanant des étoiles.
 
-Quant au dragon argenté, il s'agissait de la boussole stellaire après sa sublimation.
+Quant au dragon argenté, il s'agissait de la boussole stellaire, une fois raffinée.
 
 Grâce aux souvenirs de l'Ancien Dieu Tu Si, il avait utilisé une technique spéciale, combinée à la pierre de bois du vide, pour en modifier la forme et parachever la fusion avec l'encre de neige. Tout cela avait engendré un changement mystérieux.
 
@@ -72,7 +72,7 @@ Et même à cette distance, il pouvait déjà ressentir la densité de l'énergi
 
 La planète Suzaku était loin de pouvoir rivaliser avec Tian Yun. L'Omniscient avait dit autrefois que Suzaku était une planète à moitié dévastée; en contemplant Tian Yun, Wang Lin n'en doutait plus.
 
-En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il découvrait une cité pour la première fois, avant de commencer sa culture.
+En voyant la planète Tian Yun, le cœur de Wang Lin fut secoué par une émotion violente, comme une immense vague déferlant en lui. C'était le même sentiment qu'il avait éprouvé lorsqu'il était sorti pour la première fois de son village de montagne pour gagner le chef-lieu, avant de commencer sa culture.
 
 Une passion profonde s'empara de lui alors qu'il contemplait silencieusement la planète au loin. « Planète Tian Yun... Moi, Wang Lin, j'arrive! » murmura-t-il pour lui-même.
 
@@ -80,7 +80,7 @@ Wang Lin prit une grande inspiration, mais au lieu de s'avancer, il fit un pas e
 
 À trois jours de vol derrière lui, il atteignit une petite planète déserte. Le corps de Wang Lin vacilla et son corps original apparut.
 
-Dès son apparition, le corps original s'élança. Il s'enfonça profondément dans le noyau de la planète déserte pour commencer sa culture.
+Dès son apparition, le corps original s'élança. Il fendit les vents de l'espace et s'enfonça profondément sous la surface de la planète déserte pour commencer sa culture.
 
 Il y avait de puissants cultivateurs sur la planète Tian Yun, et certains pourraient identifier son corps original comme étant un Ancien Dieu. Par précaution, Wang Lin laissa son corps original en lieu sûr avant de s'envoler vers la planète Tian Yun.
 

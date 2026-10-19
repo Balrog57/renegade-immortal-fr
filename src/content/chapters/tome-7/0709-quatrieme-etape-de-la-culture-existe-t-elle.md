@@ -24,7 +24,7 @@ Après avoir passé l'année écoulée à absorber l'énergie spirituelle céles
 
 Peu de gens pouvaient atteindre la deuxième étape de la culture; c'était une difficulté telle que les cultivateurs du premier stade ne pouvaient même l'imaginer.
 
-Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Yin Illusoire lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
+Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs du stade Yin et Yang lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
 « La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon corps et mon âme. Ceux qui entendent le Dao naissent le matin et meurent le soir. Si ce n'était pour Senior Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
 
@@ -54,7 +54,7 @@ La Bête du Tonnerre poussa un rugissement en traversant l'espace. Une demi-lune
 
 À l'instant où il s'approcha, d'innombrables nuages de tonnerre apparurent et le grondement des foudres résonna dans le ciel. Ce phénomène attira immédiatement l'attention des cultivateurs de la planète Mille Illusions.
 
-La Bête du Tonnerre se rapprocha et pénétra directement l'atmosphère. Alors qu'elle planait dans les airs, elle leva la tête et poussa un rugissement. Ce cri semblait contenir tout le tonnerre du monde.
+La Bête du Tonnerre se rapprocha et traversa directement la couche de vents violents et pénétra l'atmosphère. Alors qu'elle planait dans les airs, elle leva la tête et poussa un rugissement. Ce cri semblait contenir tout le tonnerre du monde.
 
 Le grondement fit s'agiter tous les nuages de tonnerre créés par l'arrivée de la Bête. Des éclairs descendirent du ciel, provoquant une série d'explosions.
 

@@ -16,7 +16,7 @@ Dans un fracas assourdissant, le monde écarlate tout entier trembla. La griffe 
 
 Le dragon argenté poussa un rugissement féroce, et ses yeux draconiques révélèrent une intention meurtrière encore jamais vue!
 
-Bien qu'il eût été blessé au cours de ses innombrables années d'existence, c'était la première fois qu'une simple fourmi parvenait à l'atteindre. Même si cette griffe n'avait pas été déployée avec toute sa puissance, ce n'était pas une chose que de simples proies pouvaient résister!
+Bien qu'il eût été blessé au cours de ses innombrables années d'existence, c'était la première fois qu'une simple fourmi parvenait à le vaincre d'un seul coup. Même si cette griffe n'avait pas été déployée avec toute sa puissance, ce n'était pas une chose que de simples proies pouvaient résister!
 
 Même des généraux démons ne pourraient contrer cette griffe!
 
@@ -48,7 +48,7 @@ Simultanément, le pavillon des épées dans le palais impérial était totaleme
 
 À cet instant, tous les commandants en chef et généraux démons remarquèrent cette énergie. Ils sortirent tous pour scruter le ciel nocturne.
 
-Dans le manoir impérial, un homme d'âge moyen vêtu d'une robe blanche observa le ciel. Ses yeux s'illuminèrent et il murmura: « Qui a osé provoquer l'épée de l'Empereur pour qu'elle quitte la formation?! »
+Dans le manoir du Commandant de la Terre, un homme d'âge moyen vêtu d'une robe blanche observa le ciel. Ses yeux s'illuminèrent et il murmura: « Qui a osé provoquer l'épée de l'Empereur pour qu'elle quitte la formation?! »
 
 Le général démon Shi Xiao se trouvait également dans son propre domaine en levant les yeux au ciel. L'expression de Sun Tao était grave alors qu'il contemplait la lueur argentée, frappé d'un immense choc.
 
@@ -72,15 +72,15 @@ Dans le manoir Mo, le visage de Mo Lihai était empreint de choc face à la lumi
 
 Malgré ses paroles, le mauvais pressentiment dans son cœur ne faisait que croître.
 
-Au palais royal, un homme vêtu d'une robe impériale regarda le ciel et sourit. « Se pourrait-il qu'elle ait subi une injustice? Je ne l'avais pas vue aussi furieuse depuis longtemps. Intéressant! »
+Au palais royal, dans la tour de la Noble Concubine, un homme vêtu d'une robe impériale regarda le ciel et sourit. « Se pourrait-il qu'elle ait essuyé quelque revers? Je ne l'avais pas vue aussi furieuse depuis longtemps. Intéressant! »
 
 Derrière lui, une femme envoûtante demanda doucement: « Empereur, de quoi vous réjouissez-vous ainsi? »
 
-Le corps de Wang Lin se déplaça comme un éclair dans les escaliers de la Prison Hong. Il bougeait avec une rapidité extrême et, tandis qu'il courait, le sang dans ses veines bouillonnait. Bien que la force de l'énergie d'épée ait été détournée par les sceaux de vie, elle provoquait tout de même un chaos interne.
+Le corps de Wang Lin se déplaça comme un éclair dans les escaliers de la Prison Hong. Il bougeait avec une rapidité extrême et, tandis qu'il courait, le sang dans ses veines se calmait peu à peu. Bien que la force de l'énergie d'épée ait été dissipée par les sceaux de vie, elle avait tout de même agité son sang.
 
 Lorsqu'il descendait les escaliers auparavant, il n'était pas rapide, mais à présent, il passait comme un souffle.
 
-Bientôt, il atteignit le sommet des marches. Un homme nommé Xu se tenait là, contemplant le ciel. Il avait une expression étrange et marmonna: « Cette affaire... est en train de nous échapper... »
+Bientôt, il atteignit le sommet des marches. Un homme nommé Xu se tenait là, contemplant le ciel. Il avait une expression étrange et marmonna: « Cette affaire... a pris une ampleur démesurée... »
 
 Wang Lin apparut soudainement. À l'instant où il se montra, l'homme nommé Xu sursauta pour le regarder. Après un soupir, il chuchota rapidement: « Vous ne pouvez pas sortir par ici, suivez-moi! » Sur ce, il bondit sur le côté et s'engouffra prestement dans un autre passage.
 
@@ -126,4 +126,4 @@ C'était une nouvelle insulte!
 
 Après avoir déchargé sa fureur, l'épée de l'Empereur retourna vers sa formation, toujours habitée par la rage.
 
-La Prison Hong était l'une des quatre grandes prisons de la Cité du Démon Céleste. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, l'épée de l'Empereur semblait avoir la Prison Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.
+La Prison Hong était l'une des quatre grandes prisons de la Cité du Démon Céleste. Bien qu'elle eût été endommagée par l'épée de l'Empereur, elle fut rapidement réparée grâce à d'importantes ressources et main-d'œuvre. Cependant, pendant près d'un mois, l'épée de l'Empereur semblait avoir la Prison Hong pour cible: chaque fois qu'elle était reconstruite, l'épée réapparaissait pour la détruire à nouveau, afin d'évacuer sa colère.

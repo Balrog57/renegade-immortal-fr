@@ -20,13 +20,13 @@ Un rire long et sonore s'échappa de la bouche de Wang Lin. Ce son ressemblait a
 
 Le rugissement de l'éclair résonna à travers le monde, tel un cri défiant les cieux.
 
-« J'ai obtenu une nouvelle vie. Je ne dois pas la gaspiller! » Wang Lin agita la main et son sac de rangement émergea de son âme originelle; aussitôt, une robe blanche enveloppa son corps.
+« J'ai obtenu une nouvelle vie : le Dao ne peut pas me détruire! » Wang Lin agita la main et son sac de rangement émergea de son âme originelle; aussitôt, une robe blanche enveloppa son corps.
 
 Il atterrit au sol et s'assit en position du lotus. Son regard se posa sur la montagne qui ressemblait à un dragon accroupi.
 
 Les yeux de Wang Lin brillèrent et il frappa son sac de rangement. Le drapeau des mille millions d'âmes apparut dans sa main. Il agita la main et d'innombrables fragments d'âmes s'envolèrent. Si le tonnerre qui entourait la planète était encore présent, ces fragments d'âmes n'auraient absolument pas pu résister à un tel environnement.
 
-La masse de fragments d'âmes se rassembla pour former trois âmes primordiales qui commencèrent à errer dans la région.
+La masse de fragments d'âmes se rassembla pour former trois âmes primaires qui commencèrent à errer dans la région.
 
 Une fois la protection établie, Wang Lin déploya son sens divin et inspecta soigneusement les environs. Après s'être assuré que la zone était sûre, il prit une profonde inspiration et pressa sa main droite entre ses sourcils. Une ondulation apparut sur son front et une perle cristalline se forma lentement.
 
@@ -38,11 +38,11 @@ L'expression de Wang Lin était extrêmement prudente. Cette perle était son tr
 
 C'est pour cette raison qu'il avait dû attendre que son corps soit totalement formé avant de sortir la Perle Défiant le Ciel. Sans son corps, il ne pouvait user de toute sa puissance. Sortir la perle prématurément aurait été trop dangereux et imprudent.
 
-La Perle Défiant le Ciel émit une lueur cristalline. Sous cette lumière, l'os de serpent aux yeux de lune trembla légèrement. Le métal en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
+La Perle Défiant le Ciel émit une lueur cristalline. Sous cette lumière, l'os de serpent aux yeux de lune trembla légèrement. Le métal à flamme en son sein se transforma en fils d'or qui furent lentement absorbés par la perle.
 
 Ce processus était extrêmement lent, et Wang Lin n'en comprenait pas la raison. Contrairement à l'absorption de l'élément eau, plus la perle approchait de sa complétion, plus l'absorption devenait lente.
 
-Le sens divin de Wang Lin continuait de balayer les environs, toujours en état d'alerte maximale. Il envoya même sa quatrième âme se cacher quelque part près de la planète.
+Le sens divin de Wang Lin continuait de balayer les environs, toujours en état d'alerte maximale. Il envoya même sa quatrième âme se cacher hors de la planète.
 
 Wang Lin utilisa cette quatrième âme comme tremplin pour étendre son sens divin encore plus loin.
 
@@ -84,7 +84,7 @@ En contemplant la montagne devant lui, Wang Lin prit une profonde inspiration. L
 
 « Cet objet me sera très utile. Je me demande simplement comment Cupidité a pu le découvrir et l'affiner! » Bien que Cupidité fût l'ennemi de Wang Lin, la vue de ce sort lui inspira une certaine admiration pour lui.
 
-« Le Dragon de Tonnerre Ancien, la Pierre de Montagne du Royaume Céleste, le Fourneau du Dieu Ancien, l'Écran Montagne et Rivière, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de Cupidité. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne n'avait réussi à voler ces objets à Cupidité.
+« Le Dragon de Tonnerre Ancien, la Pierre de Montagne du Royaume Céleste, le Fourneau du Dieu Ancien, l'Écran Montagne et Rivière, et cette étrange couronne... Sans oublier les trésors inconnus dans le sac de Cupidité. Il est véritablement béni par les cieux! » Wang Lin laissa échapper un soupir. Chacun de ces trésors aurait suffi à rendre les gens fous. Pourtant, ce qui surprenait Wang Lin, c'était que personne ne s'était présenté pour les voler à Cupidité.
 
 Cela le laissait totalement perplexe.
 
@@ -110,7 +110,7 @@ Ce qu'avait obtenu Cupidité n'était pas le véritable tableau des montagnes et
 
 Quant au type de sort capable d'imprimer un tel chef-d'œuvre sur un écran, Cupidité avait beau avoir fouillé les registres anciens, il n'avait jamais réussi à en découvrir le secret.
 
-Le regard de Wang Lin se posa sur l'écran. Celui-ci semblait très simple, sans rien d'extraordinaire; il ressemblait aux paravents que l'on trouvait dans les demeures des gens peu fortunés.
+Le regard de Wang Lin se posa sur l'écran. Celui-ci semblait très simple, sans rien d'extraordinaire; il ressemblait aux paravents que l'on trouvait dans les demeures de familles qui ne sont ni richissimes ni influentes.
 
 Le paysage des montagnes et des rivières paraissait légèrement flou, mais en le fixant longuement, il devenait extrêmement net.
 

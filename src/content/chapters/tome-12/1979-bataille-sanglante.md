@@ -28,7 +28,7 @@ Les pupilles de Wang Lin se rétractèrent et il avança. Il apparut devant les 
 
 Les six personnes dont les doigts avaient été broyés reculèrent précipitamment. Elles regardèrent avec désespoir le brouillard se diviser en deux pour les dévorer toutes!
 
-Au même moment, une Lame Yin apparut dans la brume et trancha les trois silhouettes qui s'enfuyaient dans le ciel. Leurs corps tremblèrent et furent coupés en deux, puis leurs âmes originelles furent absorbées par le brouillard en contrebas.
+Au même moment, une Lame Yin apparut dans la brume et trancha les trois silhouettes qui s'enfuyaient dans le ciel. Leurs corps tremblèrent et furent coupés en six morceaux, puis leurs âmes originelles furent absorbées par le brouillard en contrebas.
 
 Le vent et la neige hurlaient, mêlés à un son de sanglots. Le brouillard dans lequel Wang Lin s'était transformé balaya les neuf personnes entourant l'Exalté Empyréen Hai Zi.
 
@@ -72,7 +72,7 @@ Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces de
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste! »
 
-Le regard de Wang Lin se glaça. Il leva le pied et sa main gauche repoussa l'Exalté Empyréen Hai Zi.
+Le regard de Wang Lin se glaça. Il s'arrêta net et sa main gauche repoussa l'Exalté Empyréen Hai Zi.
 
 « Hai Zi, recule! Ils ne te toucheront pas. Ne participe pas à ce combat! »
 

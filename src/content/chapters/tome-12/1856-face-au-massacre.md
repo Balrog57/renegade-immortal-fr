@@ -38,15 +38,15 @@ Ainsi, lorsque les sept méridiens furent activés, la barrière géante se dép
 
 Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent du Taureau Céleste de la Mer des Pilules!
 
-Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Ancien Ancêtre du Taureau Vert aurait des difficultés à la traverser!
+Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de 10 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Illustre Taureau Vert aurait des difficultés à la traverser!
 
 On pourrait dire que c'était presque impossible! Car au-delà de la puissance intrinsèque de la formation, elle puisait également dans la force même du Taureau Céleste!
 
 Ces sept méridiens étaient activés à pleine puissance pour la première fois depuis leur création; ils joueraient un rôle vital.
 
-Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme, de la Secte Gui Yi et de petites sectes. Ces veines rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
+Outre ces sept méridiens, soixante-douze veines terrestres étaient gardées par les membres de la Secte de la Grande Âme, de la Secte Gui Yi et de petites sectes. Ces veines stimulaient sans cesse cette terre et rassemblaient une énergie céleste infinie pour soutenir les sept méridiens du Taureau Céleste!
 
-Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive!
+Tout cela visait la défense, mais comment la Secte de la Grande Âme aurait-elle pu se préparer durant tant d'années uniquement pour défendre? Un autre groupe de cultivateurs était chargé de l'offensive et des massacres!
 
 D'innombrables grottes entouraient les palais souterrains où résidaient les cultivateurs rassemblés. Un sentiment oppressant pesait sur le cœur de chacun: ils savaient qu'une guerre monumentale allait éclater.
 
@@ -74,7 +74,7 @@ Soudain, Wang Lin ouvrit les yeux. À l'instant même, le compas devant lui trem
 
 Cette ligne était composée d'innombrables points verts qui se multipliaient à vue d'œil.
 
-« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par la Secte de la Grande Âme. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan de l'Ancien Dao!
+« Ils arrivent! » Les yeux de Wang Lin brillèrent en fixant le compas. Il allait ainsi remplir les trois conditions imposées par la Secte de la Grande Âme. Ensuite, il quitterait ces lieux pour rejoindre Dong Lin et le Clan du Dao Antique!
 
 Alors que Wang Lin percevait l'arrivée des cultivateurs du Continent du Démon Vert, Lu Wenran ouvrit les yeux, le regard glacial.
 
@@ -122,4 +122,4 @@ En surface, le brouillard enveloppa totalement les cultivateurs du Continent du 
 
 La grande bataille venait de commencer!
 
-Wang Lin faisait partie de ce groupe. Calme, il se fondit instantanément dans la brume. Celle-ci entraverait les cultivateurs du Continent Vert en obstruant leur Sens Divin; cependant, pour ceux du Continent du Taureau Céleste, le brouillard s'insérerait dans leurs corps pour les nourrir!
+Wang Lin faisait partie de ce groupe. Calme, il se fondit instantanément dans la brume. Celle-ci entraverait les cultivateurs du Continent du Démon Vert en obstruant leur Sens Divin et leur énergie céleste; cependant, pour ceux du Continent du Taureau Céleste, le brouillard s'insérerait dans leurs corps pour les nourrir!

@@ -8,9 +8,9 @@ slug: localisation-de-zhao
 ---
 Wang Lin resta dans une auberge de la ville pendant trois jours. Durant cette période, de nombreuses personnes vinrent le visiter. Il abandonna son attitude habituelle d'indifférence pour faire la connaissance de plusieurs individus.
 
-La plupart de ces cultivateurs de l'Âme Naissante ne venaient pas de la ville; ils étaient venus participer à l'échange secret. La bataille de Wang Lin contre l'homme chauve avait captivé toute leur attention. Après tout, dans la Mer des Démons, seule la force importait, et Wang Lin avait aisément vaincu cet homme. C'était cette démonstration de puissance qui avait poussé tous ces cultivateurs de l'Âme Naissante à venir le rencontrer personnellement.
+La plupart de ces cultivateurs de l'Âme Naissante ne venaient pas de la ville; ils étaient venus participer au marché secret. La bataille de Wang Lin contre l'homme chauve avait captivé toute leur attention. Après tout, dans la Mer des Démons, seule la force importait, et Wang Lin avait aisément vaincu cet homme. C'était cette démonstration de puissance qui avait poussé tous ces cultivateurs de l'Âme Naissante à venir le rencontrer personnellement.
 
-Les trois jours passèrent et vint enfin le jour de l'échange secret. Ce matin-là, un cultivateur au stade de la Formation du Noyau s'approcha et remit poliment une invitation à Wang Lin, avant de le guider jusqu'à la boutique.
+Les trois jours passèrent et vint enfin le jour du marché secret. Ce matin-là, un cultivateur au stade de la Formation du Noyau s'approcha et remit poliment une invitation à Wang Lin, avant de le guider jusqu'à la boutique.
 
 Dès que le vieil homme de la boutique vit Wang Lin, il se montra extrêmement respectueux. Il guida soigneusement Wang Lin vers un mur, puis y lança un sortilège. Aussitôt, les parois ondulèrent comme la surface d'une eau calme après qu'on y a jeté une pierre.
 
@@ -32,7 +32,7 @@ Ce geste fit immédiatement renoncer les quelques cultivateurs qui avaient eu l'
 
 Bien que ses yeux fussent clos, le Sens Divin de Wang Lin surveillait étroitement l'érudit. Depuis l'instant où il était entré dans la pièce, l'homme studieux ne cessait de le fixer du regard.
 
-Peu après, d'autres cultivateurs arrivèrent. Tous portaient ces robes pour dissimuler leurs visages, et certains étaient même enveloppés d'un brouillard noir.
+Peu après, d'autres cultivateurs arrivèrent. La plupart portaient ces robes pour dissimuler leurs visages, et certains étaient même enveloppés d'un brouillard noir.
 
 En voyant cela, Wang Lin comprit que ces personnes souhaitaient rester anonymes. Si elles révélaient leur identité, l'étalage de leurs trésors pourrait leur attirer de graves ennuis.
 
@@ -40,11 +40,11 @@ Cependant, de nombreux cultivateurs ici ne cachaient pas leur visage, semblant a
 
 Pourtant, le doute persistait dans l'esprit de Wang Lin: comment tant de cultivateurs de l'Âme Naissante pouvaient-ils être rassemblés dans cette petite boutique de la ville de Lian Mo?
 
-Il inspecta discrètement les environs et aperçut plus de trente tables. Y avait-il donc plus de trente cultivateurs de l'Âme Naissante participant à cet échange secret?
+Il inspecta discrètement les environs et aperçut plus de trente tables. Y avait-il donc plus de trente cultivateurs de l'Âme Naissante participant à ce marché secret?
 
 Malgré ses doutes, son expression demeura parfaitement sereine.
 
-Wang Lin attendit encore un moment. Lorsqu'aucun autre cultivateur n'apparut, un vieil homme assis au premier rang se leva. Il toussa et déclara: « Cet échange secret est organisé par trois villes, il y a donc plus de monde que d'habitude. Mais puisque chacun cherche quelque chose ici, je suis convaincu que vous trouverez votre bonheur. Je commence. » Sur ce, il sortit un sac de rangement et en fit jaillir plusieurs cœurs de bêtes et des trésors magiques.
+Wang Lin attendit encore un moment. Lorsqu'aucun autre cultivateur n'apparut, un vieil homme assis au premier rang se leva. Il toussa et déclara: « Ce marché secret est organisé par trois villes, il y a donc plus de monde que d'habitude. Mais puisque chacun cherche quelque chose ici, je suis convaincu que vous trouverez votre bonheur. Je commence. » Sur ce, il sortit un sac de rangement et en fit jaillir plusieurs cœurs de bêtes et des trésors magiques.
 
 Les trésors magiques laissaient transparaître un tranchant redoutable, signe d'un immense pouvoir.
 
@@ -52,7 +52,7 @@ D'une voix lente, il reprit: « Ces cœurs proviennent de bêtes spirituelles de
 
 Les articles flottaient devant le vieil homme. Si quelqu'un était intéressé, il lui suffisait de tendre la main pour que l'objet s'envole directement vers lui. Personne ne craignait le vol lors de tels échanges; la pièce était protégée par de puissantes restrictions. Quiconque oserait voler et s'enfuir ne chercherait que la mort.
 
-Wang Lin avait glané ces informations auprès des personnes rencontrées durant les trois jours précédents. Dès qu'il avait appris que cet échange était coorganisé par trois villes, il avait compris qu'il s'agissait d'un espace spécial. Il devait exister de nombreuses boutiques réparties dans les trois cités, et les cultivateurs n'avaient qu'à en choisir une pour être transportés ici.
+Wang Lin avait glané ces informations auprès des personnes rencontrées durant les trois jours précédents. Dès qu'il avait appris que ce marché était coorganisé par trois villes, il avait compris qu'il s'agissait d'un espace spécial. Il devait exister de nombreuses boutiques réparties dans les trois cités, et les cultivateurs n'avaient qu'à en choisir une pour être transportés ici.
 
 Ainsi, la sécurité des participants était garantie.
 
@@ -84,7 +84,7 @@ Un bouclier de lumière verte entourait les jades; il était clair qu'il s'agiss
 
 Les occupants de la pièce froncèrent tous les sourcils. Même cinq jades contre un seul cœur de bête de qualité moyenne n'était pas une affaire avantageuse, comment l'inverse pourrait-il être vrai?
 
-En réalité, l'homme à la robe de paille soupira intérieurement. Il n'avait vraiment rien d'autre à vendre que ces jades, qu'il avait trouvés dans la grotte d'un ancien cultivateur. Ce dernier était très pauvre et ne possédait que ces fragments.
+En réalité, l'homme à la robe de paille soupira intérieurement. Il n'avait vraiment rien d'autre à vendre que ces jades, qu'il avait trouvés dans la demeure secrète d'un ancien cultivateur. Ce dernier était très pauvre et ne possédait que ces fragments.
 
 La première fois qu'il avait tenté de les vendre, il n'avait pas fixé de prix trop élevé, mais après avoir été ignoré lors de nombreux échanges, il avait décidé de viser des prix exorbitants. Il pensait que ces objets étaient inutiles pour la plupart, mais que pour celui qui en désirait vraiment un, le prix n'aurait aucune importance.
 
@@ -152,7 +152,7 @@ Wang Lin le regarda et hocha la tête.
 
 Tout le monde comprit ce qui se passait et cessa de s'y intéresser, bien qu'ils fussent tous curieux de savoir avec quoi Wang Lin pourrait payer un objet aussi précieux.
 
-Une heure plus tard, l'échange secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une cultivatrice au charme séduisant l'attendait déjà.
+Une heure plus tard, le marché secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une cultivatrice au charme séduisant l'attendait déjà.
 
 En le voyant, elle s'avança et dit respectueusement: « Senior, mon maître dit avoir rendez-vous avec vous; il m'a chargée de vous conduire à lui. »
 

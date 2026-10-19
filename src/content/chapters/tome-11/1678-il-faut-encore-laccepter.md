@@ -50,11 +50,11 @@ Le Maître Dao Bleu Rêve ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
 « Tu peux très bien tirer l'Arc de Li Guang pour abattre ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Soie Bleue dans le Royaume Intérieur! »
 
-« Moi, Bleu Rêve, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
+« Moi, Bleu Rêve, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu, après avoir pris cette décision, que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
 
 « La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps! Tu n'avais même pas atteint la troisième étape à l'époque; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici? »
 
-« La question entre toi et le Souverain, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Soie Bleue, et personne ne pourrait me forcer à prendre part à cette guerre. Il est même probable qu'on chercherait à me rallier par des faveurs! »
+« La question entre toi et le Souverain, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Soie Bleue, et quel que soit le vainqueur final, personne ne pourrait me forcer à prendre part à cette guerre. Il est même probable qu'on chercherait à me rallier par des faveurs! »
 
 « Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin! » Bleu Rêve fixa Wang Lin, la colère brillant dans ses yeux.
 
@@ -86,7 +86,7 @@ Le cœur de Wang Lin trembla tandis qu'il contemplait Li Qianmei avec douleur et
 
 Cependant, Li Qianmei était différente de Mu Bingmei ou de Xi Zifeng. Elle avait énormément sacrifié pour Wang Lin.
 
-Ces dix années passées à maculer son existence de sang, tous ces événements... comment Wang Lin pouvait-il oublier? Son obsession, son amour, son sourire et la clarté de ses yeux. Wang Lin n'avait pas un cœur de pierre; comment resterait-il indifférent?
+Ces dix années passées à maculer son existence de sang, tous ces événements... comment Wang Lin pouvait-il oublier? Sa ténacité, son attachement, son sourire et la clarté de ses yeux. Wang Lin n'avait pas un cœur de pierre; comment resterait-il indifférent?
 
 « Rends-le-moi, je t'en prie... » Li Qianmei mordilla sa lèvre inférieure. Son visage était pâle, mais elle maintenait son sourire. Elle ne voulait pas verser d'incessantes larmes devant lui.
 
@@ -94,7 +94,7 @@ Ces dix années passées à maculer son existence de sang, tous ces événements
 
 Wang Lin fixa Li Qianmei. Sa main droite trembla alors qu'il la levait. D'un geste, son espace de stockage apparut et un rouleau s'en échappa.
 
-Ce rouleau contenait le tableau de paysages « S'oublier dans ce monde ». Wang Lin tenait l'œuvre, mais il ne ressentit pas le soulagement qu'il avait éprouvé lorsqu'il la lui avait offerte la première fois.
+Ce rouleau contenait le tableau de paysages « S'oublier dans ce monde ». Wang Lin tenait l'œuvre, mais il n'avait plus la désinvolture qu'il avait eue en la lui offrant la première fois.
 
 Il ne pouvait plus offrir ce présent avec la même sérénité qu'autrefois à la femme qui se tenait devant lui.
 
@@ -120,7 +120,7 @@ Wang Lin ferma les yeux; le tableau ne bougeait pas d'un iota malgré les effort
 
 Wang Lin regarda Li Qianmei. Ses paroles étaient empreintes d'une détermination inébranlable lorsqu'il dit doucement:
 
-« À partir de maintenant, tu es ma femme! »
+« À partir de maintenant, tu es une femme à moi! »
 
 « Wan Er est ma femme. Quand elle s'éveillera, nous nous marierons ensemble... »
 

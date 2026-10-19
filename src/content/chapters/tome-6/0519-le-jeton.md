@@ -70,13 +70,13 @@ Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors
 
 À ce moment-là, non seulement ces deux-là, mais parmi tous les cultivateurs, diverses figures antiques surgirent.
 
-Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. Leur intention initiale n'était que d'escorter leurs jeunes générations, mais après avoir vu ce dernier rayon de lumière rouge, et surtout ce qu'il contenait, ils semblèrent tous rajeunir de plus de dix mille ans et s'élancèrent.
+Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. Leur intention initiale n'était que de faire découvrir ce spectacle à leurs jeunes générations, mais après avoir vu ce dernier rayon de lumière rouge, et surtout ce qu'il contenait, ils semblèrent tous rajeunir de plus de dix mille ans et s'élancèrent.
 
 Cette scène stupéfiante attira immédiatement les regards de tous les cultivateurs alentour. Les yeux de Wang Lin s'illuminèrent alors qu'il fixait le rayon de lumière rouge imminent.
 
 Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer des Esprits Démoniaques de l'Est.
 
-Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Elle était si bien dissimulée qu'elle fit même changer d'expression l'Omniscient et Ling Tianhou.
+Si seule sa vitesse avait été en cause, passe encore, mais le plus étrange était que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Cela fit même changer d'expression l'Omniscient et Ling Tianhou.
 
 Lorsque le Sens Divin de Wang Lin toucha la lumière rouge, ce fut comme s'il s'était retrouvé piégé dans un labyrinthe; il s'effondra instantanément. S'il n'avait pas été assez décisif pour le retirer immédiatement, il aurait certainement été blessé par cet effondrement.
 

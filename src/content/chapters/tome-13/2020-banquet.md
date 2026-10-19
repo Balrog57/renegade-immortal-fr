@@ -16,9 +16,9 @@ Le banquet devait se tenir sur la place gigantesque située devant le palais. Le
 
 Ces tables étaient disposées en éventail, semblant ainsi rendre hommage au palais.
 
-Des centaines de petites plateformes flottaient dans le ciel, surplombant le palais. Chaque plateforme accueillait des centaines de tables destinées à recevoir les invités.
+Des centaines de petites plateformes flottaient dans le ciel, surplombant le palais. Chaque plateforme accueillait près d'une centaine de tables destinées à recevoir les invités.
 
-Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs milliers de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
+Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs centaines de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
 
 Neuf silhouettes vêtues de noir flottaient au-dessus du tambour; chacune d'elles possédait une culture comparable à celle d'un Exalté Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
 
@@ -38,7 +38,7 @@ Le flux de visiteurs s'intensifia et, au septième coup de tambour, des milliers
 
 Une fois ces milliers de lumières stabilisées, 108 lueurs éclatantes surgirent de l'horizon. Elles arrivèrent instantanément, révélant 108 membres de l'Ancien Dao revêtus d'armures blanches!
 
-Ces 108 guerriers s'inclinèrent tous vers le palais avant de se poser sur la place. Ils choisirent des tables proches du palais et s'y installèrent.
+Ces 108 guerriers s'inclinèrent tous vers le palais avant de se poser sur la place. Ils choisirent des tables proches du palais, s'y installèrent, le visage calme, jambes croisées.
 
 « Les 108 Jin de l'Ancien Dao! »
 
@@ -88,13 +88,13 @@ Un immense tumulte s'éleva devant cette vision. Dans le ciel lointain, encore l
 
 L'apparition des 18 dragons démoniaques avait altéré l'énergie spirituelle de la région. La tempête générée par leur vortex était capable de bloquer le Sens Divin.
 
-« Les 18 Rois de l'Ancien Dao... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il venait d'arriver dans l'Ancien Dao et avait été en culture fermée durant tout ce temps; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
+« Les 18 Rois de l'Ancien Dao... Je me demande si Ye Mo était l'un d'entre eux à l'époque... Je le saurai peut-être lors du banquet. » Wang Lin se frotta le menton. Il n'était pas resté longtemps dans l'Ancien Dao et, depuis son retour, avait passé trois mois en culture fermée; il n'avait donc pas encore eu le loisir de traquer les descendants de Ye Mo.
 
 Cependant, cette question demeurait ancrée dans son esprit.
 
 Après réflexion, alors que le huitième coup de tambour résonnait encore, il se dirigea vers le palais au loin. Pourtant, à mesure qu'il approchait, un sentiment d'inquiétude grandissait en lui.
 
-Ce n'était pas une sensation de danger imminent, mais un pressentiment indescriptible. Avec son niveau de culture, Wang Lin était capable de percevoir les événements majeurs avant même qu'ils ne surviennent.
+Ce n'était pas une sensation de danger imminent, mais un pressentiment indescriptible. Avec son niveau de culture, Wang Lin était capable de percevoir les événements majeurs qui le concernaient avant même qu'ils ne surviennent.
 
 Pourtant, malgré ses réflexions, il ne parvenait pas à deviner ce qui pourrait se jouer lors de ce banquet royal.
 

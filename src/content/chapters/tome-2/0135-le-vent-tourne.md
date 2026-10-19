@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 135 - The Wind Changes
 slug: le-vent-tourne
 ---
-Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se diriger vers le Sanctuaire du Dieu de la Guerre. En progressant, il découvrit des bêtes de feu partout. Plus il avançait, plus il était stupéfait.
+Wang Lin n'hésita pas à utiliser la Technique de l'Évasion Terrestre pour se diriger vers le Sanctuaire du Dieu de la Guerre. En progressant, il découvrit des bêtes de feu partout. Plus il avançait, plus il s'inquiétait.
 
 Il changea rapidement de direction. Rencontrer Lin Tao n'était plus son objectif; il se dirigea plutôt vers la frontière du pays en utilisant les informations issues des souvenirs de Ma Liang. Il ne pouvait plus rester à Huo Fen.
 
@@ -50,7 +50,7 @@ Wang Lin refusait d'abandonner. Tout en volant, il continuait d'attaquer les bê
 
 Les cheveux de Wang Lin se recourlèrent instantanément sous l'effet de la chaleur et l'odeur de brûlé lui parvint, mais ses yeux brillèrent d'espoir. Bien que ces bêtes soient résistantes, elles n'étaient pas sans faiblesses.
 
-Par la suite, Wang Lin continua de contrôler son épée volante pour tendre des embuscades. Une à une, les bêtes furent décapitées par lui. D'après ses calculs, les bêtes de taille normale n'étaient qu'au stade de la Condensation de Qi, mais leur absence d'âme et leur corps coriace les rendaient difficiles à abattre.
+Par la suite, Wang Lin continua de contrôler son épée volante pour tendre des embuscades. Une à une, les bêtes furent abattues par lui. D'après ses calculs, les bêtes de taille normale n'étaient qu'au stade de la Condensation de Qi, mais leur absence d'âme et leur corps coriace les rendaient difficiles à abattre.
 
 Cependant, comme Wang Lin était seul face à une horde qui ne connaissait pas la peur, la poursuite ne faisait que s'intensifier.
 
@@ -88,7 +88,7 @@ Bientôt, ils atteignirent le cœur de l'armée de cultivateurs. Plus il approch
 
 Bien que le pays entier fût enveloppé par la fumée noire des volcans, les ondes d'énergie de l'armée avaient ouvert une brèche dans cet immense nuage. Partout où ils passaient, la fumée se déchirait sans pouvoir arrêter la progression des troupes. Ce qui était encore plus dense que l'énergie spirituelle, c'était le Qi des Épées, si compact qu'il semblait changer la couleur du ciel.
 
-Le Qi des Épées révélait sa puissance en percutant la fumée noire. À l'aube, mêlé à l'intensité du combat, ce spectacle revêtait une dimension majestueuse. Diverses épées volantes et trésors magiques brillaient dans le ciel comme un feu d'artifice chaotique. C'était une scène que Wang Lin n'oublierait jamais; un spectacle réservé aux batailles de grande envergure.
+Le Qi des Épées révélait sa puissance en percutant la fumée noire : on eût dit que la terre se fendait et que le ciel s'effondrait, tandis qu'un arc blanc traversait le soleil. À l'aube, mêlé à l'intensité du combat, ce spectacle revêtait une dimension majestueuse. Diverses épées volantes et trésors magiques brillaient dans le ciel comme un feu d'artifice chaotique. C'était une scène que Wang Lin n'oublierait jamais; un spectacle réservé aux batailles de grande envergure.
 
 Comparé à l'effondrement du champ de bataille étranger, on sentait ici en plus une force née de l'union de tous les cœurs et la volonté de sortir à tout prix de Huo Fen. Cette puissance n'était pas celle d'un seul homme, mais ne pouvait être atteinte qu'en y mettant toutes les forces d'un pays, balayant comme du bambou fendu tout ce qui barrait la route. Seule la horde de bêtes de feu pouvait rivaliser avec elle.
 
@@ -98,4 +98,4 @@ Qingxuan cria: « L'éclaireur de la Secte Luo He, Qingxuan, a ramené le discip
 
 L'expression de Wang Lin resta impassible. Ce jour-là, la femme de l'Âme Naissante ne s'en était pas prise à lui et ses paroles laissaient entendre une certaine volonté de le recruter. Mais même sans cela, Wang Lin serait venu ici; c'était son seul refuge face à la poursuite des bêtes de feu.
 
-Toutefois, étant d'une prudence extrême, il était prêt à s'enfuir dès que la situation deviendrait précaire. Avec la bataille contre les bêtes de feu qui faisait rage devant eux, peu de gens seraient disposés à le poursuivre. Quant aux cultivateurs de l'Âme Naissante, aucun ne prendrait le risque de quitter la gestion de la migration pour venir l'exécuter. Les cultivateurs de la Formation du Noyau constituaient la force principale contre les bêtes; les plus aptes à le traquer seraient donc des experts de l'Établissement des Fondations au stade pseudo-Formation du Noyau. Mais ces derniers ne représentaient aucune menace pour Wang Lin. S'il en croisait un, il le tuerait. S'il en croisait dix, il les tuerait tous sans la moindre crainte.
+Toutefois, étant d'une prudence extrême, il était prêt à s'enfuir dès que la situation deviendrait précaire. Avec la bataille contre les bêtes de feu qui faisait rage devant eux, peu de gens seraient disposés à le poursuivre. Quant aux cultivateurs de l'Âme Naissante, aucun ne prendrait le risque de quitter la gestion de la migration pour venir l'exécuter. Les cultivateurs de la Formation du Noyau constituaient la force principale contre les bêtes; les plus aptes à le traquer seraient donc des experts de l'Établissement des Fondations arrivés au sommet du stade avancé. Mais ces derniers ne représentaient aucune menace pour Wang Lin. S'il en croisait un, il le tuerait. S'il en croisait dix, il les tuerait tous sans la moindre crainte.

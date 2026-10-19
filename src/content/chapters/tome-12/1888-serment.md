@@ -10,7 +10,7 @@ La terrifiante force destructrice fut totalement contenue par l'ombre de son Dao
 
 Malgré cela, Wang Lin sentit son âme originelle trembler; repoussé de dizaines de milliers de pieds, du sang s’écoula au coin de sa bouche. Une fissure de la taille d'une paume apparut sur le torse de l'armure de terre, mais celle-ci ne se brisa pas.
 
-« Ils veulent me blesser pour... me retarder! » Wang Lin avait tenté un Distorsion Spatiale, mais la zone était scellée. Même avec l'armure d'âme, il était incapable de franchir cette montagne.
+« Ils veulent me blesser pour... me retarder! » Wang Lin avait tenté une Distorsion Spatiale, mais la zone était scellée. Même avec l'armure d'âme, il était incapable de franchir cette montagne.
 
 Alors que Wang Lin reculait, l'énergie monstrueuse de l'épée se rapprochait. Elle était d'une puissance phénoménale, comme si ce coup allait trancher la terre en deux. Elle convergea instantanément vers lui.
 
@@ -30,7 +30,7 @@ Des fracas de tonnerre résonnèrent et la seconde ombre d'épée s'effondra. Le
 
 Mais sitôt le second assaut dissipé, Yun Kong libéra un troisième puis un quatrième coup!
 
-Deux ondes d'énergie d'épée monstrueuses foncèrent sur Wang Lin. Dans un vacarme assourdissant, il continua sa charge. À environ mille pieds de Yun Kong, son visage était empreint d'une intention meurtrière.
+Deux ondes d'énergie d'épée monstrueuses foncèrent sur Wang Lin. Dans un vacarme assourdissant, il continua sa charge. À moins de mille pieds de Yun Kong, son visage était empreint d'une intention meurtrière.
 
 Le visage de Yun Kong pâlit légèrement alors qu'il fixait Wang Lin. Lorsque ce dernier se rapprocha, il mordit le bout de sa langue et cracha du sang. Ce sang, doré, se transforma en ombres d'épées qui jaillirent vers Wang Lin.
 
@@ -42,7 +42,7 @@ Cette épée était identique à son Sceau Doré. C'était un trésor qu'un Gran
 
 Alors que les neuf ombres d'épées convergeaient, les yeux de Wang Lin s'illuminèrent. Il allait partir, et quiconque tenterait de l'en empêcher subirait sa colère. L'armure de son bras droit s'était effondrée, mais il lui restait encore son bras gauche!
 
-Son bras gauche forma un sceau et il décocha neuf coups de poing contre les neuf ombres d'épées!
+Son bras gauche se ferma en poing et il décocha neuf coups de poing contre les neuf ombres d'épées!
 
 « Voyons si ton épée est plus tranchante ou si mon poing est plus dur! »
 
@@ -82,15 +82,15 @@ Depuis la chaîne de montagnes infinie, Wang Lin contemplait un désert sans fin
 
 La rumeur disait qu'il y a fort longtemps, un cultivateur étranger s'était rendu ici et avait été vaincu par l'Ancêtre Céleste. Le cultivateur fut scellé sur place, et comme il possédait une puissance terrestre terrifiante, le continent prit cette forme après son enfermement.
 
-On racontait que cet homme se nommait « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Terre-Meng!
+On racontait que cet homme portait le nom de famille « Meng »; ainsi, après d'innombrables années, ce lieu fut nommé le continent Terre-Meng!
 
 L'endroit était saturé de l'aura de l'essence terrestre, semblable au continent du Démon Vert. Le continent du Démon Vert était une terre d'essence terrestre, où vivait le Scorpion du Démon Vert, une bête féroce venue d'au-delà des cieux qui vivait dans la terre.
 
 Cependant, cette essence était masquée par son aura démoniaque, ce qui la rendait difficile à percevoir.
 
-Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Terre-Meng, faute de pouvoir utiliser le Distorsion Spatiale.
+Ces rumeurs étaient consignées en détail sur la carapace de tortue confiée à Wang Lin. Ces pensées traversèrent son esprit, mais il n'avait pas le temps de s'y attarder. Il profita de la vitesse de l'armure d'âme pour se précipiter vers le continent Terre-Meng, faute de pouvoir utiliser la Distorsion Spatiale.
 
-Il se rapprochait inexorablement. Les dizaines de milliers de kilomètres furent franchis rapidement. Il ne lui restait plus qu'un millier de kilomètres; le continent Terre-Meng était en vue!
+Il se rapprochait inexorablement. La plus grande partie des dizaines de milliers de kilomètres fut franchie rapidement. Il ne lui restait plus qu'un millier de kilomètres; le continent Terre-Meng était en vue!
 
 Mais à cet instant précis, le monde changea de teinte et une lumière aveuglante jaillit de six points distincts devant lui. Des ondulations se propagèrent: c'étaient les signes de l'activation de matrices de transfert!
 
@@ -106,11 +106,11 @@ Ces individus étaient initialement en embuscade aux diverses frontières du con
 
 Ces cultivateurs portaient tous des vêtements similaires. Bien que les couleurs diffèrent, le motif solaire et lunaire noir et blanc sur leurs étoffes était identique!
 
-Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la première secte du continent du Démon Vert: la Secte du Démon Dao!
+Wang Lin avait reconnu ce symbole sur la carapace de tortue. Ce motif appartenait à la plus grande secte du continent du Démon Vert: la Secte du Dao Démoniaque!
 
-Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte du Démon Dao!
+Le blocus et la traque visant Wang Lin n'étaient pas l'œuvre de tout le continent du Démon Vert, mais uniquement celle de la Secte du Dao Démoniaque!
 
-Le continent Terre-Meng était à mille kilomètres, mais la Secte du Démon Dao venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
+Le continent Terre-Meng était à mille kilomètres, mais la Secte du Dao Démoniaque venait de surgir pour lui barrer la route. Le sentiment qu'une crise imminente approchait devint d'autant plus oppressant!
 
 Les pupilles de Wang Lin se contractèrent. Alors qu'il fonçait en avant, les centaines de cultivateurs sortis des six matrices s'élancèrent. Simultanément, ils projetèrent tous quelque chose vers lui!
 
@@ -126,6 +126,6 @@ Ces voix froides résonnèrent à travers le monde et frappèrent les oreilles d
 
 Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces centaines de têtes représentaient presque la moitié des survivants de la Prairie du Ciel Extrême...
 
-« Vous n'aimez pas les têtes humaines? Voici le premier cadeau que ma Secte du Démon Dao vous offre! » Une voix venimeuse résonna dans l'air.
+« Vous aimez les têtes humaines, n'est-ce pas? Voici le premier cadeau que ma Secte du Dao Démoniaque vous offre! » Une voix venimeuse résonna dans l'air.
 
-« Secte du Démon Dao... Si je quitte cet endroit aujourd'hui, je reviendrai et je réduirai votre secte en cendres!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!
+« Secte du Dao Démoniaque... Si je quitte cet endroit aujourd'hui, je reviendrai et j'anéantirai toute votre secte!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!

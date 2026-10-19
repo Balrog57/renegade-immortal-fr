@@ -30,7 +30,7 @@ Le regard de Sun Xi devint sérieux. « Frère Xu, ma famille Sun ne peut effect
 
 Wang Lin marqua une pause et jeta un regard oblique vers Sun Xi, avant de détourner les yeux et de continuer son chemin.
 
-« Je pense que le frère Xu sait aussi que chaque fois que le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian s'ouvre, tous les Chaudrons du Tonnerre nécessaires à l'entrée sont contrôlés par la Salle Céleste du Tonnerre. Il est impossible pour un étranger de les obtenir. Seules les personnes issues de mon Système Stellaire de Luotian ou les familles enregistrées dans la Salle Céleste du Tonnerre peuvent obtenir une place. » Sun Xi gardait les yeux à demi clos, comme s'il ne faisait qu'énoncer des détails banals.
+« Je pense que le frère Xu sait aussi que chaque fois que le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian s'ouvre, tous les Chaudrons du Tonnerre nécessaires à l'entrée sont contrôlés par la Salle Céleste du Tonnerre. Il est impossible pour un étranger de les obtenir. Seules les personnes issues de mon Système Stellaire de Luotian, et appartenant à une famille enregistrée dans la Salle Céleste du Tonnerre, peuvent obtenir une place. » Sun Xi gardait les yeux à demi clos, comme s'il ne faisait qu'énoncer des détails banals.
 
 Peu de personnes ayant atteint le stade Ascendant manquaient de ruse. Sun Xi, étant l'ancêtre fondateur de sa lignée, était extrêmement fin stratège. Plus tôt, sous la pression de Wang Lin, il avait dû feindre la faiblesse, mais il entamait désormais sa contre-attaque.
 
@@ -48,21 +48,21 @@ Sun Xi demanda: « Le frère Xu est-il satisfait de ma proposition? »
 
 « Nous en discuterons plus tard. J'ai besoin de temps pour y réfléchir. » Wang Lin esquiva la question avec aisance.
 
-Sun Xi soupira secrètement et cessa de tester Wang Lin. Il commença à lui présenter la planète Ran Yun. Tout en discutant, ils arrivèrent au Pavillon des Trésors, situé dans la partie est de la ville.
+Sun Xi soupira secrètement et cessa de tester Wang Lin. Il commença à lui présenter la planète Ran Yun. Tout en discutant, ils arrivèrent au Pavillon du Trésor Intégral, situé dans la partie est de la ville.
 
-C'était le jour de l'enchère au Pavillon des Trésors, et une foule de cultivateurs s'était rassemblée à l'extérieur. Plus d'une dizaine d'employés assuraient l'accueil et guidaient les gens selon le niveau indiqué sur leurs jetons.
+C'était le jour de l'enchère au Pavillon du Trésor Intégral, et une foule de cultivateurs s'était rassemblée à l'extérieur. Plus d'une dizaine d'employés assuraient l'accueil et guidaient les gens selon le niveau indiqué sur leurs jetons.
 
-Dès que Sun Xi et Wang Lin approchèrent, Sun Qiming, qui attendait devant le pavillon, se précipita vers eux. Le respect transparaissait dans ses yeux alors qu'il s'inclinait: « La troisième génération de Sun Qiming salue l'Ancêtre et le Senior Xu. »
+Dès que Sun Xi et Wang Lin approchèrent, Sun Qiming, qui attendait devant le pavillon, se précipita vers eux. Le respect transparaissait dans ses yeux alors qu'il s'inclinait: « Sun Qiming, membre de la troisième génération, salue l'Ancêtre et le Senior Xu. »
 
 Sun Xi afficha sa majesté devant la foule. Sans dire un mot, il se contenta d'un signe de tête.
 
-Sun Qiming était arrivé au Pavillon des Trésors plus tôt. Bien que ce pavillon appartienne à la famille Ran, Sun Qiming étant le chef de la famille Sun dans cette ville, son statut était naturellement supérieur à celui des autres. Il conduisit personnellement Wang Lin et Sun Xi au quatrième étage, sans laisser un employé s'en charger.
+Sun Qiming était arrivé au Pavillon du Trésor Intégral plus tôt. Bien que ce pavillon appartienne à la famille Ran, Sun Qiming étant le chef de la famille Sun dans cette ville, son statut était naturellement supérieur à celui des autres. Il conduisit personnellement Wang Lin et Sun Xi au quatrième étage, sans laisser un employé s'en charger.
 
 Le jeune homme nommé Lou, qui avait bloqué l'entrée de Wang Lin auparavant, discutait avec quelques clients. En voyant Wang Lin, il leva la tête et fut instantanément saisi d'un sursaut, avant d'être frappé de stupeur en apercevant Sun Qiming. Quant à Sun Xi, Lou ignorait qui il était, mais face au respect que lui témoignait Sun Qiming, il présuma qu'il s'agissait d'une figure de haut rang au sein de la famille Sun.
 
 En regardant Wang Lin, le jeune Lou eut l'impression d'avoir manqué quelque chose d'essentiel...
 
-Le Pavillon des Trésors était divisé en quatre étages, le quatrième étant composé de salons privés.
+Le Pavillon du Trésor Intégral était divisé en quatre étages, le quatrième étant composé de salons privés.
 
 Sun Xi et Wang Lin s'installèrent dans la première salle à gauche. L'emplacement était idéal: ils pouvaient observer les enchères du deuxième étage d'un seul coup d'œil.
 
@@ -74,11 +74,11 @@ Au moment où il entra, Wang Lin ressentit soudain une sensation étrange, comme
 
 « L'empreinte sur son corps est très légère; la majeure partie s'est déjà dissipée. Il y a un problème ici! »
 
-Sun Xi regarda Wang Lin et dit lentement: « Frère Xu, cette pilule de rang 8 possède une histoire particulière. Elle ne provient pas de la planète Ran Yun, mais d'un cultivateur étranger gravement blessé qui s'est enfui ici. L'Ancêtre de la famille Ran, Xiaoyao Jushi et moi-même avons collaboré pour la dérober. Le cultivateur est mort sous les coups de l'Ancêtre de la famille Ran. »
+Sun Xi regarda Wang Lin et dit lentement: « Frère Xu, cette pilule de rang 8 possède une histoire particulière. Elle ne provient pas de la planète Ran Yun, mais d'un cultivateur étranger gravement blessé lors d'un duel magique, qui s'est enfui ici. L'Ancêtre de la famille Ran, Xiaoyao Sanren et moi-même avons collaboré pour la dérober. Le cultivateur est mort sous les coups de l'Ancêtre de la famille Ran. »
 
 Wang Lin fronça les sourcils. Il jeta un regard à Sun Xi mais garda le silence. Il n'avait aucune envie de s'immiscer dans de tels secrets, mais Sun Xi continuait malgré tout. Cela devait avoir un lien avec la faveur qu'il souhaitait lui demander.
 
-Sun Xi fit mine de ne pas remarquer le regard de Wang Lin et poursuivit: « Cela remonte à quatre ans. Cette pilule est extrêmement précieuse, surtout pour des cultivateurs Ascendants comme nous. Il n'y en avait pas une, mais cinq au total. Xiaoyao Jushi et moi en avons obtenu une chacun. L'Ancêtre de la famille Ran, étant au stade intermédiaire de l'Ascendance, a pris les trois autres. »
+Sun Xi fit mine de ne pas remarquer le regard de Wang Lin et poursuivit: « Cela remonte à quatre ans. Cette pilule est extrêmement précieuse, surtout pour des cultivateurs Ascendants comme nous. Il n'y en avait pas une, mais cinq au total. Xiaoyao Sanren et moi en avons obtenu une chacun. L'Ancêtre de la famille Ran, étant au stade intermédiaire de l'Ascendance, a pris les trois autres. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il fixait le deuxième étage, feignant de ne pas écouter.
 
@@ -112,7 +112,7 @@ Sun Xi posa sa tasse et murmura pour lui-même: « Malheureusement, il y a quatr
 
 « La famille Huan de la planète Mille Illusions est extrêmement impitoyable. Si l'un de leurs membres est tué, tous ceux qui sont impliqués sont exterminés avec leur clan. Même si l'on obtient un objet appartenant à un membre de leur famille lors d'une enchère, on s'expose à leur fureur. »
 
-« Ce que la famille Huan exige, c'est une soumission absolue. Même si les objets du sac d'un membre de la famille Huan étaient posés devant vous, vous n'oseriez pas les prendre et préféreriez les rendre volontairement. Sinon, vous ne pouvez qu'espérer qu'ils ne vous trouvent pas, mais vous vivrez éternellement dans la peur... Malheureusement, j'ai encore peur de consommer la pilule que je possède... »
+« Ce que la famille Huan exige, c'est une soumission absolue. Même si les objets du sac d'un membre de la famille Huan étaient posés devant vous, vous n'oseriez pas les prendre et préféreriez les rendre volontairement. Sinon, vous ne pouvez qu'espérer qu'ils ne vous trouvent pas, mais vous ne ferez qu'osciller entre la vie et la mort... Malheureusement, j'ai encore peur de consommer la pilule que je possède... »
 
 Wang Lin ne dit rien, son regard restant fixé sur le deuxième étage.
 

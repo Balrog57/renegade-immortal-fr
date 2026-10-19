@@ -60,7 +60,7 @@ Depuis qu'il avait suivi Wang Lin après avoir tout abandonné une fois de plus,
 
 Wang Lin acquiesça et dit: « Je vais laisser la pagode ici et ouvrir le domaine. Personne, hormis toi et Zhou Ru, ne pourra s'approcher à moins de cinquante kilomètres. Tu devras prendre grand soin de la petite Ru Er durant cette période. »
 
-Tie Yan hocha promptement la tête: « Soyez serein, Bienfaiteur; je m'assurerai que Wan... lady Ru Er soit en sécurité. »
+Tie Yan hocha promptement la tête: « Soyez serein, Bienfaiteur; je m'assurerai que Wan... mademoiselle Ru Er soit en sécurité. »
 
 Wang Lin réfléchit un instant, puis frappa son sac de rangement. Un rayon de lumière blanche en jaillit et se transforma en crapaud tonnerre.
 
@@ -118,7 +118,7 @@ Wang Lin se retourna. Zhou Ru sauta du dos de Petit Blanc et dit: « Oncle, accr
 
 Wang Lin sourit en s'accroupissant: « Me rappelles-tu de ne pas oublier le grand tigre? »
 
-Zhou Ru secoua la tête et embrassa le front de Wang Lin. « Oncle, tu dois rentrer vite. Ru Er va s'ennuyer sans toi. »
+Zhou Ru secoua la tête et embrassa le front de Wang Lin. « Oncle, tu dois rentrer vite. Ru Er va te manquer. »
 
 Wang Lin fixa Zhou Ru. Après un moment, il hocha la tête: « Oncle reviendra très bientôt. »
 

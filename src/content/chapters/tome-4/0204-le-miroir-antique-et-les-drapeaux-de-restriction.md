@@ -33,7 +33,7 @@ Une fois privé des avantages que l'héritage des souvenirs lui conférait dans 
 
 Toutefois, d'après l'analyse de Wang Lin, si l'homme aux cheveux roux voulait réellement quitter la Terre de l'Ancien Dieu, la tâche ne serait pas aisée; il n'avait donc pas à s'inquiéter de lui pour le moment.
 
-Néanmoins, des préparatifs restaient nécessaires. Wang Lin avait décidé qu'une fois installé dans la ville de Qi Lin, il demanderait à Yun Fei de l'aider à rechercher les anciens réseaux de transfert sur le continent de la Mer des Démons.
+Néanmoins, des préparatifs restaient nécessaires. Wang Lin avait décidé qu'une fois installé dans la ville de Qi Lin, il demanderait à Yun Fei de l'aider à rechercher les anciens réseaux de transfert dans la Mer des Démons.
 
 Il possédait plus de vingt pierres spirituelles de qualité supérieure, de quoi ouvrir un réseau de transfert vers n'importe quel endroit souhaité. Mais avant cela, il devait étudier attentivement ces anciens tableaux. S'il ne les comprenait pas, même en en trouvant un, il n'oserait pas les utiliser. C'était l'une des raisons pour lesquelles il était venu à la ville de Qi Lin.
 
@@ -51,7 +51,7 @@ Le premier était le sac de l'Empereur Antique. Lorsqu'il tenta d'y pénétrer a
 
 Il eut un ricanement méprisant, rangea ce sac avec celui obtenu au Temple du Dieu de la Guerre, puis passa aux suivants.
 
-Le sac qui l'excitait le plus contenait les dix instruments du groupe de Dou Mu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
+Le sac qui l'excitait le plus contenait les dix instruments du groupe de Duo Mu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
 
 Le Sens Divin de Wang Lin se précipita vers ces neuf instruments, mais dès qu'il les effleura, son expression s'assombrit. Bien que le propriétaire fût mort, un autre Sens Divin imprégnait les objets, empêchant Wang Lin de les utiliser.
 
@@ -69,7 +69,7 @@ Cependant, avec ses seules connaissances, il ignorait son nom. Même grâce aux 
 
 À présent encore, Wang Lin songeait au chaudron carré que Tu Si avait jeté. Après avoir hérité de ses souvenirs, il possédait en tête des dizaines de méthodes de fabrication de trésors colossaux, mais tous exigeaient des matériaux inimaginables. Même en utilisant toutes les ressources de la planète Suzaku, il ne pourrait en raffiner un seul.
 
-Il connaissait désormais le nom de ce chaudron: le Chaudron de l'Étoile Mystérieuse. Sa fonction était le scellement. D'après les souvenirs, une fois fabriqué, il pouvait sceller toute chose en ce monde, y compris des planètes entières. Ce chaudron exigeait le moins de matériaux de tous les trésors, mais cela restait relatif.
+Il connaissait désormais le nom de ce chaudron: le Chaudron de l'Étoile Mystérieuse. Sa fonction était le scellement. D'après les souvenirs, une fois fabriqué, il pouvait sceller toute chose en ce monde, y compris des planètes entières. Ce chaudron exigeait le moins de matériaux de tous les trésors, mais cela restait relatif : pour Wang Lin, ce n'était que la différence entre cinquante pas et cent pas.
 
 Au cours du mois et demi écoulé, en plus de l'étude du miroir, Wang Lin avait commencé à fabriquer des drapeaux de restriction avec des pierres d'encre. Cependant, il lui manquait encore certains composants. C'était la raison de sa sortie: se rendre au marché de la ville pour tenter de les trouver.
 

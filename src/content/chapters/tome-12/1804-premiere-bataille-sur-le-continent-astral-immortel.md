@@ -22,7 +22,7 @@ N'étant pas loin du feu, il franchit la distance en une seule enjambée. Sa bul
 
 Cependant, à ce moment précis, Wang Lin ouvrit soudainement les yeux et un regard glacial jaillit. L'expression de l'homme d'âge moyen changea radicalement lorsqu'il sentit une aura terrifiante jaillir de l'homme aux cheveux blancs au cœur du feu.
 
-Cette aura était d'une puissance colossale, capable de faire trembler les cieux. Comparé à elle, il n'était qu'une luciole face à la lune. Terrifié, l'homme d'âge moyen s'immobilisa net.
+Cette aura était d'une puissance colossale, capable de faire trembler les cieux. Comparé à elle, il n'était qu'une luciole face à la lune, près de s'embraser. Terrifié, l'homme d'âge moyen s'immobilisa net.
 
 « Disparaissez d'ici! » Les paroles glaciales de Wang Lin résonnèrent alors qu'il levait la main droite. À mesure qu'il parlait, toute la grotte sembla se glacer instantanément, et ce froid se propagea à l'extérieur. La pluie qui tombait sembla presque geler, et la mer de feu faiblit comme si elle allait s'éteindre!
 
@@ -68,7 +68,7 @@ Les yeux de Kang Ren rencontrèrent le regard de Wang Lin, et son esprit fut sec
 
 Wang Lin ignora Kang Ren. Son Sens Divin jaillit de sa main droite pour pénétrer l'esprit du jeune homme. Après avoir extrait les souvenirs dont il avait besoin, il projeta Kang Ren hors du feu et le maîtrisa à nouveau.
 
-« Maître de secte au stade précoce du Vide Arcanique et Ancêtre au stade précoce du Tribulant du Vide, Du Qing... » Wang Lin fronça les sourcils. Le stade précoce du Vide Arcanique n'était pas une menace, mais le stade précoce du Tribulant du Vide était plus problématique.
+« Maître de secte au stade précoce du Vide Arcanique et Ancêtre au stade précoce de la Tribulation du Vide, Du Qing... » Wang Lin fronça les sourcils. Le stade précoce du Vide Arcanique n'était pas une menace, mais le stade précoce du Tribulant du Vide était plus problématique.
 
 « Il n'est pas opportun d'ouvrir mon espace de stockage, car un accident pourrait survenir. Je ne peux donc ni sortir mes trésors, ni utiliser la Marionnette Yi Si... Par conséquent, je serai désavantagé face à un cultivateur Tribulant du Vide... »
 
@@ -94,7 +94,7 @@ Les quatre Grands Anciens de la Secte du Dragon Bleu, quatre cultivateurs du tro
 
 Sur ordre de l'homme d'âge moyen, les dizaines de milliers de disciples abandonnèrent la Formation de l'Eau Céleste. Leurs mains formèrent des sceaux et ils commencèrent tous à murmurer. Les incantations de ces milliers de personnes résonnèrent dans le ciel.
 
-Le Sort du Murmure du Dao était une technique de la Secte de la Grande Âme. La Secte du Dragon Bleu entretenant des liens très étroits avec elle, la Secte de la Grande Âme lui avait confié ce sort en guise de protection sectaire!
+Le Sort du Murmure du Dao était une technique de la Secte de la Grande Âme. La Secte du Dragon Bleu entretenant des liens très étroits avec elle, la Secte de la Grande Âme lui avait confié ce sort qui devint l'art de formation de la secte!
 
 Si l'on écoutait attentivement, on n'entendrait que deux mots répétés par ces milliers de disciples: « Dao » et « Âme »!
 

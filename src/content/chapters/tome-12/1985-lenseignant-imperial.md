@@ -12,11 +12,11 @@ Au loin, les cultivateurs provenant du palais s'arrêtèrent tous face à ce cha
 
 Tandis que les flocons tombaient, ils semblaient entonner le chant du temps. Le vaste palais commença alors à se dégrader rapidement.
 
-Cependant, à cet instant, une lumière dorée jaillit de la statue de l'Ancêtre Céleste au loin. Cette lueur ondula et enveloppa le palais. Il s'agissait de la formation la plus puissante du palais, et elle refusait de laisser l'édifice être détruit!
+Cependant, à cet instant, une lumière dorée jaillit de la seule statue de l'Ancêtre Céleste dressée vers le ciel, au loin. Cette lueur ondula et enveloppa le palais. Il s'agissait de la formation la plus puissante du palais, et elle refusait de laisser l'édifice être détruit!
 
 Dans cette aura dorée, une silhouette semblait assise sur le sommet de la statue de l'Ancêtre Céleste. Vêtu de blanc, l'individu contemplait Wang Lin de loin.
 
-« Wang Lin! » L'homme en blanc était l'Enseignant Impérial. Un sourire apparut sur son visage alors qu'il se levait et faisait un pas vers Wang Lin.
+« Wang Lin! » L'homme en blanc était l'Enseignant Impérial de la cérémonie du titre. Un sourire apparut sur son visage alors qu'il se levait et faisait un pas vers Wang Lin.
 
 D'un seul pas, le palais entier sembla se superposer à une autre dimension. Cela permit à l'Enseignant Impérial d'atteindre le sommet du temple, à dix mille pieds de Wang Lin. Là, immobile, ses vêtements flottaient au gré du vent.
 
@@ -42,7 +42,7 @@ Wang Lin leva les yeux vers l'Enseignant Impérial et dit lentement: « La perso
 
 « La personne que vous avez tuée était moi, mais elle ne l'était pas non plus! » Tandis qu'il souriait, l'Enseignant Impérial ferma sa main droite avant de l'ouvrir lentement. Une minuscule silhouette faite de lumière blanche apparut et s'inclina devant lui.
 
-« Vous êtes allé à la Secte de la Grande Âme et vous avez appris son sortilège. Le Dao de l'Œil de l'Âme et le Dao de l'Œil de l'Âme se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
+« Vous êtes allé à la Secte de la Grande Âme et vous avez appris son sortilège. Le Dao de l'Œil de l'Âme et l'Œil de l'Âme du Dao se ressemblent, mais ils sont en réalité bien différents... » L'Enseignant Impérial agita la main et la petite silhouette s'envola. Elle grandit instantanément pour atteindre une taille humaine et se précipita vers Wang Lin.
 
 Cette silhouette bougea avec une rapidité fulgurante, fusionnant presque avec le monde lui-même. Cependant, alors qu'elle approchait, Wang Lin leva soudainement sa main droite, reproduisant son geste de la rue. Des ondulations résonnèrent tandis qu'il étranglait la figure blanche et l'écrasait!
 
@@ -70,7 +70,7 @@ C'était un immense temple soutenu par de gigantesques piliers. Chaque pilier é
 
 D'innombrables piliers et d'innombrables sphères de feu. Chaque boule de feu abritait un visage aux yeux clos qui apparaissait et disparaissait tour à tour.
 
-Au loin se dressait un autel en forme de montagne. C'était là que se trouvait l'Enseignant Impérial. Son corps demeurait immobile, comme s'il occupait un espace distinct du reste du palais impérial.
+Au loin se dressait un autel en forme de montagne. C'était là que se trouvait l'Enseignant Impérial. Son corps demeurait immobile, comme s'il occupait un espace distinct du reste du palais impérial. Cet autel n'était autre que le hall du palais.
 
 Devant l'autel se trouvait une vaste mare de sang écarlate, et une personne y était assise. Il s'agissait de l'Ascendant Empyréen Ming Dao! Ses yeux étaient clos et son expression féroce, comme s'il endurait une agonie atroce. Ses veines étaient saillantes et son visage portait les stigmates d'un grand âge.
 

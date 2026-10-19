@@ -50,7 +50,7 @@ L'action insensée de Wang Lin fit se rétracter les pupilles de l'Empereur Divi
 
 L'apport de quatre fois sa capacité d'énergie d'origine, s'ajoutant à l'énergie déjà présente dans son corps et son armure, signifiait que sept fois son énergie habituelle affluait désormais en lui. Dans un bruit sourd, Wang Lin cracha du sang et leva immédiatement la main droite pour pointer entre ses sourcils.
 
-Un Oiseau Vermillon blanc apparut instantanément entre ses sourcils. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
+Un Oiseau Vermillon blanc jaillit instantanément du sommet de son crâne. La masse colossale d'énergie d'origine se déversa aussitôt dans l'oiseau, le faisant croître jusqu'à ce qu'il couvre le ciel.
 
 Cet Oiseau Vermillon avait été capturé par l'Omniscient, mais depuis l'arrivée de l'Empereur Divin de l'Oiseau Vermillon, comment pouvait-il laisser cet homme s'emparer de l'esprit de l'Oiseau Vermillon?
 
@@ -60,7 +60,7 @@ En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement 
 
 Wang Lin ignorait que les membres de la Secte Divine du Oiseau Vermillon observaient tous l'ascension d'un nouvel Empereur Divin grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
 
-Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
+Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix dans le brasier, en pleine renaissance.
 
 « Maître... »
 
@@ -76,7 +76,7 @@ Les fleurs capables de survivre à une telle chaleur étaient rares, mais pas im
 
 Cette femme n'était pas la Concubine Impériale des Fleurs, mais la femme en argent. Elle regardait le ciel d'un éclat étrange dans les yeux. Durant ces trois années, elle semblait vaguement se souvenir de quelque chose...
 
-L'autre personne sur cette planète se trouvait dans un vieux marécage. Son torse était couvert d'innombrables tatouages, et il était entouré de bêtes féroces vivant dans cet environnement ardent.
+L'autre personne sur cette planète se trouvait dans un vieux marécage. Son torse était couvert d'innombrables runes, et il était entouré de bêtes féroces vivant dans cet environnement ardent.
 
 Cependant, toutes ces bêtes étaient mortes, la peau entre leurs sourcils ayant été arrachée.
 
@@ -100,7 +100,7 @@ Le grondement tonitruant et la lueur cramoisie qui embrasait le ciel le firent l
 
 Derrière lui se tenait une très belle jeune fille qui se mordillait la lèvre inférieure. Lorsqu'elle était arrivée ici, Maître Yi Chen était déjà dans cet état. Son cœur se serra d'amertume alors qu'elle s'éloignait silencieusement.
 
-« Je suis désolée... Deuxième frère, troisième frère... » La voix douloureuse du vieil homme continuait de parvenir à ses oreilles.
+« Je suis désolé... Deuxième frère, troisième frère... » La voix douloureuse du vieil homme continuait de parvenir à ses oreilles.
 
 Il y avait un autre endroit au sein de ce champ stellaire ardent. Bien que la chaleur y fût aussi intense, un cyclone invisible semblait faire tournoyer les flammes.
 

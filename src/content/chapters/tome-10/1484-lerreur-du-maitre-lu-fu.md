@@ -6,15 +6,15 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1484 - Master Lu Fu’s mistake!"
 slug: lerreur-du-maitre-lu-fu
 ---
-Au moment même où Wang Lin fit un pas en avant, des ordres retentirent au sein de la famille Lu sur la planète Dong Ling!
+Au moment même où Wang Lin fit un pas en avant, des ordres retentirent au sein de la famille Lu sur la planète Dong Lin!
 
 « Formation, deviens le ciel! »
 
 « Restreignez le Démon Céleste! »
 
-« Supprimez toutes les directions! »
+« Enfermez les huit directions! »
 
-Dès que les ordres furent donnés, les milliers de cultivateurs des planètes mineures formèrent tous des sceaux. Un rideau de lumière apparut et enveloppa la planète Dong Ling!
+Dès que les ordres furent donnés, les milliers de cultivateurs des planètes mineures formèrent tous des sceaux. Un rideau de lumière apparut et enveloppa la planète Dong Lin!
 
 En un éclair, le rideau de lumière s'intensifia pour atteindre mille couches, dix mille couches, cent mille couches, un million, dix millions... jusqu'à atteindre quatre-vingt-dix-neuf millions de couches!
 
@@ -22,19 +22,19 @@ La lueur du rideau perça l'espace et se propagea dans toutes les directions. El
 
 Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, tous les clans de cultivation et l'armée de cultivateurs en migration virent tous cette lumière jaillir de l'est! Même s'ils ne pouvaient distinguer les bouleversements de ce lointain endroit, ils voyaient cette lumière venir de l'immensité!
 
-Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
+Dans une zone éloignée de la planète Dong Lin, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
-À ses côtés, le Maître Yan Leizi, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Ling.
+À ses côtés, le Maître Yan Leizi, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Lin.
 
-« La formation de la planète Dong Ling nous vient de l'Antiquité. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
+« La formation de la planète Dong Lin nous vient de l'Antiquité. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 
-« J'ignore comment sa culture a pu atteindre un niveau aussi effrayant. Cependant, il faudra du temps pour percer la formation de la planète Dong Ling... »
+« J'ignore comment sa culture a pu atteindre un niveau aussi effrayant. Cependant, il faudra du temps pour percer la formation de la planète Dong Lin... »
 
 « Combien de temps me faudrait-il pour briser cette formation... » Le Maître Lu Fu fixa l'horizon, et une réponse s'imposa déjà dans son cœur.
 
 « Vingt respirations suffiraient! Je veux voir combien de temps ce Wang Lin mettra pour la briser! »
 
-Plus de 90 millions de couches de lumière composaient cette formation que même le Maître Lu Fu aurait besoin de vingt respirations pour ouvrir. Cette formation avait atteint les limites des cultivateurs du deuxième pas. Même un cultivateur du fléau du cinquième ciel ne pourrait briser une telle barrière seul!
+Plus de 90 millions de couches de lumière composaient cette formation que même le Maître Lu Fu aurait besoin de vingt respirations pour ouvrir. Cette formation avait atteint les limites des cultivateurs du deuxième pas. Même un cultivateur de la cinquième étape du Fléau Céleste ne pourrait briser une telle barrière seul!
 
 Le regard de Wang Lin restait calme tandis qu'il observait froidement le rideau de lumière atteindre un degré de puissance terrifiant. Un rictus apparut sur son visage.
 
@@ -78,9 +78,9 @@ Cependant, cela ne s'arrêta pas là. Le Tremblement Divin de Wang Lin était un
 
 La formation de lumière n'était qu'une simple feuille de papier balayée par un seul coup. Elle ne put même pas amortir 10 % de la puissance de l'impact!
 
-La seule force physique d'un Dieu Ancien à sept étoiles pouvait rivaliser avec des cultivateurs du troisième pas; comment la minuscule planète Dong Ling pouvait-elle résister?
+La seule force physique d'un Dieu Ancien à sept étoiles pouvait rivaliser avec des cultivateurs du troisième pas; comment la minuscule planète Dong Lin pouvait-elle résister?
 
-Tandis que les grondements tonnaient, le poing illusoire entra en collision avec le vortex entourant la planète Dong Ling!
+Tandis que les grondements tonnaient, le poing illusoire entra en collision avec le vortex entourant la planète Dong Lin!
 
 Il explosa!
 
@@ -88,11 +88,11 @@ Les dizaines de planètes de culture formant le vortex tremblèrent. Sur plus de
 
 De nombreux cultivateurs furent déchiquetés lors de l'effondrement des planètes. Tous ces puissants Anciens qui maintenaient la formation ne purent s'échapper; ils furent effacés de l'existence en même temps que leur planète!
 
-Le coup de poing de Wang Lin chargea à travers le vortex et fonça vers la planète Dong Ling!
+Le coup de poing de Wang Lin chargea à travers le vortex et fonça vers la planète Dong Lin!
 
 Alors que son poing avançait, les dix et quelques planètes restantes, entraînées par la formation, se jetèrent toutes ensemble sur lui, mais elles s'effondrèrent une à une à son contact!
 
-Voyant que le poing de Wang Lin allait s'abattre sur la planète Dong Ling, un cri lugubre monta du clan Lu, dans la partie nord de l'astre. Les près de dix mille cultivateurs crachèrent tous du sang vers les quelques dizaines de vieillards au centre. Les corps de ces derniers commencèrent immédiatement à gonfler.
+Voyant que le poing de Wang Lin allait s'abattre sur la planète Dong Lin, un cri lugubre monta du clan Lu, dans la partie nord de l'astre. Les près de dix mille cultivateurs crachèrent tous du sang vers les quelques dizaines de vieillards au centre. Les corps de ces derniers commencèrent immédiatement à gonfler.
 
 Un instant plus tard, le corps de ces Anciens ressemblait à des globes de sang. Leurs vêtements étaient déchirés et l'on pouvait voir d'immenses réseaux de vaisseaux sanguins sous leur peau!
 
@@ -102,21 +102,21 @@ Alors que ces mots résonnaient, les dizaines de vieillards explosèrent en une 
 
 L'ombre de sang était floue, rendant son apparence impossible à distinguer. Cependant, une puissante aura de restriction émanait de son corps!
 
-À cet instant, la partie nord de la planète Dong Ling fut plongée dans les ténèbres. Toute lumière fut remplacée par le poing géant. Le coup de poing de Wang Lin s'était abattu sur la planète!
+À cet instant, la partie nord de la planète Dong Lin fut plongée dans les ténèbres. Toute lumière fut remplacée par le poing géant. Le coup de poing de Wang Lin s'était abattu sur la planète!
 
 L'ombre de sang chargea vers le poing!
 
 Elle laissa échapper un rugissement qui fit trembler les cieux et percuta l'impact de l'Ordre Antique de Wang Lin!
 
-Un fracas violent résonna à travers la planète Dong Ling. Il se propagea dans toutes les directions, dépassant Wang Lin pour s'étendre dans tout le domaine oriental!
+Un fracas violent résonna à travers la planète Dong Lin. Il se propagea dans toutes les directions, dépassant Wang Lin pour s'étendre dans tout le domaine oriental!
 
 Cependant, avant que ce grondement ne se dissipe, l'ombre de sang explosa en une pluie de sang qui tomba du ciel!
 
-Avant que la pluie de sang n'atteigne le sol, le coup de poing de Wang Lin la traversa et frappa la partie nord de la planète Dong Ling!
+Avant que la pluie de sang n'atteigne le sol, le coup de poing de Wang Lin la traversa et frappa la partie nord de la planète Dong Lin!
 
 La planète entière trembla et la terre, dans le nord, s'effondra strate après strate. Les près de dix mille cultivateurs périrent tous. Un gouffre gigantesque, large de plusieurs centaines de milliers de pieds, apparut!
 
-Le trou s'enfonçait dans la planète Dong Ling sur 60 % de sa profondeur. Le gouffre était d'un noir absolu et exhalait une odeur de sang. La planète Dong Ling tressaillit. Bien qu'elle n'explosât pas, des tsunamis encore plus puissants furent déclenchés. L'océan fut projeté dans les airs, la plus grande partie tombant dans le gouffre, tandis que le reste retombait comme une pluie sur la planète!
+Le trou s'enfonçait dans la planète Dong Lin sur 60 % de sa profondeur. Le gouffre était d'un noir absolu et exhalait une odeur de sang. La planète Dong Lin tressaillit. Bien qu'elle n'explosât pas, des tsunamis encore plus puissants furent déclenchés. L'océan fut projeté dans les airs, la plus grande partie tombant dans le gouffre, tandis que le reste retombait comme une pluie sur la planète!
 
 Bientôt, le fond du gouffre créé par le coup de Wang Lin devint un océan qui se remplissait lentement... Vu d'en haut, l'empreinte du poing était flagrante; elle ressemblait exactement à celle d'un mortel frappant dans la boue!
 

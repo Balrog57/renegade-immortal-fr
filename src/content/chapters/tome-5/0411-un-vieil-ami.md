@@ -68,7 +68,7 @@ Les yeux du vieil homme étaient voilés de nostalgie lorsqu'il répondit: « Il
 
 À l'instant même où ces mots furent prononcés, tous les autres, y compris l'homme robuste, tremblèrent et leurs yeux se remplirent de terreur.
 
-Dans le monde de la culture de Zhao, le nom de Wang Lin représentait une intention meurtrière capable de percer le ciel et une catastrophe de fin des temps.
+Dans le monde de la culture de Zhao, le nom de Wang Lin représentait une intention meurtrière capable de percer le ciel et une catastrophe d'autrefois.
 
 Ce jour-là, le sang avait coulé comme une rivière et la terre de Zhao avait été teinte de pourpre. Personne ne pouvait oublier cette journée.
 

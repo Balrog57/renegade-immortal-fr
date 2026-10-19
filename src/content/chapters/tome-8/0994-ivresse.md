@@ -14,7 +14,7 @@ L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il l
 
 Wang Lin demanda lentement: « La planète Feng Luan possède-t-elle des cultivateurs du Briseur du Nirvana? »
 
-Situ Nan secoua la tête et répondit: « Il n'y a pas de Briseurs de Nirvana, au plus des Purificateurs de Nirvana au stade intermédiaire. Il n'y a même pas de Purificateurs de Nirvana au stade tardif ou au sommet du stade tardif. C'est juste que... il y a beaucoup de Purificateurs de Nirvana sur la planète Feng Luan, et en comptant leurs subalternes, ils sont plus de dix! »
+Situ Nan secoua la tête et répondit: « Il n'y a pas de Briseurs de Nirvana, au plus des Purificateurs de Nirvana au stade intermédiaire. Il n'y a même pas de Purificateurs de Nirvana au stade tardif ou au sommet du stade tardif. C'est juste que... il y a beaucoup de Purificateurs de Nirvana sur la planète Feng Luan, et en comptant leurs alliés venus d'ailleurs, ils sont plus de dix! »
 
 Wang Lin ricana en hochant la tête: « Nous devons absolument nous venger, mais plus important encore, nous devons trouver un moyen de neutraliser ton poison! »
 
@@ -56,7 +56,7 @@ Il ignorait qu'avant même que la douleur de Wang Lin ne puisse cicatriser, elle
 
 La vie amoureuse de Wang Lin avait été faite de tragédies. Le départ de Li Muwan lui avait appris à chérir, mais au moment où il l'avait compris, la personne qu'il chérissait s'était éteinte!
 
-Ce genre de vie, solitaire parmi les étoiles, est une chose que l'on ne peut comprendre sans l'avoir vécue soi-même.
+Ce genre de vie, solitaire parmi les étoiles, est une chose que l'on ne peut comprendre sans l'avoir vécue soi-même; même un observateur extérieur n'en saisirait pas un centième.
 
 Ses interactions avec Liu Mei lui avaient infligé d'immenses souffrances. Il avait passé cent ans à résoudre le ressentiment de Wang Ping, mais cela n'avait pas suffi à dissiper la douleur dans le cœur de Wang Lin.
 
@@ -96,7 +96,7 @@ Wang Lin saisit la bouteille et, sans même y regarder, en but une gorgée. En a
 
 « La culture, la culture... Sais-tu que j'ai autrefois envoyé les ossements d'un vieil ami dans sa ville natale? Sais-tu ce que j'ai entendu, Situ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
 
-« L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de taoïstes. L'an dernier, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste qui rentre chez lui. »
+« L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de taoïstes. Avant le Nouvel An, le second Lang monta à la montagne, et après le Nouvel An, le premier Lang n'était plus qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste qui rentre chez lui. »
 
 Cette comptine qui s'échappait de la bouche de Wang Lin portait une trace de tristesse. Une trace de son impuissance et de l'illumination acquise après plus de 1 300 ans de culture. En entendant cela, la main de Situ Nan trembla.
 

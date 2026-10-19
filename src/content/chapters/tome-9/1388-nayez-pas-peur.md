@@ -48,13 +48,13 @@ Quant à Cupidité, qui venait de lui offrir cette chance inouïe, plus Wang Lin
 
 « Un fantôme me hante! Un fantôme me hante! » Cupidité ressentait une douleur lancinante dans sa poitrine, comme si des aiguilles le transperçaient sans cesse. Cette souffrance venait du spectacle de ses trésors se faisant dérober sous ses yeux.
 
-« Il a volé les Épées Fu Jing, les Tablettes de Protection Osseuse, le Fourneau Impérial, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même la Feuille d'Arrêt Antique et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Cupidité y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
+« Il a volé l'Épée Fu Jing, les Tablettes de Protection Osseuse, le Fourneau Impérial, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même l'Ancienne Feuille et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Cupidité y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
 
 « Ce vieil homme ne fuira plus! Je vais tout donner pour te combattre! » Les yeux de Cupidité étaient injectés de sang. C'était un être cruel ayant semé la mort sur son passage. S'il n'avait pas été terrifié par Wang Lin, et si la fissure dans son cœur Dao ne faisait pas de ce dernier son pire cauchemar, il n'aurait jamais fui ainsi, finissant dans un état aussi pitoyable.
 
 Mais, poussé à bout par Wang Lin, il oublia l'instant son tourment. Ses mains formèrent un sceau et une immense faille spatiale se déchira dans le vide.
 
-« Loup démonique, descends et punis les cieux! » rugit Cupidité. Ses vêtements flottaient et ses cheveux s'agitaient sans vent. Une énergie démoniaque monstrueuse jaillit de la faille devant lui!
+« Loup démonique, descends, punis et anéantis les cieux! » rugit Cupidité. Ses vêtements flottaient et ses cheveux s'agitaient sans vent. Une énergie démoniaque monstrueuse jaillit de la faille devant lui!
 
 Wang Lin reconnut immédiatement cette aura; c'était celle d'un démon ancien!
 
@@ -68,7 +68,7 @@ Un loup démonique!
 
 Dès l'apparition de la créature, l'énergie démoniaque environnante s'intensifia. Un vortex prit naissance autour de Cupidité, balayant tout sur son passage!
 
-Tout ce qui se trouvait dans un rayon de 50 000 kilomètres fut aspiré par le vortex, au milieu d'un grondement assourdissant.
+Tout ce qui se trouvait dans un rayon de 500, 5 000 puis 50 000 kilomètres fut aspiré par le vortex, au milieu d'un grondement assourdissant.
 
 Le loup démonique au centre du tourbillon émettait une lueur rouge. Ses yeux étaient presque violets lorsqu'il poussa un hurlement!
 
@@ -84,7 +84,7 @@ Tout cela se passa à une vitesse fulgurante. En un clin d'œil, ce monde démon
 
 « Tu as volé mes trésors autrefois, maudit soit-tu! Et maintenant tu reviens pour m'en voler encore, maudit soit-tu! Je n'ai jamais été aussi humilié de toute ma vie! Tu mérites la mort! Meurs! Meurs! Meurs! » La voix de Cupidité était devenue folle.
 
-Wang Lin resta calme et laissa échapper un froid reniflement. Tandis que le loup géant se rapprochait, des craquements résonnèrent dans son corps. Sa stature s'éleva à plus de 10 000 pieds: il était devenu un Dieu Ancien à 6 étoiles!
+Wang Lin resta calme et laissa échapper un froid reniflement. Tandis que le loup géant se rapprochait, des craquements résonnèrent dans son corps. Sa stature s'éleva à près de 10 000 pieds: il était devenu un Dieu Ancien à 6 étoiles!
 
 Les étoiles divines tournèrent rapidement entre ses sourcils alors qu'il reculait d'un pas et levait la main droite. Il poussa un rugissement et une lumière sanglante monstrueuse apparut. De loin, on aurait dit que Wang Lin maniait une source de lumière rouge infinie.
 
@@ -100,7 +100,7 @@ La lumière brisa tous les obstacles, approfondissant la fracture jusqu'à pén�
 
 D'un seul coup, le loup démonique fut tranché en deux!
 
-Le corps de la créature bascula derrière Wang Lin avant de se dissiper parmi les étoiles. Seuls ses hurlements de regret résonnèrent encore dans ce monde.
+Le corps de la créature bascula derrière Wang Lin, s'écartant en V, avant de se dissiper parmi les étoiles. Seuls ses hurlements de regret résonnèrent encore dans ce monde.
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait Cupidité.
 

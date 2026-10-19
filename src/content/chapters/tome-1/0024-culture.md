@@ -12,7 +12,7 @@ Après avoir bu plusieurs grandes gorgées d'eau de source, il sentit son corps 
 
 Dans l'espace infini du rêve, Wang Lin s'assit en tailleur et commença à cultiver. Tandis qu'il pratiquait les yeux fermés, les corps lumineux environnants émirent de doux faisceaux de lumière qui, en l'atteignant, se changeaient en petits points lumineux et pénétraient sans bruit dans son corps. Wang Lin ne s'aperçut de rien.
 
-Après y avoir passé une journée entière, toute l'énergie spirituelle contenue dans l'eau s'était dissipée. Mais cette fois, il pouvait clairement ressentir la différence au sein de son organisme. Auparavant, lorsqu'il achevait les médicaments de Sun Dazhu, il ressentait une chaleur, mais au moment le plus critique, toute l'énergie spirituelle se dispersait.
+Après y avoir passé une journée entière, toute l'énergie spirituelle contenue dans l'eau s'était dissipée. Mais cette fois, il pouvait clairement ressentir la différence au sein de son organisme. Auparavant, lorsqu'il achevait les médicaments de Sun Dazhu, il ressentait une chaleur, mais, avec le temps, toute l'énergie spirituelle se dispersait.
 
 Cette fois-ci était différente. Bien qu'elle se dispersât toujours, une infime parcelle subsistait dans son corps. Certes, la quantité était dérisoire, mais ces résultats renforçaient considérablement la confiance de Wang Lin. Après avoir réfléchi un long moment, il ne parvint pas à comprendre l'origine de cette différence; il ne pouvait donc que spéculer qu'elle était due à la mystérieuse perle de pierre.
 
@@ -22,7 +22,7 @@ Ici, cependant, une fois l'énergie spirituelle de l'eau de source épuisée, il
 
 Après une courte hésitation, Wang Lin en déduisit que cela était lié à la nature même de l'énergie spirituelle: l'espace du rêve était dépourvu d'énergie spirituelle naturelle.
 
-Plus il y réfléchissait, plus il se sentait dans le vrai. Il fronça les sourcils et songea: « S'il existait un moyen de faire pénétrer l'eau de source de l'extérieur, tout serait parfait. » En y songeant, son cœur manqua un battement; il regarda son propre corps avec une expression perplexe.
+Plus il y réfléchissait, plus il se sentait dans le vrai. Il fronça les sourcils et songea: « S'il existait un moyen de faire pénétrer l'eau de source de l'extérieur, tout serait parfait. » En y songeant, son cœur eut un tressaillement; il regarda son propre corps avec une expression perplexe.
 
 Wang Lin était très troublé par l'uniforme rouge de disciple qu'il portait. Il vérifia rapidement la poche où se trouvait son sac de rangement et constata qu'il avait disparu.
 

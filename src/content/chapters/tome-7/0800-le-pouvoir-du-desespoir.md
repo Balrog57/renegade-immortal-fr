@@ -64,11 +64,11 @@ Une tempête pour la survie!
 
 Quiconque tenterait de les arrêter serait tué! Si un céleste fait obstacle, tuez le céleste; si un démon fait obstacle, tuez le démon!
 
-C'était comme si tous les cultivateurs étaient devenus fous! L'un des messagers leva un doigt et l'écrasa entre les sourcils d'un Ascendant en pleine charge. Le corps de ce dernier trembla instantanément avant de s'effondrer, son âme d'origine se dissipant. Cependant, avant de mourir, il s'était précipité pour mordre le bras du messager. La lueur rouge dans ses yeux fit vaciller l'esprit du messager, malgré la mort imminente de son assaillant.
+C'était comme si tous les cultivateurs étaient devenus fous! L'un des messagers leva un doigt et l'écrasa entre les sourcils d'un Ascendant en pleine charge. Le corps de ce dernier trembla instantanément avant de s'effondrer, son âme originelle se dissipant. Cependant, avant de mourir, il s'était précipité pour mordre le bras du messager. La lueur rouge dans ses yeux fit vaciller l'esprit du messager, malgré la mort imminente de son assaillant.
 
 « Tuez! »
 
-La main d'un autre messager traça des sceaux; l'énergie d'origine se rassembla en lui avant d'être brusquement libérée. Il utilisa la méthode la plus simple pour déclencher une attaque de zone massive. En un éclair, de nombreux cultivateurs commencèrent à cracher du sang et leurs corps faiblirent. Pourtant, nul ne recula; tous luttaient pour continuer leur progression.
+La main d'un autre messager traça des sceaux; l'énergie originelle se rassembla en lui avant d'être brusquement libérée. Il utilisa la méthode la plus simple pour déclencher une attaque de zone massive. En un éclair, de nombreux cultivateurs commencèrent à cracher du sang et leurs corps faiblirent. Pourtant, nul ne recula; tous luttaient pour continuer leur progression.
 
 Certains cultivateurs, même gravement blessés, choisirent simplement de s'autodétruire lorsqu'ils furent à portée. Les grondements d'explosions résonnèrent sur tout le fragment.
 
@@ -82,17 +82,17 @@ Wang Lin prit une profonde inspiration. À cet instant, une conviction identique
 
 L'attaque de Wang Lin intensifia l'élan des cultivateurs environnants. Cette force devint de plus en plus puissante, jusqu'à atteindre un apogée où l'aura meurtrière ressemblait à des vagues océaniques déchaînées.
 
-Le Coup Céleste frappa de plein fouet. L'expression du messager Yang Corporel changea radicalement. Ses mains formèrent des sceaux sans tarder et d'innombrables sphères de tonnerre volèrent vers Wang Lin. Les éclats tonnerre résonnèrent dans la zone alors qu'ils fonçaient sur lui, chargés d'une énergie d'origine dense.
+Le Coup Céleste frappa de plein fouet. L'expression du messager Yang Corporel changea radicalement. Ses mains formèrent des sceaux sans tarder et d'innombrables sphères de tonnerre volèrent vers Wang Lin. Les éclats tonnerre résonnèrent dans la zone alors qu'ils fonçaient sur lui, chargés d'une énergie originelle dense.
 
 Cependant, lorsque les sphères de tonnerre entrèrent en collision avec le Coup Céleste, elles s'effondrèrent instantanément l'une après l'autre. Le regard de Wang Lin devint glacial et il fit un pas de plus.
 
 Le messager recula une fois de plus en crachant un brouillard gris. Dès son apparition, ce brouillard se transforma en une main gigantesque tentant impitoyablement de saisir Wang Lin.
 
-Mais à cet instant précis, un rayon de lumière argentée, plus rapide que l'éclair, jaillit du lointain. Juste après que le messager eut expulsé le brouillard, la lumière argentée était déjà sur lui. L'expression du messager changea brusquement. Il voulut esquiver, mais n'en eut pas le temps. Dans ce moment de crise, il fit exploser l'énergie d'origine en lui pour créer une tempête et repousser l'assaillant.
+Mais à cet instant précis, un rayon de lumière argentée, plus rapide que l'éclair, jaillit du lointain. Juste après que le messager eut expulsé le brouillard, la lumière argentée était déjà sur lui. L'expression du messager changea brusquement. Il voulut esquiver, mais n'en eut pas le temps. Dans ce moment de crise, il fit exploser l'énergie originelle en lui pour créer une tempête et repousser l'assaillant.
 
 Pourtant, le rayon argenté était trop rapide. À l'instant même où il dispersait son énergie, la lumière perça sa poitrine.
 
-Le messager cracha une large traînée de sang et fit quelques pas titubants vers l'avant. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du messager trembla, puis son âme d'origine fut anéantie avec lui!
+Le messager cracha une large traînée de sang et fit quelques pas titubants vers l'avant. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du messager trembla, puis son âme originelle fut anéantie avec lui!
 
 À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de 330 mètres. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
 
@@ -100,7 +100,7 @@ Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau d
 
 La mort de l'un des messagers fut immédiatement remarquée par tous les cultivateurs environnants. En un instant, leur élan augmenta drastiquement!
 
-« Faites place! » Le corps de Wang Lin vacilla et il apparut aux côtés du second messager. Son énergie d'origine forma un doigt qui pressa soudainement vers le bas.
+« Faites place! » Le corps de Wang Lin vacilla et il apparut aux côtés du second messager. Son énergie originelle forma un doigt qui pressa soudainement vers le bas.
 
 Le visage du messager devint extrêmement pâle. Il ne riposta pas mais battit en retraite immédiatement. Il n'était pas le seul; tous les messagers restants reculèrent.
 
@@ -108,7 +108,7 @@ Alors qu'ils s'enfuyaient, un éclat argenté jaillit devant l'un d'eux, provoqu
 
 Le sang en suspension dans l'air s'agita et se transforma soudainement en une épée de sang illusoire qui traqua la lumière argentée.
 
-Wang Lin fit un pas, et au moment où l'épée de sang allait atteindre la lueur, il la saisit. L'énergie d'origine de son corps jaillit alors, faisant éclater l'épée en un brouillard rouge qui se dissipa.
+Wang Lin fit un pas, et au moment où l'épée de sang allait atteindre la lueur, il la saisit. L'énergie originelle de son corps jaillit alors, faisant éclater l'épée en un brouillard rouge qui se dissipa.
 
 Une fois le geste accompli, Wang Lin tourna la tête. Il fixa les six messagers du Temple Céleste qui battaient en retraite et ordonna: « Faites place! »
 

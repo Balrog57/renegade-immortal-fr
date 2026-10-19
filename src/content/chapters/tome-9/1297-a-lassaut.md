@@ -8,7 +8,7 @@ slug: a-lassaut
 ---
 Cependant, le monde à l'intérieur de la faille spatiale était d'un violet intense. Un courant froid et invisible agitait cet univers, provoquant des changements impénétrables!
 
-Au moment où Li Qianmei commença à verser des larmes et ouvrit les yeux pour chercher la source du rire, le fouet géant s'abattit soudainement. Il frappa impitoyablement la lumière bleue!
+Au moment où Li Qianmei commença à verser des larmes et ouvrit les yeux pour chercher la source de ce cri, le fouet géant s'abattit soudainement. Il frappa impitoyablement la lumière bleue!
 
 La lueur bleue trembla et s'effondra un instant. Plusieurs bêtes féroces se précipitèrent sur Li Qianmei dans un rugissement!
 
@@ -60,7 +60,7 @@ La silhouette de Wang Lin émergea du néant. Les veines de son corps étaient s
 
 Li Qianmei regarda Wang Lin. Son sourire devint plus tendre encore. Pourtant, ses yeux s'obscurcirent et sa lumière commença à s'éteindre.
 
-Au moment où la main de Wang Lin agrippa le fouet, une force colossale pénétra son corps, comme si un chariot de dix millions de tonnes l'avait percuté. Même le corps de Wang Lin vacilla et il cracha du sang, mais il ne recula pas d'un pouce, car derrière lui se trouvait la personne qu'il devait sauver: une femme nommée Li Qianmei!
+Au moment où la main de Wang Lin agrippa le fouet, une force colossale pénétra son corps, comme si des dizaines de millions de chariots l'avaient percuté. Même le corps de Wang Lin vacilla et il cracha du sang, mais il ne recula pas d'un pouce, car derrière lui se trouvait la personne qu'il devait sauver: une femme nommée Li Qianmei!
 
 Dans toute sa vie, Wang Lin n'avait agi ainsi que pour Wan Er. Mais il y avait maintenant une autre femme à qui il devait tant. S'il échouait, il ne pourrait plus se prétendre un homme!
 
@@ -100,7 +100,7 @@ Le sort Temps Fluide, émanant de sa main droite, continuait de drainer son éne
 
 À cet instant, un rugissement tonnerre jaillit du vide. Deux ombres géantes en forme de fouets apparurent et frappèrent impitoyablement Wang Lin!
 
-Au loin, les hordes infinies de bêtes féroces poussèrent des cris assoiffés de sang et chargèrent vers lui! Plus loin encore, plusieurs bêtes titanesques le fixaient d'un regard féroce.
+Au loin, les hordes infinies de bêtes féroces poussèrent des cris assoiffés de sang et chargèrent vers lui! Plus loin encore, plusieurs bêtes titanesques, longues d'environ cent mille pieds, le fixaient d'un regard féroce.
 
 Une multitude sans fin de créatures l'encerclait!
 

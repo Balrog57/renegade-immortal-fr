@@ -20,7 +20,7 @@ Une fois capté par le vortex formé par l'effondrement de l'espace, il était d
 
 À cet instant, l'espace tremblait violemment, mais cela n'avait aucun effet sur le Serpent aux yeux de lune. Ses yeux étaient injectés de sang; il haïssait l'Estimé Xuan Bao jusqu'à la moelle pour l'avoir blessé et pour avoir tué d'innombrables petits Serpents aux yeux de lune!
 
-Le bras du dieu ancien qui s'était lancé avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent aux yeux de lune était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
+Le bras du dieu ancien, formé de tous ses poils, s'était lancé et avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent aux yeux de lune était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
 
 Simultanément, un rire retentit à travers les étoiles. C'était Maître Yan Leizi, qui s'était libéré de Wu Dongchan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant avec un vortex une zone de 500 kilomètres de large.
 
@@ -68,11 +68,11 @@ Le dragon doré fonça avec fracas droit vers le champ de bataille! Sur sa tête
 
 L'un des cinq talismans jaunes dégagea instantanément des flammes et, en un clin d'œil, le dragon fut encerclé par une mer de feu. Ces flammes étaient empoisonnées!
 
-La puissance de ce poison était inimaginable. En se rapprochant, il enveloppa l'âme d'origine presque dissipée de l'Estimé Xuan Bao qui tentait de s'enfuir.
+La puissance de ce poison était inimaginable. En se rapprochant, il enveloppa l'âme d'origine presque dissipée de l'Estimé Xuan Bao et s'apprêta à s'enfuir avec elle.
 
 Cependant, à cet instant précis, un craquement retentit provenant du bois géant immuable et une immense fissure s'ouvrit.
 
-Dans un éclat de lumière verte, un homme en sortit. Vêtu d'une robe verte, il avait une prestance remarquable. En avançant, il sourit et se rapprocha instantanément du dragon doré. Puis, sa main forma un sceau et pointa vers la créature.
+Dans un éclat de lumière verte, un homme en sortit. Vêtu d'une robe verte, il avait le visage marqué par l'âge. Il éclata d'un long rire, avança et se rapprocha instantanément du dragon doré. Puis, sa main forma un sceau et pointa vers la créature.
 
 Un bois géant illusoire apparut soudainement autour du dragon et s'abattit sur lui!
 
@@ -86,7 +86,7 @@ L'homme à la robe verte, Yi Muzi, transforma sa main droite en paume et frappa 
 
 « Vous ne pouvez pas vous échapper! » Avec un sourire, Yi Muzi agita sa main droite. Les morceaux de bois géants s'élancèrent, forçant le dragon doré à reculer sans cesse.
 
-À ce moment-là, Wu Dongchan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Yan Leizi profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
+À ce moment-là, Wu Dongchan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Yan Leizi profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes énormément.
 
 Parallèlement, le bras du dieu ancien formé par le Serpent aux yeux de lune arriva également. Cependant, le Serpent aux yeux de lune avait perdu toute raison. Non seulement il haïssait l'Estimé Xuan Bao, mais il en avait fait payer à tous les autres.
 

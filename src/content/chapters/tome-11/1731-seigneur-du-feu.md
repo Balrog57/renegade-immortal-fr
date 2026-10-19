@@ -14,7 +14,7 @@ Elle tentait de s'échapper de la main de Wang Lin, mais celui-ci finit par serr
 
 Cette terre, issue de l'élément terre, contenait une trace d'essence terrestre. Désormais, Wang Lin possédait deux masses de terre dans son espace de stockage.
 
-L'autre lui avait été donnée par l'Omniscient!
+L'autre provenait de l'Omniscient!
 
 « Ils sont dignes de venir du Continent Astral Immortel pour avoir placé un esprit de la terre au sein de cette formation. Si des dizaines de milliers d'années s'écoulent encore, cet esprit pourrait bien évoluer pour devenir un corps d'esprit terrestre de troisième étape! » Les yeux de Wang Lin s'illuminèrent alors qu'il contemplait la Formation des Cinq Éléments avec passion.
 
@@ -22,7 +22,7 @@ Wang Lin était désormais profondément intrigué par cette formation.
 
 « Je possède l'essence du feu parmi les cinq éléments. Si je parviens à obtenir les quatre autres, mon niveau de culture augmentera considérablement. Et si les cinq éléments fusionnent en un seul, je me demande quelle nouvelle essence cela pourrait engendrer! » Wang Lin sourit en observant la Formation des Cinq Éléments, son sourire devenant de plus en plus radieux.
 
-Wang Lin ne prônerait pas la morale face à ses ennemis, surtout avec ceux qui ne venaient pas du Monde des Grottes et nourrissaient de mauvaises intentions. La force était l'unique loi! Si l'adversaire avait le pouvoir de le maintenir prisonnier, il se soumettrait. Sinon, dans le foyer de Wang Lin, ces étrangers n'étaient que de simples voleurs, et Wang Lin se montrait toujours plus impitoyable envers les brigands!
+Wang Lin ne prônerait pas la morale face à ses ennemis, surtout avec ceux qui ne venaient pas du Monde des Grottes et nourrissaient de mauvaises intentions. La force était l'unique loi! Si l'adversaire avait la force de le retenir, l'affaire en resterait là. Sinon, dans le foyer de Wang Lin, ces étrangers n'étaient que de simples voleurs, et Wang Lin se montrait toujours plus impitoyable envers les brigands!
 
 Après s'être emparé de l'esprit de la terre, Wang Lin fit un pas en avant. Ce mouvement le transporta dans un monde de feu.
 
@@ -66,13 +66,13 @@ Dans la formation de feu, Wang Lin contemplait calmement les neuf qilins de feu 
 
 Ils ne ressemblaient plus à des qilins, mais à des chatons. Ils semblaient même joyeux, comme s'ils venaient de retrouver leur maître!
 
-Même le brasier environnant tournait avec allégresse autour de Wang Lin. Toute la formation de feu laissa échapper un rugissement tonitruant lorsque Wang Lin agita la main droite.
+Même le brasier environnant tournait avec allégresse autour de Wang Lin. Toute la formation de feu laissa échapper un rugissement tonitruant lorsque Wang Lin leva puis abaissa la main droite.
 
 Un grondement sourd résonna et tout le feu du monde convergea frénétiquement. En un instant, mis à part les neuf qilins et Wang Lin, l'intégralité des flammes se rassembla pour former un géant de plusieurs dizaines de milliers de pieds devant lui!
 
 Ce géant portait une armure de feu et une cape de flammes. Son corps dégageait une puissance écrasante. Il était entièrement constitué de feu, jusqu'à ses cheveux.
 
-Une fois apparu, le géant de feu s'agenouilla devant Wang Lin, un genou à terre, les mains jointes sur la poitrine. Son visage impassible transpirait un respect absolu!
+Une fois apparu, le géant de feu s'agenouilla devant Wang Lin, un genou à terre, les mains jointes sur la poitrine. Sur son visage impassible se lisait une vénération fervente!
 
 « Que se passe-t-il... L'esprit du feu... Cet esprit du feu des Cinq Éléments est en train de s'agenouiller devant lui!!!! » L'Ancien en robe noire pâlit violemment face à ce spectacle, l'esprit totalement embrumé.
 
@@ -96,7 +96,7 @@ Na Duo murmura lentement: « L'essence du feu! »
 
 « Cependant, il ne semble pas vouloir sortir de lui-même. Je vois qu'il a l'intention d'emporter les cinq esprits!! » Le regard de Na Duo devint glacial.
 
-« Nous devons le provoquer pour le faire sortir. Nous ne pouvons pas nous permettre de perdre les trois autres esprits! » L'homme d'âge moyen prit une profonde inspiration et se leva, tournant son regard vers l'extérieur de la tour.
+« Nous devons le provoquer pour le faire sortir. Nous ne pouvons pas nous permettre de perdre les trois autres formations! » L'homme d'âge moyen prit une profonde inspiration et se leva, tournant son regard vers l'extérieur de la tour.
 
 « J'invoque l'armure de combat de l'Ancêtre! » rugit-il. Un rayon de lumière bleue jaillit du sommet du dixième étage, se condensant autour de lui pour former une armure d'un bleu aquatique.
 

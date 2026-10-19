@@ -132,7 +132,7 @@ Le choc de Wang Lin était prévisible pour Chen Long et les autres. Cependant, 
 
 L'immense horde de bêtes-moustiques formait une masse compacte et émettait des cris stridents. En voyant apparaître des humains, elles redressèrent leurs longs appendices buccaux, révélant leur nature féroce et tyrannique!
 
-À cet instant précis, de l'autre côté du brouillard violet, la moitié du corps de la bête-moustique de Wang Lin apparut. Elle fixa la dense horde devant elle, plongée dans un état de stupeur.
+À cet instant précis, de l'autre côté du brouillard violet, la majeure partie du corps de la bête-moustique de Wang Lin apparut. Elle fixa la dense horde devant elle, plongée dans un état de stupeur.
 
 Lorsqu'elle était restée dans le sac de rangement, elle avait ressenti une aura d'anxiété inédite en sa vie. Pourtant, cette aura lui était aussi très familière, comme si elle émanait de son âme même.
 
@@ -144,7 +144,7 @@ Ces moustiques poussèrent des cris et s'envolèrent. Ils encerclèrent la bête
 
 La bête-moustique de Wang Lin hésita un instant avant de les suivre et de disparaître dans la masse. Personne ne remarqua cette scène...
 
-Cupidité perça le nuage et marqua une pause à la lisière de la brume. Mais soudain, il tourna la tête pour fixer le brouillard, qui commença brusquement à s'agiter.
+Cupidité traversa la brume et marqua une pause à sa lisière. Mais soudain, il tourna la tête pour fixer le brouillard, qui commença brusquement à s'agiter.
 
 Ce remous ne se limita pas à une zone précise; toute la brume violette entra en effervescence. Des rugissements tonitruants jaillirent de l'intérieur, causés par le frottement de la brume contre elle-même.
 

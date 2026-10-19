@@ -12,7 +12,7 @@ Dans leurs cœurs, Wang Lin était l'ancêtre de toute la tribu du Affinement de
 
 Ouyang Hua s'agenouilla également. Ces quatre dernières années défilèrent dans son esprit. Sa culture avait grimpé en flèche durant cette période, et tout cela lui semblait n'être qu'un rêve.
 
-En regardant les plus de 5 000 membres de la tribu derrière lui, le seul mot qu'Ouyang Hua pouvait utiliser pour décrire ses sentiments envers Wang Lin était respect!
+En regardant les plus de 5 000 membres de la tribu derrière lui, le seul mot qu'Ouyang Hua pouvait utiliser pour décrire ses sentiments envers Wang Lin était vénération!
 
 Wang Lin s'éloigna pas à pas jusqu'à disparaître progressivement de la vue de tous, mais personne ne se redressa.
 
@@ -22,13 +22,13 @@ C'était la bête moustique!
 
 Elle s'était éveillée il y a six mois, sa force avait donc considérablement augmenté. À l'heure actuelle, même un cultivateur normal au stade de la Formation de l'Âme ne serait pas de taille face à elle.
 
-Wang Lin estima que le moustique était aussi puissant qu'un cultivateur au sommet du stade avancé de la Formation de l'Âme.
+Wang Lin estima que le moustique était presque aussi puissant qu'un cultivateur au sommet du stade avancé de la Formation de l'Âme.
 
 Outre la Racine Spirituelle Dorée, cela tenait également à la lignée de la bête. Une aura de roi des bêtes commençait désormais à se répandre depuis son corps pourpre et or. Si l'on ne regardait pas attentivement, il serait très difficile de détecter cette aura.
 
 D'après les souvenirs de l'ancien dieu Tu Si, ces bêtes ne vivaient pas seules mais en groupes. Et s'ils vivaient en groupe, il devait forcément y avoir un chef. Cette bête évoluait vers ce rôle de leader. Cependant, elle en était encore loin pour le moment.
 
-Il faut dire que l'essaim de moustiques évoqué dans les souvenirs était une chose que même l'ancien dieu Tu Si craignait et évitait.
+Il faut dire que l'essaim de moustiques évoqué dans les souvenirs était une chose que même l'ancien dieu Tu Si redoutait au point de battre piteusement en retraite.
 
 Sitôt apparue, la bête moustique laissa échapper un rugissement strident. Ce cri résonna à travers les terres et fit instantanément pâlir Treize et Hu Pao. De toute évidence, avec leur culture, ils ne pouvaient supporter la puissance perçante de ce rugissement.
 
@@ -38,7 +38,7 @@ Wang Lin esquissa un léger sourire et caressa la bête avant de bondir sur son 
 
 Puis Wang Lin dit calmement: « Vous deux, montez aussi! »
 
-Treize serra les dents. Il se dit secrètement qu'il ne pouvait pas se dédire devant l'ancêtre et sauta à son tour. Lorsqu'il atterrit, une aura glaciale pénétra directement par ses pieds. Sa technique de raffinement du corps n'eut aucun effet sur cette froideur, et il sentit tout son corps se crisper de douleur. S'il n'avait pas été aussi déterminé, il se serait déjà effondré.
+Treize serra les dents. Il se dit secrètement qu'il ne pouvait pas perdre la face devant l'ancêtre et sauta à son tour. Lorsqu'il atterrit, une aura glaciale pénétra directement par ses pieds. Sa technique de raffinement du corps n'eut aucun effet sur cette froideur, et il sentit tout son corps s'engourdir, parcouru de picotements douloureux. S'il n'avait pas été aussi déterminé, il se serait déjà effondré.
 
 Voyant Treize, Hu Pao ne voulut naturellement pas être en reste et sauta également. À son atterrissage, l'aura glaciale envahit lui aussi son corps.
 

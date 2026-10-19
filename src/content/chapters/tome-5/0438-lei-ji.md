@@ -46,7 +46,7 @@ La voix de Wang Lin resta calme tandis qu'il achevait de recueillir le sang: « 
 
 Wang Lin demanda calmement: « Lei Ji, comment avez-vous été scellé ici? »
 
-« À cause de la Secte des Cadavres. Lors de la bataille contre le Clan des Immortels Délaissés, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte des Cadavres y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais mourant. »
+« À cause de la Secte des Cadavres. Lors de la bataille contre le Clan des Immortels Délaissés, j'ai été traqué par deux chamans à onze feuilles et je fus gravement blessé après m'être échappé. La Secte des Cadavres y a vu une opportunité; ils ont trouvé un puissant cultivateur d'une autre planète pour me capturer et me sceller ici pendant que j'étais grièvement blessé. »
 
 Wang Lin regarda la fiole de jade dans sa main. Il déploya son Sens Divin et constata qu'elle contenait une quantité prodigieuse de sang.
 

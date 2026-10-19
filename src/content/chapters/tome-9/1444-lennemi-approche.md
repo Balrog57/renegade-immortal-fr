@@ -38,13 +38,13 @@ Le cultivateur en noir dit doucement: « J'ai été téméraire auparavant; j'es
 
 Wang Lin saisit l'épée et observa l'homme. Il trouva ce cultivateur très intéressant. Ses fluctuations émotionnelles n'étaient pas fortes, mais il semblait y avoir une puissance mystérieuse scellée entre ses sourcils. Il avait le sentiment que ce sceau se briserait dès qu'il ouvrirait les yeux.
 
-« Et vous, celui qui voulait que je déguerpisse? Si je ne pars pas, comptez-vous faire disparaître mon cadavre? » Wang Lin n'était pas un homme mesquin, mais puisqu'il devait afficher sa puissance, il se devait d'agir avec arrogance. Si certains étaient réellement aveugles, il ne craindrait pas de les tuer.
+« Et vous, celui qui voulait que je déguerpisse? Si je ne pars pas, comptez-vous faire disparaître mon cadavre? » Wang Lin n'était pas du genre à se montrer si menaçant, mais puisqu'il devait afficher sa puissance, il se devait d'agir avec arrogance. Si certains étaient réellement aveugles, il ne craindrait pas de les tuer.
 
 L'homme en violet, suivi d'un poisson, était couvert de sueur. Il laissa échapper un sourire amer et joignit les mains. Sans mot dire, il sortit le trésor en forme de gourde qu'il avait obtenu sur la plateforme et le lui tendit.
 
 « Une phrase qui n'aurait jamais dû être prononcée m'a coûté mon premier trésor; hélas... » Le cultivateur en violet ressentait un profond remords.
 
-« Et vous, quel ton plein d'assurance! Si je ne suis pas obéissant, vous comptiez me tuer? » Le regard de Wang Lin s'illumina alors qu'il fixait la vieille femme en vert. Parmi les présents, elle était la plus étrange. Même à cet instant, Wang Lin n'avait rien pu découvrir sur elle.
+« Et vous, quel ton plein d'assurance! Si je ne suis pas obéissant, vous comptiez me tuer? » Le regard de Wang Lin se fit perçant alors qu'il fixait la vieille femme en vert. Parmi les présents, elle était la plus étrange. Même à cet instant, Wang Lin n'avait rien pu découvrir sur elle.
 
 Le plus troublant était qu'il ne percevait aucune émotion chez elle, comme si ses sentiments étaient enfouis au plus profond de son être.
 

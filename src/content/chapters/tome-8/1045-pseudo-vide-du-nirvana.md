@@ -58,9 +58,9 @@ Une aura terrifiante émana de l'ensemble épée-fourreau. Les yeux de Wang Lin 
 
 Dès que l'épée fut partiellement sortie, l'aura terrifiante s'intensifia, comme si une puissance inimaginable était scellée à l'intérieur. Si l'épée était totalement dégagée, une force colossale se manifesterait!
 
-Wang Lin avait déjà ressenti une puissance similaire provenant d'un trésor appartenant à autrui, dont le propriétaire était mort: c'était celui de l'Estimé Xuan Bao. Son trésor magique était la Flèche du Pseudo Vide du Nirvana!
+Wang Lin avait déjà ressenti une puissance similaire provenant d'un trésor appartenant à autrui, dont le propriétaire était mort: c'était celui de l'Estimé Xuan Bao. Son trésor magique était la Flèche du Pseudo-Vide du Nirvana!
 
-« Le Pseudo Vide du Nirvana... » Une lueur étrange passa dans les yeux de Wang Lin. Il ne retira pas l'épée, mais la remit en place avec une pointe d'excitation, puis s'élança rapidement.
+« Le Pseudo-Vide du Nirvana... » Une lueur étrange passa dans les yeux de Wang Lin. Il ne retira pas l'épée, mais la remit en place avec une pointe d'excitation, puis s'élança rapidement.
 
 Il se déplaça tel un rayon de lumière le long du petit sentier et atteignit en un instant un pavillon. Ce dernier n'était pas grand, ne comportant que deux étages. Il paraissait tout à fait ordinaire, mais selon la carte, il s'agissait du premier point de restriction du premier étage. Seule l'ouverture des huit points permettrait d'espérer pénétrer dans le brouillard noir.
 

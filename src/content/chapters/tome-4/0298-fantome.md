@@ -22,7 +22,7 @@ Il n'y avait que trois objets dans le sac de rangement. Le premier était un mor
 
 Même avec la volonté de Wang Lin, il ne put s'empêcher d'être enthousiasmé par des centaines de pierres spirituelles de première qualité. Il regarda autour de lui et ne put s'empêcher de se moquer de lui-même.
 
-« Il semble que mes capacités ne soient pas encore suffisantes. »
+« Il semble que ma maîtrise de moi-même ne soit pas encore suffisante. »
 
 En vérité, il était difficile de blâmer Wang Lin, car les pierres spirituelles de première qualité étaient si rares sur Suzaku. Elles n'étaient pas abondantes non plus sur la planète d'origine de la Secte Da Luo, mais ce dernier étant une ancienne secte vieille de dix mille ans, elle avait naturellement accumulé des stocks considérables.
 
@@ -100,7 +100,7 @@ Quelques individus à l'allure d'immortels étaient assis derrière les tables, 
 
 Wang Lin observa la scène, prêtant une attention particulière à toutes les techniques déployées. Il prit une profonde inspiration. Ces personnes n'utilisaient ni incantations ni sceaux; un simple mouvement de main suffisait à déclencher des sorts. C'était comme si le pouvoir des cieux résidait dans la paume de leurs mains, prêt à être manié à leur guise.
 
-L'un d'eux se leva soudainement et hurla avec colère après quelqu'un. Puis, d'un geste de la main, une sphère de foudre violette apparut. Il la désigna et la lança vers le haut; l'orbe pourpre sortit de la salle et s'éleva dans les cieux.
+L'un d'eux se leva soudainement et hurla avec colère après quelqu'un. Puis, d'un geste de la main, une sphère de foudre violette apparut. Il la désigna et la lança vers le haut; l'orbe violet sortit de la salle et s'éleva dans les cieux.
 
 Wang Lin suivit du regard la sphère de foudre, mais au même moment, le ciel limpide devint brusquement ténébreux. Des amas d'éclairs noirs se rassemblèrent pour former un poing qui percuta la sphère violette.
 

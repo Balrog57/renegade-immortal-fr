@@ -51,11 +51,11 @@ Mais à cet instant précis, une vieille femme assise en deuxième position sur 
 
 La jeune fille se montra très habile. Elle s'agenouilla rapidement au sol et dit: « Le disciple salue sa maîtresse. »
 
-À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spiritueuse. Savais-tu que tous les disciples qui entrent dans ma Secte Ciel Nuageux sont considérés comme des disciples de la 10ème génération? »
+À l'instant où ces mots furent prononcés, tous les spectateurs affichèrent des expressions étranges. Même la vieille femme fut stupéfaite. Après l'avoir fixée un moment, elle sourit: « Tu es une fille bien spirituelle. Savais-tu que tous les disciples qui entrent dans ma Secte Ciel Nuageux sont considérés comme des disciples de la 10ème génération? »
 
 Le visage de la jeune fille devint rouge. Elle triturait le bord de ses vêtements, incapable de répondre.
 
-La vieille femme l'observa attentivement à plusieurs reprises avant de sourire: « Très bien, relève-toi. Bien que je ne puisse pas t'accepter immédiatement comme ma disciple, si tu parviens à créer une pilule de rang 2 ou supérieur dans trois ans, je ferai une exception et t'accepterai comme disciple nominale. »
+La vieille femme l'observa attentivement à plusieurs reprises avant de sourire: « Très bien, relève-toi. Bien que je ne puisse pas t'accepter immédiatement comme ma disciple, si tu parviens à créer une pilule de rang 2 ou supérieur dans trois ans, je ferai une exception et t'accepterai comme disciple nominal. »
 
 L'Ancien en robe verte secoua légèrement la tête. Son regard balaya le groupe et se posa sur le jeune homme tenant le jeton. D'un air solennel, il réfléchit un instant, puis dit à l'homme nommé Zhou Lin: « Tu peux disposer maintenant. »
 
@@ -151,7 +151,7 @@ Durant ces deux mois, sa culture passa du 3ème au 8ème niveau. Outre le liquid
 
 Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la culture elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'une seule fois.
 
-Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept Pilules d'Aide à la Culture. Grâce aux pilules, au liquide spirituel et au décalage temporel de la perle défiant le ciel, il avait pu bondir du 3ème au 8ème niveau en deux mois.
+Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept pilules Pei Yuan. Grâce aux pilules, au liquide spirituel et au décalage temporel de la perle défiant le ciel, il avait pu bondir du 3ème au 8ème niveau en deux mois.
 
 Un jour, une explosion retentit dans sa cour. Une onde de lumière semblable à des ondulations aquatiques traversa la pièce avant que tout ne redevienne calme. Wang Lin sortit, couvert de poussière, avec un sourire amer: cette dernière tentative de raffinage avait encore échoué. Il n'avait pas su contrôler l'intensité du feu, provoquant la rupture du fourneau et le gaspillage des matériaux.
 
@@ -159,11 +159,11 @@ Heureusement, la Secte Ciel Nuageux ne manquait de rien, surtout pas de fours. E
 
 Utiliser son énergie comme pont entre le feu et le fourneau exigeait une stabilité constante de la flamme, une stabilité dynamique qui devait s'ajuster aux changements internes du fourneau. Le moindre écart entraînait l'échec du raffinage, ou pire, l'explosion du fourneau. C'était l'obstacle majeur des débutants; un cultivateur de l'Âme Naissante pourrait cependant utiliser son feu d'âme pour s'en affranchir.
 
-Le contrôle du feu n'était pas tout: la compréhension des interactions entre les matériaux était cruciale. Une recette n'est qu'un guide. En pratique, de nombreux facteurs imprévisibles entrent en jeu: l'énergie spirituelle ambiante, les variations environnementales ou l'impureté des composants. Devenir un maître alchimiste est une tâche titanesque.
+Le contrôle du feu n'était pas tout: la compréhension des interactions entre les matériaux était cruciale. Avoir une recette ne suffit pas : l'alchimie n'est pas une technique standard que chacun peut apprendre, et croire qu'une seule recette permettrait à cent personnes de produire cent pilules identiques serait absurde. Une recette n'est qu'un guide. En pratique, de nombreux facteurs imprévisibles entrent en jeu: l'énergie spirituelle ambiante, les variations environnementales, l'impureté des composants, ainsi que les associations entre herbes, chacune pouvant produire de quelques variantes à plusieurs centaines. Devenir un maître alchimiste est une tâche titanesque.
 
 Wang Lin apprit que la qualité des pilules était divisée en neuf rangs, tout comme les alchimistes. Le rang de l'alchimiste détermine celui des pilules produites. Actuellement, seuls trois alchimistes de rang 5 existaient dans la secte, dont la maîtresse de Zhou Lin.
 
-Cette femme, originaire du pays de Xuan Wu, n'était pas une disciple directe de la secte; après l'avoir rejointe, elle avait aussitôt obtenu le statut d'Ancienne invitée, puis, quelques années plus tard, était devenue l'une des Anciennes. C'est pour cela que, bien que Zhou Lin ne fût qu'un disciple de neuvième génération, il gérait le recrutement et bénéficiait du respect des autres, car ils devaient honorer sa maîtresse.
+Cette femme, originaire du pays de Xuan Wu, n'était pas une disciple directe de la secte; après l'avoir rejointe, elle avait aussitôt obtenu le statut d'Ancienne invitée, puis, quelques années plus tard, était devenue l'une des Anciennes. C'est pour cela que, bien que Zhou Lin ne fût qu'un disciple de neuvième génération, il gérait le recrutement et bénéficiait du respect des autres, car ils devaient honorer sa maîtresse. Même le chef de secte s'efforçait de satisfaire ses demandes: on ne regarde pas le visage du moine, mais celui du Bouddha.
 
 Wang Lin erra dans la cour, cherchant à comprendre son échec. Tout semblait correct jusqu'au dernier moment, où le feu s'emballait. Il se demanda si c'était une fatalité de l'alchimie, mais il se souvint que son unique réussite n'avait pas connu ce problème.
 

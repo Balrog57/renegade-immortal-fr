@@ -90,7 +90,7 @@ Le centipède se tordit quelques instants avant de se transformer en un nuage de
 
 Wang Lin réfléchit, le regard solennel. C'était la première fois qu'il voyait une restriction utilisant une bête spirituelle dont le corps générait une fumée noire anxiogène. Cette méthode lui semblait très familière.
 
-Il comprit que cette restriction, ainsi que plusieurs autres auparavant, avaient été mises en place par la même personne. Il était évident que cet individu utilisait rarement ce type de piège. Ce n'était pas beaucoup plus puissant que les autres, mais c'était bien plus ingénieux. Si quelqu'un passait par là sans précaution, il serait difficile d'échapper à la mort.
+Il comprit que cette restriction, ainsi que plusieurs autres auparavant, avaient été mises en place par la même personne. Il était évident que cet individu utilisait rarement ce type de piège. Ce n'était pas beaucoup plus puissant que les autres, mais c'était bien plus ingénieux. Si quelqu'un passait par là sans précaution, il ne pourrait guère échapper aux mandibules du centipède.
 
 « Seigneur Démon des Six Désirs! » murmura Wang Lin. Il comprit enfin pourquoi cela lui semblait si familier. À l'époque, dans le passage, le Seigneur Démon des Six Désirs avait pris le jeune homme à ses côtés pour sujet de toute une série de techniques extrêmement étranges.
 
@@ -118,9 +118,9 @@ De nombreux monstres peuplaient l'épreuve du feu, et il en avait tué d'innombr
 
 Cette patience infinie était ce qui le distinguait grandement de Bossu Meng.
 
-L'Empereur Antique était bien préparé pour surmonter les épreuves cette fois-ci. Même s'il avait rencontré l'épreuve du feu, sa faiblesse naturelle, il était resté fort et avait progressé pas à pas.
+L'Empereur Antique était bien préparé pour surmonter les épreuves cette fois-ci. Même dans la mer de flammes, où sa nature était contraire au feu, il avait tenu bon et avancé pas à pas.
 
-Bien que cela lui ait pris beaucoup de temps, ses trésors n'avaient pas été épuisés; il disposerait donc toujours de ses ressources pour les épreuves futures.
+Bien que cela lui ait pris beaucoup de temps, la plupart de ses trésors avaient été préservés, et il disposerait donc encore de ressources pour les épreuves futures.
 
 Sur le Chemin sans Retour, il ne perdit pas le moindre instant: il le traversa avec aisance et, même lorsque des illusions apparurent derrière lui, avec son tempérament sombre, il n'y prêta aucune attention.
 
@@ -212,7 +212,7 @@ La recherche des restrictions exigeait une grande force mentale, et cette fatigu
 
 Actuellement, ses longs cheveux blancs étaient attachés. Il était assis en tailleur sur une falaise entourée de restrictions, toutes posées par lui au passage pour dissimuler sa silhouette.
 
-À mesure qu'il approchait du sommet, il devenait plus nerveux, se demandant si la personne devant lui avait déjà passé la deuxième épreuve. Si ce n'était pas le cas, elle l'attendrait là-haut. Les restrictions à cette altitude étaient si puissantes que même un expert au stade de la Formation de l'Âme aurait du mal à survivre s'il en déclenchait une au hasard.
+À mesure qu'il approchait du sommet, il devenait plus nerveux, se demandant si la personne devant lui avait déjà passé la deuxième épreuve. Si ce n'était pas le cas, elle l'attendrait là-haut. Les restrictions à cette altitude étaient si puissantes que même un expert au stade de la Formation de l'Âme n'y échapperait pas s'il en déclenchait une au hasard.
 
 Par conséquent, Wang Lin ne pouvait pas déployer son Sens Divin et devait analyser par lui-même, sans aucune distraction. Sa concentration totale devait être dédiée à l'analyse des barrières.
 
@@ -256,7 +256,7 @@ Durant ces trois années, l'Empereur Antique avait dû jongler constamment entre
 
 Lors du premier essai, il avait passé plus de temps à protéger ses trésors magiques, mais désormais, plus de la moitié d'entre eux avaient été consommés pour se défendre lors des déclenchements.
 
-Son cœur se serrait de regret. S'il avait utilisé ces trésors pour franchir le premier essai plus tôt... S'il marchait devant cet homme, son chemin aurait été bien plus facile.
+Son cœur se serrait de regret. Il regrettait amèrement d'avoir perdu tant de temps lors du premier essai. S'il en était sorti plus tôt pour entrer dans le second, il aurait pu marcher devant cet homme, et son chemin n'aurait pas été si amer.
 
 Il y a deux ans, en rencontrant trois types de restrictions différents, il avait compris que le Seigneur Démon des Six Désirs n'était qu'un des responsables.
 
@@ -266,11 +266,11 @@ Franchir les pièges de cet individu plongeait le cœur dans l'effroi. Si, pour 
 
 Au départ, l'Empereur Antique les brisait facilement, mais avec le temps, cela lui exigeait des efforts toujours plus grands.
 
-La présence de cet inconnu devenait prépondérante dans son esprit. Il sentait que, du moins en matière de connaissance des restrictions, cet homme était son rival. Même si ce dernier ne pouvait égaler ses mille ans d'expérience, l'ingéniosité de ses pièges le laissait sans voix.
+La présence de cet inconnu devenait prépondérante dans son esprit. Il sentait que, du moins en matière de connaissance des restrictions, cet homme était son rival. Ses pièges lui semblaient encore immatures, et bien que ce dernier ne puisse égaler ses mille ans d'expérience, leur ingéniosité le laissait sans voix.
 
 Ce qui le choquait le plus, c'était que cet inconnu semblait n'avoir que très peu d'expérience en techniques de restriction. C'était difficile à croire, mais il en était certain.
 
-Le plus frappant était que si la disposition des pièges était chaotique et vaste au début, elle avait fini par former vaguement un système bien à elle, qui tenait en deux mots: rapide et étrange!
+Le plus frappant était que si la disposition des pièges était chaotique et sans ordre au début, elle avait fini par former vaguement un système bien à elle, qui tenait en deux mots: rapide et étrange!
 
 Rapide: elles se déclenchaient si vite qu'il était presque impossible de réagir à temps. Étrange: leurs modes d'attaque et de déclenchement étaient inconcevables, comme un coup de génie impossible à deviner.
 

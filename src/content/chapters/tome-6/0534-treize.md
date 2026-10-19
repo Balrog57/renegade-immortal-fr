@@ -10,23 +10,23 @@ Wang Lin avait déjà enseigné à Ouyang Hua la méthode de fabrication des dra
 
 Lorsqu'il en réalisa l'enjeu, Wang Lin prit le temps de réfléchir soigneusement à une solution. Il parvint à utiliser certains arbres d'acier, des peaux de bêtes, l'énergie démoniaque locale condensée et quelques sceaux de la main pour créer un objet capable d'imiter l'effet recherché.
 
-Ce drapeau substitut ne pouvait retenir les âmes que pendant moins de dix jours; c'était donc un drapeau de dix jours.
+Ce drapeau substitut ne pouvait sceller que moins de dix âmes; c'était donc un drapeau de dix âmes, la limite de ce procédé.
 
 Mais cet objet compensait par la quantité, car on pouvait utiliser dix de ces drapeaux simultanément. Bien qu'il ne fût pas aussi puissant qu'un drapeau d'âmes à cent âmes, il en possédait tout de même la moitié de la puissance.
 
-À l'instar de ses sorts, Wang Lin avait dissimulé une faille fatale dans ce drapeau substitut, et lui seul en connaissait la faiblesse. Après tout, Wang Lin était le seul être sur la planète Tian Yun à connaître les sorts de la Secte de l'Affinement des Âmes.
+À l'instar de ses sorts, Wang Lin avait dissimulé une faille fatale dans ce drapeau substitut, et lui seul en connaissait la faiblesse. Après tout, Wang Lin était le seul être sur la planète Tian Yun à connaître les sorts de la Secte de l'Affinement de l'Âme.
 
 Après avoir gravé la méthode de création du nouveau drapeau sur un jade, Wang Lin déploya son sens divin et appela Ouyang Hua ainsi que le jeune homme nommé Treize.
 
 Treize était le jeune homme que Wang Lin avait secrètement suivi pour trouver la vallée.
 
-Ce dernier semblait posséder une affinité naturelle avec les sorts de la Secte de l'Affinement des Âmes. Si Du Tian avait été encore en vie, il en aurait été absolument stupéfait.
+Ce dernier semblait posséder une affinité naturelle avec les sorts de la Secte de l'Affinement de l'Âme. Si Du Tian avait été encore en vie, il en aurait été absolument stupéfait.
 
-Treize se tint rapidement devant Wang Lin. Il ne ressentait que respect et admiration envers le Suprême Céleste qui se tenait devant lui.
+Treize se tint rapidement devant Wang Lin. Il éprouvait envers le Suprême Céleste qui se tenait devant lui un profond respect et une crainte révérencielle immense.
 
 Plus il pratiquait le sort d'affinement des âmes, plus l'émerveillement grandissait en son cœur. Durant les trois mois passés à étudier ce sort, il en était venu à la conclusion que s'il parvenait à le maîtriser pleinement, sa puissance dépasserait l'imagination.
 
-Drapeau de dix jours; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes; drapeau d'âmes à 100 000 âmes...
+Drapeau de dix âmes; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes; drapeau d'âmes à 100 000 âmes...
 
 Treize prit une profonde inspiration, une lueur d'excitation brillant dans ses yeux.
 

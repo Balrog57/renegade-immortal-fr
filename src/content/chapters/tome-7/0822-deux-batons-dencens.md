@@ -28,11 +28,11 @@ Wang Lin murmura: « Ainsi en est-il! »
 
 À ce moment-là, des bruits de craquement provinrent du lointain. À son retour, Ta Shan tenait dans chaque main une âme originelle et un sac.
 
-Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus depuis plus de six mois.
+Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus depuis près de six mois.
 
 Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'avaient offensé. Il les jeta dans le drapeau d'âmes afin qu'elles servent de nourriture pour la technique « Invoque le Vent ».
 
-Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques trésors magiques. Il les sortit un par un et les broya. Puis, il cracha de l'énergie originelle essentielle pour les transformer en liquide avant de les fusionner dans le corps de Ta Shan.
+Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques trésors magiques. Il les sortit un par un et les broya. Puis, il cracha l'essence de son âme originelle pour les transformer en liquide avant de les fusionner dans le corps de Ta Shan.
 
 La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste de l'Empereur Céleste Qing Lin. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
@@ -44,7 +44,7 @@ Presque chaque cultivateur du Système Stellaire de Luotian ayant atteint la deu
 
 Tenant les deux jades, l'expression de Wang Lin devint sombre. Il scruta l'horizon.
 
-« Yao... Les chefs des quatre grandes familles. Pour quelle raison me traquent-ils? » Wang Lin réfléchissait silencieusement.
+« Yao... En tête des quatre grandes familles. Pour quelle raison me traquent-ils? » Wang Lin réfléchissait silencieusement.
 
 Il nourrissait de nombreux griefs contre les quatre grandes familles, particulièrement la famille Yao. Non seulement il y avait eu l'affaire de l'Ancêtre de Sang, mais aussi l'incident avec le jeune maître de la famille Yao, sans oublier l'affaire du Pavillon des Collections.
 
@@ -56,7 +56,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 « Il est peu probable que ce soit dû au Pavillon des Collections; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
 
-« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons, à l'époque sur la planète Suzaku! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
+« L'Ordre Céleste... Cela me rappelle l'Ordre de Cent Jours des Dix Mille Démons, à l'époque, dans la mer de culture démoniaque de la planète Suzaku! » Les yeux de Wang Lin s'illuminèrent et il s'élança.
 
 Il se transforma en météore et fendit la voûte étoilée.
 
@@ -78,7 +78,7 @@ Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux
 
 « Je me trompe; ils ne peuvent pas tous être de la famille Yao, sinon elle serait bien trop nombreuse. Il est probable que la famille Yao ait envoyé ses membres à travers le Système Stellaire, puis qu'ils aient contacté les planètes de culture voisines pour me débusquer rapidement! »
 
-Après avoir confirmé ses soupçons, l'intention meurtrière envahit Wang Lin qui grommela: « Cela faisait longtemps que je n'avais pas massacré personne... Je ne peux peut-être pas tuer les anciens, mais je tuerai les jeunes dès qu'ils se présenteront! »
+Après avoir confirmé ses soupçons, l'intention meurtrière envahit Wang Lin qui grommela: « Cela faisait longtemps que je n'avais pas massacré personne... Je ne peux peut-être pas vaincre les anciens, mais je tuerai les jeunes dès qu'ils se présenteront! »
 
 L'intention meurtrière satura le corps de Wang Lin. Il n'avait jamais été un homme de bien. À cet instant, il était entouré de vingt-huit cultivateurs également portés par une soif de sang. Il était clair qu'ils étaient venus pour l'exécuter.
 

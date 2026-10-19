@@ -38,7 +38,7 @@ Ces trois cultivateurs flottaient dans les airs. Leurs mains formèrent des scea
 
 « En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa vitalité! Scellement! »
 
-« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller tout son corps! Scellement! »
+« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa force physique! Scellement! »
 
 Alors que trois voix résonnaient simultanément, trois rayons de lumière jaillirent de leurs sourcils. Ces lumières portaient une pression infinie et foncèrent sur Wang Lin!
 
@@ -66,9 +66,9 @@ Son énergie originelle, sa vitalité et sa force physique étaient totalement s
 
 Cependant, le prix pour sceller Wang Lin fut leur propre vie! Juste au moment où les trois anciens en violet scellaient Wang Lin, ils furent frappés par le coup de poing de ce dernier.
 
-Un vent violent souffla et les capuches qui couvraient leurs visages furent emportées. Les trois restèrent calmes, sans l'ombre d'une peur dans les yeux. Dès que le premier sceau fut posé, ils fermèrent les yeux!
+Un vent violent souffla et les capuches qui couvraient leurs visages furent emportées. Les trois restèrent calmes, sans l'ombre d'une peur dans les yeux. Au moment où le poing approcha, ils fermèrent les yeux!
 
-Ils avaient été adoptés par le Conseil Souverain dès leur enfance pour une seule mission: sceller un cultivateur du troisième niveau. Sacrifier leur vie pour sceller un tel être était leur unique raison d'être!
+Ils avaient été adoptés par le Conseil Souverain dès leur enfance pour une seule mission: sceller un cultivateur de la troisième étape. Sacrifier leur vie pour sceller un tel être était leur unique raison d'être!
 
 Des grondements tonitruants résonnèrent lorsque le poing fantomatique de Wang Lin les traversa. Leurs robes violettes furent en lambeaux, leur chair se dissipa et leurs âmes originelles s'effondrèrent! Bien qu'ils fussent morts, leurs sceaux ne se dissipèrent pas!
 
@@ -78,7 +78,7 @@ Le Grand Maître Yun Luo observait la scène à distance. Elle leva sa main droi
 
 « Cet homme est déjà sans espoir, tuez-le! »
 
-« Il a massacré d'innombrables frères d'armes. C'est un puissant cultivateur du troisième niveau. Aujourd'hui, nous allons l'abattre et ébranler le Royaume Intérieur! »
+« Il a massacré d'innombrables frères d'armes. C'est un puissant cultivateur de la troisième étape. Aujourd'hui, nous allons l'abattre et ébranler le Royaume Intérieur! »
 
 Wang Lin ayant perdu toute force, son corps ne pouvait plus flotter et commença à chuter. En un instant, des dizaines de milliers de cultivateurs se refermèrent sur lui avec une intention meurtrière monstrueuse. Ils projetèrent leurs trésors vers lui.
 
@@ -90,7 +90,7 @@ Les grondements continuèrent tandis que des milliers d'épées volantes s'abatt
 
 Après cette pluie de trésors, les dizaines de milliers de cultivateurs se rapprochèrent pour le bombarder de sorts. Un vieil homme du Royaume Extérieur s'avança. Il leva la main et poussa un rugissement:
 
-« Meurs! » Sa paume fendit l'air vers le front de Wang Lin et frappa violemment!
+« Meurs! » Sa paume fendit l'air vers le sommet du crâne de Wang Lin et frappa violemment!
 
 Pourtant, au moment de l'impact, le vieil homme poussa un cri de douleur atroce en levant sa main droite. Le corps de Wang Lin était si robuste que les os de la main du vieillard se brisèrent net!
 

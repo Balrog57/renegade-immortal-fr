@@ -84,7 +84,7 @@ Une seule personne, une seule paume. La puissance d'un seul geste avait ébranl�
 
 Il n'y avait aucune possibilité de refus. Ses paroles descendirent comme une volonté divine sur toute la Secte de la Musique Céleste. L'esprit de chaque cultivateur trembla; aucun n'osa désobéir!
 
-Le front du nouveau Maître de secte de la Musique Céleste était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et d'admiration. Il avait été témoin de la splendeur de Wang Lin à la Secte Éternelle et avait vu de ses propres yeux mourir le précédent Maître de secte.
+Le front du nouveau Maître de secte de la Musique Céleste était couvert de sueur. Il regardait Wang Lin avec un mélange de crainte et de respect. Il avait été témoin de la splendeur de Wang Lin à la Secte Éternelle et avait vu de ses propres yeux mourir le précédent Maître de secte.
 
 « Cet homme a pu tuer instantanément le Maître de secte et l'Ancien en chef il y a dix ans, et même la Secte Divine n'a pu l'arrêter. Aujourd'hui, dix ans plus tard, il revient encore plus terrifiant qu'auparavant. On ne doit absolument pas provoquer un tel être! » Le Maître de secte n'hésita pas une seconde et lança une série d'ordres. Toute la Secte de la Musique Céleste se mit à l'œuvre pour activer le réseau de transfert vers la Secte Éternelle!
 

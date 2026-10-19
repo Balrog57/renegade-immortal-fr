@@ -34,7 +34,7 @@ Les deux fillettes regardèrent autour d'elles et leurs regards se posèrent sur
 
 « C'est vrai, le Petit Biaozi me manque. » Les deux fillettes étaient transportées d'enthousiasme.
 
-Wang Lin dit calmement: « Cet endroit est la cité ancestrale du clan céleste. La Grand Empyréen Gémeaux se souvient-elle de notre accord? »
+Wang Lin dit calmement: « Cet endroit est la cité ancestrale du clan céleste. Le Grand Empyréen Gémeaux se souvient-elle de notre accord? »
 
 « Notre accord? Ah, je m'en souviens. Tu as dit que lorsque tu en aurais besoin, nous devions t'aider une fois. As-tu besoin d'aide maintenant? »
 
@@ -58,7 +58,7 @@ Dans le ciel, d'immenses masses de neige noire faisaient rage, occultant la maje
 
 De loin, la cité ancestrale présentait un aspect extrêmement étrange. La partie orientale était plongée dans la nuit, tandis que le reste de la ville demeurait sous le jour. Les cultivateurs de la cité orientale sortirent tous de leurs demeures et levèrent les yeux vers le ciel, le visage empreint de choc et d'horreur.
 
-Mais bientôt, ils ressentirent instantanément la destruction impitoyable émanant de la cité orientale. Cette aura n'était ni écrasante ni vibrante, mais dès qu'ils la perçurent, ils ne pensèrent qu'à la fin et au néant!
+Mais bientôt, ils ressentirent instantanément la destruction impitoyable émanant de la cité orientale. Cette aura n'était ni écrasante ni vibrante, mais dès qu'ils la perçurent, ils ne pensèrent qu'à la mort et à la fin du monde!
 
 Wang Lin avança lentement, des volutes de gaz noir entourant sa robe blanche. Elles s'accumulèrent jusqu'à ce que les étrangers ne puissent plus distinguer sa silhouette, n'apercevant plus qu'une masse de vapeurs sombres!
 

@@ -10,7 +10,7 @@ Même le corps de la garde céleste trembla, et la lumière dorée qui l'entoura
 
 Wang Lin serra les dents. Ignorant l'aura de la gueule géante, il chargea une fois de plus vers le brouillard dense.
 
-Cependant, la fissure au sol s'élargit follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder. De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète!
+Cependant, la fissure au sol se mit à s'élever follement. À cet instant, la terre commença à se soulever sans relâche et la planète entière se mit à gronder. De vastes pans de terre s'effondrèrent et furent projetés dans l'espace. Cette scène était presque identique à celle où son corps original avait causé l'effondrement d'une planète!
 
 Toutefois, cette planète s'était effondrée de l'intérieur, provoquant une explosion d'une puissance extrême; si des cultivateurs de bas niveau avaient été trop proches, ils n'auraient eu aucune chance de survivre.
 
@@ -18,7 +18,7 @@ La planète Yun Xia était légèrement différente. Bien qu'elle fût égalemen
 
 La terre qui se soulevait sans cesse n'était qu'une illusion, car ce que l'on prenait pour la « terre » n'était en réalité que le corps du Serpent aux yeux de lune. Ce soulèvement n'était que le serpent qui se retournait et redressait la tête.
 
-La fissure géante se referma instantanément avec une vitesse inimaginable. Le regard de Wang Lin devint glacial. Le pouvoir des Fruits d'Ascension Céleste était toujours là, sans quoi il n'aurait aucun moyen de s'échapper. Tant qu'il parviendrait à stopper le serpent aux yeux de lune un court instant, il pourrait traverser le brouillard et atteindre l'espace.
+La fissure géante se rapprocha instantanément, à une vitesse inimaginable. Le regard de Wang Lin devint glacial. Le pouvoir des Fruits d'Ascension Céleste était toujours là, sans quoi il n'aurait aucun moyen de s'échapper. Tant qu'il parviendrait à stopper le serpent aux yeux de lune un court instant, il pourrait traverser le brouillard et atteindre l'espace.
 
 Wang Lin serra les dents et s'apprêta à saisir son sac de rangement quand ses yeux se rétrécirent soudainement. À cet instant précis, alors que la gueule géante approchait, il ressentit une fluctuation qu'il connaissait trop bien: c'était la fluctuation de la formation d'épées des sept étoiles!
 

@@ -38,7 +38,7 @@ Elle regarda au loin, vers la Secte du Dragon Céleste, et ses yeux se rempliren
 
 Wang Lin était assis sur la tête du dragon. Des vagues d'énergie brûlante émanaient de la créature et l'entouraient tandis qu'il scrutait l'horizon. Sa propre vision se trouvait même déformée par ces ondes de chaleur.
 
-Les sens divins des cultivateurs du troisième stade du Système Stellaire Antique étaient toujours présents dans les environs. Ils avaient observé Wang Lin capturer ce dragon de feu, mais cela ne les surprit guère. Bien que ce dragon fût puissant, équivalent à un cultivateur du stade initial du Néant du Nirvana, il restait bien trop faible à leurs yeux.
+Les sens divins des cultivateurs du troisième stade du Système Stellaire Antique étaient toujours présents dans les environs. Ils avaient observé Wang Lin capturer ce dragon de feu, mais cela ne les surprit guère. Bien que ce dragon fût puissant, équivalent à un cultivateur du stade initial du Vide du Nirvana, il restait bien trop faible à leurs yeux.
 
 Si Wang Lin n'avait pas su qu'il s'agissait d'un monde de grotte, il aurait tout de même capturé ce dragon, mais il n'aurait pas agi avec une telle célérité, sans perdre un instant.
 

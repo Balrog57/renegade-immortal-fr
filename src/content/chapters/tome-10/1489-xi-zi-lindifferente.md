@@ -36,7 +36,7 @@ Beaucoup de choses peuvent survenir en huit cents ans. Le passé n'était qu'un 
 
 Wang Lin fixa l'homme d'âge moyen qui reculait, terrorisé. Une lueur de froideur traversa ses yeux et il leva la main droite.
 
-« Tu ne peux pas me tuer! Je suis un messager du Temple Céleste du Tonnerre! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre de Luotian. Non seulement tu seras l'ennemi de Luotian, mais tu te feras aussi l'ennemi des quatre systèmes stellaires! »
+« Tu ne peux pas me tuer! Je suis un messager du Temple Céleste du Tonnerre! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre de Luotian. Non seulement tu seras l'ennemi de Luotian, mais tu te feras aussi l'ennemi des quatre grands systèmes stellaires! »
 
 « Mon niveau de culture n'est pas élevé, mais je reste une force capable de résister au Royaume Extérieur! Je veux combattre le Royaume Extérieur, je veux consacrer toute ma force à lutter pour le Royaume Intérieur, tu ne peux pas me tuer! Même si tu veux ma mort, donne-moi la chance de combattre le Royaume Extérieur et de mourir sur le champ de bataille! » L'homme d'âge moyen reculait en hurlant toutes les excuses qui lui passaient par la tête.
 
@@ -90,7 +90,7 @@ Le corps de Xi Zifeng trembla. Tandis qu'elle réfléchissait, ses larmes redoub
 
 Wang Lin ne reprit pas la parole et attendit sa réponse. Il n'était pas un homme sans cœur, mais il ne pouvait pas tout accepter. Il pouvait s'empêcher d'aimer quelqu'un, mais il y avait une chose qu'il ne pouvait contrôler... Il ne pouvait empêcher cette femme de l'aimer il y a huit cents ans, ni son sentiment persistant malgré les siècles passés.
 
-Contrairement à la froideur avec laquelle il avait répondu à Li Qianmei, Wang Lin ne pouvait prononcer des mots aussi insensibles envers la fragile Xi Zifeng. Dans ce monde, il existait bien d'autres formes de liens entre un homme et une femme.
+Contrairement à Li Qianmei, avec qui il s'était séparé en s'oubliant mutuellement, Wang Lin ne pouvait prononcer des mots aussi insensibles envers la fragile Xi Zifeng. Dans ce monde, il existait bien d'autres formes de liens entre un homme et une femme.
 
 Le temps passa lentement et la neige redoublait... Xi Zifeng esquissa un sourire doux et leva pour la première fois la tête. Elle regarda la silhouette se tenant derrière le rideau de neige.
 
@@ -110,7 +110,7 @@ Xi Zifeng se redressa et murmura: « La demeure de ce disciple est à Luotian...
 
 Wang Lin réfléchit en silence. Après un long moment, il agita la main droite. Une puissante vague d'énergie originelle pénétra le corps de Xi Zifeng. Tout en consolidant son âme originelle, il y insuffla autant de compréhension qu'elle pouvait actuellement supporter.
 
-Xi Zifeng franchit immédiatement l'étape du Corps Yang pour atteindre le stade Scruteur du Nirvana!
+Xi Zifeng franchit immédiatement l'étape du Yang Corporel pour atteindre le stade Scruteur du Nirvana!
 
 Mais ce n'était pas fini. Le processus continua jusqu'à ce qu'elle atteigne le stade Purificateur du Nirvana. Ensuite, l'énergie originelle se transforma en trois sceaux destinés à contenir sa culture. Cela lui permettrait de comprendre et d'assimiler progressivement son nouveau niveau.
 

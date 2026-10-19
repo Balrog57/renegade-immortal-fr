@@ -8,7 +8,7 @@ slug: grand-plan
 ---
 La traque ne s'interrompait pas, devenant même plus intense. D'innombrables cultivateurs volaient tels des météores dans leur poursuite de Wang Lin.
 
-La silhouette de Wang Lin réapparut dans le vide. Il tituba en surgissant et cracha une nouvelle bouchée de sang, le visage livide. Ses yeux étaient sombres et son intention de tuer s'en trouvait décuplée.
+La silhouette de Wang Lin réapparut dans le vide. Il tituba en surgissant et cracha une nouvelle bouchée de sang, le visage livide. Ses yeux étaient sombres et son intention de tuer s'en trouvait accrue.
 
 « Si je n'avais pas eu l'Armure de Cuir de l'Ancien Dieu, face à cette technique du doigt, je serais déjà mort! » Wang Lin fendit l'air sur une dizaine de mètres avant de fusionner avec le monde pour s'enfuir rapidement.
 
@@ -20,9 +20,9 @@ Les cultivateurs qui le chassaient avaient déjà attisé sa colère. Comment po
 
 « Si vous voulez ma mort, vous devrez en payer le prix! » Les yeux de Wang Lin étaient d'une froideur extrême. Son corps vacilla et il fusionna avec le monde.
 
-D'innombrables cultivateurs à sa poursuite franchirent la frontière entre les Domaines Occidental et Septentrional. Ils utilisaient divers sorts pour accélérer leur course tout en traquant Wang Lin. L'intention de tuer qu'ils dégageaient ressemblait à une épée dégainée s'approchant inexorablement de lui.
+D'innombrables cultivateurs à sa poursuite franchirent la frontière entre les Domaines Occidental et Nord. Ils utilisaient divers sorts pour accélérer leur course tout en traquant Wang Lin. L'intention de tuer qu'ils dégageaient ressemblait à une épée dégainée s'approchant inexorablement de lui.
 
-La silhouette de Wang Lin apparut dans le Domaine Septentrional. C'était le premier lieu où il était apparu lors de son arrivée depuis le Système Stellaire de l'Alliance. Son humeur ne fluctua point; son Sens Divin se déploya, cherchant quelque chose.
+La silhouette de Wang Lin apparut dans le Domaine Nord. C'était le premier lieu où il était apparu lors de son arrivée depuis le Système Stellaire de l'Alliance. Son humeur ne fluctua point; son Sens Divin se déploya, cherchant quelque chose.
 
 Un instant plus tard, l'expression de Wang Lin changea et une ondulation apparut derrière lui. Sans hésiter, il fit un pas en avant et disparut. Au moment même où Yao Bingyun surgissait, Wang Lin s'était volatilisé.
 
@@ -36,33 +36,33 @@ Ce n'est qu'ainsi qu'il pourrait enfin se reposer. Autrement, avec ces gens à s
 
 Wang Lin avait également décidé de ne pas épargner les familles de ces cultivateurs. Il les avait déjà avertis, mais ils s'étaient obstinés à vouloir sa mort. Puisque tel était leur choix, ils devaient être prêts à en assumer les conséquences!
 
-Tandis que son puissante intention meurtrière bouillonnait, le regard de Wang Lin se fit plus glacial encore.
+Tandis que sa puissante intention meurtrière bouillonnait, le regard de Wang Lin se fit plus glacial encore.
 
-Dans le Domaine Septentrional, Wang Lin commença à apparaître bien plus fréquemment qu'auparavant. Chaque fois qu'il surgissait, il entamait une recherche.
+Dans le Domaine Nord, Wang Lin commença à apparaître bien plus fréquemment qu'auparavant. Chaque fois qu'il surgissait, il entamait une recherche.
 
 Toutefois, il retirait immédiatement son Sens Divin pour ne pas perdre un instant avant de fusionner à nouveau avec le monde. S'il tardait ne serait-ce qu'un peu, cette femme le rattraperait.
 
-En conséquence, sa vitesse ralentit considérablement. Les poursuivants traversèrent progressivement le Domaine Septentrional. Cependant, les cultivateurs locaux commencèrent à hésiter; certains choisirent même de renoncer.
+En conséquence, sa vitesse ralentit considérablement. Les poursuivants traversèrent progressivement le Domaine Nord. Cependant, les cultivateurs locaux commencèrent à hésiter; certains choisirent même de renoncer.
 
 La vision des planètes massacrées dans le Domaine Occidental les avait choqués. Bien que cet événement fût terrifiant, il ne les avait pas directement touchés sur le moment. Mais en cet instant précis, si ce Xu Mu devenait fou ici, les conséquences seraient inimaginables.
 
-Fort de cette crainte, les membres des familles de culture du Domaine Septentrional restèrent en retrait et s'éloignèrent lentement. Pourtant, certains continuèrent naïvement de traquer Wang Lin, malgré la présence de leurs propres familles dans le Domaine Septentrional.
+Fort de cette crainte, les membres des familles de culture du Domaine Nord restèrent en retrait et s'éloignèrent lentement. Pourtant, certains téméraires continuèrent de traquer Wang Lin, alors que leurs propres familles se trouvaient dans le Domaine Nord.
 
-La silhouette de Wang Lin apparut au centre du Domaine Septentrional, à proximité des cinq planètes principales. Il connaissait parfaitement cette zone, en particulier la planète Ran Yun où il avait vécu pendant près de cent ans.
+La silhouette de Wang Lin apparut au centre du Domaine Nord, à proximité des cinq planètes principales. Il connaissait parfaitement cette zone, en particulier la planète Ran Yun où il avait vécu pendant près de cent ans.
 
 Bien qu'il fût revenu ici, il n'avait pas le temps de céder à la mélancolie. Son Sens Divin s'étendit et ses yeux s'illuminèrent soudain d'un éclat d'excitation.
 
-« Je l'ai trouvé! C'était bien dans le Domaine Septentrional! »
+« Je l'ai trouvé! C'était bien dans le Domaine Nord! »
 
 Le corps de Wang Lin vacilla et il se précipita vers les cinq planètes principales.
 
-Dans le Domaine Septentrional, une entité supplémentaire était apparue aux côtés des cinq planètes majeures. Pour de nombreux cultivateurs, cela ressemblait à une gigantesque forme de vie ovale. Elle possédait d'innombrables tentacules s'étendant de son corps et paraissait extrêmement terrifiante.
+Dans le Domaine Nord, une entité supplémentaire était apparue aux côtés des cinq planètes majeures. Pour de nombreux cultivateurs, cela ressemblait à une gigantesque forme de vie ovale. Elle possédait d'innombrables tentacules s'étendant de son corps et paraissait extrêmement terrifiante.
 
 Heureusement, elle n'avait blessé personne. Lorsqu'elle était arrivée près des cinq planètes principales, son corps s'était contracté pour se transformer en planète. Au fil des années, d'innombrables débris spatiaux avaient été attirés par elle, formant une fine couche de terre à sa surface. De loin, elle ne différait guère d'une planète de culture.
 
-Cependant, les cultivateurs du Domaine Septentrional savaient qu'il ne s'agissait pas d'une planète de culture et qu'il ne fallait point la provoquer. Même en passant à proximité, ils faisaient un large détour, n'osant pas poser le pied sur ce monde.
+Cependant, les cultivateurs du Domaine Nord savaient qu'il ne s'agissait pas d'une planète de culture et qu'il ne fallait point la provoquer. Même en passant à proximité, ils faisaient un large détour, n'osant pas poser le pied sur ce monde.
 
-Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura glaciale. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Septentrional!
+Un brouillard noir et dense enveloppait progressivement la planète, dégageant une aura glaciale. Au cours des dernières années, cet endroit était devenu une véritable zone interdite du Domaine Nord!
 
 C'était le Serpent aux yeux de lune d'autrefois!
 
@@ -72,9 +72,9 @@ Au moment où il pénétra dans le brouillard entourant le serpent, Yao Bingyun 
 
 « Il nous a attirés ainsi tout ce chemin, il doit forcément comploter quelque chose! » Les yeux de Yao Bingyun brillèrent, comme si son regard pouvait percer l'obscurité du brouillard pour en voir l'intérieur.
 
-À cet instant précis, des lueurs de lumière surgirent au loin. Les cultivateurs et les membres de la famille Yao, poursuivant Wang Lin, venaient d'arriver. Les cultivateurs du Domaine Septentrional avaient déjà un mauvais pressentiment; en voyant la planète formée par le Serpent aux yeux de lune, leurs visages s'assombrirent.
+À cet instant précis, des lueurs de lumière surgirent au loin. Les cultivateurs et les membres de la famille Yao, poursuivant Wang Lin, venaient d'arriver. Les cultivateurs du Domaine Nord avaient déjà un mauvais pressentiment; en voyant la planète formée par le Serpent aux yeux de lune, leurs visages s'assombrirent.
 
-« Cette chose n'est pas une planète de culture, mais une bête étrange! J'ai vu de mes propres yeux cette créature se transformer en planète! »
+« Cette chose n'est pas une planète de culture, mais une bête étrange et féroce! J'ai vu de mes propres yeux cette créature se transformer en planète! »
 
 « Bien que cette chose ne semble pas avoir de capacités offensives, elle n'en demeure pas moins suspecte. Est-ce que ce Xu Mu nous a attirés ici pour utiliser cette bête contre nous? »
 

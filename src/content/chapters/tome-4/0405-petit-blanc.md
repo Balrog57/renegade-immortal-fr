@@ -42,7 +42,7 @@ Le jour où l'Âme Naissante de Li Muwan s'éveillerait serait le jour où l'âm
 
 S'il extrayait l'Âme Naissante de Li Muwan prématurément, il sauverait Zhou Ru, mais Li Muwan, elle, ne pourrait échapper à la mort.
 
-Après tout, l'Âme Naissante de Li Muwan était plongée dans un profond sommeil et était encore en convalescence; si elle était extraite maintenant, elle s'évanouirait à jamais.
+Après tout, l'Âme Naissante de Li Muwan était plongée dans un profond sommeil et était encore en convalescence; si elle était extraite maintenant, elle se dissiperait à jamais.
 
 Wang Lin savait qui était la plus importante dans son cœur. Il n'y avait aucune hésitation.
 
@@ -124,7 +124,7 @@ Pendant ses périodes de sommeil dues à la fièvre, elle appelait souvent Petit
 
 Bien qu'elle l'embêtât souvent, il occupait une place essentielle dans son cœur. Malgré la présence de Petit Violet désormais, Petit Blanc restait irremplaçable. Il était son ami, son seul véritable ami.
 
-Cependant, lorsque Wang Lin voulut partir à sa recherche, elle l'en empêcha. Elle le supplia en murmurant: « Si Petit Blanc veut partir, c'est son choix. Il doit avoir le droit de choisir. Il est plus chanceux que petite Zhou Ru... Ne va pas le chercher... »
+Cependant, lorsque Wang Lin voulut partir à sa recherche, elle l'en empêcha. Elle le supplia en murmurant: « Si Petit Blanc veut partir, c'est son choix. Il doit avoir le droit de choisir. Il est plus chanceux que petite Ru Er... Ne va pas le chercher... »
 
 Le cœur de Wang Lin fut transpercé par la douleur alors qu'il s'éloignait en silence. Il réfléchit à ce qu'il pourrait faire dans quatre ans pour les sauver toutes les deux, et élabora un plan.
 
@@ -142,7 +142,7 @@ Zhou Ru regarda le tigre, partagée entre la joie et la colère.
 
 Petit Blanc était désormais plus maigre et sa fourrure n'était plus du tout soignée. Des traces de blessures étaient visibles sur son corps et il avait perdu de sa superbe; il paraissait surtout épuisé.
 
-Une plaie profonde marquait même son ventre. Bien que la blessure fût déjà cicatrisée, des traces de sang souillaient encore sa fourrure.
+Une plaie profonde marquait même son ventre. Bien que la plaie fût déjà croûtée, du sang suintait encore et souillait sa fourrure.
 
 Petit Blanc déposa la branche au sol et lécha Zhou Ru. Puis, s'assurant avec précaution que Wang Lin n'était pas dans les parages, il tira sur les vêtements de la jeune fille avant de toucher le fruit posé sur le sol.
 

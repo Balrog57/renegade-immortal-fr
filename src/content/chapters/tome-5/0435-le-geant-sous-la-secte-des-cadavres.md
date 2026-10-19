@@ -31,13 +31,13 @@ De plus, d'après leurs échanges, Wang Lin comprit qu'elle ne se souciait guèr
 
 Cependant, pour Wang Lin, ce fragment d'âme du domaine était d'une utilité immense. C'était son atout pour faire face à une certaine personne.
 
-Zhu Quezi cultivait actuellement dans les montagnes arrières du Mont Suzaku. Un cristal rouge flottait devant lui. Ce cristal, en forme de cœur, était le Cœur de la Planète de Culture, l'instrument servant à contrôler le Cristal de la Planète de Culture.
+Zhu Quezi cultivait actuellement dans la zone interdite des montagnes arrières du Mont Suzaku. Un cristal rouge flottait devant lui. Ce cristal, en forme de cœur, était le Cœur de la Planète de Culture, l'instrument servant à contrôler le Cristal de la Planète de Culture.
 
 Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel regard n'apparaissait que rarement sur lui.
 
 « Yun Quezi, je ne hais pas le Clan des Immortels Délaissés, mais ma haine pour toi est immense! Traître, haha, quelle magnifique trahison! Bien que j'aie été blessé par ton attaque surprise, j'en ai ressenti de l'excitation. Qian Pinghai, si tu possèdes encore une âme, regarde bien: voici l'homme que tu as choisi!
 
-« Yun Quezi, nous avons grandi ensemble et possédons des talents similaires; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser? Il ne cessait de te louer, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il m'aurait tué à la moindre erreur.
+« Yun Quezi, nous avons grandi ensemble et possédons des talents similaires; alors pourquoi l'ancien Suzaku, Qian Pinghai, ne faisait-il que te favoriser? Il ne cessait de te louer, tandis qu'envers moi, il était toujours prompt aux critiques. Il me lançait sans cesse des regards glacials, comme s'il allait me tuer à la moindre erreur.
 
 « Quand il m'a transmis la Formation Mystérieuse de Suzaku, j'étais transporté par l'excitation et la gratitude. J'en ai même oublié mes amertumes passées, n'ayant qu'une seule pensée en tête: donner ma vie à la planète Suzaku et devenir un digne Suzaku.
 
@@ -45,7 +45,7 @@ Peu après, Zhu Quezi ouvrit les yeux. Une trace de folie y brillait. Un tel reg
 
 « Si je n'avais pas secrètement comploté pendant de longues années pour finalement dérober le Cœur de la Planète de Culture au dernier Suzaku lors de son trépas, je crains que le Suzaku de cette génération n'ait pas été moi.
 
-« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux renard, je n'ai pas enterré ton corps dans le Tombeau de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
+« Qian Pinghai, tu as été aveugle de nommer Yun Quezi comme prochain Suzaku à l'article de la mort! Si j'avais suivi tes ordres en remettant le Cœur de la Planète de Culture à Yun Quezi, la planète aurait été conquise par le Clan des Immortels Délaissés. Qian Pinghai, vieux bougre, je n'ai pas enterré ton corps dans le Tombeau de Suzaku, je l'ai vendu à la Secte des Cadavres! C'était le seul moyen d'apaiser ma haine envers toi.
 
 « Qian Pinghai, la vérité prouve que je suis l'homme le plus apte à devenir le prochain Suzaku. Tu t'es trompé à l'époque, tellement...
 
@@ -83,7 +83,7 @@ Ses yeux brillèrent, il laissa échapper un reniflement froid et marmonna pour 
 
 « J'aurai besoin de l'aide de ma sœur apprentie pour dévorer le domaine de Ceng Niu. Je devrai planifier cela avec soin! Une fois que j'aurai dévoré le domaine de cet homme et capturé ma sœur apprentie, je quitterai cette planète. L'univers est vaste et je serai libre de faire ce que je veux. Auparavant, le titre de Suzaku m'importait, mais maintenant que la planète est en plein chaos, ce titre ne me sert à rien! Cependant, avant de partir, je dois torturer à mort cette traînée de Zi Xin! »
 
-Un mois plus tard, une silhouette apparut près de la Secte des Cadavres, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage dégageait une aura antique.
+Un mois plus tard, une silhouette apparut près de la Secte des Cadavres, à Zhao. C'était un jeune homme vêtu d'une robe blanche, dont le visage trahissait un profond vécu.
 
 C'était Wang Lin.
 

@@ -94,6 +94,6 @@ Tout cela se produisit en un instant. Lorsque Wang Lin leva les mains, deux rugi
 
 Wang Lin leva les yeux, le regard brillant d'une lueur intense. Il s'élança dans les airs vers ces deux âmes de dragons.
 
-« Du Qing, je vais vous donner une chance. Contenez l'une des âmes de dragon pendant une demi-heure! » Les paroles de Wang Lin résonnèrent alors qu'il chargeait le dragon de lave formé par l'eau de mer.
+« Du Qing, je vais vous donner une chance. Contenez l'une des âmes de dragon pendant une heure! » Les paroles de Wang Lin résonnèrent alors qu'il chargeait le dragon de lave formé par l'eau de mer.
 
-L'expression de Du Qing changea brusquement et il serra les dents. Une lumière violette enveloppa son corps. Il prit sa forme de bois et marcha vers l'autre âme de dragon de feu enfantine.
+L'expression de Du Qing changea brusquement et il serra les dents. Une lumière violette enveloppa son corps. Il prit sa forme de bois et bondit vers l'autre âme de dragon de feu enfantine.

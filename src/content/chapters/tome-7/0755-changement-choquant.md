@@ -16,7 +16,7 @@ Li Yuan murmura: « Le frère Xu connaît cet objet? »
 
 Wang Lin secoua la tête et répondit calmement: « Je l'ignore, mais cela ressemble à quelque chose qu'un ami possédait. »
 
-Li Yuan n'insista pas, mais porta son regard sur l'arbre jouxtant le squelette et commença ses déductions. Un instant plus tard, ses mains formèrent un sceau et il pointa l'arbre. Les 18 Restrictions de Prunier apparurent aussitôt et chargèrent l'arbre.
+Li Yuan n'insista pas, mais porta son regard sur l'arbre jouxtant le squelette et commença ses déductions. Un instant plus tard, ses mains formèrent un sceau et il pointa l'arbre. Les Restrictions des 18 Pruniers apparurent aussitôt et chargèrent l'arbre.
 
 L'une après l'autre, les restrictions de prunier s'abattirent sur leur cible, puis l'espace autour de l'arbre commença à se distordre. D'innombrables ondulations surgirent, et même le squelette sous l'arbre sembla se tordre.
 

@@ -44,7 +44,7 @@ Wang Lin traversa le deuxième étage. Après une courte réflexion, il choisit 
 
 Il vola à toute allure et, un jour plus tard, atteignit l'extrémité nord du deuxième étage. De loin, il distinguait déjà l'accès au niveau suivant. L'endroit était jonché de cadavres et imprégné d'une odeur de sang, mêlée à une aura oppressante qui rappelait une intention meurtrière.
 
-Le vieil homme Hu était assis en tailleur près de l'entrée, les yeux clos et le visage marqué par la douleur. Derrière lui, Xu Luo semblait dans un état lamentable, son armure criblée de coups et de sang. La jeune fille avait les cheveux en bataille et trois entailles profondes sur le visage, comme si elle avait été griffée par une bête.
+Le vieil homme Hu était assis en tailleur près de l'entrée, les yeux clos et le visage marqué par la douleur. Derrière lui, Xu Luo semblait dans un état lamentable, son armure argentée criblée de coups et de sang. La jeune fille avait les cheveux en bataille et trois entailles profondes sur le visage, comme si elle avait été griffée par une bête.
 
 Qiu Siping était également présent; bien que son état fût moins critique, sa respiration était erratique, signe qu'il était blessé. Tous trois fixaient le vieil homme Hu avec effroi.
 

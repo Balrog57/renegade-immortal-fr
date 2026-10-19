@@ -22,7 +22,7 @@ Au neuvième mois de son périple en mer, Wang Lin fit face à la véritable col
 
 À chaque éclair, la mer s'illuminait. Durant ces brefs instants de clarté, on pouvait voir les vagues déferler; le fracas violent des flots rivalisait avec le tonnerre.
 
-Le vent hurlait sur la mer et percutait le navire. Chaque marin luttait férocement pour sa survie, manœuvrant ce navire marchand pour résister à la fureur de l'océan.
+Le vent hurlait sur la mer et percutait le navire, y projetant d'énormes paquets d'eau de mer. Chaque marin luttait férocement pour sa survie, manœuvrant ce navire marchand pour résister à la fureur de l'océan.
 
 Chacun priait. Tous voulaient laisser derrière eux leurs dernières paroles, de crainte qu'ils ne voient plus jamais le jour.
 
@@ -44,7 +44,7 @@ Pourtant, le navire marchand n'était qu'une feuille isolée dans la fureur de l
 
 Une aura de désespoir imprégna le navire et envahit les cœurs. Wang Lin lâcha le mât pour rejoindre les marins, faisant fi de son âge avancé. Il fit de son mieux pour résister à la rage de la mer.
 
-« N'abandonnez pas, nous avons encore de la force... » Un homme d'âge moyen afficha un sourire en agrippant une corde pour abaisser la voile. Les vagues passaient à ses côtés. En cet instant de vie ou de mort, il commença à entonner un chant de marin que tous connaissaient.
+« N'abandonnez pas, nous avons encore de la force... » Un homme d'âge moyen afficha un sourire amer en agrippant une corde pour abaisser la voile. Les vagues passaient à ses côtés. En cet instant de vie ou de mort, il commença à entonner un chant de marin que tous connaissaient.
 
 Un adolescent de moins de vingt ans essuya la sueur de son visage et rugit: « Ne désespérez pas, nous avons encore des rêves... » C'était comme s'il avait retrouvé par ce cri le courage qu'il avait perdu.
 
@@ -90,11 +90,11 @@ Au onzième mois de son voyage, le continent apparut à l'horizon. En le voyant,
 
 Wang Lin fit ses adieux à l'équipage qu'il avait côtoyé pendant près d'un an. Au crépuscule, emportant avec lui le chant des marins de cette nuit-là, il quitta le navire marchand pour débarquer sur ce continent inconnu.
 
-Il y avait ici de nombreux royaumes mortels, ainsi que de nombreuses sectes et des cultivateurs qu'il aurait pu reconnaître de ses rêves. Parmi ces pays, il y en avait un nommé Huo Fen.
+Il y avait ici de nombreux royaumes mortels, ainsi que de nombreuses sectes et des cultivateurs qui lui semblaient déjà familiers. Parmi ces pays, il y en avait un nommé Huo Fen.
 
 Wang Lin marcha calmement sur ce continent, de l'autre côté de la mer par rapport à sa patrie. Il contemplait les montagnes inconnues, les eaux étrangères et ces visages nouveaux au fil de sa marche.
 
-Bien qu'il ne soit jamais venu ici auparavant, son nom s'était répandu dans de nombreux lieux au cours des dix dernières années, y compris sur ce continent.
+Bien qu'il ne soit jamais venu ici auparavant, son nom s'était répandu dans de nombreux lieux au cours de plus de dix ans, y compris sur ce continent.
 
 Bien qu'il ne fût pas aussi célèbre que dans sa terre natale, Wang Lin s'en souciait peu. Il était un voyageur, et il continua de parcourir le continent, traversant montagnes, rivières, cités et royaumes.
 

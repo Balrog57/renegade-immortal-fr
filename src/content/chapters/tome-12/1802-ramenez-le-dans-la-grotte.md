@@ -10,27 +10,27 @@ Kang Ren effectua d'abord plusieurs fois le tour de la zone. Après avoir observ
 
 Il fixa Wang Lin, allongé là, et ses yeux furent envahis par une excitation et une cupidité qu'il ne pouvait dissimuler.
 
-« Un corps aussi puissant... C'est extrêmement rare pour quelqu'un qui n'est pas originaire du pays ancestral! À en juger par son apparence, il lui manque les étoiles entre les sourcils et il ne possède pas l'aura de ces brutes du pays ancestral. Cet homme ne doit pas être un cultivateur du pays ancestral! »
+« Un corps aussi puissant... C'est extrêmement rare pour quelqu'un qui n'est pas originaire du pays ancestral! À en juger par son apparence, il lui manque les étoiles entre les sourcils, il n'est pas l'un de ces Dieux Anciens réputés pour leur force, et il ne possède pas l'aura propre aux gens du pays ancestral. Cet homme ne doit pas être un cultivateur du pays ancestral! »
 
 « Pour qu'un cultivateur possède un corps aussi robuste, je me demande comment il y est parvenu! » Kang Ren se lécha les lèvres, son cœur battant de plus en plus vite. Il sentait que sa chance était enfin arrivée; c'était une fortune offerte par les cieux!
 
 Il ne s'attendait pas à ce qu'une telle aubaine lui tombe dessus alors qu'il ne faisait que survoler la région.
 
-« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte du Dragon Bleu! Si je parviens à attirer l'attention de l'Ancien Ancestral et à devenir son disciple, alors je pourrai défier les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
+« L'aura de cet homme a disparu et il est dans un état semi-mort, c'est parfait pour que je le transforme en marionnette. Avec une telle créature, je pourrai balayer tous les disciples de deuxième génération de la Secte du Dragon Bleu! Si je parviens à attirer l'attention de l'Ancêtre Ancestral et à devenir son disciple, alors je pourrai défier les cieux! » À ces pensées, l'excitation de Kang Ren monta d'un cran.
 
 Bien qu'exalté, il n'en oublia pas la prudence. Il s'arrêta à quelques centaines de pieds de Wang Lin, prêt à s'enfuir pour appeler sa secte si la situation tournait mal. Après tout, s'il ne pouvait s'approprier le butin, rapporter cette découverte à sa secte constituerait déjà un exploit majeur.
 
 Sa main droite traça un sceau et une fissure apparut sur son poignet avant de disparaître aussitôt. Un jade de couleur encre surgit, dégageant rapidement une aura violente.
 
-Tenant ce jade, Kang Ren le lança sans hésiter. L'objet vola vers Wang Lin et percuta sa poitrine. Dans un fracas sourd, le jade explosa, secouant la montagne et créant un impact puissant.
+Tenant ce jade, Kang Ren le lança sans hésiter. L'objet vola vers Wang Lin et percuta sa poitrine. Dans un fracas assourdissant, le jade explosa, secouant la montagne et créant un impact puissant.
 
 Sous le choc, Kang Ren recula de plusieurs milliers de pieds, l'éclat dans ses yeux s'intensifiant.
 
 « Il n'a pas riposté. Il est soit mort, soit inconscient! » Kang Ren esquissa un sourire rapide avant de charger et d'arriver instantanément aux côtés de Wang Lin.
 
-Bien que l'impact du jade fût puissant, il ne put en rien blesser Wang Lin. En vérité, même des dizaines ou des centaines de jades dotés de la puissance d'un cultivateur Purificateur du Nirvana n'auraient pas pu lui infliger la moindre égratignure.
+Bien que l'impact du jade fût puissant, il ne put en rien blesser Wang Lin. En vérité, même des dizaines ou des centaines de jades dotés seulement de la puissance d'un Purificateur du Nirvana n'auraient pas pu lui infliger la moindre égratignure.
 
-Quant au Cercueil d'Évitement Céleste, il était toujours protégé par Wang Lin et demeurait intact. Oubliez Kang Ren: même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre.
+Quant au Cercueil d'Évitement Céleste, il était toujours protégé par Wang Lin et demeurait intact. Sans parler de Kang Ren, même un cultivateur ayant traversé plusieurs Tribulations Arcanes aurait eu du mal à endommager le coffre ni à le séparer de Wang Lin.
 
 En s'approchant de Wang Lin, les yeux de Kang Ren se rétrécirent lorsqu'il aperçut le Cercueil d'Évitement Céleste derrière lui. Il vit la femme à l'intérieur. Bien qu'elle ne fût pas d'une beauté extrême, son apparence endormie fit naître des pensées impures dans son regard.
 
@@ -56,7 +56,7 @@ Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée 
 
 « Oh? Il s'agit donc du Frère Cadet Kang. Le brouillard était trop épais pour que je te reconnaisse. Le Frère Cadet n'était-il pas parti? Comment se fait-il que tu sois déjà de retour? Qu'as-tu capturé avec ton filet à marionnettes? » La voix était désinvolte, et un jeune homme bossu sortit de la vallée.
 
-Le jeune homme était très beau, mais sa bosse gâchait toute l'aura positive que son visage aurait dû dégager; il émanait de lui quelque chose de profondément anormal.
+Le jeune homme était très beau, mais sa bosse gâchait toute l'aura positive que son visage aurait dû dégager; il dégageait une impression profondément discordante.
 
 « Tu es trop curieux! » Kang Ren lâcha un reniflement méprisant et chargea dans la vallée. Le jeune homme bossu afficha une expression malveillante en observant la direction prise par Kang Ren.
 
@@ -118,4 +118,4 @@ Wang Lin reposait au milieu de la brume, entouré de flammes comme s'il brûlait
 
 À cet instant précis, Wang Lin ouvrit soudainement les yeux.
 
-Au moment où ses paupières se levèrent, le tatouage d'encre formé par le Roi Moustique sur son bras droit ouvrit également les yeux. Le regard du Roi Moustique était empreint d'une froideur terrifiante.
+Au moment où ses paupières se levèrent, le tatouage d'encre formé par le Roi Moustique sur son bras droit ouvrit également les yeux. Le regard du Roi Moustique était empreint d'une férocité terrifiante.

@@ -54,7 +54,7 @@ Le sang d'essence d'âme de Shang Guanmo était entre les mains de Wang Lin; si 
 
 Wang Lin ricana intérieurement, bondit en avant et atterrit à trois cents pieds devant Jie Donglei, le fixant froidement.
 
-« Ne maîtrises-tu pas le sortilège de mort? Laisse ce vieil homme voir la puissance de ton sortilège de mort! » Le corps de Jie Donglei disparut pour réapparaître à plus de trois cents pieds de Wang Lin.
+« Ne maîtrises-tu pas le sortilège de mort? Laisse ce vieil homme voir la puissance de ton sortilège de mort! » Le corps de Jie Donglei disparut pour réapparaître à trois cents pieds de Wang Lin.
 
 Dès que Jie Donglei disparut, Wang Lin recula jusqu'à être à cinq cents pieds du dragon. Jie Donglei disparut à nouveau et Wang Lin recula encore une fois, atteignant sept cents pieds. À cette distance, il commença à réfléchir.
 
@@ -98,4 +98,4 @@ Fort de cette réflexion, Wang Lin avait chargé jusqu'à trois cents pieds, pui
 
 Plus il s'éloignait de la tête du dragon, plus le niveau de culture du chef de secte chutait.
 
-L'expression de Jie Donglei était très troublante. Bien qu'il possède un tel niveau de culture, il ne pouvait pas réellement l'exploiter. Bien que la supposition de Wang Lin fût légèrement imprécise, elle n'était pas loin de la vérité. Son niveau de culture s'affaiblissait considérablement à neuf cents pieds, et à cette distance, ses chances de victoire étaient faibles. Et si Wang Lin reculait encore plus, au-delà de mille pieds, son niveau de culture chuterait immédiatement du stade de l'Âme Naissante pour retomber au stade de la Formation du Noyau.
+L'expression de Jie Donglei était très troublante. Bien qu'il possède un tel niveau de culture, il ne pouvait pas réellement l'exploiter. Bien que la supposition de Wang Lin fût légèrement imprécise, elle n'était pas loin de la vérité. Son niveau de culture s'affaiblissait considérablement au-delà de neuf cents pieds, et au-delà de mille pieds, ses chances de victoire étaient faibles. Et si Wang Lin reculait encore un peu, dès qu'il tenterait de le poursuivre, son niveau de culture retomberait immédiatement au stade de la Formation du Noyau.

@@ -56,7 +56,7 @@ Les cultivateurs environnants restèrent pétrifiés, le souffle coupé. Un sent
 
 Un cultivateur de la troisième étape allait passer à l'action; une telle bataille était un événement unique dans une vie. Il était si rare d'assister à un tel spectacle qu'ils ne pouvaient s'empêcher d'être transportés par l'émotion.
 
-« Neuf Extinctions du Brise-Ciel! » La voix de Maître Simo, calme, tonna à travers le monde. En un éclair, il se trouva à mille pieds de Wang Lin. Sans la moindre intention meurtrière ni froideur dans le regard, il agita sa main droite.
+« Neuf Extinctions du Brise-Ciel! » La voix de Maître Simo, calme, tonna à travers le monde. En un éclair, il ne se trouva plus qu'à moins de mille pieds de Wang Lin. Sans la moindre intention meurtrière ni froideur dans le regard, il agita sa main droite.
 
 « Première Extinction: le Ciel! » D'un geste, le ciel gronda et d'innombrables fissures spatiales apparurent, comme si la voûte céleste était déchirée de force. Ces cicatrices monstrueuses foncèrent droit sur Wang Lin.
 

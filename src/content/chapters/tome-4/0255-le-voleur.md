@@ -36,7 +36,7 @@ L'autre cultivateur s'accroupit pour fouiller une boîte dans un coin. Il poussa
 
 Il jeta précipitement l'objet et recula, comme s'il faisait face à une créature antique.
 
-En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur de la fin du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
+En réalité, il n'était pas surprenant qu'il ne puisse supporter la sculpture. Il s'agissait d'une représentation incomplète du Seigneur Démon des Six Désirs. Bien qu'incomplète, la pression spirituelle émanant de l'objet était celle d'un cultivateur du sommet du stade de l'Âme Naissante. Avec son niveau de culture de Formation du Noyau, il était incapable de résister.
 
 Heureusement, il l'avait lâchée à temps et la pression spirituelle de la sculpture ne s'était pas véritablement éveillée. Autrement, il n'aurait pas seulement perdu une simple bouchée de sang.
 
@@ -74,7 +74,7 @@ Sur ces mots, Wang Lin renvoya le sac de rangement vers le cultivateur d'un gest
 
 Au moment où ils allaient heurter la porte, celle-ci s'ouvrit et ils furent expulsés de la boutique.
 
-Cette poussée les propulsa sur plus de cinq kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
+Cette poussée les propulsa sur plus de dix kilomètres avant qu'ils ne parviennent à se stabiliser. Leurs regards trahissaient un choc et une horreur indicibles. À leurs yeux, la culture de ce jeune homme était bien trop puissante pour être mesurée.
 
 Après avoir réfléchi un instant, ils se considérèrent comme extrêmement chanceux et s'éclipsèrent rapidement. Ces deux cultivateurs étaient ceux du palais.
 
@@ -99,9 +99,9 @@ Il est à noter que durant ces deux ans, de nombreux voisins étaient venus voir
 
 Le second fils de la famille Xu s'était déjà marié et avait un enfant en bonne santé. Xu Tao revint présenter ses respects à Wang Lin. Il lui offrit cent pièces d'or, affirmant que cela venait du prince.
 
-En réalité, au cours de ces deux années, à chaque passage à la nouvelle année, Xu Tao apportait une quantité importante d'or et d'argent. Wang Lin ne le repoussait pas et acceptait tout.
+En réalité, au cours de ces deux années, à chaque passage à la nouvelle année, Xu Tao apportait une quantité importante d'or. Wang Lin ne le repoussait pas et acceptait tout.
 
-L'automne passa et l'hiver arriva. Le soleil se leva et se coucha. Durant ces deux dernières années, Wang Lin avait vu naître les jeunes et mourir les vieillards. Il ressentait une profonde mélancolie.
+Le printemps s'en alla et l'automne arriva. Le soleil se leva et se coucha. Durant ces deux dernières années, Wang Lin avait vu naître les jeunes et mourir les vieillards. Il ressentait une profonde mélancolie.
 
 En deux ans, il n'avait pratiqué la culture que deux fois. Il ne se souciait plus de son niveau de culture et ne le vérifiait presque plus. Quant à la substance rouge, il n'en restait qu'une fine couche. Le reste avait été condensé en trois perles rouges, conservées dans son sac de rangement.
 

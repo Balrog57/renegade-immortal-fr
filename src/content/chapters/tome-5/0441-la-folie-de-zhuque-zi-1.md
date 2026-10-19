@@ -18,9 +18,9 @@ Wang Lin regarda Situ Nan, sortit un morceau de jade et, après y avoir inscrit 
 
 Situ Nan attrapa le jade. En l'examinant, son expression changea radicalement. Il fixa Wang Lin et demanda: « C'est... la technique pour contrôler ce trésor céleste? »
 
-« C'est exact. Cette technique permet de maîtriser ce Char de Guerre de l'Extermination Divine. Je peux même te garantir que cette technique a été laissée par le créateur de ce trésor. » Wang Lin acquiesça et regarda Situ Nan avec un sourire qui n'en était guère un.
+« C'est exact. Cette technique permet de maîtriser ce Char de Guerre Divin. Je peux même te garantir que cette technique a été laissée par le créateur de ce trésor. » Wang Lin acquiesça et regarda Situ Nan avec un sourire qui n'en était guère un.
 
-Situ Nan rangea le jade, afficha un sourire espiègle et demanda: « Est-ce que tu comptes me donner ce Char de Guerre de l'Extermination Divine? »
+Situ Nan rangea le jade, afficha un sourire espiègle et demanda: « Est-ce que tu comptes me donner ce Char de Guerre Divin? »
 
 L'expression de Wang Lin resta imperturbable tandis qu'il formait un sceau de la main pour pointer le char. Un rayon de lumière noire s'échappa du char, se transforma en piège à bêtes et vola vers lui.
 
@@ -52,9 +52,9 @@ Zhu Quezi se tenait au sommet du Mont Suzaku. Sa robe rouge flottait au vent, ac
 
 Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s'était retiré en culture à huis clos. À présent, le seul cultivateur Ascendant de Suzaku était Zhu Quezi.
 
-Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, un soupçon de folie!
+Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, une véritable folie!
 
-« Cultivateurs de la planète Suzaku, je suis l'actuel Suzaku. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhuque balaya l'intégralité du continent Suzaku.
+« Cultivateurs de la planète Suzaku, je suis l'actuel Suzaku. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhu Quezi balaya l'intégralité du continent Suzaku.
 
 Tous les cultivateurs qui tenaient la défense poussèrent des soupirs en entendant cela et se dispersèrent pour sauver leur vie.
 
@@ -96,15 +96,15 @@ Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhou
 
 Ce premier ancêtre paraissait extrêmement ordinaire, et pourtant, d'un seul coup de paume, il avait fait fuir Chu Yuanfei. Sa puissance était comparable à celle d'un cultivateur Ascendant au stade avancé, voire, dans une certaine mesure, supérieure.
 
-Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de Culture Planétaire, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
+Yun Quezi dit d'une voix grave: « Frère aîné, notre objectif n'est pas de détruire la planète Suzaku, mais de trouver un moyen pour que nous puissions coexister. Si tu promets de remettre le Cristal de la Planète de Culture, nous pourrons arrêter cette guerre. Nous diviserons la planète en deux et ne nous dérangerons plus jamais! »
 
-Zhu Quezi laissa échapper un rire teinté de moquerie: « Si ce n'était pas parce que vous craignez que je détruise le Cristal de Culture Planétaire, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
+Zhu Quezi laissa échapper un rire teinté de moquerie: « Si ce n'était pas parce que vous craignez que je détruise le Cristal de la Planète de Culture, vous auriez déjà attaqué sans perdre de temps en ces futilités. »
 
 « Arrogant! » Les yeux du cinquième ancêtre s'illuminèrent; il frappa son front, faisant apparaître un tatouage. Il pointa ce dernier, cracha un peu de sang dessus et hurla: « Sceau! »
 
 Le tatouage se mit immédiatement à briller d'un rouge sanglant et fonça vers Zhu Quezi.
 
-Le cinquième ancêtre savait que Zhuque était puissant; ce n'était qu'une tentative pour tâter le terrain, il ne s'approcha donc pas davantage.
+Le cinquième ancêtre savait que Zhu Quezi était puissant; ce n'était qu'une tentative pour tâter le terrain, il ne s'approcha donc pas davantage.
 
 Le regard de Zhu Quezi devint glacial et il ricana. Il sembla d'abord qu'il n'allait pas réagir, mais soudain une lueur dorée enveloppa son corps. Des bruits de craquements retentirent alors que des fissures apparurent sur le tatouage, qui finit par voler en éclats peu après.
 

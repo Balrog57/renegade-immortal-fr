@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1325 - Projection Avatar
 slug: avatar-de-projection
 ---
-Des grondements tonitruants résonnèrent et l'espace lui-même bascula. Dans l'immensité spatiale, il n'y avait ni ciel ni terre, mais l'esprit de Wang Lin contenait son propre monde. À cet instant précis, une ombre apparut!
+Des grondements tonitruants résonnèrent et l'espace lui-même bascula. Dans l'immensité spatiale, il n'y avait ni ciel ni terre, mais l'esprit de Wang Lin contenait son propre monde. À cet instant précis, d'innombrables ombres apparurent autour de lui!
 
 Cette ombre ressemblait à un nuage. Elle tourbillonnait et grondait en se déployant. Puis, une partie du nuage s'affaissa pour devenir la terre! Le reste du nuage flotta vers le haut pour former le ciel!
 
@@ -14,7 +14,7 @@ Le ciel et la terre étaient apparus!
 
 Tout cela se produisit en un instant. Alors que la femme s'approchait avec son sortilège, Wang Lin agita la main, et la terre devint le ciel! Le ciel pivota et devint la terre! Même la femme en blanc ne put s'empêcher d'être emportée par ce mouvement!
 
-« Tu m'as suivi tout ce chemin pour tenter de me tuer, alors tu mérites de mourir! » La main droite de Wang Lin pressa impitoyablement vers le bas. La terre qui était devenue le ciel s'abattit avec fracas!
+« Tu m'as suivi tout ce chemin pour comploter contre moi, alors tu mérites de mourir! » La main droite de Wang Lin pressa impitoyablement vers le bas. La terre qui était devenue le ciel s'abattit avec fracas!
 
 Alors que la terre descendait, le monde trembla et une pression inimaginable surgit. L'expression de la femme en blanc changea radicalement!
 
@@ -28,7 +28,7 @@ Un moment plus tard, tout disparut. Le monde qui venait d'apparaître s'évanoui
 
 Le visage de la femme était pâle et une intention meurtrière remplissait ses yeux. Le jade flottant autour d'elle lui permettait de ne pas être anéantie par le Sceau d'Inversion Céleste!
 
-« Tu n'envoies qu'un simple avatar de projection avec seulement une culture de la troisième calamité du ciel et tu oses tenter de me tuer? Si ce n'était pas pour ton corps étrange qui rend difficile ta détection, je t'aurais déjà tuée! »
+« Tu n'envoies qu'un simple avatar de projection avec seulement une culture du troisième niveau du Fléau Céleste et tu oses tenter de me tuer? Si ce n'était pas pour ton corps étrange qui rend difficile ta détection et qui m'a effectivement tenue en échec un temps, je t'aurais déjà tuée! »
 
 « Depuis la première fois que je t'ai remarquée, je me posais une question. Si tu étais vraiment une cultivatrice du troisième pas, comment as-tu pu me laisser partir si facilement? Si tu possédais un corps réel, pourquoi n'ai-je pu sentir ton odeur alors que tu étais si proche? Et si tu avais un corps réel, pourquoi aurais-tu besoin d'un trésor pour résister au Sceau d'Inversion Céleste? » Wang Lin sourit. Ses paroles étaient comme des lames tranchant la femme en blanc.
 
@@ -60,7 +60,7 @@ Un grondement capable de faire trembler les cieux retentit et se propagea. L'omb
 
 En voyant le Bouclier de Lumière et d'Ombre de Wang Lin, les pupilles de la femme se rétractèrent! Elle recula précipitamment, mais l'épée noire fut trop rapide et vint frapper la barrière protégeant son corps!
 
-Des grondements tonitruants éclatèrent et son visage devint encore plus livide. Le jade protecteur s'assombrit davantage! Cependant, ce n'était pas terminé. Immédiatement après avoir renvoyé l'épée noire, Wang Lin chargea. Il leva la main droite et une monstrueuse lumière sanglante apparut. L'épée de sang se matérialisa dans sa main, et il frappa avec une violence sans merci!
+Des grondements tonitruants éclatèrent et son visage devint encore plus livide. Le jade protecteur s'affaiblit davantage! Cependant, ce n'était pas terminé. Immédiatement après avoir renvoyé l'épée noire, Wang Lin chargea. Il leva la main droite et une monstrueuse lumière sanglante apparut. L'épée de sang se matérialisa dans sa main, et il frappa avec une violence sans merci!
 
 « Meurs! »
 

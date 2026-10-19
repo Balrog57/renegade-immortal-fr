@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 675 - Situ Nan Enters Closed Door Cultivation Once More
 slug: situ-nan-reprend-sa-culture-en-isolement
 ---
-La mort de Huan Dong fut immédiatement détectée par la famille Huan. En tant que grande lignée établie sur une planète de culture principale, le massacre d'un membre de la famille provoqua un véritable tollé.
+La mort de Huan Dong fut immédiatement connue de la famille Huan. En tant que grande lignée établie sur une planète de culture principale, le meurtre d'un garde de la famille provoqua un véritable tollé.
 
-L'ancêtre de la famille Huan était furieux en apprenant la nouvelle; cependant, ses yeux s'illuminèrent soudainement et il réprima la proposition de la famille de chercher vengeance sur la planète Ran Yun. Au lieu de cela, il avança la date du rituel de lignée.
+L'ancêtre de la famille Huan, qui venait tout juste de rentrer, était furieux en apprenant la nouvelle; cependant, ses yeux s'illuminèrent soudainement et il réprima la proposition de la famille d'aller anéantir la planète Ran Yun. Au lieu de cela, il avança la date du rituel de lignée.
 
-« Le membre de la famille qui a été tué était sous la tutelle de Huan Mei; ainsi, après le rituel de lignée, laissez Huan Mei s'en charger personnellement! » Personne n'osa s'opposer à l'ancêtre de la famille Huan. Bien que tous sachent que c'était l'ancêtre qui permettait à Huan Mei d'étaler sa puissance, nul ne osa dire quoi que ce soit.
+« Le garde de la famille qui a été tué était sous la tutelle de Huan Mei; ainsi, après le rituel de lignée, laissez Huan Mei s'en charger personnellement! » Personne n'osa s'opposer à l'ancêtre de la famille Huan. Bien que tous sachent que c'était l'ancêtre qui permettait à Huan Mei d'étaler sa puissance, nul ne osa dire quoi que ce soit.
 
 L'affaire était réglée.
 
@@ -24,7 +24,7 @@ Liu Mei leva les yeux vers le ciel bleu et murmura: « Planète Ran Yun... Est-c
 
 « Après cela, la différence entre moi et cet homme de Suzaku deviendra plus grande. Dans les années à venir, une fois que j'aurai atteint la seconde étape et que je reverrai cette personne, j'ignore quel état d'esprit il aura. Cependant, à ce moment-là, il ne sera qu'une fourmi, tout comme ce Huan Dong... »
 
-Liu Mei esquissa un léger sourire. Son sourire était d'une beauté telle qu'il aurait fait rater un battement de cœur à n'importe qui. Une paire de gardes en patrouille la vit sourire et fut frappée de stupeur. Une obsession et un fanatisme soudain remplirent leurs yeux. Ces regards étaient étrangement similaires à ceux de Huan Dong.
+Liu Mei esquissa un léger sourire. Son sourire était d'une beauté telle qu'il aurait fait rater un battement de cœur à n'importe qui. Une patrouille de gardes de la famille la vit sourire et fut frappée de stupeur. Une obsession et un fanatisme soudain remplirent leurs yeux. Ces regards étaient étrangement similaires à ceux de Huan Dong.
 
 « Le Dao du Démon Céleste des Dix Mille Illusions peut plonger n'importe quoi au monde dans l'illusion... » Une brise légère souffla, faisant onduler ses cheveux noirs. Elle leva un doigt pour ramener une mèche en place.
 
@@ -54,7 +54,7 @@ De plus, des rugissements éclataient au travers du brouillard, comme pour avert
 
 Le dragon argenté déposa Wang Lin aux abords de la planète Yun Xia et il contempla le brouillard épais. Les yeux de Wang Lin s'illuminèrent; il frappa son sac de stockage et la Formation d'Épées aux Sept Étoiles s'en échappa. Elles commencèrent à pivoter rapidement, créant une puissante force spiralée.
 
-Enveloppé par cette force, Wang Lin fit un pas en avant et rangea la Boussole Stellaire. Il pénétra dans la brume, porté par la Formation d'Épées aux Sept Étoiles qui fendait le brouillard comme un pieu. La formation tournait avec célérité, repoussant tout le brouillard devant lui.
+Enveloppé par cette force, Wang Lin fit un pas en avant et rangea la Boussole Stellaire. Il pénétra dans la brume, porté par la Formation d'Épées aux Sept Étoiles qui fendait le brouillard comme une alêne. La formation tournait avec célérité, repoussant tout le brouillard devant lui.
 
 Cependant, cette brume était trop dense; même avec cette méthode, l'obscurité devant Wang Lin semblait infinie. De l'extérieur, on aurait dit que le brouillard avait englouti Wang Lin.
 
@@ -112,7 +112,7 @@ Une malédiction jaillit de la capitale, suivie par un homme vêtu de pourpre qu
 
 « Situ Nan, le Maître de Secte a déjà donné l'ordre! Tu es recherché sur la planète Luanfeng et sur toutes les planètes sous sa juridiction. Tu ne pourras pas t'échapper! »
 
-Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette vieille salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur cent mille pierres de jade et je les disperserai dans tout le Système Stellaire Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
+Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur cent mille pierres de jade et je les disperserai dans tout le Système Stellaire Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
 
 « Hmph! » Les deux femmes fusionnèrent immédiatement les deux sphères de lumière qu'elles tenaient. Les globes se fondirent instantanément pour prendre la forme d'une femme extrêmement séduisante.
 
@@ -120,6 +120,6 @@ Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à
 
 Situ Nan poussa un cri étrange; une flamme sembla brûler en lui alors qu'il s'élançait pour fuir. Bien qu'il ait chargé, il cracha une large bouchée de sang et son visage devint instantanément livide.
 
-« Vieille salope, attends un peu! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire Alliance voient ton comportement de séductrice! Je te rendrai très célèbre dans tout le Système Stellaire Alliance! Ce vieil homme tiendra sa promesse! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
+« Salope, attends un peu! Ce vieil homme fera en sorte que tous les cultivateurs et mortels du Système Stellaire Alliance voient ton comportement de séductrice! Je te rendrai très célèbre dans tout le Système Stellaire Alliance! Ce vieil homme tiendra sa promesse! » Situ Nan cracha une autre bouchée de sang et s'enfuit comme un dément.
 
 « Au pire, je n'aurai qu'à retourner en culture en isolement, tu n'as qu'à attendre! » Les yeux de Situ Nan étaient injectés de sang. Sa décision était prise: il retournerait en culture en isolement. S'il ne parvenait pas au stade du Scruteur du Nirvana, il ne ressortirait pas!

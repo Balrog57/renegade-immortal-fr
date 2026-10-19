@@ -42,7 +42,7 @@ Un grondement de tonnerre résonna à travers le monde. Ce fracas se propagea m�
 
 La sphère d'énergie s'effondra!
 
-Maître Fu Fengzi laissa échapper un sourire misérable et cracha une nouvelle bouchée de sang. À cet instant, un bruit de déchirure retentit tandis que d'innombrables blessures apparaissaient sur son corps, trempant instantanément ses vêtements de pourpre.
+Maître Fu Fengzi laissa échapper un sourire misérable et cracha une nouvelle bouchée de sang. À cet instant, un bruit de déchirure retentit tandis que d'innombrables blessures apparaissaient sur son corps, trempant instantanément ses vêtements.
 
 Des vagues de douleur inimaginable le frappèrent. Sans la persévérance extraordinaire acquise au fil de ses années de culture, il aurait hurlé de souffrance. Désormais, il ne pouvait que se sentir comme l'obscurité de la nuit, déchirée par la lumière du soleil ardent. Cette sensation devint si intense qu'il ne savait plus distinguer l'illusion de la réalité.
 
@@ -68,7 +68,7 @@ Maître Fu Fengzi lutta pour rugir tout en endurant la douleur, tentant d'attein
 
 Une multitude de trésors jaillirent de son sac dans une tentative désespérée d'endiguer la force qui déchiquetait son corps. Cependant, ces trésors étaient bien trop faibles et explosèrent tous dès leur apparition!
 
-Les yeux de Maître Fu Fengzi devinrent injectés de sang. En ce moment de vie ou de mort, sa montagne de chair qu'il avait si durement reconstruite disparut en une seconde. Une gigantesque tablette de pierre noire apparut instantanément devant lui.
+Les yeux de Maître Fu Fengzi devinrent injectés de sang. En ce moment de vie ou de mort, sa montagne de chair qu'il avait si durement reconstruite se contracta en une seconde jusqu'à n'être plus que peau et os. Une gigantesque tablette de pierre noire apparut instantanément devant lui.
 
 D'innombrables runes étaient gravées sur la tablette, et un immense python noir s'enroulait autour d'elle. Le serpent arborait une corne sur la tête; il était sur le point de devenir un véritable dragon!
 
@@ -80,7 +80,7 @@ Wang Lin était toujours assis au sommet du pic. Du début à la fin, il n'avait
 
 À l'instant où il prononça ces deux mots, le monde trembla. Le corps de Wang Lin se mua en soleil et la montagne devint mer. Le soleil s'éleva pleinement au-dessus des flots et une puissance infinie, capable de déchirer la nuit, balaya tout sur son passage!
 
-Le soleil se lève sur la mer, Nuit Brisée!
+Le soleil levant sur la mer fait naître la Nuit Brisée!
 
 La nuit s'effondra sous les assauts, déchirée en lambeaux. Elle fut... brisée!
 
@@ -94,7 +94,7 @@ La nuit n'existait plus et tout disparut. Tout revint à la normale, comme si ri
 
 « Même Maître ne peut pas utiliser un tel sort... »
 
-« C'est... c'est le sort qu'il a passé deux mois à comprendre... C'est terrifiant! Si un tel pouvoir m'était infligé, seule la mort me serait réservée! »
+« C'est... c'est le sort qu'il a passé plus de deux mois à comprendre... C'est terrifiant! Si un tel pouvoir m'était infligé, seule la mort me serait réservée! »
 
 « Maître Fu Fengzi est un cultivateur de Purificateur du Nirvana, et pourtant il a été contraint de battre en retraite. Si Senior Wang n'avait pas été dépourvu d'intention meurtrière, il aurait été presque impossible pour Maître Fu Fengzi d'échapper à ce désastre! »
 
@@ -118,7 +118,7 @@ Avant de partir, il adressa un signe de tête aux trois frères Chen et disparut
 
 Tout en méditant, Wang Lin apparut devant son palais et y pénétra.
 
-« Quel royaume était-ce donc... Bien que je n'y sois resté qu'un instant, j'ai pu comprendre la puissance qui déchire les ténèbres de la nuit: la Nuit Brisée. Cela peut être considéré comme le premier sortilège que j'ai créé! » Wang Lin mit Maître Fu Fengzi de côté et commença à réfléchir.
+« Quel royaume était-ce donc... Bien que je n'y sois resté qu'un instant, j'ai pu comprendre la puissance qui déchire les ténèbres de la nuit: la Nuit Brisée. Cela peut être considéré comme le premier sortilège que j'ai créé! » Wang Lin mit Maître Fu Fengzi de côté, s'assit en tailleur sur un coussin de jade pourpre et garda le silence.
 
 Il rejouait sans cesse la scène précédente, gravant progressivement l'essence de la Nuit Brisée dans son esprit.
 

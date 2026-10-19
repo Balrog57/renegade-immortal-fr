@@ -50,7 +50,7 @@ Cette fois, il fut totalement terrifié. Il suivait Wang Lin depuis de nombreuse
 
 Il craignait que s'il tardait trop, il n'aurait plus jamais l'occasion de parler.
 
-« Si ce n'était pas pour tout cela, ce geste n'aurait pas seulement gaspillé 30 % de ta culture, il t'aurait tué! » Les yeux de Wang Lin étaient froids. Il avait juré de bien traiter ce fou, et pourtant Xu Liguo avait osé désobéir! Comme il l'avait dit, si ce n'était pas parce que Xu Liguo le suivait depuis si longtemps, Wang Lin l'aurait déjà exécuté.
+« Si ce n'était pas pour tout cela, ce geste ne t'aurait pas seulement fait perdre 30 % de ta culture, il aurait anéanti ton âme! » Les yeux de Wang Lin étaient froids. Il avait juré de bien traiter ce fou, et pourtant Xu Liguo avait osé désobéir! Comme il l'avait dit, si ce n'était pas parce que Xu Liguo le suivait depuis si longtemps, Wang Lin l'aurait déjà exécuté.
 
 Son regard balaya Liu Jinbiao, qui se prosternait sans relâche, et une intention meurtrière traversa ses yeux.
 
@@ -94,10 +94,10 @@ Le fou paraissait toujours aussi lésé et bavardait sans cesse derrière lui. C
 
 « Le cœur humain est perfide, le cœur humain est perfide, ah... De plus, les pierres spirituelles et l'argent sont très importants, très importants. À l'avenir, si j'obtiens des pierres spirituelles ou de l'argent, je devrai les utiliser avec soin et ne pas les dépenser imprudemment... Je ne peux absolument pas les dépenser sans réfléchir... Pas du tout... »
 
-Même Wang Lin ne s'attendait pas à ce que cette expérience change un peu la personnalité du fou. Une fois qu'il posséderait des pierres spirituelles ou de l'argent, son avarice pourrait stupéfier n'importe qui!
+Même Wang Lin ne s'attendait pas à ce que cette expérience change un peu la personnalité du fou. Une fois qu'il posséderait des pierres spirituelles ou de l'argent, son avarice révolterait n'importe qui!
 
 En écoutant le bavardage derrière lui, Wang Lin retrouva progressivement son calme. Il se retourna vers le fou. Avec un tel débit, ce fou ressemblait vraiment à une certaine personne...
 
-Une personne qu'il n'avait rencontrée qu'une seule fois dans le Royaume Extérieur et dont il avait presque totalement oublié l'existence.
+Une personne qu'il n'avait rencontrée qu'une seule fois, sur une étoile antique du Royaume Extérieur et dont il avait presque totalement oublié l'existence.
 
 Wang Lin secoua la tête en souriant. Il trouva sa pensée absurde. Il ne s'attarda plus sur ce sujet et reprit sa marche lente vers la planète Suzaku.

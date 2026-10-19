@@ -36,7 +36,7 @@ Les trois restèrent silencieux un instant avant que les yeux de Li Xiangdong ne
 
 Les deux anciens hésitèrent un moment avant de le suivre. Lu Yanfei poussa un soupir et le suivit également. À mesure qu'ils s'enfonçaient, la source du bruit se rapprochait.
 
-À cet instant, le rugissement était déjà bien plus puissant que le tonnerre. De leur position actuelle, ils percevaient le son originel: un fracas assourdissant qui faisait trembler les cieux.
+À cet instant, le rugissement était déjà bien plus puissant que le tonnerre. De leur position actuelle, ils percevaient le son originel: un craquement assourdissant qui faisait trembler les cieux.
 
 Ce bruit ressemblait au craquement d'os brisés, provoquant une sensation de picotement dans chaque os de leur propre corps.
 
@@ -52,7 +52,7 @@ Même le corps de Lu Yanfei fut secoué, une traînée de sang s'échappant du c
 
 « Quel senior cultive ici? Ce junior est Li, de la Secte de l'Origine... » Li Xiangdong joignit les mains tout en reculant pour tenter de s'exprimer.
 
-« DISPARAISSEZ!! » Le Sens Divin se propagea à nouveau, mais avec une intensité et une fureur décuplées. Il forma une tempête qui fit vaciller le continent de Mo Luo tout entier.
+« DÉGAGEZ!! » Le Sens Divin se propagea à nouveau, mais avec une intensité et une fureur décuplées. Il forma une tempête qui fit vaciller le continent de Mo Luo tout entier.
 
 Une puissance déchaînée jaillit des profondeurs et chargea les quatre individus. Le corps de Li Xiangdong fut secoué et il cracha encore plus de sang. Sous l'impact de cette force, ils furent repoussés en ligne droite, comme si une puissance inimaginable les expulsait. Le sol trembla avant qu'ils ne soient projetés hors du sous-sol.
 
@@ -94,7 +94,7 @@ Durant ce processus de recondensation, l'énergie originelle du continent se mê
 
 Ce fragment de la taille d'un ongle continua de croître jusqu'à atteindre sept pouces de long. Cet os absorba une part considérable de l'énergie originelle stockée sur le continent de Mo Luo.
 
-L'os continuait sa croissance et forma bientôt un crâne incurvé d'environ cinq pieds de large. Une explosion de lumière noire jaillit de l'os: c'était la calamité osseuse qui broyait les os du Dieu Antique. La calamité détruisait sans cesse les os tandis que le corps original les reformait inlassablement. Ce cycle se poursuivit jusqu'à ce que les os du corps original atteignent un paroxysme de puissance.
+L'os continuait sa croissance et forma bientôt un crâne incurvé d'environ cinq pieds de large. Des lueurs noires scintillèrent sur l'os: c'était la calamité osseuse qui broyait les os du Dieu Antique. La calamité détruisait sans cesse les os tandis que le corps original les reformait inlassablement. Ce cycle se poursuivit jusqu'à ce que les os du corps original atteignent un paroxysme de puissance.
 
 Des rugissements silencieux résonnèrent alors que le crâne de cinq pieds commença à grandir. Finalement, toute l'énergie originelle du continent de Mo Luo fut absorbée, ne laissant plus rien derrière elle.
 

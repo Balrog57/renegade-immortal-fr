@@ -38,7 +38,7 @@ Que ce soit la Formation du Royaume Scellé ou la rétribution divine, ces deux 
 
 « Je refuse que cela soit! Je refuse que cela soit! Un jour viendra où une future génération de cultivateurs brisera cette formation et causera l'extinction de tous vous, les étrangers! Des rivières de sang couleront dans votre Royaume Extérieur! »
 
-La première fois qu'il avait entendu cette voix, elle avait enflammé le sang de Wang Lin et éveillé sa soif de sang. Après tout, il était né dans le Royaume Scellé, et le Royaume Scellé était son foyer!
+La première fois qu'il avait entendu cette voix, elle avait enflammé le sang de Wang Lin et éveillé sa fougue guerrière. Après tout, il était né dans le Royaume Scellé, et le Royaume Scellé était son foyer!
 
 La montagne de nuages s'effondra et la rotation des quatre épées fut stoppée par la lance blanche. En raison de l'immense quantité de nuages repoussés, le pavillon de jade blanc, qui s'extrayait constamment d'une fissure vers un autre monde, fut exposé.
 
@@ -52,7 +52,7 @@ La statue leva sa main et pressa doucement la fissure menant au vide où se trou
 
 Ces nuages entourèrent la statue, formant un vortex gigantesque. Les quatre épées tournoyaient à l'intérieur, faisant croître le vortex.
 
-Alors que la voix diffuse résonnait, la fissure où se trouvait le pavillon de jade blanc fut brusquement déchirée, révélant le monde intérieur!
+Alors que la voix diffuse résonnait, la fissure où se trouvait le pavillon de jade blanc fut brusquement déchirée, révélant ce qui se cachait à l'intérieur!
 
 À l'intérieur de la brèche, neuf planètes identiques formaient une formation dégageant la puissance du Royaume Céleste Antique!
 
@@ -72,7 +72,7 @@ Dès l'instant où il avait choisi de devenir un cultivateur défiant le ciel, i
 
 Un Dieu Ancien à six étoiles apparut devant la Formation du Royaume Scellé. Son corps de près de 10 000 pieds de haut faisait paraître Wang Lin comme un géant des temps antiques. Il protégea Li Qianmei et serra le poing en marchant vers les neuf palais!
 
-Rumble, rumble, rumble, rumble!
+Grondement, grondement, grondement, grondement!
 
 Au moment où il chargea, quatre de ses points de sang s'effondrèrent et le sang jaillit. Une aura destructrice envahit son corps.
 

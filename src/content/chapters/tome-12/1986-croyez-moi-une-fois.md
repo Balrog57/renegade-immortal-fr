@@ -14,7 +14,7 @@ Wang Lin fixa l'Enseignant Impérial et dit lentement: « Je me demande comment 
 
 « Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyréen Ming Dao, le plus grand génie de mon clan céleste, qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable!
 
-« Sa haine envers vous se transformera en une obsession pour vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et lui donner 40 % de chances de survivre à la douleur du retour ancestral, lui permettant ainsi d'extraire avec succès toute la puissance de son lignage pour se métamorphoser en une culture semblable à celle de l'Ancêtre Céleste!
+« Sa haine envers vous se transformera en une obsession pour vous tuer et vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et lui donner 40 % de chances de survivre à la douleur du retour ancestral, lui permettant ainsi d'extraire avec succès toute la puissance de son lignage pour se métamorphoser en une culture semblable à celle de l'Ancêtre Céleste!
 
 « À ce moment-là, il deviendra le second Ancêtre Céleste. L'Empereur Céleste a passé de nombreuses années à comploter contre l'Ascendant Empyréen Ming Dao. J'ignore encore ce que l'Empereur Céleste a fait pour qu'il soit si confiant de pouvoir contrôler le puissant Ming Dao une fois qu'il aura réussi le sort du Retour à l'Origine Ancestrale!
 
@@ -72,9 +72,9 @@ Le cristal sembla rencontrer une résistance devant Wang Lin avant de flotter de
 
 « Cet objet est le cristal de vie de mon clan. Une fois perdu, ma vie ne sera pas longue. Je vous le donne dans l'espoir que vous me croyiez. Aidez mon clan à obtenir sa liberté et à partir d'ici... pour rentrer chez nous... » La voix de l'Enseignant Impérial sonnait comme celle d'un être antique.
 
-Wang Lin réfléchit un instant, puis agita la main droite pour ranger immédiatement le cristal. Il leva les yeux vers l'Enseignant Impérial et hocha la tête.
+Wang Lin réfléchit un instant, puis agita la main droite pour ranger immédiatement le cristal, sans l'absorber aussitôt. Il leva les yeux vers l'Enseignant Impérial et hocha la tête.
 
-« Je ne comprends pas le Serment Astral Immortel, je ne connais que le serment de sang! » En parlant, Wang Lin leva la main et se mordit le doigt. Une goutte de sang jaillit, chargée de l'aura de Wang Lin. Cette aura était si puissante que si elle devait exploser en une brume écarlate, il serait difficile pour quiconque de déterminer si cette essence appartenait au véritable Wang Lin ou non!
+« Je ne comprends pas le Serment Astral Immortel, je ne connais que le serment de sang! » En parlant, Wang Lin leva la main et se fit une entaille au doigt. Une goutte de sang jaillit, chargée de l'aura de Wang Lin. Cette aura était si puissante que si elle devait exploser en une brume écarlate, il serait difficile pour quiconque de déterminer si cette essence appartenait au véritable Wang Lin ou non!
 
 « Si ce que vous dites est vrai, alors je vous aiderai une fois! » Les paroles de Wang Lin pénétrèrent la goutte de sang qui se mit à briller. Wang Lin fit un geste de la main et elle s'immobilisa devant l'Enseignant Impérial.
 

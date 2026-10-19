@@ -54,7 +54,7 @@ Sous ce regard, l'émissaire se plaignit une fois de plus amèrement dans son fo
 
 « Trop gourmand... Ceci... ceci est... » L'émissaire dut afficher un sourire de façade. Sa main droite tremblait et il serra les dents. Il sortit une autre pierre de jade en forçant un sourire.
 
-« Je possède quelques biens immobiliers dans le Continent Central... » Son cœur se contracta violemment lorsqu'il tendit ce nouveau jade à Wang Lin.
+« Je possède encore une propriété dans la capitale du Continent Central... » Son cœur se contracta violemment lorsqu'il tendit ce nouveau jade à Wang Lin.
 
 Après avoir pris cette pierre, Wang Lin esquissa lentement un sourire. En voyant ce sourire, l'émissaire poussa un grand soupir de soulagement.
 
@@ -70,7 +70,7 @@ Wang Lin rangea la pierre de jade et demanda avec désinvolture: « Dao Fei est-
 
 « Le Prince Dao Fei s'est réveillé et voulait quitter la cité, mais l'Empereur l'en a empêché. » Ce n'étaient que des rumeurs, l'émissaire estimait donc qu'il n'y avait aucun mal à en parler.
 
-« Oh, j'ai sauvé Dao Fei autrefois et je l'ai aidé », sourit Wang Lin.
+« Oh, Dao Fei et moi nous connaissons, et je lui ai autrefois rendu quelques services », sourit Wang Lin.
 
 L'émissaire hocha rapidement la tête. Il l'avait remarqué en lisant l'édit, et maintenant que Wang Lin le confirmait, il en était d'autant plus certain.
 

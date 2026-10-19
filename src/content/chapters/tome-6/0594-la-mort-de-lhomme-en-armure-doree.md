@@ -28,7 +28,7 @@ Lorsque le corps de l'homme en armure dorée percuta violemment le tambour, une 
 
 La main droite de Wang Lin portait toute la tristesse de son cœur!
 
-C'était l'attaque ultime qu'il utiliserait durant le stade de la Transformation de l'Âme. Par ce coup, il allait expulser toute la tristesse qui l'habitait!
+C'était l'attaque ultime qu'il utiliserait durant le stade de la Transformation de l'Âme. Par ce coup, il allait expulser toutes ses pensées parasites et toute la tristesse qui l'habitait!
 
 Au moment où l'homme en armure dorée heurta le tambour démoniaque, toute la tristesse contenue dans le bras droit de Wang Lin jaillit. Elle transperça le corps de l'homme pour s'engouffrer dans le tambour.
 
@@ -44,7 +44,7 @@ Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement b
 
 Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
 
-Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité Démon Céleste et percer le vide.
+Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité du Démon Céleste et percer le vide.
 
 Mais il baissa rapidement la tête, faisant mine que de rien n'était.
 
@@ -52,9 +52,9 @@ Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet i
 
 Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois!
 
-Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin celui qui avait frappé le plus de coups dans toute l'histoire du Pays Démon Céleste!
+Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin, officiellement, celui qui avait frappé le plus de coups dans le Pays Démon Céleste!
 
-Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration d'air glacial. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
+Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
 
 Les spectateurs lucides ne regardaient plus Wang Lin avec choc, mais avec respect!
 
@@ -64,11 +64,11 @@ Parmi les généraux démons, le silence était total. Mo Lihai fixa la silhouet
 
 Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une odeur de sang, il exhalait aussi une tristesse inimaginable. Cette mélancolie se fusionna avec le rythme et fut propagée aux quatre vents par l'instrument.
 
-À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité Démon Céleste!
+À cet instant, les éclairs dansaient comme des serpents d'argent dans le ciel et le tonnerre grondait violemment. Mais lorsque le quinzième coup retentit, tout sembla ne faire qu'un. Le tonnerre impétueux parut absorber la tristesse du tambour. Une émotion indicible émana alors de la foudre et des percussions, embrassant le ciel et affectant toute la Cité du Démon Céleste!
 
 Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de culture défiant les cieux!
 
-Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse du ciel et de la terre elle-même! Tous les habitants de la Cité Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
+Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse du ciel et de la terre elle-même! Tous les habitants de la Cité du Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
 
 Sur le bateau, la femme qui jouait de la cithare, touchée par cette mélancolie, commença à jouer une mélodie empreinte de douceur.
 

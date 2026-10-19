@@ -34,7 +34,7 @@ Les deux hommes échangèrent un sourire. Ne perdant plus de temps en paroles, i
 
 Le ciel n'était pas le seul endroit où des fissures spatiales pouvaient apparaître; certaines surgissaient même au sol. Cependant, grâce à leur prudence extrême, ils avancèrent sans encombre vers la vallée qui se dessinait devant eux.
 
-La vallée était bordée de montagnes couvertes d'une végétation dense. En chemin, Wang Lin s'arrêta, observa la montagne et resta pensif. Il posa sa main droite contre la paroi rocheuse et déploya rapidement son Sens Divin.
+La vallée était bordée de montagnes couvertes de nombreux arbres. En chemin, Wang Lin s'arrêta, observa la montagne et resta pensif. Il posa sa main droite contre la paroi rocheuse et déploya rapidement son Sens Divin.
 
 Lorsqu'il avait survolé les lieux plus tôt, Li Yuan avait aperçu deux montagnes et trois vallées. À l'instant présent, Wang Lin contemplait la montagne, ressentant une aura similaire à celle de la Montagne Céleste qu'il gardait dans sa sacoche.
 
@@ -56,7 +56,7 @@ L'expression de Wang Lin ne changea pas alors que le garde céleste derrière lu
 
 Une série d'explosions fracassantes retentit. Malgré la puissance physique du garde céleste, il fut repoussé par les projectiles. Ce n'est que lorsque le garde fut expulsé hors de la vallée que la brume finit par se stabiliser.
 
-Li Yuan s'en trouva confus. Il n'était pas un homme téméraire, mais il avait été trop sûr de ses capacités en matière de restrictions. Il esquissa un sourire amer: « Le propriétaire de cet espace de stockage était bien insidieux. Cette restriction a manifestement été conçue pour piéger ceux qui, comme moi, ont une confiance aveugle dans leurs talents. »
+Li Yuan en ressentit de la honte. Il n'était pas un homme téméraire, mais il avait été trop sûr de ses capacités en matière de restrictions. Il esquissa un sourire amer: « Le propriétaire de cet espace de stockage était bien insidieux. Cette restriction a manifestement été conçue pour piéger ceux qui, comme moi, ont une confiance aveugle dans leurs talents. »
 
 Les yeux de Wang Lin s'animèrent et, d'une simple pensée, il commanda au garde céleste de charger à nouveau. Cette fois, son corps irradiait une lueur dorée. Dès qu'il franchit le seuil de la vallée, il lança un coup de poing dévastateur. L'impact créa un vortex colossal qui aspira instantanément toutes les flèches de brume qui fonçaient sur lui.
 
@@ -114,7 +114,7 @@ Wang Lin n'avait pu atteindre cette distance qu'en empruntant la force du garde 
 
 Son corps flamboya de rouge sang, sa célérité augmentant encore. Il brilla une seconde fois, devenant plus rapide encore. En un clin d'œil, son corps émit neuf éclats de lumière rouge, atteignant une vitesse comparable à la téléportation.
 
-Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait la Grande Perfection de l'Ascendant, sous peine de voir son corps exploser.
+Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait le sommet du stade avancé de l'Ascendant, sous peine de voir son corps exploser.
 
 En un instant, la silhouette de Wang Lin apparut à l'entrée de la seconde vallée. Le visage pâle, il faillit s'effondrer. D'un geste de la main droite, il fit revenir l'Écran des Montagnes et des Rivières.
 

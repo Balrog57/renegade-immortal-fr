@@ -8,17 +8,17 @@ slug: le-sixieme-etage
 ---
 Bien que les trésors du Vide fussent rares, il en restait encore quelques-uns. Chaque vieux monstre briseur de Nirvana chérissait grandement un tel trésor. Après tout, la méthode pour les produire était perdue et ils ne pouvaient être réparés; une fois brisés, ils perdaient une immense partie de leur puissance.
 
-En réalité, certains trésors « Pseudo-Nirvana » du Vide n'étaient pas véritablement de cette catégorie; c'étaient simplement des trésors du Vide un peu plus puissants, et l'appellation « Pseudo-Nirvana » n'était qu'une question de prestige.
+En réalité, certains trésors « Pseudo-Vide du Nirvana » n'étaient pas véritablement de cette catégorie; c'étaient simplement des trésors du Vide un peu plus puissants, et l'appellation « Pseudo-Vide du Nirvana » n'était qu'une question de prestige.
 
 Pour les vieux monstres briseurs de Nirvana ordinaires, les trésors du Vide représentaient déjà le summum, et ils feraient n'importe quoi pour en obtenir. Cependant, pour ceux qui trônaient au sommet, bien que ces trésors fussent toujours précieux, ils ne manquaient point de ce genre d'objets.
 
-En vérité, aucun des trésors de ce monde ne saurait captiver leur attention. Ce qu'ils poursuivaient, c'était la manière de transcender le deuxième échelon pour atteindre le légendaire troisième échelon dont ils rêvaient tous.
+En vérité, aucun des trésors de ce monde ne saurait captiver leur attention. Ce qu'ils poursuivaient, c'était la manière de transcender la deuxième étape pour atteindre la légendaire troisième étape dont ils rêvaient tous.
 
-Toutefois, ce troisième échelon était bien trop éthéré et le chemin bien trop vague. On ne pouvait qu'attendre que les cinq Fléaux Célestes arrivent l'un après l'autre. Finalement, on ne devenait qu'un grain de sable parmi les vagues avant de mourir.
+Toutefois, cette troisième étape était bien trop éthérée et le chemin bien trop vague. On ne pouvait qu'attendre que les cinq Fléaux Célestes arrivent l'un après l'autre. Finalement, on ne devenait qu'un grain de sable parmi les vagues, avant de mourir et de retourner au néant.
 
-Pour ces vieux monstres ayant vécu si longtemps, atteindre le troisième échelon n'était plus un simple rêve ou un espoir, mais une nécessité pour survivre. Seul le pouvoir du troisième échelon permettrait d'endurer les cinq Fléaux Célestes; sans quoi, seule la mort les attendait.
+Pour ces vieux monstres ayant vécu si longtemps, atteindre la troisième étape n'était plus un simple rêve ou un espoir, mais une nécessité pour survivre. Seul le pouvoir de la troisième étape permettrait d'endurer les cinq Fléaux Célestes; sans quoi, seule la mort les attendait.
 
-À cet instant précis, un cultivateur issu du système sous le Royaume Céleste du Vent était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint le troisième échelon, il avait déjà surmonté le quatrième Fléau Céleste!
+À cet instant précis, un cultivateur issu du système sous le Royaume Céleste du Vent était arrivé dans le Système Stellaire de l'Alliance. Bien qu'il n'ait pas atteint la troisième étape, il avait déjà surmonté le quatrième Fléau Céleste!
 
 Les cinq Fléaux Célestes étaient des épreuves que tout cultivateur briseur de Nirvana devait affronter. Chaque fois qu'un Fléau était surmonté, sa force augmentait considérablement. Cependant, ces épreuves étaient si ardues que l'échec signifiait une mort immédiate!
 
@@ -26,17 +26,17 @@ La raison pour laquelle cet individu avait pu franchir le quatrième Fléau Cél
 
 Malgré cela, les vieux monstres briseurs de Nirvana avaient trouvé des traces de trésors supérieurs aux trésors du Vide, mais juste en dessous de ceux du Nirvana.
 
-Il s'agissait des trésors « Pseudo-Nirvana » du Vide!
+Il s'agissait des trésors « Pseudo-Vide du Nirvana »!
 
 Bien que ces derniers ne fussent pas aussi rares que les trésors du Nirvana, il n'en existait qu'une quantité dérisoire. La quasi-totalité se trouvait entre les mains de cultivateurs briseurs de Nirvana au sommet de leur puissance.
 
-La condition pour rejoindre le groupe des Anciens de l'Alliance était de posséder un trésor « Pseudo-Nirvana » du Vide!
+La condition pour rejoindre le groupe des Anciens de l'Alliance était de posséder un trésor « Pseudo-Vide du Nirvana »!
 
 Outre leur puissance extrême, ces trésors jouaient également un rôle crucial pour aider un cultivateur à résister aux cinq Fléaux Célestes.
 
-Les trésors « Pseudo-Nirvana » du Vide étaient eux-mêmes divisés en différentes qualités: basse, moyenne, haute et supérieure, comme les trésors ordinaires. Après tout, ces objets avaient été laissés par des ancêtres; leurs descendants ne savaient même pas comment les fabriquer, et encore moins comment les catégoriser correctement.
+Les trésors « Pseudo-Vide du Nirvana » étaient eux-mêmes divisés en différentes qualités: basse, moyenne, haute et parfaite, comme les trésors ordinaires. Après tout, ces objets avaient été laissés par des ancêtres; leurs descendants ne savaient même pas comment les fabriquer, et encore moins comment les catégoriser correctement.
 
-« Il peut absorber l'intention meurtrière d'un cultivateur, générer une illusion et posséder une telle puissance... Le trésor entre les mains de Wang Lin pourrait être un Pseudo-Nirvana de haute qualité, voire de rang supérieur! » La belle femme eut un souffle coupé, la terreur brillant dans ses yeux.
+« Il peut absorber l'intention meurtrière d'un cultivateur, générer une illusion et posséder une telle puissance... Le trésor entre les mains de Wang Lin est au moins un Pseudo-Vide du Nirvana de haute qualité, et il pourrait même s'agir d'un Pseudo-Vide du Nirvana parfait! » La belle femme eut un souffle coupé, la terreur brillant dans ses yeux.
 
 Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit à l'extérieur. L'homme en noir bondit immédiatement entre les statues et imita Wang Lin pour quitter les lieux. Maître du Vide et la belle femme s'envolèrent également.
 
@@ -44,7 +44,7 @@ Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit �
 
 « Un cultivateur briseur de Nirvana est étonnamment difficile à tuer. Maître du Vide est gravement blessé, mais il n'est pas encore mort! Il y a aussi cette belle femme, et maintenant... » En apparaissant, Wang Lin cracha immédiatement une bouchée de sang, montrant un signe de fatigue inhabituel.
 
-« Cependant, cette épée de fer dépassait mon imagination. Je ne pensais pas qu'elle posséderait une telle puissance. Si je pouvais obtenir les cinq épées de fer pour compléter les fourreaux et les utiliser... » Wang Lin prit une profonde inspiration et secoua la tête. S'il tentait de les utiliser simultanément, il serait probablement épuisé en un instant!
+« Cependant, cette épée de fer dépassait mon imagination. Je ne pensais pas qu'elle posséderait une telle puissance. Si je pouvais obtenir les cinq épées de fer pour compléter les fourreaux et les utiliser... » Wang Lin prit une profonde inspiration et secoua la tête. S'il tentait de les utiliser simultanément, il serait probablement réduit à une coquille desséchée en un instant!
 
 Il rengaina l'épée de fer et la rangea dans sa sacoche. Wang Lin sortit quelques pilules et les avala. Sans attendre qu'elles soient digérées, il serra les dents et avança.
 
@@ -54,7 +54,7 @@ Il était à bout de forces et n'avait pu terroriser l'homme en noir et la belle
 
 Après une profonde inspiration, Wang Lin traversa les diverses restrictions et atteignit bientôt l'un des yeux de restriction marqués sur la carte. Après un examen rapide, il confirma immédiatement sa supposition: quelqu'un était arrivé ici avant lui et avait brisé l'œil de restriction. Il ignorait à quel étage ces individus avaient déjà progressé.
 
-Il traîna son corps épuisé vers le palais central entouré d'une brume noire. Les six premiers étages de la Grotte de l'Empereur Céleste présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
+Il traîna son corps épuisé vers le palais central entouré de brume. Les six premiers étages de la Grotte de l'Empereur Céleste présentaient une structure similaire. Grâce à sa connaissance des lieux, bien qu'il fût plus lent que d'habitude, il atteignit rapidement le centre du deuxième étage, là où se trouvait l'entrée du troisième.
 
 Au même moment, l'homme en noir, la belle femme et Maître du Vide, lourdement blessé, arrivèrent également au deuxième étage.
 
@@ -80,7 +80,7 @@ Ce qui lui coûta le plus de temps fut la traversée des palais centraux de chaq
 
 Si cela avait été tout, ce ne serait pas si grave, mais après le quatrième étage, la carte indiquait également de nombreux espaces de stockage. Wang Lin n'était pas disposé à les ignorer et les explora tous. La plupart avaient déjà été pillés, mais quelques-uns restaient intacts. Wang Lin rangea tout ce qu'il trouva dans sa sacoche. La simple pensée de sa récolte de ces deux mois l'excitait au plus haut point.
 
-Il fut lui-même stupéfait par le contenu de ces espaces. En ce qui concernait les jades célestes, Wang Lin en possédait assez pour approvisionner une secte pendant mille ans.
+Il fut lui-même stupéfait par le contenu de ces espaces. En ce qui concernait les jades célestes, Wang Lin en possédait assez pour fonder une secte et en approvisionner les disciples pendant mille ans.
 
 Il y avait bien d'autres trésors. Du point de vue de Wang Lin, ces lieux étaient des points de stockage stratégiques mis en place par l'Empereur Céleste Qing Lin, et ils avaient manifestement un but précis.
 

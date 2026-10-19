@@ -20,7 +20,7 @@ Cependant, la rumeur veut que ce parchemin détienne la véritable raison de l'e
 
 Qing Shui, nous ne sommes pas ennemis! Si ces raisons vous déplaisent toujours, alors ne disons plus rien et en décidons par le combat. Je ne me retiendrai pas et j'utiliserai toute la puissance de ce trésor magique! » Une lueur d'intention meurtrière traversa les yeux du Maître Yan Leizi. Les quarante-neuf fragments cessèrent soudainement de tourner, mais une aura terrifiante s'en échappa.
 
-Qing Shui regarda froidement le Maître Yan Leizi, tandis qu'une aura glaciale se propageait lentement autour de lui. Le cœur du Maître Yan Leizi sombra et il poussa un soupir. Il avait vraiment tout tenté. Durant des dizaines de milliers d'années, il avait épluché les archives du Royaume Céleste pour traquer les causes et les conséquences de nombreux événements. Finalement, il s'était lancé dans le raffinage du Royaume Céleste et l'obtention du Royaume Ji pour l'assister.
+Qing Shui regarda froidement le Maître Yan Leizi, tandis qu'une aura glaciale se propageait lentement autour de lui. Le cœur du Maître Yan Leizi sombra et il poussa un soupir. Il avait vraiment tout tenté. Durant des dizaines de milliers d'années, il avait épluché les archives du Royaume Céleste pour traquer les causes et les conséquences de nombreux événements. Finalement, il s'était lancé dans le raffinage du Royaume Céleste et l'obtention du Royaume Ji, puis la recherche d'alliés.
 
 Hélas, il ne s'attendait pas à ce que le résultat soit tel qu'il se présentait.
 
@@ -60,7 +60,7 @@ Alors qu'il volait, Wang Lin était incapable de fusionner avec le monde. Il dev
 
 La silhouette de Wang Lin vacilla alors qu'il esquivait une faille spatiale, puis, comme si un éclair l'avait frappé, ses yeux s'illuminèrent. Il se remémora soudainement ce que Shengong Hu lui avait dit des années auparavant lors de sa présentation du Royaume Céleste du Tonnerre.
 
-« Je dois trouver Shengong Hu immédiatement! » Wang Lin ferma les yeux et chercha Shengong Hu en utilisant l'âme dao qui lui restait. Après un instant, il fonça dans une direction précise.
+« Je dois trouver Shengong Hu immédiatement! » Wang Lin ferma les yeux et chercha Shengong Hu en se servant de l'âme dao de Shengong Hu qu'il portait en lui. Après un instant, il fonça dans une direction précise.
 
 Shengong Hu traversait rapidement le Royaume Céleste. Bien que la porte céleste fût détruite, il connaissait un autre moyen de quitter ces lieux.
 

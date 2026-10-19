@@ -50,7 +50,7 @@ Les yeux de Wang Lin étaient rouges sang. À ce moment précis, il avait déjà
 
 Il s'élança soudainement hors du bassin de sang en poussant un rugissement tonitruant. Il chargea vers ceux qui s'entre-tuaient, tel un tourbillon sanglant.
 
-Une voie de massacre venait de s'ouvrir!
+Le massacre venait de commencer!
 
 Wang Lin avait perdu conscience et était totalement immergé dans l'acte de tuer. Chaque attaque visait la mort; le doigt de la mort, le doigt démoniaque et divers trésors étaient utilisés sans relâche.
 
@@ -72,7 +72,7 @@ Le massacre cessa silencieusement. Chacun d'eux était entouré d'une intense au
 
 Sans même se regarder, ils se dispersèrent pour chercher un bassin de sang. Ceux qui venaient de ressusciter s'écartaient immédiatement, permettant aux autres de disposer d'un bassin pour eux seuls.
 
-Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de dix mètres vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe d'admiration perçant dans leurs regards injectés de sang.
+Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de dix mètres vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe de révérence perçant dans leurs regards injectés de sang.
 
 Wang Lin s'assit seul dans le bassin et ferma les yeux. Après un long moment, il les rouvrit. Le rouge qui embrasait son regard disparut peu à peu pour laisser place à la clarté.
 
@@ -92,4 +92,4 @@ Une fois le dernier massacre terminé, ce jeune homme royal leva soudainement la
 
 Cela força la brume de sang de chacun à quitter son corps pour être aspirée par le dragon argenté.
 
-Le jeune homme semblable à un roi poussa un rugissement et chargea directement le dragon. Cependant, alors qu'il n'avait parcouru que 3,3 kilomètres, le dragon argenté se retourna. D'un seul regard du dragon, le corps du jeune homme s'effondra. Sa brume de sang fut aspirée par la créature, puis le dragon argenté disparut.
+Le jeune homme semblable à un roi poussa un rugissement et chargea directement le dragon. Cependant, alors qu'il n'avait parcouru que 3,3 kilomètres, le dragon argenté se retourna. D'un seul regard du dragon, le corps du jeune homme s'effondra, réduit à une bouillie sanglante. Sa brume de sang fut aspirée par la créature, puis le dragon argenté disparut.

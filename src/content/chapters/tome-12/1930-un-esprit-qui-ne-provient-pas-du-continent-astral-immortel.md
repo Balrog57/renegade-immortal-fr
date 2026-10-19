@@ -26,11 +26,11 @@ Par ce geste, les 97 images rémanentes fusionnèrent avec le corps de Wang Lin,
 
 Le doigt apparut et pointa vers l'Exalté Empyréen Hai Zi!
 
-Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors écrasé l'ancêtre de la Secte du Dao Démoniaque, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
+Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors fait reculer en catastrophe l'ancêtre de la Secte du Dao Démoniaque, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
 
 Même le Sens Divin du Grand Empyréen Dao Yi avait dû intervenir pour repousser le coup dévastateur de Wang Lin!
 
-Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années et avait pris le contrôle total de sa puissance. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure!
+Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années, avait assimilé pleinement la puissance soudainement acquise au Temple du Scorpion et en avait pris le contrôle total. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure!
 
 Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art Magique Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis!
 
@@ -46,9 +46,9 @@ Le visage de Wang Lin était pâle. Ce geste contenait toute sa puissance. Aprè
 
 « Il n'y a aucune haine entre nous, je ne veux pas vous tuer! » Wang Lin regarda l'Exalté Empyréen Hai Zi pétrifiée, puis disparut dans les profondeurs de la mer.
 
-À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalté Empyréen, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyréen pouvait l'anéantir d'un simple coup de poing.
+À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalté Empyréen suprême, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un simple fragment de Sens Divin d'un Grand Empyréen pouvait le briser d'un coup de poing.
 
-Cependant, maintenant, sans même avoir besoin de ses avatars, il pouvait fusionner neuf sorts dans son propre corps. Puis, grâce au pouvoir de compression mystérieux de ses avatars, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant!
+Cependant, maintenant, son corps propre ne pouvait pas être compté comme un Corps Véritable : il pouvait fusionner neuf sorts en lui. Mais s'il était considéré comme un Corps Véritable, grâce au pouvoir de compression mystérieux de celui-ci, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant!
 
 Auparavant, c'était une troupe de soldats dispersés; désormais, il y avait un général. Bien que le général ne fût pas particulièrement puissant en soi, la puissance des sorts avait considérablement augmenté!
 
@@ -66,9 +66,9 @@ Il s'élança dans le trou noir et disparut sans laisser de trace.
 
 À ce moment, le sixième souffle s'était écoulé! La pieuvre était également sous l'effet du sort d'Arrêt et demeurait immobile. La magnifique femme conservait sa posture précédente; même ses paupières ne pouvaient plus se fermer.
 
-Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers la pieuvre dans une langue que seuls les êtres marins comme eux pouvaient comprendre.
+Le dragon marin, sur le côté, affichait de la fierté dans les yeux. Il rugit vers la pieuvre dans une langue que seuls les êtres marins comme eux pouvaient comprendre. Quant à ce qu'il disait exactement, seul le dragon, ou peut-être la pieuvre si elle l'entendait, aurait pu le comprendre.
 
-Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer Montagneuse. Dans ce monde situé à l'intérieur du trou noir, se dressait un arbre absolument colossal!
+Le temps passa. Au huitième souffle, Wang Lin apparut au fond de la Mer Montagneuse. Dans ce monde de néant englouti par la mer, situé à l'intérieur du trou noir, se dressait un arbre absolument colossal!
 
 Cet arbre constituait la moitié de la Mer Montagneuse, et on ne pouvait en percevoir les limites d'un seul coup d'œil. Le tronc était desséché, mais ses branches s'étendaient pour soutenir l'immensité marine.
 
@@ -108,7 +108,7 @@ Dès que la moitié fut libérée, les yeux de Wang Lin brillèrent d'un éclat 
 
 La rumeur disait que l'Épée de l'Ancêtre Céleste avait été brisée lors de la bataille contre le Démon Scorpion Vert par la queue du scorpion. Pourtant, Wang Lin avait entendu pas moins de dix légendes différentes à ce sujet!
 
-Presque chaque continent possédait une légende affirmant que l'âme scellée sur leur terre avait causé le bris de l'épée. Wang Lin ne pouvait savoir laquelle était vraie.
+Presque chaque continent possédait une légende affirmant que l'âme venue d'outre-ciel scellée sur leur terre avait causé le bris de l'épée. Wang Lin ne pouvait savoir laquelle était vraie.
 
 Il existait même une légende selon laquelle l'épée s'était brisée d'elle-même après la disparition de l'Ancêtre Céleste, ses fragments se dispersant à travers les divers continents.
 

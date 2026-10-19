@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1605 - Liu Mei
 slug: liu-mei
 ---
-Deux ans après le départ de son père, la mère de Wang Lin s'endormit et ne se réveilla plus. Elle arborait un visage serein, comme si elle avait retrouvé le père de Wang Lin dans ses rêves. Ils s'étaient réunis et ne souhaitaient plus revenir.
+Deux ans après la mort de son père, la mère de Wang Lin s'endormit et ne se réveilla plus. Elle arborait un visage serein, comme si elle avait retrouvé le père de Wang Lin dans ses rêves. Ils s'étaient réunis et ne souhaitaient plus revenir.
 
 Il y avait une personne qui vous berçait quand vous n'étiez qu'un nourrisson. Peu importe sa fatigue, elle vous murmurait des mots doux jusqu'à ce que vous vous endormiez et cessiez de pleurer.
 
@@ -28,7 +28,7 @@ Il y avait une autre personne. Avant même que vous ne sachiez marcher et que vo
 
 Il y avait une autre personne qui vous tenait la main à travers les montagnes et les rivières tandis que vous riiez de joie. En levant les yeux, vous aviez le sentiment qu'il était la montagne, qu'il était le ciel.
 
-Il y avait une autre personne qui avait remarqué votre sérieux lorsque votre mère prétendait aimer la tête et la queue du poisson. Il vit ensuite que vous laissiez ces morceaux à votre mère, mais il resta là, contemplant son épouse d'un regard empreint de tendresse et d'excuse.
+Il y avait une autre personne qui avait remarqué votre sérieux lorsque vous affirmiez que votre mère aimait la tête et la queue du poisson. Il vous voyait ensuite lui réserver ces morceaux, mais il resta là, contemplant son épouse d'un regard empreint de tendresse et d'excuse.
 
 Il y avait une autre personne qui se montrait sévère durant votre croissance, au point de vous agacer presque. Pourtant, en grandissant, vous finissiez par percevoir l'amour que vous ne pouviez pas voir auparavant dans ces yeux austères.
 
@@ -38,7 +38,7 @@ Cette personne s'appelait « Père ».
 
 Wang Lin était assis devant la tombe de ses parents et ses larmes coulaient. Il riait et pleurait à la fois. Les souvenirs étaient gravés dans son esprit et il ne les oublierait jamais. Il ne buvait pas de vin, mais en cet instant, il se sentait ivre.
 
-Dans son rêve, dans une autre vie, il n'avait pu pleurer ses parents. Il n'avait pu tenir le corps de son père alors qu'il rendait l'âme. Il n'avait pu embrasser le front de sa mère avant qu'elle ne s'endorme.
+Dans son rêve, dans une autre vie, il n'avait pu accompagner ses parents dans leurs derniers instants. Il n'avait pu tenir le corps de son père alors qu'il rendait l'âme. Il n'avait pu embrasser le front de sa mère avant qu'elle ne s'endorme.
 
 Dans cette vie, il avait pu le faire.
 
@@ -70,7 +70,7 @@ Grande Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait 
 
 Au printemps de la 38e année, Wang Lin quitta seul le village de montagne. Grande Fortune resta là, attendant silencieusement le retour de Wang Lin. Peut-être serait-ce dans dix ans, peut-être dans vingt ans, ou peut-être au terme d'une vie entière.
 
-Wang Lin était assis dans sa calèche et buvait du vin en solitaire tandis qu'elle s'éloignait de la montagne Heng Yue. Quelques mois plus tard, la calèche atteignit la frontière de Zhao, où Wang Lin descendit. Il paya le cocher et prit une profonde inspiration. Il jeta un dernier regard vers Zhao avant de faire un pas en avant pour franchir la frontière.
+Wang Lin était assis dans sa calèche et buvait du vin en solitaire tandis qu'elle s'éloignait de la montagne Heng Yue. Quelques mois plus tard, la calèche atteignit la frontière de Zhao, où Wang Lin descendit. Il congédia le cocher et prit une profonde inspiration. Il jeta un dernier regard vers Zhao avant de faire un pas en avant pour franchir la frontière.
 
 C'était la première fois de sa vie qu'il quittait Zhao. Il ignorait où l'avenir le mènerait, mais il n'y pensait pas. Il savait seulement que la route se trouverait sous ses pieds.
 

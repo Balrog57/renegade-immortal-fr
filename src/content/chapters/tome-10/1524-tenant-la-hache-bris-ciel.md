@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1524 - Holding the Heaven Splitting Axe!"
 slug: tenant-la-hache-bris-ciel
 ---
-Bien que cette phrase fût un rugissement qui ébranla tout le domaine stellaire, elle ne suffit pas à restaurer l'éclat perdu, ni à raviver la volonté désespérée de survivre!
+Bien que cette phrase fût un rugissement qui ébranla tout le domaine stellaire, elle ne suffit pas à restaurer la gloire effondrée, ni à raviver la volonté désespérée de survivre!
 
 Il restait moins de 10 000 cultivateurs de la Mer des Nuages. Sous le massacre incessant, ils commencèrent à fléchir… Une personne recula, puis tout le monde recula comme une marée, et tout s'effondra!
 
@@ -66,7 +66,7 @@ Cependant, les cultivateurs du Royaume Extérieur étaient trop nombreux, et bea
 
 Des rafales de sorts provenant du Royaume Extérieur se précipitèrent vers lui. C'était une bataille à mort, mais il ne recula pas. Il poussa un rugissement et continua sa charge. Il cracha du sang, teintant ses vêtements blancs de rouge.
 
-Ses yeux étaient injectés de sang, son visage marqué par l'épuisement, son énergie originelle s'asséchait, son esprit peinait à suivre et les blessures sur son corps s'aggravaient!
+Ses yeux étaient injectés de sang, son visage marqué par l'épuisement, son énergie originelle s'asséchait, sa force de Dieu Ancien peinait à suivre et les blessures sur son corps s'aggravaient!
 
 Les plaies couvraient tout son être!
 
@@ -74,7 +74,7 @@ Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume E
 
 C'était un jeune homme, seulement au début du stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 
-« Les cultivateurs comme nous ne reculent jamais devant un combat… » murmura le jeune homme. L'éclat effondré montrait des signes de réveil.
+« Les cultivateurs comme nous ne reculent jamais devant un combat… » murmura le jeune homme. La gloire effondrée montrait des signes de réveil.
 
 Un autre cultivateur de la Mer des Nuages cessa sa fuite et contempla silencieusement le dos de Wang Lin. L'intention de combat s'éveilla dans son regard qui devint rouge; un sentiment de folie jaillit de son cœur.
 

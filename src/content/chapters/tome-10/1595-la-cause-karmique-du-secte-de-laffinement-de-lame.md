@@ -12,11 +12,11 @@ La ville de Su était devenue célèbre grâce à un seul homme: Su Dao, le prem
 
 L'étudiant qui se distinguerait le plus lors de l'examen de la ville de Su deviendrait l'Élu Su. Tous les Élus Su rejoindraient alors la capitale de Zhao, où ils s'envoleraient vers les cieux ou disparaîtraient dans l'ombre.
 
-Wang Lin marchait le long de la route, portant sur ses épaules les attentes de ses parents ainsi que sa propre vision de l'avenir. Derrière lui suivait l'homme d'âge mûr, désormais vêtu de nouveaux habits. Un sac à dos en bambou sur le dos, il fredonnait une mélodie entendue en un lieu inconnu, l'air très détendu.
+Wang Lin marchait le long de la route, portant sur ses épaules les attentes de ses parents ainsi que sa propre vision de l'avenir. Derrière lui suivait l'homme d'âge moyen, désormais vêtu de nouveaux habits. Un sac à dos en bambou sur le dos, il fredonnait une mélodie entendue en un lieu inconnu, l'air très détendu.
 
 Le ciel était gris, mais la pluie ne tombait pas. Pourtant, les traces d'eau sur la route officielle dégageaient une aura de froid glacial. La terre et l'eau semblaient ne faire qu'un, rendant le chemin extrêmement boueux.
 
-À l'origine, il n'aurait fallu qu'une demi-journée pour atteindre la ville, mais Wang Lin et l'homme d'âge mûr ne la virent apparaître qu'au crépuscule.
+À l'origine, il n'aurait fallu qu'une demi-journée pour atteindre la ville, mais Wang Lin et l'homme d'âge moyen ne la virent apparaître qu'au crépuscule.
 
 Le coucher du soleil projetait des éclats de lumière orangée qui perçaient les nuages pour venir lécher la cité. À première vue, on aurait dit une route menant aux confins du monde.
 
@@ -24,7 +24,7 @@ Le coucher du soleil projetait des éclats de lumière orangée qui perçaient l
 
 « Grande Fortune, la ville est devant nous. Nous allons y rester un moment. » Wang Lin sourit en regardant le jeune serviteur derrière lui.
 
-« Je n'aime pas ce nom... » L'homme d'âge mûr secoua la tête avec une expression amère.
+« Je n'aime pas ce nom... » L'homme d'âge moyen secoua la tête avec une expression amère.
 
 « Je trouve que c'est un très bon nom. » Wang Lin rit et conduisit Grande Fortune vers la porte de la ville. Après avoir présenté le jeton obtenu au village, ils furent inspectés par les soldats avant d'être autorisés à entrer.
 
@@ -36,7 +36,7 @@ Grande Fortune sortit l'argent qu'il gardait pour Wang Lin. Son cœur se serra e
 
 « Pas beaucoup d'argent... Ça fait mal au cœur... J'ai l'impression d'avoir déjà vécu cela, je sais que l'argent est crucial... »
 
-Tandis que Grande Fortune bredouillait, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge mûr. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
+Tandis que Grande Fortune bredouillait, le serveur jeta un regard méprisant à Wang Lin et à l'homme d'âge moyen. Il les conduisit avec nonchalance à leur chambre. Il avait vu passer bien des érudits de ce genre: certains généreux, d'autres aussi indigents que Wang Lin.
 
 Wang Lin possédait une personnalité simple. Bien qu'il eût remarqué le dédain du serveur, il n'y prêta aucune importance.
 
@@ -90,13 +90,13 @@ C'était comme si cette volonté était le Roi du Tonnerre et pouvait commander 
 
 Le vent lui-même s'effondra devant ce doigt et fut repoussé. La pluie suivit, comme si elle possédait une âme et qu'elle était terrifiée. En un clin d'œil, l'averse cessa.
 
-Toutefois, seule la pluie au-dessus de la ville s'était arrêtée. Sous la pression de cette volonté semblable à celle du Roi du Tonnerre, toute la pluie du pays de Zhao sembla suspendue. Le tonnerre se tut, les éclairs se brisèrent et les nuages sombres se dissipèrent.
+Ce n'était pas seulement la pluie au-dessus de la ville qui s'était arrêtée. Sous la pression de cette volonté semblable à celle du Roi du Tonnerre, toute la pluie du pays de Zhao sembla suspendue. Le tonnerre se tut, les éclairs se brisèrent et les nuages sombres se dissipèrent.
 
 Dans le ciel de Zhao, des cultivateurs de la Secte Heng Yue volaient, parmi lesquels Wang Zhuo, Xu Fei, Zhou Rui et leurs compagnons. Ils survolaient la pluie, mais furent tous saisis d'effroi à cet instant. Devant eux, un vieil homme apparut. Ce dernier se retourna, et une stupeur infinie envahit ses yeux.
 
 « Cette aura... Par les dieux, quel est donc son niveau de culture?! »
 
-À l'autre extrémité du pays de Zhao, deux rayons de lumière apparurent lorsque les nuages se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement; il faillit pousser un cri d'incrédulité.
+À l'autre extrémité du pays de Zhao, deux rayons de lumière se dissipèrent, révélant un homme et une femme. La femme était Liu Mei. Son visage était pâle et elle regardait en arrière avec confusion. L'expression de l'homme à ses côtés changea radicalement; il faillit pousser un cri d'incrédulité.
 
 Également dans le pays de Zhao, dans la ville de Teng, le monstre Âme Naissante de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
 
@@ -104,8 +104,8 @@ Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel
 
 « C'est... Comment est-ce possible?! »
 
-Dans un lieu lointain sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
+Dans un lieu lointain du pays de Suzaku, sur la planète Suzaku, se trouvait une secte puissante, capable de dominer tous les pays de rang 5. Cette secte était peuplée d'âmes et le hurlement des spectres y résonnait sans cesse. De loin, elle ressemblait à un drapeau géant!
 
-Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge mûr, le frère aîné de Dun Tian.
+Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge moyen, le frère aîné de Dun Tian.
 
 « Je ne parviens pas à la trouver... Ce vieil homme a pratiqué la divination trente-sept fois et n'a pas réussi une seule fois. Se pourrait-il que ma Secte de l'Affinement de l'Âme n'ait vraiment plus aucun espoir... »

@@ -24,7 +24,7 @@ Wang Lin envoya un message: « Ville de Ming Mei, la boutique du clan Shang. Je 
 
 Situ Nan éclata de rire, puis coupa la connexion.
 
-Il y avait au total neuf villes sur cette planète commerciale. En l'espace de trois jours, une nouvelle retentissante se répandit: la ville de Tiandi avait été pillée! Cet individu possédait une intuition remarquable et s'était emparé de tous les trésors de haute qualité; la plupart d'entre eux étaient les pièces maîtresses des boutiques. Même les commerces bénéficiant de puissants soutiens avaient été dépouillés.
+Il y avait au total neuf villes sur cette planète commerciale. En l'espace de trois jours, une nouvelle retentissante se répandit: la ville de Tiandi avait été pillée! Cet individu possédait un flair remarquable et s'était emparé des trésors de haute qualité; la plupart étaient les pièces maîtresses des boutiques. Même les commerces bénéficiant de puissants soutiens avaient été dépouillés.
 
 Même le manoir du seigneur de la ville avait été pillé!
 
@@ -52,7 +52,7 @@ Situ Nan toucha son sac de rangement et rit: « La récolte de ce vieux fou est 
 
 « Les boutiques de cette planète commerciale ont des antécédents très profonds. S'ils envoient des experts, même ce vieux fou aura du mal à s'en sortir. J'ai donc pillé rapidement pour qu'ils n'aient pas le temps de demander de l'aide. Ye Wuyou et moi faisions souvent ce genre de choses autrefois! » Situ Nan se sentait très fier. Une fois entrés dans l'espace, Wang Lin sortit la boussole stellaire et les deux s'éloignèrent prestement.
 
-Les cultivateurs de la planète commerciale poursuivirent un moment avant d'abandonner. Après tout, peu de gens possédaient une boussole stellaire, et la culture de Situ Nan était tout simplement trop puissante. Même s'ils parvenaient à le rattraper, ils n'y gagneraient que leur vie.
+Les cultivateurs de la planète commerciale poursuivirent un moment avant d'abandonner. Après tout, peu de gens possédaient une boussole stellaire, et la culture de Situ Nan était tout simplement trop puissante. Même s'ils parvenaient à le rattraper, ils n'y laisseraient que leur vie.
 
 « Avez-vous obtenu mon encre de neige? » Wang Lin se lécha les lèvres. Bien qu'il n'ait pas participé activement, l'encre de neige était ce qu'il avait demandé, il était donc lié à cette affaire.
 
@@ -94,7 +94,7 @@ Sa direction était opposée à celle de Situ Nan, et ils s'éloignaient l'un de
 
 Après le départ de Wang Lin, une lumière blanche apparut là où les deux s'étaient trouvés. La silhouette de Situ Nan se matérialisa. Il regarda Wang Lin et soupira:
 
-« Sans épreuves cruelles, on ne peut être considéré comme un véritable cultivateur. Wang Lin, la raison pour laquelle je t'ai poussé sur la voie démoniaque est que c'est la meilleure pour survivre. Après avoir créé un avatar, tu es sorti de cette voie pour tracer la tienne. Je ne peux plus rester à tes côtés car ce vieux fou est un démon, tant à l'intérieur qu'à l'extérieur! »
+« Sans épreuves cruelles, on ne peut être considéré comme un véritable cultivateur. Wang Lin, la raison pour laquelle je t'ai poussé sur la voie démoniaque est que c'est la meilleure pour survivre. Après avoir créé un avatar, tu es sorti de cette voie pour tracer la tienne. Je ne peux plus rester à tes côtés, car nos Dao ne sont plus les mêmes : ce vieux fou est un démon, tant à l'intérieur qu'à l'extérieur! »
 
 Situ Nan jeta un dernier regard vers la direction prise par Wang Lin et murmura: « Jeune ami, adieu! » Il poussa un long soupir et disparut dans un éclair de lumière blanche...
 
@@ -106,7 +106,7 @@ La boussole stellaire était désormais enveloppée d'une lumière verte. À l'i
 
 Ce processus dura trois mois!
 
-Trois mois ne suffirent qu'à amener la fusion entre la pierre de bois du vide et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement au moins cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
+Trois mois ne suffirent qu'à amener la fusion entre la pierre de bois du vide et la boussole stellaire au stade de la petite complétion. Les anciens dieux ne se souciaient guère du temps; lorsqu'ils raffinaient un trésor, le processus durait généralement cent ans. Un ancien dieu à neuf étoiles mettrait mille ans pour affiner un trésor, et ces mille années passeraient aussi vite qu'un battement de cils.
 
 Wang Lin calcula que, si cela continuait ainsi, l'intégration ne serait pas terminée à son arrivée sur la planète Tian Yun. Après réflexion, il décida d'abandonner une intégration plus poussée pour utiliser l'encre de neige et entamer le processus de raffinage final dès ce stade de petite complétion.
 

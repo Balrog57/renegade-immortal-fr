@@ -16,7 +16,7 @@ Une statue humaine de pierre trônait sur ce continent rouge sombre. À cet inst
 
 Une étrange aura se propagea lentement de cet être, mais, curieusement, elle n'attira pas l'attention des bêtes-moustiques. C'était comme si cette statue de pierre n'existait pas à leurs yeux.
 
-« Comment ce Shui Daozi a-t-il pu détruire une pièce dans laquelle j'ai déployé tant d'efforts? » Les yeux de l'homme de pierre brillèrent et il laissa échapper un reniflement glacial.
+« Comment ce Shui Daozi a-t-il pu tuer un pion pour lequel j'ai déployé tant d'efforts? » Les yeux de l'homme de pierre brillèrent et il laissa échapper un reniflement glacial.
 
 « Cependant, en empruntant son pouvoir, je pourrai voir si cet enfant est véritablement la réincarnation de ce vieux Seigneur du Royaume Scellé, ou si la Perle Défiant le Ciel est réellement entre ses mains! »
 
@@ -36,9 +36,9 @@ Certains des nombreux volcans illusoires apparus précédemment dégageaient de 
 
 Wang Lin serrait toujours fermement le trident dans sa main!
 
-« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Lu Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Noire* et *Ciels Clairs*, la tâche aurait été ardue. Cependant, comparés à *Lune Noire* et *Ciels Clairs*, ceux-ci ne sont que de simples tours! » Le Shui Daozi secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Divin formé par la Bête de Tonnerre.
+« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Lu Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Sombre, Ciel Clair*, la tâche aurait été ardue. Cependant, comparés à *Lune Sombre, Ciel Clair*, ceux-ci ne sont que de simples tours! » Le Shui Daozi secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Divin formé par la Bête de Tonnerre.
 
-Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée.
+Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée, et elle le resta pour l'éternité.
 
 « Ce trésor présente trop de défauts. Puisque je n'en ai pas besoin, je vais le détruire! » Le Shui Daozi était extrêmement arrogant et possédait une personnalité excentrique. Il aimait détruire les objets que d'autres chérissaient, pourvu qu'ils lui soient inutiles.
 
@@ -76,7 +76,7 @@ Un rugissement tonitruant retentit et une fissure spatiale s'ouvrit. C'était l'
 
 « Si cet espace ne contient pas la Perle Défiant le Ciel, je fouillerai son âme! » Une lueur de froideur passa dans les yeux du Shui Daozi tandis qu'il explorait l'espace de stockage de Wang Lin.
 
-« Il y a beaucoup d'objets de bas rang, mais ce ne sont que des déchets. Disparaissent! »
+« Il y a beaucoup d'objets de bas rang, mais ce ne sont que des déchets. Volez en éclats! »
 
 Des grondements de tonnerre résonnèrent dans l'espace de stockage de Wang Lin. Tous les trésors scrutés par le Shui Daozi tombèrent en cendres.
 

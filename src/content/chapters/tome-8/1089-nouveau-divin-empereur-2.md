@@ -16,7 +16,7 @@ La douleur de la déchirure devint plus intense encore, mais elle ne fit pas fl�
 
 À cet instant, Wang Lin fut enveloppé par une sphère de feu. Même son corps ne put résister à cette chaleur intense et commença à brûler...
 
-« Tu as atteint ta limite... Ce vieil homme sait que tu as fait de ton mieux. » L'Empereur Divin Vermillon laissa échapper un soupir et leva sa main droite pour pointer Wang Lin. Il comprenait que la force requise pour éveiller la première transformation était au-delà de ce que Wang Lin pouvait supporter. Celui-ci parvenait à peine à contenir huit fois son énergie originelle; maintenant qu'il atteignait neuf fois celle-ci, il risquait fort de brûler jusqu'à la mort avant d'avoir réussi.
+« Tu as atteint ta limite... Ce vieil homme sait que tu as fait de ton mieux. » L'Empereur Divin Vermillon laissa échapper un soupir et leva sa main droite pour pointer Wang Lin. Il comprenait que la force requise pour éveiller la première transformation était au-delà de ce que Wang Lin pouvait supporter. Celui-ci parvenait à peine à contenir huit fois son énergie originelle; maintenant qu'il atteignait neuf fois celle-ci, il risquait fort de brûler jusqu'à la mort, corps et âme anéantis, avant d'avoir réussi.
 
 Alors que l'Empereur Divin Vermillon s'apprêtait à interrompre Wang Lin, ce dernier se retourna brusquement. Ignorant le fait qu'il était en proie aux flammes, il fixa l'Empereur Divin et sa voix rauque perça le brasier.
 
@@ -66,7 +66,7 @@ Non seulement lui, mais presque tous les membres de la Secte Divine du Dragon Az
 
 « Le nouveau Divin Empereur de la Secte Divine de l'Oiseau Vermillon est sur le point de naître! » Les trois se regardèrent avec excitation et s'élancèrent immédiatement vers la Secte Divine de l'Oiseau Vermillon.
 
-La scène provoqua également une immense onde de choc dans la Secte Divine de la Tortue Noire. Dans le marécage du secteur, un grand crapaud était assis. Cette créature était très paresseuse, lançant parfois sa langue pour capturer une petite bête de passage.
+La scène provoqua également une immense onde de choc dans la Secte Divine de la Tortue Noire. Dans le marécage du secteur, un grand crapaud, long de plusieurs centaines de pieds, était assis. Cette créature était très paresseuse, lançant parfois sa langue pour capturer une petite bête de passage.
 
 Cependant, à cet instant précis, les yeux léthargiques du crapaud s'ouvrirent brusquement et la foudre jaillit de son corps. Cela transforma tout ce qui se trouvait dans un rayon de mille pieds autour de lui en un enfer de tonnerre. Il leva ensuite la tête vers la Secte Divine de l'Oiseau Vermillon, l'excitation brillant également dans ses yeux, tout comme chez la créature-moustique.
 
@@ -80,7 +80,7 @@ L'ensemble de la Secte Divine de l'Oiseau Vermillon semblait entrer en ébulliti
 
 Parmi eux se trouvaient les trois prétendants au titre de prochain Divin Empereur: deux hommes et une femme. Leur apparence importait peu; ils se situaient tous entre les stades Scruteur du Nirvana et Purificateur du Nirvana.
 
-Le plus remarquable était Ren Tao, qui avait déjà atteint le début du stade Purificateur du Nirvana! Derrière lui, quatre Anciens fixaient le ciel d'un air lugubre.
+Le plus remarquable était Ren Tao, qui paraissait avoir une quarantaine d'années et avait déjà atteint le début du stade Purificateur du Nirvana! Derrière lui, quatre Anciens fixaient le ciel d'un air lugubre.
 
 L'expression de Ren Tao était aussi sombre que l'eau. Il pouvait clairement sentir les flammes du champ d'étoiles s'engouffrer vers ses profondeurs.
 
@@ -92,7 +92,7 @@ Les deux autres futurs candidats au titre de Divin Empereur réfléchissaient en
 
 Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divine de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille de la Terre des Esprits Démoniaques, chaque pensée concernant ce dernier le faisait suer à froid.
 
-Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Da Tou et avait même fini par éprouver du respect pour lui!
+Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Da Tou et avait même fini par éprouver une admiration fervente pour lui!
 
 À ses yeux, le plan de Ren Tao ressemblait à celui d'une mante essayant d'arrêter un char: Ren Tao se surestimait!
 

@@ -12,7 +12,7 @@ L'expression de Wang Lin demeurait calme. Il jeta un regard indifférent à l'ho
 
 « Ce petit gamin est plutôt intéressant. Son art de lire les visages a de la ressource et reste assez mystérieux pour les mortels, mais face à nous qui cultivons l'immortalité, c'est un peu manier la hache devant Lu Ban. Je viens de lui transmettre mes anciens souvenirs d'extermination de familles entières. Hé hé, le voilà qui n'en peut plus. »
 
-En un instant, le lettré d'âge mûr fut couvert de sueur. Son regard vers Wang Lin n'était plus neutre, mais empreint de terreur. En entendant les paroles de Liu San, il s'empressa de répondre: « Cela n'a rien à voir avec ce petit... petit frère. L'avenir du petit frère est impossible à estimer. Wang n'a pas assez bien appris l'art de lire les visages, je ne peux pas voir clair, je ne peux pas voir clair! » Sur ces mots, il s'inclina à plusieurs reprises, le visage marqué par l'amertume.
+En un instant, le lettré d'âge mûr fut couvert de sueur. Son regard vers Wang Lin n'était plus neutre, mais empreint d'un respect craintif. En entendant les paroles de Liu San, il s'empressa de répondre: « Cela n'a rien à voir avec ce petit... petit frère. L'avenir du petit frère est impossible à estimer. Wang n'a pas assez bien appris l'art de lire les visages, je ne peux pas voir clair, je ne peux pas voir clair! » Sur ces mots, il s'inclina à plusieurs reprises, le visage marqué par l'amertume.
 
 La scène qu'il avait entrevue l'avait totalement terrassé. C'était un véritable enfer d'asuras, aux montagnes de cadavres et aux mers de sang. Les êtres présents dans cette vision n'étaient manifestement pas des mortels; ils volaient dans le ciel, fuyaient sous la terre et semblaient tout-puissants. Ayant appris dès l'enfance l'art de lire les visages transmis par sa famille, cet homme avait beaucoup vu et savait que les immortels existaient. Il savait aussi que, s'il se trouvait mêlé à certaines affaires, il risquait d'y perdre la vie.
 
@@ -40,7 +40,7 @@ Il fit un signe de l'œil à l'homme au visage sombre, avança de quelques pas, 
 
 L'homme au visage sombre comprit le message et se glissa furtivement derrière Wang Lin.
 
-Wang Lin fronça les sourcils. L'homme d'âge mûr interpella rapidement l'homme au visage sombre: « Que fais-tu? Ce jeune frère n'est pas un espion! »
+Wang Lin fronça les sourcils. L'homme d'âge mûr s'avança rapidement pour s'interposer et interpella l'homme au visage sombre: « Que fais-tu? Ce jeune frère n'est pas un espion! »
 
 L'homme au visage sombre resta interdit et s'apprêtait à parler.
 

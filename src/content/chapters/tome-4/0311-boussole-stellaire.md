@@ -10,7 +10,7 @@ Flottant dans le vide à 330 mètres de la fin de la terre ferme, un immense gla
 
 Wang Lin fronça les sourcils. Après avoir inspecté les environs, il demanda: « Frère Chi Hu, y a-t-il quelque chose de particulier concernant la première couche du fragment? Y a-t-il des points de convergence d'énergie spirituelle céleste à cet endroit? »
 
-Chi Hu fut surpris. « Les dégâts sur ce fragment sont considérables, il n'y a donc plus aucune énergie spirituelle céleste restante. Mon ancêtre Xi Zu n'a pas mentionné de particularité, il a seulement précisé que l'endroit est dangereux. »
+Chi Hu fut surpris. « Les dégâts sur ce fragment sont considérables, il ne devrait donc plus rester aucune énergie spirituelle céleste. Mon ancêtre Xi Zu n'a pas mentionné de particularité, il a seulement précisé que l'endroit est dangereux. »
 
 Wang Lin regarda calmement l'horizon derrière lui et répondit: « Dans ce cas, je n'ai plus de questions. »
 
@@ -38,13 +38,13 @@ L'ange de neige fonça vers la brume. Dès que la sculpture entra en contact ave
 
 Chi Hu rit: « La sculpture d'ange de neige de Papillon Rouge est vraiment prodigieuse. Je suis impressionné. »
 
-Le regard de Wang Lin demeura calme tandis qu'il étudiait attentivement l'ange de neige. À l'intérieur, il pouvait distinguer plus de cent vaisseaux en mouvement, ainsi que des vaisseaux plus ternes qui n'avaient pas encore été activés.
+Le regard de Wang Lin demeura calme tandis qu'il étudiait attentivement l'ange de neige. À l'intérieur, il pouvait distinguer plus de cent méridiens en mouvement, ainsi que des méridiens plus ternes qui n'avaient pas encore été activés.
 
 Wang Lin pensa secrètement: « Ceci doit être un trésor important de Xue Yu. Il possède le même effet que cette sculpture de glace mi-serpent, mi-humaine. »
 
 Grâce à la protection de l'ange de neige, leur vitesse ne faiblit point. La brume bleue devint de plus en plus épaisse, jusqu'à ce qu'une série de craquements se fasse entendre et qu'une fissure apparaisse sur la sculpture de glace.
 
-Papillon Rouge fronça les sourcils. Elle traça des sceaux de la main et pointa la sculpture. Bientôt, les vaisseaux inactifs s'animèrent et rejoignirent les vaisseaux actifs. À mesure que de nouveaux vaisseaux s'activaient, les fissures sur la sculpture disparurent progressivement, laissant échapper une aura glaciale.
+Papillon Rouge fronça les sourcils. Elle traça des sceaux de la main et pointa la sculpture. Bientôt, les méridiens inactifs s'animèrent et rejoignirent les méridiens actifs. À mesure que de nouveaux méridiens s'activaient, les fissures sur la sculpture disparurent progressivement, laissant échapper une aura glaciale.
 
 Très loin derrière eux, l'homme d'âge mûr progressait en buvant à sa gourde. Lorsque la brume bleue approchait de lui, une force invisible la repoussait sur les côtés. Dès que la brume devenait trop dense, l'homme crachait occasionnellement une gorgée de son breuvage. Un sifflement semblable au contact de l'huile bouillante sur la glace se faisait entendre, et la brume se dissipait instantanément.
 
@@ -66,7 +66,7 @@ Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lu
 
 Les yeux magnifiques de Papillon Rouge fixèrent la boussole tandis qu'elle disait d'une voix glaciale: « Le trésor du Clan des Démons Géants... la Boussole Stellaire? »
 
-Les yeux de Wang Lin s'illuminèrent en contemplant l'objet. Il était couvert de motifs ésotériques complexes. Rien qu'en la regardant, Wang Lin sentit son Sens Divin être aspiré, ce qui le força à le retirer brusquement. Dans les souvenirs du Dieu Ancien Tu Si, il existait une description de la boussole stellaire et de son mode de fabrication, mais nombre de ses composants étaient déjà éteints.
+Les yeux de Wang Lin s'illuminèrent en contemplant l'objet. Il était couvert de motifs ésotériques complexes. Rien qu'en la regardant, Wang Lin sentit son Sens Divin être aspiré, ce qui le força à le retirer brusquement. Dans les souvenirs du Dieu Ancien Tu Si, il existait une description de la boussole stellaire et de son mode de fabrication, mais nombre de ses matériaux avaient déjà disparu.
 
 Chi Hu rit: « Si c'était une véritable Boussole Stellaire, je ne serais même pas capable de la contrôler. Celle-ci n'est qu'une contrefaçon, elle présente donc de nombreuses différences avec l'originale. »
 

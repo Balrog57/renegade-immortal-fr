@@ -66,7 +66,7 @@ Une fois Gu Dao parti, Wang Lin prit la main de Li Muwan — qui avait égalemen
 
 Après le départ de Wang Lin, le pont se changea en éclats de lumière et disparut dans le vide.
 
-L'endroit ressemblait à un jardin paradisiaque. Au loin se trouvait un pavillon, une table de pierre et deux chaises de pierre. Sur la chaise voisine de la table siégeait quelqu'un dont le dos était tourné vers Wang Lin. Cette personne portait une robe grise et avait les cheveux gris, mais Wang Lin ne pouvait distinguer ses traits.
+L'endroit ressemblait à un jardin de pêchers. Au loin se trouvait un pavillon, une table de pierre et deux chaises de pierre. Sur la chaise voisine de la table siégeait quelqu'un dont le dos était tourné vers Wang Lin. Cette personne portait une robe grise et avait les cheveux gris, mais Wang Lin ne pouvait distinguer ses traits.
 
 Une silhouette se tenait derrière cette personne, tel un serviteur.
 
@@ -96,7 +96,7 @@ L'homme en robe grise leva les yeux et sourit: « Je le suis, tout comme vous. �
 
 « Tout comme le Royaume aux Sept Couleurs fut originellement créé par votre avatar, puis découvert et utilisé par l'esprit du trésor. J'étais très curieux, mais je vois maintenant que la réincarnation est une chose si simple pour vous.
 
-« Ces imitations de Perles Défiant les Cieux dans le Royaume aux Sept Couleurs furent créées par votre avatar de massacre lorsqu'il tentait de découvrir ce qui manquait. Ces écritures daoïstes n'étaient rien d'autre que vos propres expériences de vie.
+« Ces imitations de Perles Défiant le Ciel dans le Royaume aux Sept Couleurs furent créées par votre avatar de massacre lorsqu'il tentait de découvrir ce qui manquait. Ces écritures daoïstes n'étaient rien d'autre que vos propres expériences de vie.
 
 « Suivre le chemin du vrai Dao... Le "vrai" dans cette phrase désigne le véritable soi au sein de la réincarnation. Cela signifie que toutes les formes de vie doivent chercher leur essence pour pouvoir s'extraire du cycle des réincarnations. » L'homme en robe grise laissa transparaître son admiration en parlant.
 

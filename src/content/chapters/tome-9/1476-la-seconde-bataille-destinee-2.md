@@ -22,7 +22,7 @@ Leurs coups utilisaient des méthodes différentes, mais tous deux reposaient su
 
 *Si je ne peux pas te détruire d'un seul coup, alors je te frapperai quatre-vingt-dix-neuf fois consécutives. Il n'y a aucune technique, et peu importe ta résistance, tu seras réduit en miettes par ces quatre-vingt-dix-neuf coups!*
 
-Le coup de Wang Lin utilisait le sort de la Tortue Noire qu'il avait appris de la deuxième génération de l'Oiseau Vermillon. Il fusionna la force de rebond dans son poing afin que cette puissance puisse éclater d'un seul coup!
+Le coup de Wang Lin utilisait le sort de la Tortue Noire qu'il avait appris de la deuxième génération de l'Oiseau Vermillon sur la Planète du Grand Empereur. Il fusionna la force de rebond dans son poing afin que cette puissance puisse éclater d'un seul coup!
 
 Pour simplifier, le coup de Wang Lin traitait Tuo Sen comme la surface de l'eau. Son impact créa une puissante force de rebond sur Tuo Sen. Wang Lin emprunta alors habilement cette force pour l'utiliser comme sa propre attaque. Son coup ne contenait pas seulement sa propre puissance, mais aussi celle qu'il avait dérobée à Tuo Sen!
 
@@ -52,7 +52,7 @@ Un grondement tonitruant retentit. Déjà gravement blessée, elle cracha du san
 
 « Tuo Sen, oses-tu te rebeller contre ma volonté?! »
 
-Le regard de Tuo Sen devint glacial. Il ricana et envoya un coup de poing vers l'impératrice concubine. « Penses-tu vraiment que ce Dieu est quelqu'un d'imprudent? Si je n'avais pas besoin de toi pour me rétablir, crois-tu vraiment que tu pourrais me contrôler? Qui dans ce monde est qualifié pour commander ce Dieu?! »
+Le regard de Tuo Sen devint glacial. Il ricana et envoya un coup de poing vers la concubine céleste. « Penses-tu vraiment que ce Dieu est quelqu'un d'imprudent? Si je n'avais pas besoin de toi pour me rétablir, crois-tu vraiment que tu pourrais me contrôler? Qui dans ce monde est qualifié pour commander ce Dieu?! »
 
 « Tu n'es qu'un jouet du Souverain Céleste, et pourtant tu oses comploter contre moi? Dégage! » La tempête générée par le coup de Tuo Sen se précipita vers le filet illusoire, forçant la concubine déjà blessée à battre en retraite.
 
@@ -98,7 +98,7 @@ La force de rejet s'engouffra soudainement dans le corps de Wang Lin. Il ferma l
 
 « Dieu Tremble, Formation d'Armée! » Wang Lin inspira profondément tout en subissant l'impact de la force de rejet. Bien que du sang jaillisse de ses orifices, il absorba une quantité massive d'aura d'héritage.
 
-Il lança avec précaution un coup de poing de sa main gauche. Le vide devant lui se distordit et d'innombrables ondulations commencèrent à se propager depuis lui comme point central!
+Il lança doucement un coup de poing de sa main gauche. Le vide devant lui se distordit et d'innombrables ondulations commencèrent à se propager depuis lui comme point central!
 
 La huitième étoile autour de ses sept étoiles commença soudainement à se condenser, et le cyclone se forma rapidement! Bien que la formation du cyclone soit loin de constituer l'étoile elle-même, c'était comme poser les fondations pour un cultivateur. Ce n'est qu'avec une telle base qu'il aurait une chance de devenir un Dieu Antique à 8 étoiles dans le futur.
 

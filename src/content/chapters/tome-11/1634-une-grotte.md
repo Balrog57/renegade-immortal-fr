@@ -14,7 +14,7 @@ Cet endroit était bien plus ancien que les quatre Royaumes Célestes; il exista
 
 Le Seigneur du Royaume Scellé venait d'ici. Les concubines impériales célestes venaient d'ici. Tout ce qui était lié à l'ère ancienne commençait ici!
 
-Sans la barrière aquatique, la vaste terre apparaissait avec clarté. Le ciel sombre était traversé par d'innombrables tempêtes qui balayaient les lieux jour après jour, année après année. C'était comme si ces tempêtes avaient sillonné le firmament sans relâche depuis l'origine des temps.
+Sans la barrière qui gênait le regard, la vaste terre apparaissait avec clarté. Le ciel sombre était traversé par d'innombrables tempêtes qui balayaient les lieux jour après jour, année après année. C'était comme si ces tempêtes avaient sillonné le firmament sans relâche depuis l'origine des temps.
 
 Neuf soleils se cachaient derrière la tempête; seuls leurs contours étaient perceptibles. Ce qui fit s'arrêter Wang Lin, ce furent ces neuf soleils dissimulés dans la tourmente.
 
@@ -80,7 +80,7 @@ Au sein de cette lumière septicolore se tenait un homme d'âge moyen vêtu d'un
 
 C'était comme si le monde entier était à ses pieds et devait lui obéir! C'était comme si l'univers pouvait s'effondrer sur une simple pensée de sa part. La fierté qu'il affichait recelait une froideur infinie.
 
-Les lèvres de cet homme n'étaient pas charnues, ce qui lui donnait un air très austère et méprisant; il ne paraissait guère juste.
+Les lèvres de cet homme n'étaient pas charnues, ce qui lui donnait un air très austère et méprisant; il semblait dénué de bienveillance et de loyauté.
 
 Dès que Wang Lin vit l'homme aux sept couleurs, son esprit fut secoué. Cet homme ressemblait presque trait pour trait à la statue dans son espace de stockage. C'était la même personne!
 
@@ -88,7 +88,7 @@ Wang Lin se souvint que lorsqu'il avait sauvé Qing Shui dans le Royaume aux Sep
 
 Bien qu'ils partagassent de nombreuses similitudes, si quelqu'un voyait les deux, il ne penserait jamais qu'ils étaient la même personne.
 
-« Ma grotte deviendra son propre monde et contiendra la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Dao de Forest Dao, le Grand Souverain, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à la vie et l'utiliser pour créer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
+« Ma grotte deviendra son propre monde et contiendra la création du ciel et de la terre. Tout dans ce monde pourra être changé par ma seule pensée... Bien qu'elle ne soit pas à la hauteur du Monde Sen Luo du Grand Souverain Sen Dao, elle s'en rapproche... Malheureusement, elle ne possède pas de Dao Céleste, le temps ne peut donc s'écouler. Cela signifie qu'elle ne peut donner naissance à la vie et l'utiliser pour créer des Flammes Joss... Cependant, tout cela va changer aujourd'hui, car j'ai réussi à voler un Dao Céleste! »
 
 « Avec un Dao Céleste, désormais, ma grotte pourra engendrer des êtres sensibles et le temps commencera à couler. Des cultivateurs commenceront à apparaître... Et s'il y a des cultivateurs, il doit y avoir une rétribution divine... La première rétribution sera le tonnerre... » L'homme aux sept couleurs murmura pour lui-même avant d'agiter la main vers le ciel. Le firmament gronda et le tonnerre surgit du vide pour se rassembler dans sa paume.
 

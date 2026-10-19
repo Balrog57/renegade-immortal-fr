@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1996 - Impudent!"
 slug: impudent
 ---
-L’apparence de Wang Lin, la précision de ses gestes et ses paroles plongèrent tout le monde dans un silence pesant.
+L’apparition de Wang Lin, la précision de ses gestes et ses paroles plongèrent tout le monde dans un silence pesant.
 
 L'expression du Grand Empyréen Jiu Di était sombre. Il ressentait une douleur déchirante et brûlante au plus profond de son corps, mais il la réprimait grâce à sa puissante culture. Il fixa Wang Lin, et une intention meurtrière jaillit de ses yeux!
 
@@ -74,11 +74,11 @@ La tête de l'Ancêtre Céleste contenait la malédiction ancestrale, mais celle
 
 Les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule paire; une fois expulsés, les deux fillettes s'en saisirent immédiatement.
 
-« Puisque cet objet est utile au Grand Empyréen Gémeaux, veuillez l'accepter! Merci pour votre aide! » Tandis que Wang Lin parlait, le visage de Jiu Di se décomposa. Il poussa un rugissement et fonça sur Wang Lin.
+« Puisque cet objet est utile au Grand Empyréen Gémeaux, veuillez l'accepter! Merci pour votre aide! » Tandis que Wang Lin parlait, le visage de Jiu Di se crispa. Il poussa un rugissement et fonça sur Wang Lin.
 
 Les yeux de Dao Yi devinrent rouge sang alors qu'il s'élançait, enveloppé d'un gaz noir!
 
-« Wu Feng, Hai Zi, attaquez immédiatement! » Jiu Di se sentait profondément humilié. Il était un Grand Empyréen ayant vécu des éons, et pourtant, il devait supplier les autres pour obtenir de l'aide. C'était une rare ignominie pour lui.
+« Wu Feng, Hai Zi, attaquez immédiatement! » Jiu Di se sentait profondément humilié. Il était un Grand Empyréen ayant vécu des éons, et pourtant, il devait appeler les autres à agir avec lui. C'était une rare ignominie pour lui.
 
 « Cet enfant ne doit pas rester en vie! » hurlait Jiu Di, dévoré par l'intention meurtrière. Alors qu'il s'approchait, le Grand Empyréen Gémeaux, redevenue deux fillettes, tenait chacune un œil. Malgré leur pâleur, leurs regards étaient déterminés. Leurs corps tremblèrent tandis qu'elles fusionnaient à nouveau pour redevenir la véritable Gémeaux et se précipitaient vers Jiu Di et Dao Yi!
 

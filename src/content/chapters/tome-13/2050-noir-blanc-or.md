@@ -34,7 +34,7 @@ Une tête gigantesque émergea de la brèche. Cette tête était verte et dotée
 
 Son corps mesurait 100 000 pieds de haut; une fois sorti, il poussa un rugissement avant de s'agenouiller devant Song Tian.
 
-Contemplant le démon ancien devant lui, les yeux de Song Tian brillèrent d'éclat. Sa main gauche toucha son front et un rayon de lumière verte jaillit vers la créature pour disparaître entre ses sourcils.
+Contemplant le démon ancien devant lui, les yeux de Song Tian brillèrent d'éclat. Sa main gauche toucha son front et un fil de lumière verte jaillit vers la créature pour disparaître entre ses sourcils.
 
 Song Tian s'assit, les yeux clos, tandis que le regard du démon ancien révélait une lueur monstrueuse. L'être afficha une expression lugubre avant de se retirer dans la faille et de disparaître.
 
@@ -44,7 +44,7 @@ Il ne parvenait pas à déterminer son rang actuel. Il avait dépassé le pic du
 
 Cette demi-étape semblait infime, mais constituait en réalité un gouffre immense et extrêmement difficile à franchir.
 
-« À mi-chemin du Piétinement des Cieux... » Wang Lin se frotta les tempes et observa l'âme de l'Empereur Céleste qu'il affinait dans son feu d'âme depuis 100 ans. La malédiction ancestrale persistait, et il avait trouvé difficile de la purifier avec son niveau de culture précédent.
+« À mi-chemin du Piétinement des Cieux... » Wang Lin se frotta les tempes et observa l'âme de l'Empereur Céleste qu'il affinait dans son feu d'âme depuis 100 ans. La malédiction ancestrale, de la taille du poing d'un nourrisson, persistait, et il avait trouvé difficile de la purifier avec son niveau de culture précédent.
 
 À cet instant, ses yeux s'illuminèrent et sa main droite se tendit vers l'âme de l'Empereur Céleste. Lorsqu'il la saisit, le feu d'âme environnant se dissipa, ne laissant que l'âme nue.
 

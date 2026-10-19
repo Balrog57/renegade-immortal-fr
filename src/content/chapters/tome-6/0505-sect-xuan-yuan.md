@@ -64,7 +64,7 @@ Bien que Wang Lin eût perdu ce combat, la perception qu'avaient les disciples d
 
 Les trois sorts mortels étaient devenus la signature de Wang Lin, et sa puissante aura démoniaque lui conférait un charisme sans égal.
 
-Ces divers échos avaient circulé entre de nombreuses personnes avant d'atteindre les oreilles de Zhao Si. D'après ce qu'il savait, ce Wang Lin était un cultivateur démoniaque qui, en plus d'avoir un tempérament de feu, n'hésitait pas à tuer instantanément quiconque l'irritait!
+Ces divers échos avaient circulé entre de nombreuses personnes avant d'atteindre les oreilles de Zhao Si. D'après ce qu'il savait, ce Wang Lin était un cultivateur démoniaque assoiffé de sang qui, en plus d'avoir un tempérament de feu, n'hésitait pas à tuer instantanément quiconque l'irritait!
 
 « Ouvrez la formation vers la planète Terre! » La voix de Wang Lin était calme. Il dépassa Zhao Si et pénétra directement dans le réseau de transfert.
 
@@ -100,7 +100,7 @@ Les mers étaient rares sur cette planète, la majeure partie de la surface éta
 
 Ce jour-là, les environs du réseau de transfert adjacent à la Secte Xuan Yuan avaient été dégagés. Personne, hormis les disciples de la secte, ne se trouvait dans un rayon d'une quinzaine de kilomètres autour du dispositif.
 
-À l'extérieur du réseau, le jeune maître de la secte Xuan Yuan, Xu Yunshan, se tenait là en silence. Il tenait un éventail précieux qu'il frappait occasionnellement contre sa paume.
+À l'extérieur du réseau, le jeune maître de la secte Xuan Yuan, Xu Yunshan, se tenait là en silence. Il tenait un éventail précieux en jade qu'il frappait occasionnellement contre sa paume.
 
 Trois jours plus tôt, il avait appris par un ami proche de la Secte du Destin Céleste qu'un membre de la Division Pourpre viendrait pour servir d'émissaire à Ling Yue.
 
@@ -110,7 +110,7 @@ En tant qu'habitant d'un pays de culture de rang 6 sous la tutelle de la planèt
 
 Ce Wang Lin était apparu de nulle part, la Secte Xuan Yuan ne savait donc presque rien de lui. De plus, du point de vue de la Secte Xuan Yuan, Wang Lin possédait un potentiel immense. Il valait mieux se lier d'amitié avec lui dès maintenant plutôt que tardivement; c'est ce qui motivait sa présence ici.
 
-Derrière Xu Yunshan se tenaient plusieurs vieillards aux cheveux blancs, qui étaient les plus puissants Anciens de la Secte Xuan Yuan.
+Derrière Xu Yunshan se tenaient plusieurs vieillards aux cheveux blancs, des Anciens de la Secte Xuan Yuan dont la puissance n'était pas négligeable.
 
 Le temps passa lentement jusqu'à midi. Alors que le soleil atteignait son zénith, un grondement sourd émana soudainement du réseau de transfert.
 

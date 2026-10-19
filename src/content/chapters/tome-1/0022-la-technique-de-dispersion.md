@@ -40,7 +40,7 @@ Cette fois, la chaleur qui envahit son corps fut plus intense que toutes les pr�
 
 Au bout d'un court instant, Wang Lin sentit que quelque chose ne tournait pas rond. La chaleur ne se dissipait pas comme d'habitude; au contraire, elle s'accumulait de plus en plus à chaque respiration. Il eut l'impression d'être un ballon gonflé jusqu'à son point de rupture.
 
-Pris de panique, il cessa de cultiver, mais la sensation de gonflement douloureux persista. En ouvrant les yeux, il découvrit avec horreur que tous ses vaisseaux sanguins étaient tuméfiés, comme si des vers grouillaient sous sa peau.
+Pris de panique, il cessa de cultiver, mais la sensation de gonflement douloureux persista. En ouvrant les yeux, il découvrit avec horreur que tous ses vaisseaux sanguins étaient tuméfiés, comme si d'horribles vers bleutés s'étaient collés à sa peau.
 
 Wang Lin ignorait que les médicaments qu'il avait ingérés n'engendraient qu'une faible quantité d'énergie spirituelle et que, même en puisant dans la nature via sa technique de respiration, il ne pouvait compenser l'énergie perdue en raison de son talent médiocre.
 

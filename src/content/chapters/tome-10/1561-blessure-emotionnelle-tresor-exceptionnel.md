@@ -18,7 +18,7 @@ slug: blessure-emotionnelle-tresor-exceptionnel
 
 Depuis sa rencontre avec Cupidité dans les Terres Déchues et l'obtention de la statue aux sept couleurs, Wang Lin percevait vaguement un voile de mystère. Derrière ce voile se cachait un grand secret concernant les Royaumes Intérieur et Extérieur!
 
-Wang Lin ne pouvait toujours pas percer ce secret à cause de ce brouillard. Ce n'est que lors de la bataille contre le Royaume Extérieur dans la Mer des Nuages, lors de l'échange entre le Souverain et le Vieux Fantôme Zhan, que Wang Lin commença à spéculer de nouveau.
+Wang Lin ne pouvait toujours pas percer ce secret à cause de ce brouillard. Ce n'est que lors de la première bataille contre le Royaume Extérieur dans la Mer des Nuages, lors de l'échange entre le Souverain et le Vieux Fantôme Zhan, que Wang Lin commença à spéculer de nouveau.
 
 Du point de vue de Wang Lin, les guerres répétées entre les Royaumes Intérieur et Extérieur étaient liées au secret caché par ce voile!
 
@@ -56,7 +56,7 @@ Qing Shui regarda la femme et deux filets de larmes coulèrent sur ses joues. Il
 
 Elle se rapprocha jusqu'à être devant lui, et Qing Shui la serra contre lui. Des larmes inondèrent les yeux du cultivateur alors qu'il pleurait de douleur en tenant cette femme dans ses bras.
 
-Il était un Seigneur Céleste, un cultivateur de la troisième étape dont l'essence de massacre n'avait même pas versé une larme lorsqu'il avait enduré la douleur inimaginable des dix épines arrachées. Mais en cet instant, en serrant cette femme, il pleurait.
+Il était un Seigneur Céleste, un cultivateur de la troisième étape qui n'avait même pas poussé un rugissement ni versé une larme lorsqu'il avait enduré la douleur inimaginable des dix épines arrachées. Mais en cet instant, en serrant cette femme, il pleurait.
 
 Il ressemblait à un mortel s'accrochant désespérément à sa bien-aimée, les larmes coulant sans fin. Il la serrait si fort qu'on aurait dit qu'il craignait qu'elle ne disparaisse et ne le quitte pour toujours.
 
@@ -86,7 +86,7 @@ Dès l'apparition des feuilles, Wang Lin forgea des millions de restrictions pou
 
 Wang Lin serra les dents, mordit le bout de sa langue et cracha un sang doré. Ce sang portait la puissance de sa lignée, le sang des Célestes!
 
-Sous l'effet du sang doré, l'énergie spirituelle céleste enveloppa les Feuilles Anciennes, les faisant briller d'un éclat d'or. Elles passèrent devant Qing Shui, entourèrent la femme et se scellèrent autour d'elle!
+Sous l'effet du sang doré, l'énergie spirituelle céleste enveloppa les Feuilles Anciennes, les faisant briller d'un éclat d'or. Elles traversèrent Qing Shui, entourèrent la femme et se scellèrent autour d'elle!
 
 Le corps de la femme s'immobilisa soudainement. L'aura dorée l'enveloppa tandis que les feuilles anciennes se transformaient en un sceau pour solidifier sa forme.
 
@@ -102,7 +102,7 @@ Une essence de massacre d'une puissance inouïe jaillit de l'épée et balaya le
 
 « Wang Lin, cette épée est formée de ma Porte du Vide brisée. Elle m'a aidé à ouvrir la porte et contient l'aura du vide. Elle contient aussi ma vie de massacre et mon âme. Elle est issue de mon essence de massacre. Je te l'offre! Si tu la raffines, tu posséderas cette essence! »
 
-Qing Shui lança l'épée noire vers Wang Lin, qui resta en lévitation devant lui. L'aura de massacre qui s'en dégageait stupéfia même Wang Lin.
+Qing Shui lança l'épée noire vers Wang Lin, et elle resta en lévitation devant lui. L'aura de massacre qui s'en dégageait stupéfia même Wang Lin.
 
 Cette épée était une essence de massacre complète!
 

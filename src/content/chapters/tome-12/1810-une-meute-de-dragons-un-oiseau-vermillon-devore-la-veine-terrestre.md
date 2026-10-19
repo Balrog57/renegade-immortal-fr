@@ -50,11 +50,11 @@ Il hésita un instant avant de pousser un rugissement vers le ciel. Il allait pr
 
 « J'ai déclaré au monde que j'étais au début du stade de la Tribulation du Vide, mais en vérité, je n'en suis qu'à ma septième Tribulation Arcane. Néanmoins, mon corps de bois de feu possède une force bien supérieure à celle des cultivateurs ordinaires. Mon corps physique est semblable à celui des gens de l'ancien pays. Je ne crois pas être incapable de l'affronter! Même si son niveau de culture est comparable au mien, son corps ne pourra pas être aussi puissant! » Du Qing semblait avoir retrouvé confiance dans ce rugissement. Il chargea encore plus vite, guidé par la grue de fumée.
 
-Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des sept derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires!
+Après sept jours, l'Oiseau Vermillon sous Wang Lin était devenu encore plus gigantesque. En volant, il semblait couvrir le ciel tout entier. Au cours des six derniers jours, il avait absorbé trois âmes de dragon de feu terrestre supplémentaires!
 
 Les 14 âmes de feu terrestre avaient considérablement accru la puissance du feu de Wang Lin. Il était deux fois plus puissant que lorsqu'il se trouvait dans le monde des grottes!
 
-Derrière lui, Du Qing atteignit la veine de feu terrestre que Wang Lin avait occupée précédemment, le visage pâle. Ces jours de poursuite étaient une forme de torture qu'il n'avait jamais connue auparavant.
+Une heure plus tard, Du Qing atteignit la veine de feu terrestre que Wang Lin avait occupée précédemment, le visage pâle. Ces jours de poursuite étaient une forme de torture qu'il n'avait jamais connue auparavant.
 
 Ce supplice n'affectait pas son corps, mais son esprit! Voir ces veines de feu terrestres se dessécher les unes après les autres suffisait à le rendre fou. Il aurait préféré ne jamais poursuivre Wang Lin, ou même endommager sa propre culture en l'affrontant, plutôt que de continuer à subir cette torture mentale.
 
@@ -76,7 +76,7 @@ Ce n'était plus un simple cri d'âme, mais une âme si puissante qu'elle poussa
 
 Après avoir dévoré tant de veines terrestres, c'était la première qu'il ne pouvait absorber, car elle abritait une âme aussi terrifiante! Un immense Oiseau Vermillon s'élança hors de la montagne et, sur sa tête, Wang Lin tourna soudainement le regard.
 
-Derrière lui, la montagne trembla et des centaines de milliers de pieds de chaînes montagneuses s'effondrèrent. Un dragon de feu dont la tête mesurait 100 000 pieds et dont le corps était d'une taille indéterminée chargea vers eux.
+Derrière lui, la montagne trembla et des centaines de milliers de pieds de chaînes montagneuses s'effondrèrent. Un dragon de feu dont la tête mesurait plusieurs centaines de milliers de pieds et dont le corps était d'une taille indéterminée chargea vers eux.
 
 Ce dragon de feu était manifestement une âme, mais il paraissait bien réel. Il était évident que cette branche était bien plus puissante qu'une branche ordinaire.
 
@@ -94,9 +94,9 @@ Les environs furent scellés par les flammes, et la fumée noire consuma tout l'
 
 Seul le gigantesque dragon de feu s'approchait, ses yeux féroces révélant une nature tyrannique alors qu'il fondait sur l'Oiseau Vermillon de Wang Lin.
 
-Wang Lin laissa échapper un reniflement froid. Bien que cette branche enfantée fût puissante, équivalente à un cultivateur du stade intermédiaire de la Tribulation Arcane, elle ne suffisait pas à faire reculer Wang Lin. Sa main droite traça un sceau et pointa vers le dragon de feu.
+Wang Lin laissa échapper un reniflement froid. Bien que cette branche enfantée fût puissante, équivalente à un cultivateur du stade intermédiaire du Vide Arcanique, elle ne suffisait pas à faire reculer Wang Lin. Sa main droite traça un sceau et pointa vers le dragon de feu.
 
-« Seize veines de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de l'Oiseau Vermillon et se précipitèrent contre le dragon de feu adverse.
+« Seize branches de veine de feu terrestre, apparaissez en mon nom! » À l'instant où les mots de Wang Lin résonnèrent, seize dragons de feu apparurent autour de l'Oiseau Vermillon et se précipitèrent contre le dragon de feu adverse.
 
 C'est à ce moment précis qu'un rayon de lumière fendit la distance. Du Qing avait enfin rattrapé son retard!
 

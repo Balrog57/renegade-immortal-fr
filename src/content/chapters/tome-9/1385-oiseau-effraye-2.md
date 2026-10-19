@@ -28,7 +28,7 @@ Cupidité ricana.
 
 À ce moment crucial entre la vie et la mort, Zhong Grand Rouge joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan des Scorpions Noirs est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
 
-« Sa culture défie le ciel? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque provoque mes limites doit mourir! »
+« Sa culture défie le ciel? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque franchit ma limite doit mourir! »
 
 Cupidité agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Grand Rouge. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 
@@ -60,7 +60,7 @@ Le corps de Cupidité vacilla puis il se tint sur la tête du géant d'arbres, s
 
 « Le Fourneau Impérial!! C'est l'un des trésors légendaires de Cupidité, le Fourneau Impérial! »
 
-« J'ai entendu dire que lorsque Cupidité était encore au stade de la Purification du Nirvana, il utilisa ce trésor contre trois cultivateurs du Brisement du Nirvana qui le poursuivaient. Il en tua un et en blessa gravement deux autres! »
+« J'ai entendu dire que lorsque Cupidité était encore au stade de la Purification du Nirvana, il utilisa ce trésor contre trois cultivateurs du Briseur du Nirvana qui le poursuivaient. Il en tua un et en blessa gravement deux autres! »
 
 Cupidité agita une fois de plus la main droite et une brume noire apparut, se contractant finalement pour former une lance. Cette lance de brume dégageait une aura destructrice et terrifiante!
 
@@ -82,9 +82,9 @@ Il n'aurait jamais pu imaginer, même en son pire cauchemar, croiser la source d
 
 « C'est... c'est impossible. Ma vue doit me jouer des tours! » Le cœur de Cupidité battait la chamade et son corps se couvrit de sueur froide alors qu'une vague d'émotions le submergeait. Tout son être tremblait. Lorsque la silhouette devint plus nette, Cupidité jeta un second regard. Une explosion retentit dans son esprit tandis que ses yeux s'écarquillèrent, submergés par l'incrédulité.
 
-Ses cauchemars refirent surface: le vol du dragon de tonnerre antique, du fourneau, de la Peinture des Montagnes et des Rivières, de l'âme de la montagne... Le souvenir de tous ses trésors dérobés envahit son cœur avant que la peur et le choc ne tout engloutissent.
+Ses cauchemars refirent surface: le vol du dragon de tonnerre antique, du fourneau, de la Peinture des Montagnes et des Rivières, de l'âme de la montagne... Le souvenir de tous ses trésors dérobés envahit son cœur avant que la peur et le choc ne l'engloutissent.
 
-« Lui... C'est lui!!! Comment peut-il être ici? C'est impossible! Il était dans le Royaume Intérieur, comment a-t-il pu surgir ici?! Mon ennemi juré, c'est mon ennemi! Il doit savoir que j'ai acquis de nouveaux trésors et il est venu pour me les voler!!! »
+« Lui... C'est lui!!! Comment peut-il être ici? C'est impossible! Il était dans le Royaume Intérieur, comment a-t-il pu surgir ici?! Ma némésis, il est ma némésis! Il doit savoir que j'ai acquis de nouveaux trésors et il est venu pour me les voler!!! »
 
 Tout cela se produisit en un éclair. Au moment où la silhouette s'avança, tout le monde regardait Cupidité avec excitation, espérant qu'il déploierait un trésor pour anéantir cet intrus!
 
@@ -96,6 +96,6 @@ Sa fuite fut aussi soudaine qu'imprévisible, tel un oiseau effrayé. Il n'eut m
 « Il est incroyablement rapide, il a disparu en un instant... Serait-ce une préparation avant d'utiliser un trésor puissant? »
 « Son cri... on aurait dit que quelque chose avait mal tourné. Comme s'il avait rencontré quelque chose de terrifiant... »
 « Pourquoi ai-je l'impression que le Seigneur Cupidité est en train de fuir...? »
-« Cupidité?! »
+« Fuir?! »
 
 « Cupidité! » La silhouette de Wang Lin émergea du monde, lui aussi surpris.

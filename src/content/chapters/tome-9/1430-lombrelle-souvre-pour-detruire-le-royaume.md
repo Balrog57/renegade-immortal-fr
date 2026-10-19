@@ -34,7 +34,7 @@ L'esprit originel de l'Oiseau Vermillon! Cette plume était un trésor inestimab
 
 Ce que la plume avait invoqué était un véritable Oiseau Vermillon, issu de la patrie du premier Oiseau Vermillon! Ce n'était pas une créature formée par les cultivateurs du clan, mais un être vivant!
 
-Le bec de l'Oiseau Vermillon descendit brusquement du vortex, provoquant une concavité dans la mer de feu, le bec marquant le point le plus bas!
+Le bec de l'Oiseau Vermillon descendit brusquement du vortex, provoquant un bombement de la mer de feu, le bec marquant le point le plus bas!
 
 Dans sa descente, le feu bouillonnait!
 
@@ -52,7 +52,7 @@ Ses paroles ébranlèrent le monde entier. Avec le mot « terre », une étendue
 
 Avec le mot « feu », la mer commença à brûler, recouverte d'une flamme aux sept couleurs. Enfin, avec le dernier mot, « vent », une rafale balaya les flammes.
 
-« Quatre Éléments!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par les flammes, puis par la mer en furie!
+« Les Quatre Éléments sont vides!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par les flammes, puis par la mer en furie!
 
 Après la flamme venait la mer déchaînée. Enfin, la terre traversa le corps de l'homme et chargea vers le ciel comme pour colmater le vortex.
 
@@ -64,7 +64,7 @@ Ou alors, il pourrait choisir son plan de secours: quitter le Royaume Extérieur
 
 Cependant, c'était en ce moment même la meilleure opportunité pour blesser gravement ou tuer le Souverain. S'il manquait cette chance, il n'en aurait plus jamais!
 
-Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur après avoir anéanti le clan Tonnerre Dispersé!
+Wang Lin avait passé sa vie à chercher l'avantage dans les situations périlleuses; comment pourrait-il laisser passer cela? Il voulait accomplir quelque chose d'historique dans le Royaume Extérieur, après avoir anéanti le clan Tonnerre Dispersé, qui ébranlerait tout le Système Stellaire Antique!
 
 Tuer le Souverain!
 
@@ -104,7 +104,7 @@ Voyant que la terre était sur le point de se désintégrer, le Souverain cracha
 
 Des grondements tonitruants retentirent. La grande terre, couverte d'innombrables fissures, fonça directement dans la mer de feu du ciel. Elle recouvrit toute la mer de feu et scella le vortex géant par lequel l'esprit originel de l'Oiseau Vermillon était arrivé!
 
-Le monde trembla et fut déchiré alors que l'onde de choc se propageait, provoquant une désintégration frénétique de tout ce qui l'entourait. Le Souverain toussa du sang, son visage devenant encore plus pâle. Il se retourna vers Wang Lin avec une expression féroce avant de lever le pied!
+Le monde trembla et fut déchiré alors que l'onde de choc se propageait, provoquant une désintégration frénétique de tout ce qui l'entourait. Le Souverain toussa du sang, son visage devenant encore plus pâle. Il se retourna vers Wang Lin avec une expression féroce avant de faire un pas en avant!
 
 Wang Lin fut frappé par cette onde de choc et du sang jaillit du coin de sa bouche, mais ses mains bougeaient de plus en plus vite. Il luttait pour continuer à former les sceaux; il y avait désormais plus d'un million de sceaux autour de lui.
 

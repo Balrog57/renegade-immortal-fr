@@ -12,7 +12,7 @@ Sous ce regard, le corps de Wang Ping fut envahi par un froid glacial. C'était 
 
 La puissance de Wang Lin avait atteint la limite du Daoïste du Tonnerre. À moins d'une situation de force majeure, il n'avait aucune envie d'utiliser un sortilège d'énergie originelle, car cette ressource était d'une rareté absolue.
 
-Avec son niveau de culture, à moins d'être confronté à une lutte à mort, il refusait de gaspiller l'énergie originelle. Après tout, plus il en consommait, plus il resterait bloqué au stade de l'Yin Illusoire. S'il ne parvenait pas à franchir ce stade après mille ans, sa culture cesserait de progresser à jamais.
+Avec son niveau de culture, à moins d'être confronté à une lutte à mort, il refusait de gaspiller l'énergie originelle. Après tout, plus il en consommait, plus il resterait bloqué au stade Yin et Yang. S'il ne parvenait pas à franchir ce stade après mille ans, sa culture cesserait de progresser à jamais.
 
 Il lui restait moins de trois cents ans; il n'était donc pas disposé à user de tels sortilèges avec légèreté.
 
@@ -34,11 +34,11 @@ Les yeux de Wang Lin étaient injectés de sang alors qu'il fixait le Daoïste d
 
 Alors que le Daoïste du Tonnerre reculait, son expression changea une fois de plus. Il sentit une aura terrifiante descendre des cieux.
 
-« Un sortilège d'énergie originelle! Comment peux-tu utiliser un sortilège d'énergie originelle?! » Tandis que son visage se décomposait, il fut saisi par une crise de vie ou de mort. Le Daoïste du Tonnerre était inférieur à l'ancêtre de la famille Huan. Après tout, le niveau de culture de cet ancêtre se situait initialement au début du stade Scruteur du Nirvana. Même si sa puissance avait décliné, il restait bien plus redoutable que n'importe quel cultivateur ordinaire de l'Yin Illusoire et du Yang.
+« Un sortilège d'énergie originelle! Comment peux-tu utiliser un sortilège d'énergie originelle?! » Tandis que son visage se décomposait, il fut saisi par une crise de vie ou de mort. Le Daoïste du Tonnerre était inférieur à l'ancêtre de la famille Huan. Après tout, le niveau de culture de cet ancêtre se situait initialement au début du stade Scruteur du Nirvana. Même si sa puissance avait décliné, il restait bien plus redoutable que n'importe quel cultivateur ordinaire du stade Yin et Yang.
 
 Saisi par l'urgence, il pointa son doigt entre ses sourcils et ses yeux projetèrent une lumière blanche. Cette lueur était douce, mais contenait un fragment d'énergie originelle du monde. En un instant, une portion de cette énergie jaillit du corps du Daoïste du Tonnerre pour s'échapper par le sommet de son crâne.
 
-À cet instant, la planète entière trembla et une aura indistincte emplit l'univers. Le visage du Daoïste du Tonnerre était livide; il était évident que l'usage d'un sortilège d'énergie originelle représentait un fardeau colossal pour lui.
+À cet instant, la planète entière trembla et une aura indistincte emplit les environs. Le visage du Daoïste du Tonnerre était livide; il était évident que l'usage d'un sortilège d'énergie originelle représentait un fardeau colossal pour lui.
 
 Le Daoïste du Tonnerre hurla: « Fourneau de tonnerre d'énergie originelle! » Une masse supplémentaire d'énergie jaillit de sa tête, et le monde bascula!
 
@@ -50,17 +50,17 @@ Le basculement entre le ciel et la terre s'acheva en un instant. À cet instant 
 
 Le firmament et le sol s'étaient métamorphosés en un fourneau gigantesque! Le ciel servait de couvercle tandis que la terre constituait le corps du réceptacle! C'était là la puissance d'un sortilège d'énergie originelle!
 
-À ce moment, la Bête du Tonnerre issue du Temple Céleste du Tonnerre poussa un rugissement. Traînant son corps blessé, elle se mua en un éclair de foudre et atterrit sur le fourneau. Rapidement, d'innombrables gravures apparurent sur la surface jusque-là vierge du réceptacle.
+À ce moment, la Bête du Tonnerre issue du Temple Céleste du Tonnerre poussa un rugissement. Traînant son corps blessé, elle se mua en un éclair de foudre et atterrit sur le fourneau. Peu à peu, d'innombrables gravures apparurent sur la surface jusque-là vierge du réceptacle.
 
 C'étaient des gravures de la Bête du Tonnerre!
 
 « Xu Mu, voici le sortilège d'énergie originelle de ce vieil homme! Voyons lequel de nous deux survivra! » Le monde était devenu un fourneau, et la voix du Daoïste du Tonnerre résonnait avec la puissance des cieux.
 
-Le tonnerre grondait à l'intérieur du gigantesque fourneau et d'innombrables éclairs parcouraient ce monde sans fin. Le fourneau formé par le cosmos agissait comme un creuset, commençant à raffiner tout ce qui s'y trouvait à mesure que les foudres se multipliaient.
+Le tonnerre grondait à l'intérieur du gigantesque fourneau et d'innombrables éclairs parcouraient ce monde sans fin. Le fourneau formé par le ciel et la terre agissait comme un creuset, commençant à raffiner tout ce qui s'y trouvait à mesure que les foudres se multipliaient.
 
 L'épée dans la main de Wang Lin tomba tout simplement. L'aura étrange, désormais imprégnée des lois du monde, emplit tout le fourneau. Ce qu'elle tranchait n'était pas un objet matériel, mais les lois mêmes de ce monde!
 
-Les éclairs continuaient de s'abattre sur Wang Lin. Ce tonnerre ne naissait pas des cieux, mais du sortilège du Daoïste du Tonnerre. Outre la foudre, il véhiculait également son Dao!
+Les éclairs continuaient de s'abattre sur Wang Lin. Ce tonnerre ne naissait pas des cieux, mais du sortilège du Daoïste du Tonnerre. Outre la foudre, il véhiculait également son intention du Dao!
 
 Lorsque le Coup Céleste s'abattit, le fourneau devint illusoire aux yeux de Wang Lin. Des filaments bleus entouraient la zone, et c'étaient ces fils qui maintenaient la structure du fourneau!
 
@@ -70,10 +70,10 @@ Peu de temps après, des éclairs du Dao encore plus puissants descendirent. Cha
 
 Le regard de Wang Lin devint plus glacial encore. À cet instant, la marionnette du Gardien Céleste, également enfermée dans le fourneau, commença à asséner des coups de poing frénétiques. Elle bombardait toute la zone, faisant trembler l'univers entier.
 
-Bien que le tonnerre fût puissant, la chair de la marionnette était bien plus résistante; la foudre ne pouvait donc lui infliger le moindre dommage. Chaque coup porté par la marionnette équivalait à l'attaque d'un cultivateur de l'Yin Illusoire sur les parois du fourneau. C'était là la menace la plus directe pour le Daoïste du Tonnerre!
+Bien que le tonnerre fût puissant, la chair de la marionnette était bien plus résistante; la foudre ne pouvait donc lui infliger le moindre dommage. Chaque coup porté par la marionnette équivalait à un sortilège d'Yin Illusoire frappant les parois du fourneau. C'était là la menace la plus directe pour le Daoïste du Tonnerre!
 
 Comme pour répondre à la marionnette, la Bête du Tonnerre rugit. Son corps irradia une lumière éclatante et un éclat doré jaillit de sa corne argentée. D'innombrables éclairs s'échappèrent de son corps pour se répandre partout. Le tonnerre provoqua des fracas incessants, faisant vibrer le fourneau avec plus de violence encore.
 
 Le gémissement étouffé du Daoïste du Tonnerre résonna une fois de plus, et une masse colossale d'énergie originelle s'échappa de son corps pour alimenter le grand fourneau.
 
-« Affine tout, pour ce vieil homme!!! »
+« Affine, pour ce vieil homme!!! »

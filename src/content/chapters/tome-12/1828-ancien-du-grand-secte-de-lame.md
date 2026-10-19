@@ -36,7 +36,7 @@ Dès qu'il posa le pied sur le sommet de la montagne, l'encens de neige disparut
 
 « Tu es revenu. » Le véritable corps d'essence du Très Respecté Taureau Vert ouvrit les yeux et sourit.
 
-« Voici le Sort de l'Œil de l'Âme. » Le Très Respecté Taureau Vert leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
+« Voici le Dao de l'Œil de l'Âme. » Le Très Respecté Taureau Vert leva la main droite et saisit le vide. Un jade pourpre apparut dans sa paume, dégageant une aura antique, comme s'il avait existé depuis des éons.
 
 D'un geste, il lança le jade vers Wang Lin sans même attendre de réponse.
 
@@ -64,7 +64,7 @@ La jeune femme qui possédait cette montagne s'appelait Yan Luan. Elle paraissai
 
 Dès que Wang Lin et le Très Respecté Taureau Vert apparurent à l'horizon, Yan Luan tourna les yeux vers eux. Son regard se glaça et son visage se couvrit d'une intention meurtrière.
 
-« Disciples de la Montagne de la Veine de Flamme, écoutez mon ordre! Suivez le Maître pour traquer et tuer le voleur qui a détruit mon pic! » Yan Luan se transforma en un rayon de lumière et s'élança, suivie par plus d'une douzaine de disciples centraux, parmi lesquels Fan Shanmeng et Fan Shanlu.
+« Disciples de la Montagne du Filon de Feu, écoutez mon ordre! Suivez le Maître pour traquer et tuer le voleur qui a détruit mon pic! » Yan Luan se transforma en un rayon de lumière et s'élança, suivie par plus d'une douzaine de disciples centraux, parmi lesquels Fan Shanmeng et Fan Shanlu.
 
 À première vue, ce groupe de maîtres et de disciples n'était composé que de femmes, toutes d'une grande beauté. Elles prirent la forme d'un phénix en volant vers l'avant pour faire face à Wang Lin et au Très Respecté Taureau Vert.
 

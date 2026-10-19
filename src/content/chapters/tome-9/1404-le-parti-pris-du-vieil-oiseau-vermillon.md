@@ -36,9 +36,9 @@ L'intention meurtrière dans les yeux de Maître Simo s'évanouit. Il joignit le
 
 Aucun sort ne sembla jaillir de ce geste, mais l'expression de Grand Maître Yun Luo changea radicalement et elle recula sans hésiter. Les pupilles de Maître Simo se rétractèrent également; il laissa échapper un rugissement en commençant à former des sceaux de mains. Cependant, avant qu'il ne puisse les achever, un grondement tonitruant retentit.
 
-Maître Simo recula précipitamment devant ce fracas. Sa main tremblait et son visage était pâle. Un feu éthéré brûlait en lui et clignota trois fois. À chaque éclat, la puissance de combustion à l'intérieur de son corps augmentait.
+Maître Simo recula précipitamment de trente pieds devant ce fracas. Sa main tremblait et son visage était pâle. Un feu éthéré brûlait en lui et clignota trois fois. À chaque éclat, la puissance de combustion à l'intérieur de son corps augmentait.
 
-Après ces trois éclats, le corps de Maître Simo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
+Après ce recul, le corps de Maître Simo trembla violemment et il cracha du sang. Ses yeux étaient pétris de terreur.
 
 « Senior, vous intimidez un junior devant tout le monde! Qu'est-ce que cela signifie?! » La colère se lut sur le visage de Maître Simo, mais cette rage sembla alimenter le feu éthéré qui l'entourait, le rendant plus puissant encore.
 
@@ -48,7 +48,7 @@ Maître Simo cracha du sang une fois de plus. À ce moment, Grand Maître Yun Lu
 
 Il fut si rapide que l'œil nu ou même le Sens Divin ne purent le suivre. Il surgit devant Maître Simo et lui asséna une gifle directe.
 
-Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Son visage gonfla, prenant une teinte violacée.
+Sous la force de l'impact, Maître Simo laissa échapper un gémissement étouffé et fut projeté en arrière de plusieurs dizaines de pieds. Sa joue gauche gonfla, prenant une teinte violacée.
 
 Le visage de Grand Maître Yun Luo pâlit alors qu'elle reculait: « Senior, arrêtez, le Conseil Souverain... »
 
@@ -78,13 +78,13 @@ Le parti pris du Clan de l'Oiseau Vermillon se transmettait de génération en g
 
 Wang Lin esquissa un sourire en observant la scène. Il voyait en ce vieil homme l'ombre de Qing Shui et du cinquième Empereur Divin de l'Oiseau Vermillon.
 
-La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Na, Qing Shui, de l'ancien Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
+La personnalité de Wang Lin était parfois très simple: ceux qui lui étaient bienveillants recevaient des faveurs multipliées plusieurs fois. À l'instar de Situ Nan, Qing Shui, de l'ancien Empereur Divin de l'Oiseau Vermillon ou de Dun Tian... Les cultivateurs qui se disputaient le poste d'Ancien Déchu s'arrêtèrent et reculèrent. Les dizaines de milliers de cultivateurs des Terres Déchues manifestèrent un immense respect, et la dizaine de messagers du Grand Empereur levèrent également les yeux vers le ciel avec déférence.
 
 Quant aux autres personnes suspendues dans le ciel, elles restèrent silencieuses.
 
 Après avoir giflé Maître Simo à plusieurs reprises, l'Oiseau Vermillon détourna son regard et retourna aux côtés de Wang Lin. Il ignora totalement Maître Simo, dans un état pitoyable, ainsi que la sombre Grand Maître Yun Luo.
 
-« Ce vieil homme est très heureux que vous soyez tous ici. Bien qu'il manque encore quelques vieux briscards, ce n'est pas grave. Puisque tout le monde est présent, je veux que vous soyez tous témoins de l'épreuve de mon troisième Jeune Empereur des Terres Déchues! »
+« Ce vieil homme est très heureux que vous soyez tous réunis sur la Planète du Grand Empereur. Bien qu'il manque encore quelques vieux briscards, ce n'est pas grave. Puisque tout le monde est présent, je veux que vous soyez tous témoins de l'épreuve de mon troisième Jeune Empereur des Terres Déchues! »
 
 « S'il réussit l'épreuve, il deviendra un véritable Jeune Empereur. Faire de lui votre ennemi revient à faire de ce vieil homme votre ennemi, et des Terres Déchues votre ennemi! » L'Oiseau Vermillon joignit les mains face à l'assemblée. Il prit Wang Lin par l'épaule et désigna le bel homme.
 
@@ -94,7 +94,7 @@ L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait
 
 Le bel homme rit et hocha la tête vers Wang Lin.
 
-« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Tai Huang. Sa culture du poison lui a valu une grande renommée! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
+« Il y a aussi ce vieux briscard avec une aiguille dans la bouche, c'est quelqu'un que tu devrais connaître. Bien qu'il ne soit pas l'un des cinq maîtres, sa culture n'est pas dérisoire. C'est le soi-disant Très Honorable Grande Désolation. Sa culture du poison lui a valu une redoutable renommée! » L'Oiseau Vermillon désigna le vieil homme maigre assis sur un lézard.
 
 Les yeux du vieillard s'illuminèrent et il laissa échapper un grognement froid. Ses lèvres ne bougèrent pas, mais une voix émana de son corps:
 
@@ -108,7 +108,7 @@ Les yeux de l'Oiseau Vermillon s'écarquillèrent en entendant l'insulte « vieu
 
 Tandis qu'il parlait, l'Oiseau Vermillon leva la main droite et fit un geste vers l'arène. Il cria: « La sélection de l'Ancien Déchu est reportée, et l'épreuve du Jeune Empereur commence! »
 
-Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la carapace géante qui entourait l'arène apparut.
+Sa voix tonna comme le tonnerre et résonna dans toute l'arène. Le rugissement d'une tortue dragon retentit, et la tortue géante, déjà apparue sous les coups de Wang Lin, surgit de l'arène, sa carapace se reformant plaque après plaque.
 
 La tortue était immense et d'une férocité extrême. C'était une vision inoubliable! Une force puissante se propagea, et les dizaines de milliers de cultivateurs environnants firent preuve d'un profond respect tout en évitant l'onde de choc.
 

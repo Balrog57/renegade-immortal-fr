@@ -34,7 +34,7 @@ Le vieil homme ordonna alors: « Explosez! »
 
 Dans deux fracas successifs, les deux membres du Clan des Immortels Délaissés explosèrent, et l'onde de choc percuta la porte.
 
-En voyant ce sort, Wang Lin le reconnut immédiatement comme étant celui du Seigneur Démoniaque des Six Désirs.
+En voyant ce sort, Wang Lin le reconnut immédiatement comme étant la Formule des Démons Célestes des Six Désirs, la technique du Seigneur Démon des Six Désirs.
 
 La porte trembla violemment après l'explosion des deux membres du clan, et de nouvelles fissures s'y formèrent.
 

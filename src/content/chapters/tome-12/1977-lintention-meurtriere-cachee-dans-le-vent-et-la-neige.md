@@ -88,7 +88,7 @@ Il ne s'attarda pas au Manoir Li, mais emmena le dragon marin ainsi que Liu Jinb
 
 « Je l'ai vu... Même s'il a perdu la mémoire, il semble très heureux pour l'instant, et cela me suffit... » Wang Lin se tenait près de la fenêtre, contemplant le ciel qui s'obscurcissait. Il était resté là tout l'après-midi.
 
-« Il est temps de partir... Peu importe, je vais emmener Xu Liguo et quitter la cité ancestrale... Puis je me rendrai vers... l'Ancien Clan! » Wang Lin poussa un soupir. Il était épuisé. Il avait tant vécu au sein du clan céleste, et bien qu'il ait désormais son statut et son niveau de culture, rien de tout cela ne valait les souvenirs perdus de ses amis.
+« Il est temps de partir... Peu importe, je vais emmener Xu Liguo et quitter la cité ancestrale... Puis je me rendrai vers... le Clan Ancien! » Wang Lin poussa un soupir. Il était épuisé. Il avait tant vécu au sein du clan céleste, et bien qu'il ait désormais son statut et son niveau de culture, rien de tout cela ne valait les souvenirs perdus de ses amis.
 
 « Peut-être ai-je réellement mal compris l'Empereur Céleste... » Wang Lin se remémora silencieusement la cérémonie des titres. En vérité, il n'avait aucune raison d'être aussi hostile envers l'empereur, ce n'était qu'une intuition.
 

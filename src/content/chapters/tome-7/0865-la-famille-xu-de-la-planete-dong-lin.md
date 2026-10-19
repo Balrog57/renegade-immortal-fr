@@ -36,7 +36,7 @@ L'expression de Wang Lin demeura imperturbable. Bien que l'autre personne ait le
 
 Peu de personnes avaient pu détecter ce contact; ils n'étaient que quatre au total!
 
-L'un d'eux venait du Domaine Nord. C'était un homme d'âge moyen au visage pâle. Le plus étrange était sa main droite: il avait six doigts au lieu de cinq, le sixième bifurquant de son pouce!
+L'un d'eux venait du Domaine Nord. C'était un homme d'âge moyen au visage pâle et sans barbe. Le plus étrange était sa main droite: il avait six doigts au lieu de cinq, le sixième bifurquant de son pouce!
 
 La deuxième personne venait également du Domaine Nord. C'était un garçon à la tête disproportionnée qui paraissait très irrégulière. Pourtant, un espace vide d'environ dix mètres de diamètre l'entourait, car personne ne semblait vouloir s'approcher de lui.
 

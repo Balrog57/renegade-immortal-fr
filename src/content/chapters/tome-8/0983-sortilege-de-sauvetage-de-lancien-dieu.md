@@ -38,7 +38,7 @@ Bien que le Fourneau de l'Ancien Dieu possédât l'aura d'un Ancien Dieu, il man
 
 On pourrait même dire que Tu Si ne l'avait jamais utilisé, mais ce bouclier était très différent. Il devait être un objet qu'un Ancien Dieu utilisait fréquemment, sans quoi il n'aurait pas projeté l'illusion de son maître lors de son activation.
 
-Bien qu'il ne soit pas aussi puissant que la véritable Lance de l'Extermination Divine, il s'en rapprochait. C'était un trésor qui ne pouvait être manié que par un Ancien Dieu!
+Bien qu'il ne soit pas aussi puissant que la véritable Lance Tueuse de Dieux, il s'en rapprochait. C'était un trésor qui ne pouvait être manié que par un Ancien Dieu!
 
 Si un non-Ancien Dieu l'obtenait, il ne pourrait en utiliser qu'une infime partie. Et si le sceau était totalement ouvert, le bouclier refuserait tout propriétaire! Car, en fin de compte, il ne reconnaîtrait pour maître qu'un Ancien Dieu!
 

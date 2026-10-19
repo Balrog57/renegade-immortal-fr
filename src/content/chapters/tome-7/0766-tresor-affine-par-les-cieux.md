@@ -24,7 +24,7 @@ Peu après, un éclair jaillit des nuages et frappa le fragment. Le tonnerre se 
 
 Le corps de Wang Lin trembla soudainement.
 
-Peu après, d'innombrables éclairs se rassemblèrent et s'abattirent sur le sol. Cela fit à nouveau vibrer le fragment, provoquant l'effondrement de pans entiers de roche du bord de la falaise.
+Peu après, d'innombrables éclairs se rassemblèrent et s'abattirent sur le sol. Cela fit à nouveau vibrer le fragment, provoquant l'effondrement de pans entiers de roche sur les bords du fragment.
 
 L'Ancêtre Sanguin observait le fragment à distance. Il pouvait clairement sentir la moitié de son corps de sang sur ce fragment, et l'énergie originelle qu'il contenait était en train d'être rapidement absorbée.
 
@@ -54,11 +54,11 @@ De puissants rugissements tonitruants résonnèrent à travers le vide. Le fragm
 
 Le corps de Wang Lin tremblait à chaque fois qu'un éclair pénétrait en lui, et d'innombrables décharges avaient déjà déferlé dans ses veines. Xu Liguo était terrifié et ne pouvait que se cacher à l'intérieur de l'épée céleste; un seul de ces éclairs lui aurait été fatal.
 
-À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de l'Ancêtre Sanguin s'annulaient mutuellement. Normalement, ce processus aurait pris une éternité, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
+À cet instant, au cœur du corps de Wang Lin, la puissance de l'homme âgé et celle de l'Ancêtre Sanguin s'annulaient et fusionnaient mutuellement. Normalement, ce processus aurait pris une éternité, mais les éclairs constants qui infiltraient son corps l'accéléraient prodigieusement.
 
 L'énergie originelle à l'intérieur de lui augmentait de façon effrénée. Loin de détruire son corps, le tonnerre de la rétribution divine lui apportait des bénéfices inimaginables.
 
-Cependant, il restait inconscient. S'il avait été éveillé, les bienfaits auraient été décuplés par sa propre guidance.
+Cependant, il restait inconscient. S'il avait été éveillé, les bienfaits auraient été bien plus grands sous sa propre guidance.
 
 Les éclairs tombaient sans fin sur le fragment, comme si celui-ci se trouvait dans une forge façonnée par les cieux et qu'il était affiné par le tonnerre céleste.
 

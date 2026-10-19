@@ -46,7 +46,7 @@ Une fois son Âme Naissante formée, il ne lui resterait plus qu'à retourner da
 
 Il voulait exterminer toute la famille Teng, des anciens jusqu'aux descendants, et même tous ceux qui lui étaient liés... sans laisser en vie ni poule ni chien.
 
-Il voulait que le vieux Jimo meure sans sépulture et que tous ses disciples hurlent de douleur pendant des mois avant de périr.
+Il voulait que le vieux Ji Mo meure sans sépulture et que tous ses disciples hurlent de douleur pendant des mois avant de périr.
 
 Il voulait que tous ceux qui avaient secrètement aidé la famille Teng soient punis. Il voulait qu'ils paient un prix insupportable.
 
@@ -104,11 +104,11 @@ Une fois Wang Lin parti, le sourire s'effaça du visage de Qiu Siping. Un regard
 
 Mais il ne remarqua pas qu'une créature transparente avait observé son expression avec clarté et le suivait silencieusement après son départ.
 
-Peu de temps après, Wang Lin retourna à la ville de Qilin. Grâce au démon Xu Liguo, il pouvait surveiller Qiu Siping de près. À Wang Lin peu importait de savoir si le cultivateur en état de Gui Xi était réellement le maître de Qiu Siping ou non. Tant qu'il pouvait confirmer la présence d'un cultivateur de l'Âme Naissante piégé dans cette ancienne grotte, cela lui suffisait amplement.
+Peu de temps après, Wang Lin retourna à la ville de Qi Lin. Grâce au démon Xu Liguo, il pouvait surveiller Qiu Siping de près. À Wang Lin peu importait de savoir si le cultivateur en état de Gui Xi était réellement le maître de Qiu Siping ou non. Tant qu'il pouvait confirmer la présence d'un cultivateur de l'Âme Naissante piégé dans cette ancienne grotte, cela lui suffisait amplement.
 
 Quant au délai de sept jours, Wang Lin voulait utiliser Xu Liguo pour vérifier si toute cette histoire de cultivateurs de l'Âme Naissante en état de Gui Xi était vraie.
 
-De retour dans sa grotte à l'intérieur de l'écaille de la bête Qilin, Wang Lin s'assit en tailleur. Il toucha son sac de rangement et deux objets apparurent dans sa main.
+De retour dans sa grotte à l'intérieur de l'écaille de la bête Qi Lin, Wang Lin s'assit en tailleur. Il toucha son sac de rangement et deux objets apparurent dans sa main.
 
 L'un était le sac de rangement de Yun Fei, l'autre était le mystérieux fourneau alchimique.
 
@@ -282,7 +282,7 @@ Des relents d'atmosphère ancienne s'en échappèrent. Les restrictions clignot�
 
 À ce stade, de nouveaux symboles continuaient d'apparaître, formant une ligne qui enveloppait l'objet.
 
-Pendant ce temps, dans le champ d'étoiles situé à des centaines de kilomètres au-dessus des épais nuages surplombant la ville de Qilin.
+Pendant ce temps, dans le champ d'étoiles situé à des centaines de kilomètres au-dessus des épais nuages surplombant la ville de Qi Lin.
 
 Parmi les astres, un nuage rouge commença à s'amasser et à gonfler, atteignant une cinquantaine de kilomètres de diamètre.
 

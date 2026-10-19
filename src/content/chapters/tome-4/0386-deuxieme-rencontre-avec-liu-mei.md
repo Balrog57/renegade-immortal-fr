@@ -102,7 +102,7 @@ Wang Lin prit une inspiration glacée. Après avoir confirmé ses soupçons, il 
 Liu Mei se mordit la lèvre et murmura:
 — Frère Wang, tu devrais partir. Le plus tôt sera le mieux. Elle lui lança un regard chargé de sens, soupira, puis partit.
 
-En s'éloignant, elle songea: *« Wang Lin... Mon maître m'a ordonné de laisser mon empreinte sur ton cœur Dao. C'est un destin auquel je ne peux résister... Je ne peux désobéir à mon maître... À moins que ton ombre n'apparaisse dans mon cœur Dao, il n'y a aucun moyen pour moi de perdre cette bataille entre nos cœurs Dao... Seule moi, Liu Mei, ai compris le domaine "Mille Illusions Impitoyables" et j'ai montré des émotions en surface tout en gardant un cœur impitoyable. Comment pourrais-tu gagner? »* Dans ses yeux brillait une pointe d'impitoyabilité, dissimulée par son jeu d'acteur.
+En s'éloignant, elle songea: *« Wang Lin... Mon maître m'a ordonné de laisser mon empreinte sur ton cœur Dao. C'est un destin auquel je ne peux résister... Je ne peux désobéir à mon maître... À moins que mon cœur Dao ne porte ton ombre, tu n'as aucun moyen de gagner cette bataille entre nos cœurs Dao... Seule moi, Liu Mei, ai compris le domaine "Mille Illusions Impitoyables" et j'ai montré des émotions en surface tout en gardant un cœur impitoyable. Comment pourrais-tu gagner? »* Dans ses yeux brillait une pointe d'impitoyabilité, dissimulée par son jeu d'acteur.
 
 Wang Lin continuait de froncer les sourcils en regardant le dos de Liu Mei. Bien qu'elle semblât avoir signalé un problème, elle laissait aussi derrière elle d'innombrables incertitudes. Il marmonna pour lui-même:
 — Tout cela est étrange. J'ai ce sentiment bizarre à propos de Liu Mei. Étrange...

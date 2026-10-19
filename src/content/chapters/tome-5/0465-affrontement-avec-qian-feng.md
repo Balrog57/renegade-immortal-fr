@@ -20,7 +20,7 @@ De plus, ces quelques décennies de vie supplémentaire exigeaient un prix exorb
 
 La poupée de bronze était la clé. Elle avait été créée par le quatrième Suzaku à partir d'un fer venu d'au-delà du ciel, au fil d'innombrables années. Puis, les Suzakus suivants l'avaient raffinée sans relâche, lui permettant enfin d'absorber la durée de vie pour la condenser.
 
-En réalité, si cette poupée de bronze possédait un tel pouvoir, c'était en raison de la mutation du Cristal de Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
+En réalité, si cette poupée de bronze possédait un tel pouvoir, c'était en raison de la mutation du Cristal de la Planète de Culture, et les précédents Suzakus avaient appris à maîtriser cette puissance en étudiant le cristal.
 
 Cependant, cet objet n'était pas encore achevé et présentait de nombreux défauts. Actuellement, bien que Zhu Quezi l'ait utilisé pour prendre forme et paraisse plein de vitalité, ce n'était qu'une apparence temporaire.
 
@@ -98,7 +98,7 @@ Simultanément, Wang Lin abattit sa hache sur le bois vert. D'un seul coup, l'ob
 
 « Meurs! » En criant cela, Wang Lin lança la hache en avant. Au même instant, les quatre fourreaux d'épée jaillirent comme des météores. Quatre rayons d'énergie d'épée destructrice s'élancèrent des fourreaux pour converger vers Qian Feng de toutes les directions.
 
-Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière dorée pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point d'affecter même la téléportation.
+Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière dorée pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point de gêner légèrement la téléportation.
 
 Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Ceng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
 

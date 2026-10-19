@@ -18,7 +18,7 @@ La femme sourit, affichant un regard charmeur. Sa voix était séduisante lorsqu
 
 Le jeune homme afficha sa fierté. La famille Yao était un nom que même le Temple Céleste du Tonnerre devait respecter. En tant que membre de la lignée Yao, il en était ainsi: tant qu'il posait les yeux sur une chose, rien ne lui résistait.
 
-À cet instant, au sein du vide, Wang Lin vit le fragment devant lui. Son corps vacilla et apparut au-dessus de celui-ci.
+À cet instant, au sein du vide, Wang Lin vit le fragment devant lui. Son corps vacilla et il se retrouva sur celui-ci.
 
 « Je me demande où se trouve le Frère Li... » Le Sens Divin de Wang Lin se projeta inconsciemment, mais son expression devint immédiatement sombre. Une intention meurtrière aussi puissante que celle qu'il avait ressentie face à l'Ancêtre Sanguin explosa à nouveau.
 
@@ -52,7 +52,7 @@ En voyant ces restrictions fondre sur lui, le jeune homme ne paniqua pas. Il lai
 
 Instantanément, les restrictions furent enserrées par l'énergie originelle et s'effondrèrent. Pourtant, après leur explosion, elles ne disparurent pas; elles se transformèrent en lignes noires qui se condensèrent avant de foncer droit sur le vieil homme, portées par une aura destructrice.
 
-Le vieil homme frappa son sac de rangement pour faire apparaître un miroir antique et le pointa vers les lignes noires. Un éclair jaillit. C'était comme si le monde entier s'était obscurci, toute la lumière semblant se concentrer autour du miroir ancien. Les lignes noires s'effondrèrent aussitôt.
+Le vieil homme frappa son sac de rangement pour faire apparaître un miroir antique et le pointa vers les lignes noires. C'était comme si le monde entier s'était obscurci, toute la lumière semblant se concentrer autour du miroir ancien. Les lignes noires s'effondrèrent aussitôt.
 
 Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il était imprégné d'une aura de mort. Il murmura: « Ce n'est pas que la restriction de ma famille Li soit défaillante, c'est que j'ai trop épuisé ma restriction du cœur en aidant le Frère Xu et je n'ai pas eu le temps de la restaurer. Sinon, avec une restriction du cœur intacte, ce miroir antique briseur de restrictions n'aurait jamais réussi! Seulement, le Frère Xu a énormément aidé ma famille, je ne le regrette pas! Si je dois mourir, alors je mourrai! »
 
@@ -106,7 +106,7 @@ Tout cela s'était produit en un éclair, avec une rapidité dépassant l'entend
 
 Une sueur froide perla sur le front du vieil homme. Son calme s'était évanoui et son indifférence s'était effondrée. Ses yeux étaient empreints d'horreur et de peur. Il n'avait pas pu distinguer clairement l'autre personne plus tôt, mais la richesse de l'énergie originelle apparue avec l'ondulation lui avait coupé le souffle.
 
-Ce qui le terrifiait davantage était l'aura émanant de l'ondulation: celle du jeune homme qui en sortait semblait fusionner parfaitement avec les lois du monde.
+Ce qui le terrifiait davantage était l'aura émanant de l'ondulation: celle du jeune homme qui en sortait semblait fusionner parfaitement avec le ciel et la terre.
 
 « Trop terrifiant... Je connais tous les cultivateurs du Yang Corporel, mais qui est-il?! » Son visage était livide et la sueur coulait sur son front. L'intention meurtrière de l'inconnu était si intense qu'elle faisait trembler son esprit. Inconsciemment, il recula de quelques pas, avec l'envie irrépressible de s'enfuir immédiatement.
 

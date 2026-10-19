@@ -82,17 +82,17 @@ Le corps de Yao Changdong fut secoué par un dernier tremblement et l'ombre du C
 
 Le domaine karmique de Wang Lin se dissipa également. Le dernier fragment de talisman entre ses sourcils s'était brisé lors de cette bataille du Dao. L'énergie originelle remplit son corps et il s'élança hors de la zone de combat.
 
-À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra, et même son sac de rangement fut pulvérisée par cette puissance destructrice.
+À cet instant, le papillon à ses côtés battit doucement des ailes. Le corps de Yao Changdong s'effondra, et même son sac de rangement fut pulvérisé par cette puissance destructrice.
 
 Toutes les traces de son existence furent effacées du monde.
 
-Lorsque l'énergie originelle de Wang Lin se stabilisa, son visage devint pâle et il cracha un sang noir. Une bataille du Dao était bien trop périlleuse; il ne souhaitait l'utiliser qu'en ultime recours.
+Lorsque l'énergie originelle de Wang Lin se stabilisa, son visage devint pâle et il cracha du sang. Une bataille du Dao était bien trop périlleuse; il ne souhaitait l'utiliser qu'en ultime recours.
 
 Le Dao de la gloire n'était pas aussi fragile que ce qu'il avait affirmé. C'était simplement que le cœur du Dao de Yao Changdong était instable, faute d'avoir assez vécu. Il était comme une fleur protégée qui n'avait jamais été éprouvée par les tempêtes.
 
 Comparé à lui, les cultivateurs de même niveau dans le Système Stellaire de l'Alliance étaient bien plus forts. Après tout, dans ce système, on ne pouvait compter que sur soi-même!
 
-Et les maîtres? Ils ne pouvaient en rien vous protéger. La moindre négligence signifiait la mort. C'était la loi de la jungle, et le massacre était la loi des cieux! Hormis quelques exceptions, les cultivateurs du Système Stellaire Luotian ne pouvaient même pas imaginer l'obscurité qui régnait dans le Système Stellaire de l'Alliance.
+Et les sectes? Elles ne pouvaient en rien vous protéger. La moindre négligence signifiait la mort. C'était la loi de la jungle, et le massacre était la loi des cieux! Hormis quelques exceptions, les cultivateurs du Système Stellaire Luotian ne pouvaient même pas imaginer l'obscurité qui régnait dans le Système Stellaire de l'Alliance.
 
 S'ils y étaient plongés, ils auraient du mal à survivre, à moins que leur culture ne soit assez puissante pour ignorer toutes les règles.
 
@@ -106,7 +106,7 @@ Cependant, juste au moment où il s'évanouissait, une ride se forma à proximit
 
 Elle fronça légèrement les sourcils et, d'un pas, disparut à son tour en fusionnant avec le monde pour poursuivre Wang Lin!
 
-Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dressait un immense temple ancestral où un fier « Yao » était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
+Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dressait un immense temple ancestral où un « Yao » empreint d'une aura meurtrière était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
 
 Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient recourbés et d'un rouge écarlate.
 

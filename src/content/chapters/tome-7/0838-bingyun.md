@@ -114,6 +114,6 @@ De plus, malgré sa splendeur, elle ne pouvait égaler Liu Mei.
 
 Les craquements retentirent de nouveau et la protection glacée commença à se briser. En vérité, si son énergie originelle avait été présente lorsqu'elle utilisa ce sortilège, Wang Lin n'aurait pas pu la détruire aussi aisément. Mais parce qu'elle en était privée, elle lui offrait cette opportunité!
 
-Yao Bingyun n'aurait jamais imaginé que Wang Lin soit là. De plus, elle ne pouvait soupçonner qu'il ait conservé son énergie originelle grâce à l'Armure de Cuir du Dieu Antique, lui permettant de se déplacer si librement!
+Yao Bingyun n'aurait jamais imaginé que Wang Lin soit là. De plus, elle ne pouvait soupçonner qu'il ait conservé son énergie originelle grâce à l'Armure de Cuir de l'Ancien Dieu, lui permettant de se déplacer si librement!
 
 Alors que la glace autour de Yao Bingyun commençait à s'effondrer, elle ouvrit lentement les yeux et croisa le regard de Wang Lin!

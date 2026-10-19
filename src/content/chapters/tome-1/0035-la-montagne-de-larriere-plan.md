@@ -8,7 +8,7 @@ slug: la-montagne-de-larriere-plan
 ---
 Plus de quarante disciples internes se tenaient dans la salle. On y trouvait des disciples de rang noir, blanc et rouge, mais aucun de rang violet. Tous arboraient des expressions graves. Parmi eux, Wang Lin reconnut de nombreux visages familiers, tels que Wang Zhuo, les jeunes filles nommées Xu et Zhou, le frère apprenti Zhang, et bien d'autres encore.
 
-Juste devant eux siégeaient deux rangées de plus de dix Anciens, tous au visage impassible. Au centre trônait un homme d'une quarantaine d'années, vêtu d'une robe bleue, dont le regard était aussi vif que l'éclair. Il demanda: « Jeune frère Sun, est-ce là votre disciple? »
+Juste devant eux siégeaient deux rangées de plus de dix Anciens, tous au visage impassible. Au centre trônait un homme d'une quarantaine d'années, vêtu d'une robe bleue, à l'allure de sage immortel, dont le regard était aussi vif que l'éclair. Il demanda: « Jeune frère Sun, est-ce là votre disciple? »
 
 Sun Dazhu afficha promptement un sourire de circonstance et répondit: « Grand frère Chef de secte, voici mon disciple, Wang Lin. Son entrée dans la secte est tardive, c'est pourquoi il ignore la signification des cinq coups de cloche. »
 
@@ -18,11 +18,11 @@ L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le jeune fr
 
 Le visage de Sun Dazhu oscilla entre le rouge et le blanc pendant un instant. Il lança un regard sévère à Wang Lin, poussa un grognement mécontent et, ignorant le garçon, retourna s'asseoir.
 
-L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne de l'arrière-plan. Chacun aura son propre lieu de culture: retirez-vous-y en méditation fermée pour élever votre culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. Vous l'avez bien retenu? »
+L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne arrière. Chacun aura son propre lieu de culture: retirez-vous-y en méditation fermée pour élever votre culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. Vous l'avez bien retenu? »
 
 Tous les disciples internes répondirent d'une seule voix.
 
-L'homme en robe bleue acquiesça et poursuivit: « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. Je vais maintenant vous envoyer à la montagne de l'arrière-plan; quelqu'un vous y attribuera votre lieu de culture. »
+L'homme en robe bleue acquiesça et poursuivit: « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. Je vais maintenant vous envoyer à la montagne arrière; quelqu'un vous y attribuera votre lieu de culture. »
 
 Une fois son discours achevé, il agita ses manches et une lumière blanche en jaillit. Après avoir parcouru la salle d'un tour complet, il rugit: « Ouvrez! »
 
@@ -34,9 +34,9 @@ Wang Lin ressentit une douce chaleur envahir son corps. En un clin d'œil, il se
 
 Cette vallée était dépourvue de végétation. C'était une falaise percée de nombreux orifices, semblables à un nid d'abeilles. Certains de ces trous étaient obstrués par d'énormes rochers.
 
-Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial.
+Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial, empli de mépris.
 
-À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères cadets, voici la montagne de l'arrière-plan de la Secte Heng Yue. Même si on l'appelle ainsi, elle ne se trouve pas réellement derrière la montagne Heng Yue: c'est un terrain de culture pour les disciples internes, aménagé il y a 500 ans par plusieurs ancêtres fondateurs au stade de l'Âme Naissante unissant leurs forces. L'énergie spirituelle ici est bien plus dense qu'à l'extérieur. Puisque vous êtes ici, mettez à profit chaque instant pour cultiver et ne relâchez pas vos efforts; sinon, ne reprochez pas à votre frère aîné de vous jeter hors de la montagne. »
+À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères cadets, voici la montagne arrière de la Secte Heng Yue. Même si on l'appelle ainsi, elle ne se trouve pas réellement derrière la montagne Heng Yue: c'est un terrain de culture pour les disciples internes, aménagé il y a 500 ans par plusieurs ancêtres fondateurs au stade de l'Âme Naissante unissant leurs forces. L'énergie spirituelle ici est bien plus dense qu'à l'extérieur. Puisque vous êtes ici, mettez à profit chaque instant pour cultiver et ne relâchez pas vos efforts; sinon, ne reprochez pas à votre frère aîné de vous jeter hors de la montagne. »
 
 Wang Lin reconnut ce disciple aux vêtements violets. C'était le second frère apprenti Zhang Kuang, celui qui lui avait pris son liquide d'énergie spirituelle en échange des incantations. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était insondable.
 

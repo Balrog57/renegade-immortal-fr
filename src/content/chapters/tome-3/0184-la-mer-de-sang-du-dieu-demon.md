@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 184 - The Blood Sea of the Demon God
 slug: la-mer-de-sang-du-dieu-demon
 ---
-Dans l'espace tranquille relié à la troisième épreuve de la Terre des Anciens Dieux, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
+Dans l'espace fracturé relié à la troisième épreuve de la Terre des Anciens Dieux, dans le coin sud-ouest, une minuscule lumière blanche apparut soudainement. La lueur s'intensifia et s'élargit jusqu'à former une déchirure ovale dans l'espace.
 
 De cette brèche surgit une main aux ongles longs et couverte d'épines osseuses. Cette main paraissait glaciale, dotée d'ongles extrêmement pointus et peints en noir. Elle était couverte de pustules, dont chacune laissait jaillir une épine osseuse.
 
@@ -166,7 +166,7 @@ Il lui faudrait au moins le temps de deux bâtons d'encens pour atteindre la sor
 
 Il hésita un instant, puis sans plus attendre, changea légèrement sa trajectoire et s'enfuit par ce nouveau chemin.
 
-Le Seigneur Démon des Six Désirs était très frustré. Dans la troisième épreuve, il n'osait pas étendre trop loin son Sens Divin et n'avait toujours pas trouvé la sortie. Après toutes ces années, il avait déterminé que celle-ci se trouvait au nord-ouest.
+Le Seigneur Démon des Six Désirs était très troublé. Dans la troisième épreuve, il n'osait pas étendre trop loin son Sens Divin et n'avait toujours pas trouvé la sortie. Après toutes ces années, il avait déterminé que celle-ci se trouvait au nord-ouest.
 
 En réalité, il l'avait découverte il y a deux ans, mais le nombre d'âmes errantes à cet endroit était bien trop important pour lui, même avec son trésor magique. Il avait donc passé les deux dernières années à en attirer lentement certaines pour réduire leur nombre avant de progresser.
 

@@ -14,7 +14,7 @@ Grande Désolation avait occupé l'avatar du Maître Dao Miao Yin et supprimait 
 
 Trois plateformes avaient également été entraînées par le bras. Il s'agissait clairement des trois plateformes appartenant à Wang Lin, Grande Désolation et Miao Yin! Les plateformes n'avaient pas subi de gros dommages, seulement de nombreuses fissures, et il était évident que le bras ne cherchait pas à les broyer.
 
-Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la main droite et forma un sceau. Un gaz noir chargé d'un poison extrême se rassembla. Il laissa échapper un reniflement glacial et s'apprêtait à presser la paume géante lorsque Wang Lin prit soudain la parole.
+Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la main droite, les cinq doigts recourbés en griffe. Un gaz noir chargé d'un poison extrême se rassembla. Il laissa échapper un reniflement glacial et s'apprêtait à presser la paume géante lorsque Wang Lin prit soudain la parole.
 
 « Senior, veuillez attendre! »
 
@@ -94,7 +94,7 @@ Sa couleur était désormais totalement noire! On aurait dit qu'elle allait fusi
 
 Une plateforme de rang 4!
 
-Wang Lin ne s'arrêta pas et, d'un mouvement de sa main droite, fit apparaître des centaines de runes supplémentaires. Elles appartenaient aux cultivateurs morts dans la terre scellée; Wang Lin avait réussi à les subtiliser sans que personne ne s'en aperçoive.
+Wang Lin ne s'arrêta pas et, d'un mouvement de sa main droite, fit apparaître près d'une centaine de runes supplémentaires. Elles appartenaient aux cultivateurs morts dans la terre scellée; Wang Lin avait réussi à les subtiliser sans que personne ne s'en aperçoive.
 
 Après les avoir extraites, il les fusionna avec la plateforme de rang 4. Des grondements tonitruants retentirent et elle grandit encore. En un clin d'œil, elle atteignit 50 000 pieds!
 

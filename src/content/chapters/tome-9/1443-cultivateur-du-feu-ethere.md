@@ -96,7 +96,7 @@ Le brasier continua de s'étendre, et la majorité des bêtes devint partie int�
 
 Tandis que cette énergie affluait, les blessures de Wang Lin furent totalement comblées!!
 
-Dans un fracas de tonnerre, les bêtes féroces continuaient de périr!
+Dans un fracas de tonnerre, toutes les bêtes féroces périrent!
 
 Le Feu Éthéré incessant revenait vers Wang Lin de toutes parts pour se concentrer dans son œil gauche une fois le massacre terminé.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 774 - Withered Dao Pair
 slug: la-paire-de-dao-fanee
 ---
-Li Yuan avait déjà atteint le sommet du stade avancé de l'Ascendant. La raison pour laquelle il n'avait pas encore atteint le stade Yin Illusoire était que son corps manquait d'énergie originelle.
+Li Yuan avait déjà atteint le sommet du stade avancé de l'Ascendant. La raison pour laquelle il n'avait pas encore atteint le stade Yin Illusoire était que son âme originelle manquait d'énergie originelle.
 
 Wang Lin venait de le nourrir avec trois âmes originelles. En particulier, l'une d'elles était l'âme originelle d'un cultivateur au stade Yin Illusoire, gorgée d'énergie originelle. Grâce à cela, les chances de percée de Li Yuan avaient considérablement augmenté.
 
@@ -18,7 +18,7 @@ Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à
 
 De plus, puisqu'il avait déjà offensé l'Ancêtre Sanguin, il prit une décision.
 
-« Tant que je maîtriserai ce sort pour fusionner avec le monde, même si Tuo Sen vient, je serai capable de m'échapper! Cependant, certains souvenirs de ce vieil homme sont intéressants; ils pourraient me s'avérer utiles! » Un regard déterminé brilla dans les yeux de Wang Lin. Il s'assit et commença à affiner l'énergie originelle à l'intérieur de son corps.
+« Tant que je maîtriserai ce sort pour fusionner avec le monde, même si Tuo Sen vient, je serai capable de m'échapper! Cependant, certains souvenirs de ce vieil homme sont intéressants; ils pourraient m'être utiles! » Un regard déterminé brilla dans les yeux de Wang Lin. Il s'assit et commença à affiner l'énergie originelle à l'intérieur de son corps.
 
 « Une fois que j'aurai absorbé toute l'énergie originelle en moi, je serai extrêmement proche du véritable deuxième stade, le stade initial de Scruteur du Nirvana! » Wang Lin réfléchit silencieusement un instant avant d'agiter la main. Les trois sacs et plusieurs épées volantes vinrent vers lui.
 
@@ -26,7 +26,7 @@ Ces trois sacs de rangement appartenaient aux trois individus défunts. Le regar
 
 Après les avoir scannées avec son sens divin, les pensées de Wang Lin s'agitèrent. Ces neuf épées s'envolèrent immédiatement dans les airs pour se planter dans le sol. Huit d'entre elles formèrent un cercle, tandis que la dernière se planta seule, à l'écart.
 
-Wang Lin frappa son sac de rangement et les neuf os de bêtes s'envolèrent aussitôt. Le plus grand os de bête atterrit au centre du cercle, tandis que les huit autres entourèrent les huit épées formant le cercle.
+Wang Lin frappa son sac de rangement et les neuf os de bêtes s'envolèrent aussitôt. Le plus grand os de bête atterrit au centre du cercle, tandis que les huit autres entourèrent l'épée plantée seule, à l'écart.
 
 Ils étaient disposés exactement comme Wang Lin les avait trouvés.
 
@@ -142,7 +142,7 @@ Li Yuan hésita et demanda: « Je ne peux plus percevoir la culture de Frère Xu
 
 « Le danger de l'Ancêtre Sanguin est écarté. Bien qu'il ne soit pas mort, la différence n'est pas grande », répondit calmement Wang Lin. En entendant cela, Li Yuan fut surpris et lança un regard significatif à Wang Lin. Avec sa sagesse, il comprit que l'augmentation fulgurante du niveau de culture de Wang Lin était liée à l'Ancêtre Sanguin.
 
-Wang Lin regarda Li Yuan et sourit: « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour traquer tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions? »
+Wang Lin regarda Li Yuan et sourit: « Frère Li, je vais explorer le Royaume Céleste du Tonnerre pour chercher tous les sorts célestes. Seriez-vous prêt à m'aider à briser les restrictions? »
 
 Avec sa puissance actuelle, hormis quelques individus d'exception, personne dans le Royaume Céleste du Tonnerre ne pouvait lui faire face. Si Li Yuan l'accompagnait, Wang Lin pourrait facilement le protéger. Sans compter que si Li Yuan disposait de suffisamment de temps pour utiliser ses capacités sur les restrictions, il n'aurait même plus besoin de la protection de Wang Lin.
 
@@ -150,7 +150,7 @@ Wang Lin avait ses propres raisons d'inviter Li Yuan. Ce dernier en savait manif
 
 Les yeux de Li Yuan s'illuminèrent de joie et il sourit: « Puisque c'est le souhait de Frère Xu, je ferai de mon mieux pour vous aider. Tant que j'ai assez de temps, je suis certain de pouvoir briser toutes les restrictions d'ici! Par exemple, Frère Xu, il y avait autrefois une ruine céleste à cet endroit! »
 
-Li Yuan pointa du doigt une plaine au loin. Le sol était couvert de mauvaises herbes et d'herbe morte, et le vent qui soufflait sur la plaine produisait un léger bruissement. Peu importe comment on l'observait, l'endroit semblait extrêmement ordinaire.
+Li Yuan pointa du doigt une plaine au loin. Le sol était couvert de mauvaises herbes et de branches mortes, et le vent qui soufflait sur la plaine produisait un léger bruissement. Peu importe comment on l'observait, l'endroit semblait extrêmement ordinaire.
 
 Du bout de son unique bras, Li Yuan forma des sceaux. Son corps étant désormais imprégné d'énergie originelle, il pouvait utiliser certaines restrictions qu'il ne pouvait auparavant manipuler à cause de la suppression de son empreinte d'esclave.
 

@@ -8,7 +8,7 @@ slug: le-véritable-pouvoir-de-letendard-des-mille-milliards-dames
 ---
 Dès son apparition, il tua immédiatement plusieurs membres puissants du Clan des Immortels Délaissés et livra combat au jeune maître de ce dernier. Tout cela secoua instantanément la planète entière.
 
-Leur affrontement était celui des futurs chefs de chaque camp.
+Leur affrontement était un duel prédestiné entre les futurs chefs de chaque camp.
 
 Bien que Qian Feng n'ait pas remporté la victoire et que le combat se soit soldé par un match nul, sa renommée s'envola vers les cieux. Ce n'est qu'après ce duel que chacun apprit qu'il était le frère aîné de Liu Mei et un disciple du Suzaku actuel, classé au second rang juste derrière elle.
 
@@ -16,13 +16,13 @@ De plus, il possédait une autre identité qui captiva l'attention générale.
 
 Cet homme était le descendant du précédent Suzaku.
 
-Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Délaissés. Finalement, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Délaissés suspende son offensive.
+Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Délaissés. Finalement, au nom du Suzaku, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Délaissés suspende son offensive.
 
 Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Délaissés a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sors l'étendard et chargeons! »
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître le drapeau d'âmes d'un milliard. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
 
-Du Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, ils étaient entourés par des déflagrations soniques et les lamentations déchirantes de fragments d'âmes.
+Du Tian sortit également le drapeau d'âmes d'un milliard. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, les sifflements de l'air et les lamentations déchirantes des fragments d'âmes les entouraient.
 
 Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de membres du Clan des Immortels Délaissés surgissaient pour les intercepter. À cet instant précis, Du Tian et Wang Lin s'engouffrèrent directement au cœur de la masse obscure.
 
@@ -46,13 +46,13 @@ L'expression de Wang Lin changea légèrement. Sous cette pression invisible, il
 
 « Un chaman à neuf feuilles! » la voix de Du Tian résonna depuis l'intérieur de l'étendard.
 
-Pourtant, le brouillard d'âmes entourant Du Tian libéra d'innombrables fragments d'âmes, tandis que les treize âmes primaires, aux reflets pourpre et doré, descendirent tels des dieux.
+Aussitôt, le brouillard d'âmes entourant Du Tian libéra d'innombrables fragments d'âmes, tandis que les treize âmes primaires, aux reflets pourpre et doré, descendirent tels des dieux.
 
 Du Tian hurla: « Chargez! »
 
 Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan des Immortels Délaissés dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
 
-L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'arme la plus crainte par le Clan des Immortels Délaissés.
+L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante du drapeau d'âmes d'un milliard; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'une des armes les plus craintes par le Clan des Immortels Délaissés.
 
 En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main pour faire reculer le nuage noir, ordonnant aux membres du clan à l'intérieur de créer une brèche au centre.
 
@@ -118,7 +118,7 @@ Cinq cents millions de fragments et treize âmes primaires avaient été affiné
 
 Toutes les âmes primaires du drapeau d'âmes d'un milliard étaient des ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme. Leur seul regret était de n'avoir pu atteindre le stade Ascendant; ce désir, resté inassouvi de leur vivant, s'était intensifié dans la mort.
 
-En fin de compte, la volonté commune de tous ces fragments leur permit de fusionner pour engendrer une puissance équivalente à celle d'un cultivateur Ascendant.
+Ce n'était pas un véritable Ascendant, mais l'intention des treize âmes primaires. En fin de compte, la volonté commune de tous ces fragments leur permit de fusionner pour engendrer une puissance équivalente à celle d'un cultivateur Ascendant.
 
 Et ce n'était là que la puissance partielle du drapeau d'âmes d'un milliard.
 

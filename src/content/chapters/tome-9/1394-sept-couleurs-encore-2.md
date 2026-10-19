@@ -50,7 +50,7 @@ Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier W
 
 « Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Cupidité et obtenir l'essence du Clan des Moineaux de Feu! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Cupidité pour les étudier et les raffiner.
 
-« Les 99 Épées de Cristal Creux! Cupidité les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune dégageant une puissante énergie glaciale.
+« Les 99 Épées de Cristal Flottant! Cupidité les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune dégageant une puissante énergie glaciale.
 
 Les yeux de Wang Lin s'illuminèrent tandis que son sens divin balayait la zone. Il examina méticuleusement chaque lame.
 
@@ -78,7 +78,7 @@ Il enveloppa son poing, augmentant sa taille d'une dimension. Il couvrait même 
 
 Le gant portait de nombreuses marques de combat: des entailles d'épée et des fissures, témoins de toutes les batailles livrées par ce jeune ancien dieu.
 
-« Un sort ancien est aussi dissimulé dans ce trésor... Tout comme le bouclier vert, c'est un sort de survie... Malheureusement, il n'a pu sauver la vie de cet ancien dieu. » L'expression de Wang Lin se fit complexe tandis que son énergie d'ancien dieu s'engouffrait dans le gant.
+« Un sort ancien est aussi dissimulé dans ce trésor... Tout comme le sort Rêve des Temps Anciens du Bouclier de Lumière Azur, c'est un sort de survie... Malheureusement, il n'a pu sauver la vie de cet ancien dieu. » L'expression de Wang Lin se fit complexe tandis que son énergie d'ancien dieu s'engouffrait dans le gant.
 
 « Sort Divin de l'Ancien Dieu à 8 Étoiles: Protection Ancestrale! Ce sort ne figure pas dans la mémoire de Tu Si. » Wang Lin resta immergé dans le sort contenu par le gant et ne reprit ses esprits qu'après quinze minutes.
 
@@ -104,7 +104,7 @@ Le corps de Wang Lin trembla et sa puissance d'ancien dieu augmenta en flèche. 
 
 « Bien qu'il ne puisse rivaliser avec l'Épée de Sang ou la Hache Brise-Ciel de la Formation du Royaume Scellé, il est presque à égalité avec la Lance Tueuse de Dieux de Tu Si. Si je parviens à le raffiner totalement, son pouvoir sera sans limite! Plus important encore, sa puissance est axée sur le raffinement! »
 
-La joie dans les yeux de Wang Lin s'intensifia. Il agita sa manche et sortit le quatrième trésor: la lance de brouillard qui oscillait constamment entre réalité et illusion!
+La joie dans les yeux de Wang Lin s'intensifia. Il agita sa manche et sortit le quatrième trésor: la Lance du Démon de Brume qui oscillait constamment entre réalité et illusion!
 
 Dès l'apparition de la lance, une énergie démoniaque envahit la grotte, accompagnée de cris lugubres qui renforçaient son aspect féroce.
 

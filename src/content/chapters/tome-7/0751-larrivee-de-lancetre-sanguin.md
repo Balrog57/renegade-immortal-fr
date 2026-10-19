@@ -16,7 +16,7 @@ De plus, même s'il n'avait pas été là, le destin de Ge Hong était scellé d
 
 « Pourtant, le regard de Ge Hong était étrange. Pourquoi a-t-elle voulu se retourner pour contempler la statue de pierre juste avant de mourir... »
 
-Li Yuan prit une profonde inspiration avant de se tourner vers Wang Lin et de dire d'un ton calme: « Frère Xu, mes restrictions ne sauraient égaler celles de mon ancêtre. Ce que je demande au frère Xu, c'est le sort qui vous a permis d'empêcher le cultivateur de l'Yin Illusoire de s'échapper! »
+Li Yuan prit une profonde inspiration avant de se tourner vers Wang Lin et de dire d'un ton calme: « Frère Xu, mes restrictions ne sauraient égaler celles de mon ancêtre. Ce que je demande au frère Xu, c'est le sort qui vous a permis d'immobiliser le cultivateur de l'Yin Illusoire! »
 
 L'expression de Wang Lin resta neutre, mais son esprit s'agita. Par sa réponse, il pourrait déterminer si Li Yuan avait réellement été témoin de son combat contre le cultivateur de l'Yin Illusoire et l'avait vu utiliser le sort d'Arrêt!
 
@@ -58,7 +58,7 @@ Le visage de Li Yuan était illuminé par ce brasier rouge, lui conférant un as
 
 Une fois jetée dans le feu, l'aiguille de la boussole se mit à tourner frénétiquement. Chaque rotation provoquait une onde de choc qui se propageait au cœur des flammes puis vers l'extérieur, permettant au brasier de s'étendre rapidement.
 
-En un clin d'œil, la flamme rouge émanant de l'épée atteignit une dizaine de mètres de hauteur. Elle semblait vouloir s'élancer vers le ciel, diffusant une lumière écarlate constante.
+En un clin d'œil, la flamme rouge émanant de l'épée atteignit une dizaine de mètres de hauteur. Elle semblait vouloir s'élancer vers le ciel, diffusant une lueur écarlate vacillante.
 
 La flamme vacilla violemment avant que la boussole ne se brise à l'intérieur. Au moment de sa destruction, l'incendie rouge devint encore plus intense.
 
@@ -82,7 +82,7 @@ Le retrait de Wang Lin força Li Yuan à tourner brusquement la tête vers lui. 
 
 À cet instant, les fissures sur la statue s'accentuèrent, montrant des signes d'effondrement imminent. La sensation de l'éveil s'intensifia. La majeure partie du ressentiment dans les flammes avait été absorbée, tout comme la lumière blanche.
 
-Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait l'âme de s'échapper, et ce sceau tendait à faire s'effondrer l'âme avec la statue.
+Ce ressentiment et cette lumière agissaient comme des nutriments, donnant à la statue la force de se libérer. Cependant, un sceau empêchait la statue de se libérer, et ce sceau tendait à la faire s'effondrer avec elle.
 
 Wang Lin recula encore plus vite, parcourant trois cents mètres en un instant. Le regard de Li Yuan devint glacial et sa culture explosa avec une rage folle. Bien qu'il fût encore au sommet du stade avancé de l'Ascendant, une aura terrifiante émanait de lui.
 
@@ -104,7 +104,7 @@ Cependant, l'expression de Wang Lin resta imperturbable et il dit doucement: « 
 
 Li Yuan fixa Wang Lin et déclara lentement: « Je ne souhaite pas vous attaquer. Maintenant, revenez docilement avec moi et utilisez le sort d'Arrêt que vous avez hérité du Royaume Céleste de la Pluie. Une fois cette affaire conclue, je ne serai pas avare de votre récompense! »
 
-Wang Lin esquissa un faible sourire et secoua la tête: « Vous avez osé tuer le descendant de votre propre maître, comment pourrais-je vous croire? » Sur ces mots, il battit en retraite immédiatement pour s'éloigner.
+Wang Lin esquissa un faible sourire et secoua la tête: « Vous avez osé tuer le descendant de votre propre maître, comment pourrais-je vous croire? » Sur ces mots, il se téléporta aussitôt pour s'éloigner.
 
 Les yeux de Li Yuan brillèrent intensément. Il chargea en avant et dit d'un ton lent: « Il semble que je vous ai vraiment sous-estimé! Mais vous ne pourrez pas m'échapper! » Tout en parlant, il agita la main et une restriction s'échappa de ses sourcils. Les nuages se déchirèrent soudainement dans le ciel et, au loin, l'espace se distordit pour laisser apparaître Wang Lin.
 

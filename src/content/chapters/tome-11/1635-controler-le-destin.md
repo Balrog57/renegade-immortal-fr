@@ -28,13 +28,13 @@ Des grondements tonitruants résonnèrent et le second soleil s'effondra. La div
 
 Sans marquer de pause, Wang Lin s'avança vers le troisième soleil. Un fracas de tonnerre retentit et une pression se propagea depuis l'intérieur de l'astre. Cette pression était comparable à la puissance des cieux et pouvait supprimer toute forme de vie.
 
-Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, riant comme un fou. Il leva la main droite et créa une paume géante qui s'abattit sur le quatrième soleil.
+Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, riant comme un fou. Il leva la main droite, frappa le vide, et sa culture jaillit de son corps pour former une paume géante qui s'abattit sur le quatrième soleil.
 
 Le quatrième soleil contenait quatre épées et dégageait une énergie d'épée terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie!
 
 Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient pour former un flou indistinct. C'était la racine de la rétribution de l'illusion.
 
-Le sixième soleil contenait les auras de trois trésors. Il s'agissait des trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin les avait détruits, leurs auras s'étaient fusionnées.
+Le sixième soleil contenait les auras de trois trésors. Il s'agissait de la Pagode de Suppression Céleste, de l'Anneau de Scellement du Destin et d'autres trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin les avait détruits, leurs auras s'étaient fusionnées.
 
 Le septième soleil contenait la force de l'âme des trois clans anciens. D'innombrables âmes de ces trois clans y étaient scellées. C'était la méthode ultime pour manipuler les messagers des cieux.
 

@@ -66,7 +66,7 @@ En quelques respirations seulement, Wang Lin fut couvert de sueur froide. Ses ma
 
 Wang Lin réfléchit un instant, puis demanda: « Pourquoi aucun des cultivateurs de la Formation de l'Âme que j'ai rencontrés auparavant n'a manifesté un tel domaine? »
 
-Le vieil homme sursauta. Il se gratta la tête et dit avec embarras: « Cela... j'ai oublié. De plus, j'ai abaissé mon niveau de culture à la Formation de l'Âme, mais j'ai utilisé la puissance du stade de la Transformation de l'Âme pour activer le domaine, ce qui était un peu trop puissant... En vérité, les cultivateurs de la Formation de l'Âme ne peuvent pas déployer leur domaine ainsi, car seule une infime partie de leurs domaines transparaît dans leurs techniques, les rendant indétectables. Hehe, pardon. »
+Le vieil homme sursauta. Il se gratta la tête et dit avec embarras: « Cela... j'ai oublié. De plus, j'ai abaissé mon niveau de culture à la Formation de l'Âme, mais j'ai utilisé la puissance du stade de la Transformation de l'Âme pour activer le domaine, ce qui était un peu trop puissant... En vérité, les cultivateurs de la Formation de l'Âme ne peuvent pas déployer leur domaine ainsi, car seule une infime partie de leurs domaines transparaît dans leurs techniques. Hehe, pardon. »
 
 Wang Lin eut un sourire amer et regarda le vieil homme. Il marmonna pour lui-même: « Un domaine... c'est donc cela, un domaine... »
 
@@ -90,7 +90,7 @@ Alors qu'il parlait, le visage du vieil homme rougit légèrement, mais plus il 
 
 Wang Lin fut surpris. Il hocha la tête et dit: « Très bien, mais mon niveau de culture n'est pas encore assez élevé. Ce n'est qu'une fois le stade de la Formation de l'Âme atteint que je pourrai faire de votre sculpture une œuvre parfaite. »
 
-Le vieil homme fut instantanément ravi et répondit précipitamment: « Rien ne presse, rien ne presse! Elle doit être parfaite. Oh... je veux une sculpture nue, alors assure-toi qu'elle soit impeccable. Et ce n'est pas tout, il m'en faudra plusieurs. Cent! Oui, cent! »
+Le vieil homme fut instantanément ravi et répondit précipitamment: « Rien ne presse, rien ne presse! Tu dois sculpter mon plus beau profil, et le rendre parfait. Oh... je veux une sculpture nue, alors assure-toi qu'elle soit impeccable. Et ce n'est pas tout, il m'en faudra plusieurs. Cent! Oui, cent! »
 
 Le vieil homme était plongé dans ses fantasmes. Il imaginait déjà que la prochaine fois qu'il irait dans un bordel ou qu'il croiserait une femme magnifique, il lui offrirait une sculpture de lui-même pour qu'elle s'en souvienne toute sa vie.
 
@@ -104,7 +104,7 @@ Il fallait savoir que les cultivateurs au stade avancé de l'Âme Naissante ne p
 
 Selon les analyses de Wang Lin, même des cultivateurs de la Transformation de l'Âme ne pourraient aisément parcourir une telle distance. Plus important encore, ce vieil homme l'avait emporté avec lui. En conséquence, Wang Lin éprouvait une crainte accrue envers cet homme.
 
-Le vieil homme était actuellement essoufflé. Même pour lui, parcourir 50 000 kilomètres n'était pas une mince affaire. Cependant, en voyant le visage stupéfait de Wang Lin, il leva fièrement le menton, feignant le regret: « Hélas, je suis vieux et mon corps n'est plus ce qu'il était. Cette téléportation ne nous a déplacés que de misérables 50 000 kilomètres. J'en suis mortifié. » Bien qu'il dise cela, même un mortel de passage aurait pu lire l'orgueil intense sur son visage.
+Le vieil homme était actuellement essoufflé. Même pour lui, parcourir 50 000 kilomètres n'était pas une mince affaire. Cependant, en voyant le visage stupéfait de Wang Lin, il leva fièrement le menton, feignant le regret: « Hélas, je suis vieux et mon corps n'est plus ce qu'il était. Cette téléportation ne nous a déplacés que de misérables 50 000 kilomètres. J'en suis mortifié. » Bien qu'il dise cela, même un jeune mortel de vingt ans aurait pu lire l'orgueil intense sur son visage.
 
 Wang Lin resta silencieux, pensif.
 

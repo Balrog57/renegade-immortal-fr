@@ -46,7 +46,7 @@ Wang Lin n'était pas originaire du Continent Astral Immortel et ne comprenait p
 
 C'était comme suivre la volonté des cieux tout en les défiant. Mais c'était précisément pour cela qu'après avoir dévoré l'âme d'une ramification de la veine de feu terrestre, l'essence de feu de Wang Lin avait prodigieusement augmenté!
 
-« Xuan Luo disait qu'aucun habitant des mondes caverneux n'avait jamais réussi à s'en extraire par sa propre force. Je ne suis pas réincarné dans le Continent Astral Immortel, je n'ai pas grandi ici! »
+« Xuan Luo disait qu'aucun habitant du monde des grottes n'avait jamais réussi à s'en extraire par sa propre force. Je ne suis pas réincarné dans le Continent Astral Immortel, je n'ai pas grandi ici! »
 
 « Le Continent Astral Immortel n'est pas un lieu dangereux pour moi, c'est un trésor! » Les yeux de Wang Lin s'illuminèrent alors qu'il progressait vers une autre chaîne de montagnes.
 
@@ -54,7 +54,7 @@ La montagne était d'un vert luxuriant, sans aucune trace de feu. Pourtant, grâ
 
 Au moment où le regard de Wang Lin se posa sur lui, le dragon ouvrit soudainement les yeux. Son regard était une mer de flammes qui fixait Wang Lin à travers le brasier.
 
-*Roar!!*
+*Grrraaah!!*
 
 Un rugissement retentit et la terre trembla. Le sommet de la montagne oscilla comme sous l'effet d'un vent violent, bien que les mortels ne puissent l'entendre. Même pour des cultivateurs, il serait difficile de le détecter. Seul un être possédant un type d'essence de feu particulier, tel que Wang Lin, pouvait clairement percevoir ce rugissement empreint d'un rejet extrême.
 
@@ -92,11 +92,11 @@ Ce cri se propagea sous forme d'ondulations dont l'Oiseau Vermillon était le ce
 
 L'Oiseau Vermillon poussa un nouveau cri et chargea immédiatement. De loin, on aurait dit un nuage de feu en pleine ascension!
 
-Wang Lin sentait distinctement son essence de feu gagner en puissance! Cette croissance l'exaltait car, dans les mondes caverneux, son essence avait cessé d'évoluer. Il avait alors cru avoir atteint la perfection de son essence de feu.
+Wang Lin sentait distinctement son essence de feu gagner en puissance! Cette croissance l'exaltait car, dans le monde des grottes, son essence avait cessé d'évoluer. Il avait alors cru avoir atteint la perfection de son essence de feu.
 
 Pourtant, il avait toujours eu le sentiment qu'il manquait quelque chose, sans pouvoir en identifier la nature exacte.
 
-Ce n'est que lorsqu'il rencontra le Bassin Dong Lin à l'intérieur de la cinquième fleur qu'une porte vers une voie supérieure s'ouvrit pour lui.
+Ce n'est que lorsqu'il rencontra le Bassin Dong Lin au cœur des Cinq Fleurs et Huit Portes qu'une porte vers une voie supérieure s'ouvrit pour lui.
 
 Cela lui permit de comprendre que son essence de feu pouvait former un Corps Véritable d'Essence! Il n'oublierait jamais la sensation de puissance ressentie lors de sa formation.
 

@@ -54,7 +54,7 @@ Bien que le brouillard grondât et que d'innombrables cultivateurs se livrent ba
 
 Le crâne ensanglanté vacilla sous la puissance du rugissement et se dissipa. Le jeune homme ne put même pas esquiver et fut frappé par l'onde de choc. C'était comme si son corps s'était changé en poussière pour devenir une brume de sang.
 
-Wang Lin avait tué trois personnes d'un coup!
+Wang Lin avait tué trois personnes d'affilée!
 
 Cependant, le massacre ne s'arrêta pas là. Bien que les six restants aient été témoins de cette scène, reculer signifierait la mort; ils devaient voler une plateforme. Ils serrèrent les dents et chargèrent la plateforme que Wang Lin venait de quitter.
 

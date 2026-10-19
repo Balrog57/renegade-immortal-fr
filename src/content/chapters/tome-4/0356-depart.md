@@ -44,9 +44,9 @@ En chemin, la blessure du vieil homme cicatrisait lentement et le brouillard noi
 
 La femme au voile blanc ferma les yeux et se plongea dans ses pensées.
 
-Peu de temps après, le corps originel atteignit l'entrée du Cimetière des Immortels.
+Peu de temps après, le corps originel atteignit le centre de la forêt, là où se trouvait le gouffre géant.
 
-Une fois posé, il frappa l'air en direction de l'ouverture, provoquant l'ouverture d'une faille spatiale. Il y projeta deux gouttes de sang: l'une atteignit la femme au voile blanc, l'autre le vieil homme, avant qu'il ne les précipite dans la déchirure.
+Une fois posé, il frappa le vide au fond du gouffre, provoquant l'ouverture d'une faille spatiale. Il y projeta deux gouttes de sang: l'une atteignit la femme au voile blanc, l'autre le vieil homme, avant qu'il ne les précipite dans la déchirure.
 
 « Allez chercher Wang Lin. Si vous parvenez à le trouver, je vous laisserai la vie! » La voix du corps originel résonna dans leurs esprits avant que la faille spatiale ne se referme.
 
@@ -84,7 +84,7 @@ Après être sorti de la faille et avoir senti la chaleur du soleil sur sa peau,
 
 Il baissa la tête pour observer le gouffre en contrebas avant de disparaître. Son corps originel s'évanouit avec lui.
 
-Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place à ses côtés pour entamer sa propre culture.
+Wang Lin quitta le Cimetière des Immortels et regagna la vallée. Il sortit la pagode avant de s'asseoir pour cultiver. Le corps originel prit place face à lui pour entamer sa propre culture.
 
 Un jour plus tard, Wang Lin et son corps originel ouvrirent les yeux simultanément.
 
@@ -108,7 +108,7 @@ Le corps originel se leva et s'enfonça dans le sol.
 
 Wang Lin prit une grande inspiration, tapota son sac de rangement, et des fragments de l'arbre de la réincarnation apparurent devant lui.
 
-Il en saisit un et commença à graver les motifs du domaine temporel.
+Il en prit un et se mit à façonner une sculpture en bois du domaine temporel.
 
 Le temps passa lentement.
 
@@ -116,7 +116,7 @@ Zhou Ru avait désormais trois ans et était d'une grande beauté. Cependant, el
 
 La petite Zhou Ru était une enfant très calme. Au lieu de jouer avec les autres enfants du village, elle passait son temps à contempler silencieusement le ciel depuis la cour arrière. Ses yeux étaient empreints d'une profonde confusion.
 
-Le père de Zhou Ru, un homme robuste aux mains calleuses, regarda sa fille en soupirant. Malgré les remèdes et les consultations, l'enfant restait muette.
+Le père de Zhou Ru, un homme robuste aux mains calleuses, regarda sa fille en soupirant. Il avait acheté beaucoup de ginseng et consulté de nombreux médecins, mais l'enfant restait muette.
 
 « Est-elle vraiment muette? » soupira le père.
 
@@ -132,13 +132,13 @@ Le père de Zhou Ru secoua la tête: « Laisse-la essayer. Si elle est choisie, 
 
 La femme se mordit la lèvre sans rien ajouter.
 
-Le vieil homme en robe dégageait une certaine arrogance. Il était déjà impatient; il avait visité d'innombrables villages sans trouver une seule racine spirituelle. S'il n'avait pas été contraint par le règlement de sa secte — qui exigeait que tous les disciples descendent chercher un talent tous les six ans — il ne se serait jamais donné cette peine.
+Le vieil homme en robe dégageait une certaine arrogance. Il était déjà impatient; il avait visité plusieurs villages sans trouver une seule racine spirituelle. S'il n'avait pas été contraint par le règlement de sa secte — qui exigeait que tous les disciples descendent chercher un talent tous les six ans — il ne se serait jamais donné cette peine.
 
 Il était déjà venu dans ce village, il y a six et douze ans, sans succès.
 
 « J'ai trouvé un enfant doté d'une racine spirituelle au village de Liu, juste devant, il y a six ans. Je me demande si j'en trouverai encore un en y retournant. Si c'est le cas, je recevrai trois pierres spirituelles de qualité moyenne. » Le vieil homme inspectait les enfants un à un. Ses sourcils se fronçaient davantage et la déception sur son visage s'accentuait.
 
-Soudain, son regard se fixa sur Zhou Ru. Il s'approcha d'elle avec célérité et pointa son front, le visage illuminé par la joie.
+Soudain, son regard se fixa sur Zhou Ru. Un instant stupéfait, il s'approcha d'elle avec célérité et pointa son front, le visage illuminé par la joie.
 
 « Ceci... est née naturellement dotée d'énergie spirituelle! Tous ses méridiens sont ouverts et elle possède une aura violette. Magnifique! » Le vieil homme contemplait Zhou Ru. Ce qu'il voyait n'était pas une enfant, mais une pierre spirituelle étincelante de haute qualité.
 

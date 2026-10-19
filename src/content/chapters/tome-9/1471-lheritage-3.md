@@ -26,9 +26,9 @@ S'il abandonnait et était éjecté du siège, il renoncerait à cette opportuni
 
 Les six étoiles du Dieu Ancien tournaient rapidement, tandis que la septième étoile pivotait lentement, devenant de plus en plus nette. Une lumière éclatante émanait de cette septième étoile, la rendant d'autant plus éblouissante!
 
-Un vortex d'énergie démoniaque tournait à l'intérieur de son œil droit, et une ancienne étoile démoniaque scintillait. Lors de la treizième respiration, une vague étoile démoniaque antique apparut dans son œil droit!
+Un vortex d'énergie démoniaque tournait à l'intérieur de son œil droit, et une ancienne étoile de Diable scintillait. Lors de la treizième respiration, une vague étoile de Diable Ancien apparut dans son œil droit!
 
-C'était la première étoile démoniaque antique. Bien qu'elle fût encore floue, elle prouvait que Wang Lin résistait à la force de rejet du trône!
+C'était la première étoile de Diable Ancien. Bien qu'elle fût encore floue, elle prouvait que Wang Lin résistait à la force de rejet du trône!
 
 Cependant, le prix à payer pour cette treizième respiration était immense. Des bruits de craquements résonnèrent et les chairs sous sa taille ne purent plus supporter la force. Une quantité massive de sang recouvrit le trône, puis les chairs sous sa taille explosèrent, révélant ses os blancs!
 
@@ -68,9 +68,9 @@ Le visage de Zhou Jin pâlit également et des craquements provinrent de sa main
 
 Le loup sanguinaire hurla et bondit par-dessus Zhou Jin pour aider à contenir la force émanant du corps de Wang Lin!
 
-Ling Dong et Zhou Jin absorbèrent 70 % de cette force explosive, ne laissant à Wang Lin que 30 % à supporter. Sans eux, il aurait été extrêmement difficile pour lui de tenir seize respirations!
+Ling Dong et Zhou Jin absorbèrent près de 70 % de cette force explosive, ne laissant à Wang Lin que 30 % à supporter. Sans eux, il aurait été extrêmement difficile pour lui de tenir seize respirations!
 
-Bien que le trône ait libéré une force de rejet cent fois supérieure, l'aura d'héritage avait également décuplé de cent fois. Une partie de cette aura s'était précipitée dans son corps lors de la collision.
+Bien que le trône ait libéré une force de rejet cent fois supérieure, l'aura d'héritage avait également été centuplée. Une partie de cette aura s'était précipitée dans son corps lors de la collision.
 
 Le corps de Wang Lin gronda tandis que cette aura s'engouffrait en lui. La septième étoile, sur le point de se former, brilla violemment. Elle progressait rapidement vers sa complétion.
 
@@ -122,6 +122,6 @@ Au moment même où Wang Lin lançait la statue, l'inimaginable force de rejet s
 
 Cette force était si puissante que le bras droit de Wang Lin ne put plus la contenir. Aussitôt la statue lancée, son bras droit s'effondra. Cependant, la force de rejet avait trouvé une issue: le corps de Dieu Ancien pétrifié vola comme une flèche et percuta la tête de Tuo Sen!
 
-Un cri plaintif s'échappa de la bouche de Tuo Sen. Puis, un fracas de tonnerre émana de son corps alors qu'il crachait du sang, projeté en arrière par l'impact!
+Un cri perçant s'échappa de la bouche de Tuo Sen. Puis, un fracas de tonnerre émana de son corps alors qu'il crachait du sang, projeté en arrière par l'impact!
 
 « Wang Lin!!! »

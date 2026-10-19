@@ -66,7 +66,7 @@ Les cultivateurs restèrent perplexes un instant, puis, après avoir débattu, i
 
 « Je suis... le Maître Hongshan... » Le garçon en rouge leva les yeux vers le ciel et esquissa un lent sourire. Il prit une profonde inspiration, contemplant la terre devant lui avec une immense excitation.
 
-Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, environ mille âmes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
+Continent Est, dans le continent Nan Ni, Wang Lin passa brièvement près d'une petite secte. Elle ne comptait pas beaucoup de cultivateurs, quelques milliers de personnes seulement. L'emplacement de la secte n'était guère propice et l'énergie spirituelle y était peu dense.
 
 Depuis que les édits de plusieurs Grands Empyréens et de l'Empereur Immortel avaient ordonné à toutes les sectes du clan céleste de se préparer pleinement à la guerre, des courants sous-jacents agitaient le continent. Cela signifiait que les petites sectes ne pouvaient plus vivre en paix et devaient désormais s'en remettre aux grandes puissances pour survivre.
 

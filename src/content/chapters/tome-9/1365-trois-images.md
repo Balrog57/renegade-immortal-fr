@@ -98,7 +98,7 @@ Huit cultivateurs flottaient autour de cet éclair. L'un d'eux était un vieil h
 
 Les sept autres portaient des vêtements étranges faits d'une substance inconnue; on aurait dit que chacun d'eux portait une rivière sur lui!
 
-Une personne se tenait en tête, occupant clairement le rôle de chef. Même les membres du Clan du Tonnerre Dispersé regardaient cet individu avec respect et une pointe de crainte.
+Une personne se tenait en tête, occupant clairement le rôle de chef. Même le vieil homme du Clan du Tonnerre Dispersé regardait cet individu avec respect et une pointe de crainte.
 
 Une ligne dorée entourait le corps de cette personne. Wang Lin sentit que cette ligne dorée lui était extrêmement familière!
 

@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1562 - Summoned River
 slug: la-riviere-invoquee
 ---
-La Porte du Vide se brisa et l'énergie s'en déversa. Qing Shui transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
+La Porte du Vide se brisa et l'énergie s'en déversa. Qing Shui, vêtu d'une robe verte, transforma l'âme de sa femme, Han Yan, en une marque qu'il plaça près de son cœur. Ce n'était pas qu'il ne pouvait pas la ranger dans son espace de stockage, mais Qing Shui n'en avait pas envie.
 
 Qing Shui était déterminé à donner cette épée de massacre à Wang Lin, qui l'emporta donc. Un fragment d'essence de massacre était né en Wang Lin lors de sa première bataille contre le Royaume Extérieur. Cependant, cette essence était encore très faible et venait à peine de naître.
 
 Avec cette épée de massacre, Wang Lin posséderait six essences! Quant au marquage de combat qui n'était pas une essence, il s'était depuis longtemps transformé en une étoile de loi gravée profondément dans le corps de Wang Lin.
 
-Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte du Vide, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur du troisième niveau doté de six essences!
+Wang Lin n'avait pas l'intention de raffiner immédiatement l'essence de massacre; ce n'était pas le moment. Il allait attendre que ses essences de Karma, de Vie et de Mort, ainsi que de Vérité et de Faux soient complètes. Ensuite, au moment où il s'apprêterait à ouvrir la Porte du Vide, il absorberait l'essence de massacre et briserait la porte d'un seul coup pour devenir un extrêmement rare cultivateur de la troisième étape doté de six essences!
 
 Qing Shui descendit du ciel et contempla la Porte du Vide qui se dissipait. Sa main droite s'élança dans le vide pour saisir la gourde verte contenant le vin de sang de dragon. Il en but une gorgée et, tandis que le goût épicé se répandait dans son corps, ses yeux devinrent lentement glacials. Il passa ensuite la cruche à Wang Lin.
 
@@ -114,7 +114,7 @@ Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Pala
 
 Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcane! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 
-Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sur les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes de Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
+Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes de Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
 
 Qing Shui était entré un instant avant Wang Lin. Dès son apparition, il jeta un regard au Maître Long Pan et au vieillard en noir avant qu'une lueur glaciale ne surgisse dans ses yeux; il se précipita alors vers les dizaines de milliers de cultivateurs du Royaume Extérieur. Les cris de douleur que Wang Lin entendit à son entrée provenaient de ces derniers.
 

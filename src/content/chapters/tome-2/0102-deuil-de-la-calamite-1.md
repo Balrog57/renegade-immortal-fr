@@ -118,4 +118,4 @@ Le cultivateur fronça les sourcils: « Teng Huayuan, vous ne connaissez ni le n
 
 Le vieillard en robe noire était Teng Huayuan. Il fixa l'autre homme et déclara solennellement: « Camarade cultivateur Qiming, pour obtenir le jeton de qualification du champ de bataille étranger, je n'ai pas hésité à offenser la Vallée Wu Feng, et tout cela pour votre art de prédire les cieux. Si vous parvenez à retrouver les proches parents de cet homme, quelle que soit votre demande, tant que moi, Teng Huayuan, j'en suis capable, je ne froncerai pas même un sourcil. »
 
-Le cultivateur réfléchit un instant, soupira, puis répondit: « Très bien, je ferai de mon mieux. Mais Camarade Teng, toute vengeance a une origine et toute dette finit par être recouvrée. J'espère que vous ne tuerez pas trop... »
+Le cultivateur réfléchit un instant, soupira, puis répondit: « Très bien, je ferai de mon mieux. Mais Camarade Teng, chaque rancune a son responsable. J'espère que vous ne tuerez pas trop... »

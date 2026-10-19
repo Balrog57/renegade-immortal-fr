@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1910 - Devil Dao Secte’s Calamity !"
 slug: la-calamite-du-secte-du-dao-demoniaque
 ---
-Les actions de Wang Lin semblaient grandioses, mais avec sa puissance actuelle, il acheva tout cela silencieusement en un instant. À cet instant, il marcha calmement vers le brouillard et, sans la moindre hésitation, pénétra dans la formation.
+Les actions de Wang Lin semblaient grandioses, mais avec sa puissance actuelle, il acheva tout cela silencieusement en un instant. À cet instant, il marcha calmement vers le brouillard, chacun de ses pas franchissant plusieurs milliers de pieds, et, sans la moindre hésitation, pénétra dans la formation.
 
 Au moment où il entra dans la formation, un grondement tonitruant résonna à travers le monde jusqu'à la Secte du Dao Démoniaque.
 
@@ -94,7 +94,7 @@ Les deux cultivateurs au stade avancé de la Tribulation du Vide n'étaient pas 
 
 « Je ferai en sorte que la Secte du Dao Démoniaque... » La Lame Yin grandissait rapidement, mais elle ne s'arrêtait pas; elle continuait de croître!
 
-« Disparaisse du Continent Astral Immortel. Que toute la secte soit détruite et que son nom s'efface à jamais! » La Lame Yin mesurait désormais près de trente pieds de long, dépassant même la taille de Wang Lin. Il leva sa main droite et le soleil se refléta sur la lame, émettant une lumière blanche et glaciale. Une énergie Yin monstrueuse enveloppa alors Wang Lin!
+« Disparaisse du Continent Astral Immortel. Que toute la secte soit détruite, que son Dao soit anéanti et que son nom s'efface à jamais! » La Lame Yin mesurait désormais près de trente pieds de long, dépassant même la taille de Wang Lin. Il leva sa main droite et le soleil se refléta sur la lame, émettant une lumière blanche et glaciale. Une énergie Yin monstrueuse enveloppa alors Wang Lin!
 
 Dès que la Lame Yin apparut, Wang Lin chargea vers les cultivateurs en contrebas. Sa vitesse était plus fulgurante que l'éclair. Il n'avait nul besoin de recourir à de grands sorts, car il comptait utiliser cette lame pour massacrer l'intégralité de la secte!
 

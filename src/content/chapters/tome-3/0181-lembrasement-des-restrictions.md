@@ -112,7 +112,7 @@ Le Seigneur Démon des Six Désirs observa l'Empereur Antique. Il ne s'attendait
 
 Mais l'apparition soudaine de l'Empereur Antique l'obligea à modifier ses plans.
 
-Les yeux de l'Empereur Antique se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle utilisée par le Démon Céleste, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction permettant de franchir trois cent trente mètres de restrictions.
+Les yeux de l'Empereur Antique se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle utilisée par le Magicien Démon Céleste, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction permettant de franchir trois cent trente mètres de restrictions.
 
 « Six Désirs... » Les yeux de l'Empereur Antique étaient éteints alors qu'il réprimait sa colère. Comparé au Seigneur Démon des Six Désirs, il avait encore plus hâte de retrouver le mystérieux jeune homme. Son regard balaya la zone et se posa sur le garçon. Il fronça les sourcils: « Est-ce lui, le mystérieux jeune homme? Pourtant, aucune trace de vie ne semble émaner de lui... »
 
@@ -158,7 +158,7 @@ L'Empereur Antique laissa éclater un rire tonitruant. « Un mort? Même s'il es
 
 Le Seigneur Démon des Six Désirs fronça les sourcils et dit: « Frère Empereur Antique, il doit s'agir d'un malentendu... »
 
-L'Empereur Antique ricana: « Un malentendu? Depuis que je suis entré dans le second royaume, j'ai rencontré deux types de restrictions. L'une a été posée par toi. Si l'autre n'est pas de lui, qui d'autre pourrait en être l'auteur? De plus, j'ai brisé nombre de ses pièges et je sais que sa force ne dépasse pas le stade de l'Âme Naissante. Dis-moi, à part lui, qui d'autre a pénétré ici sans avoir déjà dépassé ce stade? Et si tu veux me dire que c'est ce gamin Wang Lin, nous l'avons tous deux vu sombrer dans le vide. Même s'il n'est pas mort, penses-tu qu'un simple cultivateur au stade de la Formation du Noyau aurait pu franchir la première épreuve et le Chemin sans Retour pour se retrouver devant moi? »
+L'Empereur Antique ricana: « Un malentendu? Depuis que je suis entré dans le second royaume, j'ai rencontré deux types de restrictions. L'une a été posée par toi. Si l'autre n'est pas de lui, qui d'autre pourrait en être l'auteur? De plus, j'ai brisé nombre de ses pièges et je sais que sa force ne dépasse pas le stade de l'Âme Naissante. Dis-moi, à part lui, qui d'autre a pénétré ici sans avoir déjà dépassé ce stade? Et si tu veux me dire que c'est ce gamin Wang Lin, nous l'avons tous deux vu sombrer dans le vide avec le dragon géant. Même s'il n'est pas mort, penses-tu qu'un simple cultivateur au stade de la Formation du Noyau aurait pu franchir la première épreuve et le Chemin sans Retour pour se retrouver devant moi? »
 
 L'Empereur Antique livra alors tout ce qu'il avait analysé ces dernières années. Il avait cherché à identifier ce mystérieux jeune homme et avait conclu que seul l'individu aux côtés du Seigneur Démon des Six Désirs en avait les qualifications.
 
@@ -202,7 +202,7 @@ Même Wang Lin fut stupéfait par ce spectacle. Il n'avait jamais imaginé qu'ac
 
 Une fois déclenchées, les restrictions près du sommet n'avaient qu'un seul but: exterminer tout être vivant dans la zone.
 
-Selon l'analyse de Wang Lin, de nombreuses restrictions s'interposaient entre lui et les deux autres. Si l'Empereur Antique et le Seigneur Démon des Six Désirs renonçaient à la montagne pour venir le chercher, il disposait encore de près d'une centaine de cercles illusionnaires autour de lui, suffisants pour déclencher toutes les restrictions de la montagne.
+Selon l'analyse de Wang Lin, de nombreuses restrictions s'interposaient entre lui et les deux autres. Si l'Empereur Antique et le Seigneur Démon des Six Désirs renonçaient à la montagne pour venir le chercher, il disposait encore de près d'une centaine de cercles illusionnaires autour de lui, suffisants pour déclencher toutes les restrictions dans un rayon de trois mille mètres.
 
 S'il le voulait, il pouvait simplement quitter la montagne et attendre que tout se calme avant de remonter.
 
@@ -252,7 +252,7 @@ Sans parler du corps du jeune homme, les drapeaux de l'Empereur Antique provenai
 
 Les huit drapeaux pouvaient générer une multitude de restrictions selon leurs combinaisons. Si l'Empereur Antique n'ignorait pas tant de configurations, son ascension n'aurait pas été aussi laborieuse.
 
-Toutefois, en termes de vitesse, l'Empereur Antique restait le plus véloce des trois, ce qui constituait un problème en soi.
+Toutefois, en termes de vitesse, l'Empereur Antique restait le plus véloce des trois, ce qui en disait long.
 
 Il avait fallu énormément d'efforts à l'Empereur Antique pour acquérir ces drapeaux. S'il les avait possédés mille ans auparavant, le taux de mortalité et de blessures n'aurait pas été aussi élevé.
 

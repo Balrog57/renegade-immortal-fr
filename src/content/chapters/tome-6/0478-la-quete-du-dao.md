@@ -16,7 +16,7 @@ C’était là que se trouvait la secte extérieure de la Secte du Destin Céles
 
 Peu de temps après, Wang Lin atteignit une vaste montagne. Alors qu'il s'apprêtait à la franchir, son expression changea; il s'arrêta net et scruta l'horizon.
 
-« Intrus, arrête-toi! » Une voix ténue parvint de la distance. C'était une voix neutre, dénuée de toute émotion, rendant impossible la distinction entre un homme et une femme.
+« Étranger, arrête-toi! » Une voix ténue parvint de la distance. C'était une voix neutre, dénuée de toute émotion, rendant impossible la distinction entre un homme et une femme.
 
 Le visage de Wang Lin se fit respectueux. Il joignit les mains et déclara d'une voix forte: « Wang Lin, de la planète Suzaku, vient saluer l'Omniscient. »
 
@@ -40,7 +40,7 @@ Deux personnes se tenaient respectueusement derrière lui, semblant avoir enviro
 
 L'homme souriant s'adressa au vieil homme: « Maître, cet homme n'est qu'un disciple honoraire; pourquoi lui imposer ces trois épreuves? »
 
-Les yeux du vieil homme, semblables à des éclairs fixés sur l'horizon, répondirent lentement: « Je l'ai accepté comme disciple sur un coup de tête, scellant ainsi le karma entre maître et disciple. En seulement quelques centaines d'années, sa culture a déjà atteint ce stade. Il n'est pas ordinaire! »
+Les yeux du vieil homme, semblables à des éclairs fixés sur l'horizon, répondirent lentement: « Je l'ai accepté comme disciple sur un coup de tête, par un fil de pensée de disciple que j'avais laissé derrière moi. En seulement quelques centaines d'années, sa culture a déjà atteint ce stade. Il n'est pas ordinaire! »
 
 L'homme au regard doux sourit légèrement: « Attirer l'attention du Maître est sa fortune. »
 

@@ -20,7 +20,7 @@ Parce qu'il ne comprenait même pas la différence entre les deux questions.
 
 Li Qianmei observa la pluie et, après un long moment, répondit doucement: « Là où réside la volonté des cieux, le destin change. »
 
-« La vie d'une goutte de pluie est très brève, mais en raison du cycle, elle est éternelle... Les cultivateurs comme nous ont une vie très longue, mais en raison de la volonté des cieux, elle est aussi très courte.
+« La vie d'une goutte de pluie est très brève, mais en raison du cycle, elle est longue... Les cultivateurs comme nous ont une vie très longue, mais en raison de la volonté des cieux, elle est aussi très courte.
 
 « Pourtant, dans la vie dérisoire d'une simple goutte de pluie, celle-ci lutte d'innombrables fois pour échapper au contrôle du destin. Afin de combattre le destin, elle ne cesse de modifier sa trajectoire!
 
@@ -92,11 +92,11 @@ Cependant, alors qu'ils approchaient et s'apprêtaient à franchir la barrière 
 
 « Reculez! Sans mon ordre, vous n'avez pas le droit de poser le pied sur le continent de Mo Luo! » Cette voix appartenait à Lu Yuncong. Le vieil homme, surpris, fit rapidement reculer le tigre, bien que son cœur fût toujours perplexe.
 
-Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Il comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Dao Pourpre débarquait, cela ne changerait rien.
+Dans la cour, la lumière du matin enveloppait le lieu. Wang Lin regarda Lu Yuncong, qui restait assis en silence pour boire son vin. Lu Yuncong comprit qu'il n'était pas un adversaire pour cet homme en blanc. Même si toute la Secte Dao Pourpre débarquait, cela ne changerait rien.
 
 Wang Lin regarda Li Qianmei et dit calmement: « Pour la troisième question, je ne peux dire que le Dao est semblable à une pensée. »
 
-Li Qianmei esquissa un sourire d'une grande beauté. Elle regarda Wang Lin et murmura: « Merci, Frère Lu, d'avoir dissipé mes doutes. J'espère que vous me ferez part de votre réponse lorsque vous aurez trouvé la clé de cette troisième question. Désormais, Petite sœur ne posera plus ces questions à quiconque. »
+Li Qianmei esquissa un sourire d'une grande beauté. Elle regarda Wang Lin et murmura: « Merci, Frère Lu, d'avoir dissipé mes doutes. J'espère que vous me ferez part de votre réponse si un jour vous atteignez le Dao. Désormais, Petite sœur ne posera plus ces questions à quiconque. »
 
 Wang Lin fut surpris. Il regarda Li Qianmei et, après une courte réflexion, hocha la tête.
 
@@ -112,7 +112,7 @@ Il soupira de nouveau: « Daoïste Lu, cette Bannière Céleste Yin n'appartient
 
 « C'est le cas! Peu importe. Puisque vous ne voulez pas la rendre, je n'insisterai pas. Adieu! » Lu Yuncong joignit les mains. En voyant que Li Qianmei n'avait aucune intention de partir, il ne put s'empêcher de ressentir une pointe d'amertume. Il salua Li Qianmei et partit.
 
-Une fois Lu Yuncong parti, Li Qianmei regarda Wang Lin avec un doux sourire. Elle porta sa flûte de jade à ses lèvres et commença à jouer. Le son de la flûte résonna, empreint de chaleur et d'élégance. C'était une mélodie gracieuse, comme une brise marine, qui plongeait l'auditeur dans une immersion totale.
+Une fois Lu Yuncong parti, Li Qianmei regarda Wang Lin avec un doux sourire. Elle porta sa flûte de jade à ses lèvres et commença à jouer. Le son de la flûte résonna, empreint de chaleur et d'élégance. C'était une mélodie gracieuse, qui plongeait l'auditeur dans une immersion totale.
 
 Cette musique possédait un charme apaisant, semblable à la vie paisible d'un village ou au murmure d'un ruisseau de montagne. Elle lavait les impuretés du cœur. C'était comme un pont arc-en-ciel reliant deux âmes, faisant disparaître toute distance entre elles.
 

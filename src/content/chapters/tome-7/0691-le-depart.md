@@ -50,13 +50,13 @@ Wang Ping posa la statue à moitié achevée et se mit à songer en silence.
 
 Wang Lin ne le pressa pas, mais s'assit à ses côtés pour examiner l'œuvre de Wang Ping. La statue était un peu brute, mais elle parvenait à capturer trente pour cent de l'essence du sujet.
 
-La statue représentait Sun Tai. Il affichait une expression arrogante en regardant le ciel. Ses mains formaient un sceau et une étrange aura s'était rassemblée autour de lui. Des nuages flottaient sous ses pieds, lui donnant l'allure d'une figure légendaire.
+La statue représentait Sun Tai. Il affichait une expression arrogante en regardant le ciel. Ses deux mains formaient chacune un sceau et une étrange aura s'était rassemblée autour de lui. Des nuages flottaient sous ses pieds, lui donnant l'allure d'une figure légendaire.
 
 Wang Ping baissa la tête et murmura: « Papa, pourquoi ne me laisses-tu pas étudier les sorts immortels que grand-père Sun a laissés derrière lui... »
 
 Wang Lin soupira. En fin de compte, Sun Tai n'avait pas respecté sa décision sur ce point. Il avait profité du fait d'avoir adopté Wang Ping pour lui transmettre secrètement des techniques de culture.
 
-Rien de tout cela n'avait échappé à Wang Lin. Si Sun Tai n'avait pas tenté d'impartir sa méthode de culture à Wang Ping, il ne serait pas mort quatre ans plus tôt que prévu.
+Rien de tout cela n'avait échappé à Wang Lin. Si Sun Tai n'avait pas tenté de transmettre sa méthode de culture à Wang Ping, il ne serait pas mort quatre ans plus tôt que prévu.
 
 En tant que père, Wang Lin n'était pas du genre à agir sans consulter les autres. Il regarda Wang Ping. Cet enfant avait hérité des traits de sa mère, mais au cours de ces seize années, il avait acquis son calme.
 

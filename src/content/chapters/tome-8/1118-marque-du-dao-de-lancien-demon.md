@@ -102,4 +102,4 @@ Wang Lin esquissa un sourire, retira son doigt et flotta en arrière comme un nu
 
 Les étoiles dans les yeux de Ta Jia s'effondrèrent et une aura plusieurs fois supérieure à la précédente explosa. Il poussa un hurlement tandis que son corps s'agitait, brisant avec force le sort d'immobilisation.
 
-« Tu m'as forcé à en arriver là. Si ce démon meurt, tu mourras avec lui! Sortilège de l'Ancien Démon à 9 étoiles: la Calamité du Démon des Nuages Pourpres! »
+« Tu m'as forcé à en arriver là. Si ce démon meurt, tu mourras avec lui! Sortilège de l'Ancien Démon à 9 étoiles: la Calamité Démoniaque du Nuage Pourpre! »

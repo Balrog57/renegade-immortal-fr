@@ -8,7 +8,7 @@ slug: objet-dans-leau
 ---
 Les yeux de Wang Lin s'illuminèrent et ses mains formèrent un sceau pour activer une technique de bas niveau qu'il n'avait pas utilisée depuis longtemps: la technique d'attraction. La boue au sol fut soulevée et une odeur nauséabonde envahit rapidement l'eau, tandis que la boue se répandait comme de l'encre.
 
-Il nagea prestement vers la surface du puits, tel un calmar, avec la boue qui le poursuivait comme si elle le traquait.
+Il nagea prestement vers la surface du puits, tel un poisson, avec la boue qui le poursuivait comme si elle le traquait.
 
 Bientôt, Wang Lin émergea de l'eau et agita la main. En utilisant la technique d'attraction, une grande quantité d'eau boueuse s'écoula du trou.
 
@@ -74,7 +74,7 @@ La bête moustique apporta l'homme à Wang Lin et le jeta au sol. Lorsque le scr
 
 Wang Lin demanda: « Comment avez-vous trouvé cette prison aquatique? »
 
-Le scribe tremblait de tous ses membres en répondant: « I... Immortel, il y a très longtemps, ce n'était qu'une montagne déserte. Cette grotte n'est apparue qu'après un tremblement de terre, et cette prison aquatique est surgie en même temps. L'eau a toujours eu une odeur nauséabonde. À l'époque, le chef a jeté un œil et a pensé que cela ferait une bonne prison; c'est ainsi que ce lieu est devenu une prison. »
+Le scribe tremblait de tous ses membres en répondant: « Im... Immortel, il y a très longtemps, ce n'était qu'une montagne déserte. Cette grotte n'est apparue qu'après un tremblement de terre, et cette prison aquatique est surgie en même temps. L'eau a toujours eu une odeur nauséabonde. À l'époque, le chef a jeté un œil et a pensé que cela ferait une bonne prison; c'est ainsi que ce lieu est devenu une prison. »
 
 Wang Lin leva les yeux vers la montagne. Il y avait des traces d'effondrements passés, cet homme ne mentait donc pas.
 
@@ -98,7 +98,7 @@ Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son at
 
 Grâce aux pierres spirituelles de qualité supérieure, sa culture avait atteint le 6ème niveau de la Condensation de Qi.
 
-La bête moustique continuait de garder Wang Lin, bien qu'elle regardât parfois au loin, vers Chu. Au cours de ces trois mois, elle commença à regretter la grenouille tonnerre. Bien qu'elles fussent toujours en conflit, le manque de sa compagne se faisait sentir.
+La bête moustique continuait de garder Wang Lin, bien qu'elle regardât parfois au loin, vers Chu. Au cours de ces trois mois, elle commença à regretter la grenouille tonitruante. Bien qu'elles fussent toujours en conflit, le manque de sa compagne se faisait sentir.
 
 Ce jour-là, Wang Lin ouvrit les yeux. Il frappa son sac de rangement, sortit cinq autres pierres spirituelles de qualité supérieure et les disposa autour de lui.
 
@@ -108,7 +108,7 @@ Sans un mot, il ferma les yeux et commença à absorber frénétiquement l'éner
 
 Alors que l'énergie spirituelle qui entourait son corps augmentait, il activa l'énergie de son 6ème niveau de Condensation de Qi pour guider l'énergie extérieure afin qu'elle entre en collision avec le sceau.
 
-Wang Lin était tel une plaque métallique, tandis que l'énergie intérieure agissait comme un petit marteau et l'énergie extérieure comme un grand maillet. Les deux marteaux frappaient la plaque pour tenter de créer une brèche.
+Wang Lin était tel une plaque métallique, tandis que l'énergie intérieure agissait comme un petit marteau et l'énergie extérieure comme un grand poinçon. Les deux outils frappaient la plaque pour tenter de créer une brèche.
 
 Après des vagues d'assauts successifs, le visage de Wang Lin se crispa sous la douleur et la marque de thé sur son visage émit une lueur sombre. Puis, la marque commença à bouger. De loin, on aurait dit qu'un réseau de runes était en rotation.
 
@@ -130,7 +130,7 @@ Une fois, deux fois, trois fois!
 
 Chaque collision faisait trembler le corps de Wang Lin, mais faisait également vibrer la marque de thé. Finalement, de petites fissures commencèrent à apparaître sur celle-ci.
 
-Le sol où il était assis se fissurait également à chaque assaut. Les crevasses se propagèrent jusqu'aux maisons voisines; celles qui furent touchées se transformèrent instantanément en poussière au moindre souffle de vent.
+Le sol où il était assis se fissurait également à chaque assaut. Les crevasses se propagèrent jusqu'aux maisons voisines; celles qui furent touchées s'effondrèrent aussitôt, puis se transformèrent en poussière au moindre souffle de vent.
 
 Une série de craquements résonna de l'intérieur du corps de Wang Lin. À ce stade, environ 10 % de la marque de thé sur son visage s'était fissurée et était tombée.
 

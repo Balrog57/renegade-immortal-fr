@@ -26,11 +26,11 @@ Le doigt du dieu ancien jaillit soudainement. Il était impossible de décrire l
 
 Aucun pouvoir ne pouvait résister à une telle force. Tout devait périr sous l'assaut de ce doigt!
 
-Le cadavre raffiné poursuivant Wang Lin fut stupéfait. Un bref instant de vide passa dans son esprit, tandis qu'il pesait les conséquences d'affronter de front le doigt du dieu ancien!
+Le cadavre raffiné poursuivant Wang Lin fut stupéfait. Un bref instant de vide passa dans son esprit, et ce fut le prix de sa stupeur: le doigt du dieu ancien fonça droit sur lui!
 
 Boum!
 
-Au moment où le doigt du dieu ancien chargea, il percuta le cadavre raffiné. Sous une série de craquements sinistres, toutes les chaînes retenant la créature cédèrent. De grandes quantités de sang noir furent expulsées du dos de son corps sous l'effet de cette force implacable. Son corps entier fut projeté en arrière et sa peau violette commença immédiatement à se dissiper.
+Au moment où le doigt du dieu ancien chargea, il percuta le cadavre raffiné. Sous une série de craquements sinistres, toutes les chaînes retenant la créature cédèrent. De grandes quantités de sang noir furent expulsées du dos de son corps sous l'effet de cette force implacable. Son corps entier semblait étiré à l'extrême, comme s'il était tiré de toutes parts, et sa peau violet-bleu commença immédiatement à se dissiper.
 
 En un clin d'œil, il fut comme dépouillé de sa peau. Puis, ses os et sa chair s'effondrèrent et, finalement, le cadavre raffiné explosa.
 
@@ -60,7 +60,7 @@ La grue tenait une feuille noire dans son bec. Dès qu'elle apparut, elle lâcha
 
 En un instant presque imperceptible, cette feuille mesurait plus de 10 000 pieds de haut et s'étendit latéralement pour créer une barrière.
 
-Le doigt du dieu ancien percuta la feuille. Des bruits de craquements retentirent, puis la feuille se désintégra en filaments de gaz noir.
+Le doigt du dieu ancien percuta la feuille. Un grondement assourdissant retentit, suivi de craquements, puis la feuille se désintégra en filaments de gaz noir.
 
 Le visage du Saint Démon Noir pâlit; il cracha du sang et recula. Cependant, sa main droite plongea dans le vide et une sculpture sur bois apparut dans sa paume.
 

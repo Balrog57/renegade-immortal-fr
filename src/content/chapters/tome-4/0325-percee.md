@@ -20,7 +20,7 @@ La vie et la mort sont séparées par un fil ténu. Certains sont manifestement 
 
 Les yeux de Wang Lin brillaient de plus en plus intensément.
 
-La mort de Zhou Yi permit à Ting Er de vivre, mais la mort de Ting Er redonna vie à Zhou Yi. La vie et la mort jouaient véritablement avec les esprits.
+La mort de Zhou Yi permit à Ting Er de vivre, mais la mort de Ting Er redonna vie à Zhou Yi. Le destin se joue vraiment des êtres.
 
 Cependant, la vie et la mort de ces deux êtres n'avaient pas pris fin; elles existaient désormais sous la forme d'une nouvelle existence au fond du cœur.
 
@@ -34,7 +34,7 @@ Le stade intermédiaire de la Formation de l'Âme n'était plus très loin.
 
 Une fois le stade de la Formation de l'Âme atteint, la compréhension de son propre domaine devient la clé. Après une percée dans son domaine, l'avancée du niveau de culture suit en moins de dix ans.
 
-C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon sa taille. Cependant, la percée du domaine revient à augmenter la taille du récipient. Bien qu'il n'y ait toujours qu'une quantité limitée de liquide à l'intérieur, cette capacité peut désormais croître. Lorsque le volume de liquide atteint la limite du nouveau récipient, alors votre culture fera une percée.
+C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon sa taille. Cependant, la percée du domaine revient à agrandir plusieurs fois le récipient. Bien qu'il n'y ait toujours qu'une quantité limitée de liquide à l'intérieur, cette capacité peut désormais croître. Lorsque le volume de liquide atteint la limite du nouveau récipient, alors votre culture fera une percée.
 
 À cet instant, Ling Tianhou vola rapidement vers la femme. Il tendit la main, visant les deux épées célestes.
 
@@ -44,7 +44,7 @@ Son corps bondit et une lumière dorée jaillit de lui. Il se changea en une gig
 
 Le ciel s'obscurcit à l'apparition de cette image d'épée, et la terre commença à se fissurer.
 
-L'expression du vieil homme changea. Il n'osa plus poursuivre les épées. Il sentait que dans cette émanation de lame résidait une puissance capable de tout anéantir.
+L'expression du vieil homme changea. Il n'osa plus s'emparer des épées. Il sentait que dans cette émanation de lame résidait une puissance capable de tout anéantir.
 
 Sans hésiter, le vieil homme fit volte-face et poussa un rugissement. Il joignit les mains puis les écarta: une nappe de lumière d'épée apparut devant lui. Il la projeta vers Zhou Yi.
 
@@ -56,7 +56,7 @@ La lumière d'épée du vieil homme s'effondra, il cracha du sang et l'empreinte
 
 Mais à cet instant précis, l'image d'épée en laquelle Zhou Yi s'était changé devint encore plus rapide et fonça de toutes ses forces vers le vieil homme.
 
-L'expression du vieil homme changea radicalement alors qu'il s'engouffrait précipitamment dans le portail. En entrant, il agita sa main droite et le Qilin qui reposait encore au sol leva enfin la tête. Il se transforma en un rayon de lumière pour rejoindre son maître.
+L'expression du vieil homme changea radicalement alors qu'il s'engouffrait précipitamment dans le portail. En entrant, il agita sa main droite et le Qilin qui reposait encore au sol leva enfin la tête. Il se transforma en un rayon de lumière et disparut dans la faille avec lui.
 
 La faille se referma rapidement, mais Zhou Yi réussit à s'y engouffrer juste avant qu'elle ne disparaisse.
 
@@ -130,7 +130,7 @@ La silhouette de Wang Lin devant cette fresque évoquait le cycle cosmique des r
 
 Une série d'images apparut derrière le vieillard, défilant à une vitesse vertigineuse. On pouvait y voir deux vieillards aux cheveux blancs regardant avec bienveillance un homme d'âge moyen agenouillé devant eux. Cet homme était manifestement le vieil homme dans sa jeunesse; ils étaient très semblables.
 
-Le domaine de cet homme était la piété!
+Le domaine de cet homme était la piété filiale!
 
 Cependant, ce domaine s'effondra rapidement, remplacé par la peinture en noir et blanc.
 

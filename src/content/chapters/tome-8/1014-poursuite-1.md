@@ -110,7 +110,7 @@ Debout sur le sable, l'expression de Wang Lin devint plus lugubre encore. Des va
 
 Wang Lin réfléchit, leva la main et effleura son visage. Des filaments noirs s'en échappèrent pour pénétrer dans sa main droite.
 
-En observant le gaz noir dans sa paume, Wang Lin sentit l'aura d'un démon dispersé.
+En observant le gaz noir dans sa paume, Wang Lin sentit l'aura d'un Démon Dispersé.
 
 « Une énergie démoniaque... » Les yeux de Wang Lin s'illuminèrent et il serra la main sans pitié.
 

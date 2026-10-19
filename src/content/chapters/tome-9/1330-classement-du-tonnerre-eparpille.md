@@ -34,7 +34,7 @@ Au moment où il redressa la tête, une lueur meurtrière traversa les yeux du v
 
 La téléportation constituait la différence la plus flagrante entre les cultivateurs de l'Âme Naissante et ceux de la Formation du Noyau. Un vieux monstre de l'Âme Naissante doté de cette capacité était d'une puissance dépassant l'entendement pour un expert de la Formation du Noyau.
 
-Il apparut derrière Wang Lin en un éclair. Il ouvrit la bouche et un rayon de lumière verte jaillit, contenant en son sein un éclair de tonnerre. Des gémissements fantomatiques émanaient de ce foudre qui fonçait droit sur Wang Lin.
+Il apparut derrière Wang Lin en un éclair. Il ouvrit la bouche et un rayon de lumière verte jaillit, contenant en son sein un éclair de tonnerre. De nombreux spectres aux formes floues tournoyaient autour de cette foudre, poussant des gémissements fantomatiques, et elle fonçait droit sur Wang Lin.
 
 Le vieil homme ne chercha même pas à voir le résultat. Après avoir utilisé son trésor de vie, il se téléporta à nouveau pour fuir la grotte!
 
@@ -52,9 +52,9 @@ Pourtant, avant qu'il ne puisse achever sa phrase, le Sens Divin de Wang Lin se 
 
 Après avoir parcouru les souvenirs de ce vieux monstre de l'Âme Naissante, les yeux de Wang Lin s'illuminèrent et il commença à réfléchir.
 
-Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé, mais grâce aux souvenirs qu'il venait d'acquérir, il possédait désormais une compréhension détaillée de leur organisation.
+Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé dans le Système Stellaire Antique, mais grâce aux souvenirs qu'il venait d'acquérir, il possédait désormais une compréhension détaillée de leur organisation.
 
-« Ils utilisent cette méthode de dispersion pour apprendre à se battre, pour assimiler la loi de la jungle et permettre l'émergence d'une nouvelle génération de chefs! »
+« Ils utilisent cette méthode de dispersion pour apprendre à intriguer et à se battre, pour assimiler la loi de la jungle et permettre l'émergence d'une nouvelle génération de chefs! »
 
 « Outre les trois planètes mères où vit la majorité des membres du clan, les 13 autres planètes sur les 16 que compte le système servent de terrains d'essai! Tous les cent ans, un seul accès à la Terre Sainte est ouvert, et tous ceux résidant sur ces 13 planètes doivent se battre pour l'obtenir! »
 
@@ -64,7 +64,7 @@ Il n'avait pas tué beaucoup de membres du Clan du Tonnerre Dispersé, mais grâ
 
 « Dans sept ans, celui qui possédera le plus de cristaux de tonnerre pourra entrer dans la Terre Sainte! C'est une opportunité que je ne peux laisser passer. Je pourrai ainsi entrer ouvertement dans la Terre Sainte pour absorber l'éclair éternel! » Les yeux de Wang Lin brillèrent et sa main droite s'élança vers le vide. La marque de tonnerre entre les sourcils du vieil homme vacilla, et un morceau de jade en jaillit.
 
-Les habitants de ce système stellaire ancien utilisaient rarement des sacs de rangement; les marques entre leurs sourcils contenaient un espace de stockage où tout pouvait être placé.
+Les habitants de ce Système Stellaire Antique utilisaient rarement des sacs de rangement; les marques entre leurs sourcils contenaient un espace de stockage où tout pouvait être placé.
 
 Avec le jade en main, Wang Lin put aisément en consulter le contenu sans endommager la marque du Sens Divin qui l'y scellait.
 
@@ -90,7 +90,7 @@ Délaissant le vieil homme, Wang Lin s'enfonça dans la grotte en direction de l
 
 De nombreuses herbes spirituelles poussaient sur les deux rives. Ce qui attira particulièrement l'attention de Wang Lin fut la faible trace de tonnerre émanant d'une plante accrochée à la paroi de la vallée. Elle s'avançait de sept pieds depuis le mur et portait six fruits verts de la taille d'un poing.
 
-Alors qu'il observait ces fruits, quatre rayons de lumière foncèrent vers la grotte. Quatre vieillards approchaient, chacun sur une épée volante. Aucun n'était faible, et l'un d'eux se trouvait au stade intermédiaire de l'Âme Naissante. Un air de mépris se lisait sur son visage et ses yeux étaient glacials.
+Alors qu'il observait ces fruits, quatre rayons de lumière, surgis à 500 kilomètres de là, foncèrent vers la grotte. Quatre vieillards approchaient, chacun sur une épée volante. Aucun n'était faible, et l'un d'eux se trouvait au stade intermédiaire de l'Âme Naissante. Un air de mépris se lisait sur son visage et ses yeux étaient glacials.
 
 L'un des trois hommes derrière lui pointa la direction et dit: « Oncle, la grotte de Qi Zhi est juste devant. C'est le seul vieux monstre de l'Âme Naissante au stade précoce dans un rayon de 50 000 kilomètres, et il a amassé de nombreux trésors au fil des ans. »
 

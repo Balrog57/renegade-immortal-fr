@@ -18,7 +18,7 @@ Une perle de la taille d'un poing flottait devant lui. L'appeler une perle étai
 
 C'est ce noyau qui avait absorbé toutes les attaques précédentes, permettant à Yao Changdong de ne rester dans un état pitoyable sans subir la moindre blessure réelle.
 
-« Tu es la deuxième personne à me forcer à utiliser la pilule céleste que l'Ancêtre m'a donnée! » Yao Changdong grinça presque des dents. Son intention meurtrière envers Wang Lin ne découlait plus de l'Ordre Céleste de sa famille, mais de la rage pure qui bouillonnait dans son cœur.
+« Tu es la deuxième personne à me forcer à utiliser le noyau céleste que l'Ancêtre m'a donné! » Yao Changdong grinça presque des dents. Son intention meurtrière envers Wang Lin ne découlait plus de l'Ordre Céleste de sa famille, mais de la rage pure qui bouillonnait dans son cœur.
 
 Il n'avait jamais été dans une situation aussi désavantageuse de toute sa vie. Depuis l'embuscade initiale, il n'avait eu aucune chance de riposter et avait été contraint à une défense passive. À cause de ce sort étrange, Yao Changdong s'était retrouvé dans une position périlleuse.
 
@@ -38,7 +38,7 @@ Wang Lin n'hésita pas à battre en retraite. Tandis qu'il reculait, l'espace o�
 
 Cette scène fit se rétracter les pupilles de Wang Lin.
 
-« Sort céleste, Effondrement Imaginaire! » La main de Yao Changdong forma un nouveau sceau et son visage prit une expression cruelle.
+« Sort céleste, Effondrement de l'Ombre! » La main de Yao Changdong forma un nouveau sceau et son visage prit une expression cruelle.
 
 Des effondrements violents continuèrent de résonner; Wang Lin ne pouvait s'accorder aucun répit car les déchirements spatiaux le poursuivaient de près.
 
@@ -54,7 +54,7 @@ Les dix-neuf âmes manquèrent leur cible, puis retournèrent vers Yao Changdong
 
 Le visage de Yao Changdong devint féroce. Sans hésiter, il tendit la main vers le noyau et cria: « Je suis prêt à subir le châtiment de l'Ancêtre pour avoir sacrifié ce noyau afin de briser ton sort! » En parlant, il écrasa le noyau, libérant une aura destructrice qui se propagea comme une tempête.
 
-Cette force était trop puissante. À mesure qu'elle s'étendait, l'énergie originelle dans un rayon de 100 000 pieds commença à se tordre et à se distordre. L'énergie originelle du monde n'était plus en équilibre; c'était comme si d'immenses mains la remuaient sans cesse. Quiconque y était fusionné devait s'enfuir au plus vite, à moins de posséder un sort capable de contrer ces fluctuations.
+Cette force était trop puissante. À mesure qu'elle s'étendait, les forces naturelles dans un rayon de 100 000 pieds commencèrent à se tordre et à se distordre. Les forces naturelles n'étaient plus en équilibre; c'était comme si d'immenses mains la remuaient sans cesse. Quiconque y était fusionné devait s'enfuir au plus vite, à moins de posséder un sort capable de contrer ces fluctuations.
 
 Wang Lin réapparut à mille pieds de là. Ses yeux étaient emplis d'intention meurtrière lorsqu'il leva sa main droite et pointa le vide. La Paire Dao Fanée apparut rapidement. L'os de la bête féroce émit un éclat fantomatique et une puissante aura maléfique emplit le monde.
 
@@ -78,7 +78,7 @@ Pris de peur en voyant qu'il allait être encerclé, Yao Changdong forma rapidem
 
 Cependant, sous la puissance du vent déchaîné par le dragon noir, les nuages se dissipèrent, révélant un Yao Changdong terrifié.
 
-« Quoi... Quel est ce sort céleste?! » Le corps de Yao Changdong trembla; il serra les dents et cracha une bouffée d'énergie originelle essentielle. Sa main droite s'activa rapidement et il cria: « Âme Sanguine, six cycles! »
+« Quoi... Quel est ce sort céleste?! » Le corps de Yao Changdong trembla; il serra les dents et cracha une bouffée de sang essentiel de son âme originelle. Sa main droite s'activa rapidement et il cria: « Âme Sanguine, six cycles! »
 
 Après avoir utilisé ce sort, le visage de Yao Changdong devint livide. Ce sort céleste de l'Âme Sanguine lui avait été transmis par l'Ancêtre, le Dieu de Sang. On disait que c'était l'un des plus grands sorts de leur ancêtre céleste.
 
@@ -114,7 +114,7 @@ Le corps de Wang Lin trembla. Il ressentit une chaleur entre ses sourcils, comme
 
 « Ceci... C'est le pouvoir du tatouage du Clan des Immortels Délaissés! Mais comment le tatouage du Clan des Immortels Délaissés peut-il être aussi puissant?! » Wang Lin prit une inspiration glacée, les yeux remplis de terreur. Toute l'énergie originelle en lui était soudainement verrouillée. À cet instant, il n'était plus qu'un mortel!
 
-Son corps devint instantanément très faible. Si Ta Shan n'avait pas permis à Wang Lin de s'appuyer sur son bras gauche, ce dernier serait immédiatement tombé dans le vide infini.
+Son corps devint instantanément très faible. Si Ta Shan n'était pas accouru pour permettre à Wang Lin de s'asseoir en tailleur sur sa main gauche, ce dernier serait immédiatement tombé dans le vide infini.
 
 À ses côtés, le Chariot de Guerre qui Tue les Dieux se transforma en papillon. Il battait doucement des ailes, paraissant inoffensif.
 

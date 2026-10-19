@@ -13,9 +13,9 @@ Dans l'immensité de l'espace au-delà de la planète Suzaku, un rayon de lumiè
 
 « Wang Lin, nous faisons route dans la même direction pour l'instant. Une fois que nous aurons atteint la planète de commerce et que j'aurai fait mes achats, nous nous séparerons... » La voix de Situ Nan était empreinte d'une pointe de mélancolie.
 
-Wang Lin réfléchit un instant avant de répondre d'un ton calme: « Un jour, nous nous reverrons. N'avais-tu pas l'ambition de devenir un roi sur la planète Feng Luan? »
+Wang Lin réfléchit un instant avant de répondre d'un ton calme: « Un jour, nous nous reverrons. N'avais-tu pas l'ambition de devenir un prince sur la planète Feng Luan? »
 
-À l'évocation du mot « roi », Situ Nan éclata d'un rire immédiat. « C'est exact! C'est précisément mon objectif! »
+À l'évocation du mot « prince », Situ Nan éclata d'un rire immédiat. « C'est exact! C'est précisément mon objectif! »
 
 Wang Lin esquissa un léger sourire, puis reporta son attention sur la boussole stellaire pour suivre la carte céleste que Situ Nan lui avait remise. Ils virèrent à gauche, s'enfonçant dans le vide infini de l'espace.
 
@@ -31,7 +31,7 @@ Après plusieurs jours de vol, une petite planète apparut au loin. Ce n'était 
 
 Alors que la boussole s'approchait de la lune, le corps original, enfoui dans ses profondeurs, lança un coup de poing. Des fissures semblables à des dragons terrifiants se propagèrent des entrailles du sol jusqu'à la surface. Une série de craquements retentit, suivie d'un fracas assourdissant provenant d'un bassin lunaire. Simultanément, une silhouette noire s'en extirpa.
 
-Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux, d'une lueur glaciale comme un bloc de glace éternelle, projetaient un froid immense. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse; mais c'était cette texture même qui conférait à son être une aura désolée. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
+Cette silhouette arborait une chevelure rouge qui ondulait sans aucun vent et un visage aux traits acérés dégageant une aura de rudesse. Trois étoiles tournaient lentement sur son front, et ses yeux, d'une lueur glaciale comme un bloc de glace éternelle, projetaient un froid immense. D'innombrables crevasses marquaient son corps de bronze, rendant sa peau très rugueuse; mais c'était cette texture même qui conférait à son être une aura sauvage. À cet instant, le corps original ressemblait à une bête primordiale dégageant une aura monstrueuse.
 
 « Ehh!!! » Situ Nan fut stupéfait. Bien qu'il eût été informé de l'existence du corps original par Wang Lin, il ne put s'empêcher de sentir son cœur vaciller, malgré sa vaste expérience de cultivateur.
 
@@ -81,7 +81,7 @@ Le secteur nord était moins fréquenté, mais c'était là que se trouvaient le
 
 L'objectif de Wang Lin était limpide: il lui fallait deux matériaux pour réparer la boussole stellaire. Ces composants étaient extrêmement rares et ne se trouvaient point dans les commerces ordinaires. Tandis qu'il progressait, il inspectait chaque boutique, marquant parfois une pause avant de reprendre sa marche.
 
-Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme de petite taille non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect: « Je présume que c'est la première fois que Senior vient à Ming Mei. »
+Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme de petite taille non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement jusqu'à une dizaine de mètres de Wang Lin et joignit les mains en signe de respect: « Je présume que c'est la première fois que Senior vient à Ming Mei. »
 
 La culture de cet individu était au stade avancé de l'Âme Naissante, n'ayant pas encore atteint le stade de la Formation de l'Âme.
 

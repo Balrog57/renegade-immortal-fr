@@ -10,11 +10,11 @@ L'esprit du tonnerre était empreint d'une grande fierté, mais il croisa soudai
 
 Le corps qui fonçait vers Wang Lin s'arrêta net et recula. Il agit par pur instinct, comme si une force irrésistible l'obligeait à battre en retraite!
 
-Wang Lin ferma les yeux et ne prêta plus aucune attention à l'esprit du tonnerre. Il pouvait vaguement sentir que cet esprit n'était qu'une infime parcelle de son âme. Le véritable esprit du tonnerre du Royaume Céleste du Tonnerre ne saurait être une telle chose.
+Wang Lin ferma les yeux et ne prêta plus aucune attention à l'esprit du tonnerre. Il pouvait vaguement sentir que cet esprit n'était qu'une infime parcelle d'âme de tonnerre détachée. Le véritable esprit du tonnerre du Royaume Céleste du Tonnerre ne saurait être une telle chose.
 
 L'esprit du tonnerre recula, les yeux écarquillés par la terreur. Il avait depuis longtemps éveillé son intelligence et, à l'origine, il ne considérait aucun des cultivateurs comme une menace; mais à cet instant précis, il eut l'impression de faire face à son propre ancêtre.
 
-Ce sentiment émanait de son âme de tonnerre. C'était un souvenir gravé dans son essence, réprimé pendant des générations avant même sa naissance.
+Ce sentiment émanait de son âme de tonnerre. C'était un souvenir gravé dans son essence, transmis de génération en génération avant même sa naissance.
 
 Aux temps anciens, les cieux avaient conféré aux dragons du tonnerre le pouvoir de la foudre. Les dragons du tonnerre étaient nés de cet élément; ils étaient l'incarnation même du tonnerre et étaient considérés comme les esprits de toute la foudre. Tout le tonnerre des cieux et de la terre appartenait aux dragons du tonnerre!
 
@@ -78,7 +78,7 @@ Xu Ting maugréait intérieurement. Le tonnerre devenait de plus en plus puissan
 
 L'esprit du tonnerre se retourna soudainement. N'osant pas provoquer Wang Lin, il fixa Xu Ting. Il poussa un rugissement et chargea. Dans son mouvement, tout le lac de tonnerre étincela violemment pour être absorbé par l'esprit, l'emplissant d'une pression de tonnerre antique. Il chargea la gueule ouverte, tentant de dévorer Xu Ting!
 
-Le brouillard noir autour de Xu Ting se dissipa frénétiquement. Son visage devint pâle et il fut contraint de reculer.
+Le brouillard noir autour de Xu Ting se dissipa frénétiquement. Son visage devint pâle et il fut contraint de reculer de plus de trente mètres.
 
 Une fois hors du lac de tonnerre, Xu Ting poussa un cri: « Je refuse de m'avouer vaincu! Ce Xu Mu triche forcément! »
 
@@ -94,7 +94,7 @@ Cette scène stupéfia tous les cultivateurs environnants.
 
 « Cet esprit du tonnerre semble craindre Xu Mu. C'est très étrange. Ce Xu Mu n'est vraiment pas un homme ordinaire! »
 
-Xu Ting haletait. Il observa la scène un long moment avant de faire demi-tour pour partir. Il savait que cette épreuve terrestre n'était rien pour Xu Mu, et que ce dernier n'avait rien à voir avec lui...
+Xu Ting haletait. Il observa la scène un long moment avant de faire demi-tour pour partir. Il savait que cette épreuve terrestre n'était rien pour Xu Mu, et qu'elle ne touchait pas ce dernier comme elle le touchait lui...
 
 Le rythme du tambour ne s'arrêta pas. Tandis que les coups continuaient, Wang Lin demeurait immobile. L'esprit du tonnerre tournait autour de lui, le regard de plus en plus féroce. Quelque chose au plus profond de son âme le poussait à vouloir dévorer Wang Lin de plus en plus impérieusement. À la fin, cette pulsion occupa tout son esprit.
 

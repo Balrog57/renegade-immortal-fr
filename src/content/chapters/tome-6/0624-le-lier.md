@@ -72,7 +72,7 @@ Cependant, certains ne partirent pas; Sun Ruonan en faisait partie. Elle fixait 
 
 Le corps de Wang Lin apparut du vide et il lança un regard froid aux survivants. Il n'en restait que peu. En voyant Wang Lin, ils joignirent respectueusement les mains pour le remercier sans cesse. Tous, sauf Sun Ruonan, qui fit mine de ne pas le voir et continua de fixer le ciel d'un air absent.
 
-Wang Lin répondit par un geste de la main aux cultivateurs qui partaient, puis tendit sa main gauche. Il saisit Sun Ruonan et s'envola vers l'horizon. Les autres cultivateurs attendirent que Wang Lin leur accorde son salut. Après son départ, ils eurent l'impression que les dernières années n'avaient été qu'un rêve. Ils se saluèrent puis se dispersèrent.
+Wang Lin répondit par un geste de la main aux cultivateurs qui étaient restés, puis tendit sa main gauche. Il saisit Sun Ruonan et s'envola vers l'horizon. Les autres cultivateurs attendirent le retour de Wang Lin pour le remercier. Après son départ, ils eurent l'impression que les dernières années n'avaient été qu'un rêve. Ils se saluèrent puis se dispersèrent.
 
 « Lâchez-moi! De quel droit m'arrachez-vous ainsi? » Une fois capturée par Wang Lin, Sun Ruonan reprit ses esprits et commença à lutter.
 
@@ -102,9 +102,9 @@ La silhouette de Wang Lin apparut à l'intérieur de la tour de la Tribu de l'Af
 
 Ces trois épées étaient celles de Zi Shu, de Mo Yang et de Hai Zhu. Après avoir été raffinées par Wang Lin, l'énergie d'épée des trois armes fusionna. La maîtrise combinée de ces trois lames acheva l'activation de la formation!
 
-« Voici la Formation des Trois Talents de l'Épée du Saint de l'Épée Ling Tianhou. J'ignore si vous en avez entendu parler! » La voix de Wang Lin était calme, mais lorsqu'elle atteignit les oreilles du vieil homme, elle le fit trembler de peur. Ses petits yeux se tournèrent précipitamment vers les trois épées précieuses.
+« Voici la Formation des Trois Talents à l'Épée du Saint de l'Épée Ling Tianhou. J'ignore si vous en avez entendu parler! » La voix de Wang Lin était calme, mais lorsqu'elle atteignit les oreilles du vieil homme, elle le fit trembler de peur. Ses petits yeux se tournèrent précipitamment vers les trois épées précieuses.
 
-Wang Lin reprit lentement: « Une fois que votre Filet de Capture Céleste vous aura relâché, si vous faites le moindre mouvement, je vous ferai découvrir les mystères de la Formation des Trois Talents de l'Épée! »
+Wang Lin reprit lentement: « Une fois que votre Filet de Capture Céleste vous aura relâché, si vous faites le moindre mouvement, je vous ferai découvrir les mystères de la Formation des Trois Talents à l'Épée! »
 
 Il avait découvert le nom de cette formation en fouillant l'âme de Hai Zhu! Les douze épées étaient divisées en groupes de trois. Si les douze étaient activées, elles formeraient la Formation des Douze Épées qui Tue le Ciel, dont le Saint de l'Épée Ling Tianhou était si fier!
 

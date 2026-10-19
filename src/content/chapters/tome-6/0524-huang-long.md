@@ -20,7 +20,7 @@ Dès que les ondulations disparurent, la formation commença immédiatement à s
 
 Ouyang Hua poussa enfin un soupir de soulagement. Son regard porté vers Wang Lin contenait désormais une pointe de respect mêlée à un sentiment complexe.
 
-Ouyang Hua dit rapidement: « Céleste Suprême, le temps presse et la nuit des esprits démoniaques approche; il vaudrait mieux que nous entrions pour discuter. » Puis, il se mordit l'extrémité du doigt droit pour en faire perler une goutte de sang qu'il pressa contre un mur sur sa droite.
+Ouyang Hua dit rapidement: « Céleste Suprême, le temps presse et la nuit des esprits démoniaques approche; il vaudrait mieux que nous entrions pour discuter. » Puis, il se mordit l'extrémité du doigt droit pour en faire perler une goutte de sang qu'il pressa contre la falaise sur sa droite.
 
 Instantanément, la montagne commença à gronder comme un géant qui s'éveillait. Tandis que le tumulte s'intensifiait, le flanc de la falaise se déforma telle une peinture, jusqu'à se fendre en deux comme si elle avait été tranchée par une paire de ciseaux.
 
@@ -30,13 +30,13 @@ Ouyang Hua dit respectueusement: « Par ici, Céleste Suprême! »
 
 Wang Lin ne perdit pas de temps; il avait effectivement trop de questions à poser. Il fit un pas en avant.
 
-À l'intérieur de la vallée, on avait l'impression que même au cœur de la nuit la plus noire, l'espoir subsistait. L'endroit ressemblait à une zone résidentielle pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun cultivateur, ni jade, ni trésor magique.
+À l'intérieur de la vallée, on avait l'impression que même au cœur de la nuit la plus noire, l'espoir subsistait. L'endroit ressemblait à une zone résidentielle pour cultivateurs. Cependant, il n'y avait là que d'innombrables maisons, sans aucun jade ni trésor magique à vendre.
 
 L'environnement de la vallée était très verdoyant et foisonnant de feuillage. Bien que le soleil se couchât, toute la zone conservait une teinte émeraude.
 
 Le regard de Wang Lin parcourut les habitations et il vit des gens s'y cacher.
 
-Presque chaque maison abritait des occupants, tous des femmes et des enfants. Ils n'étaient pas dénudés comme les hommes, mais leurs corps étaient couverts. Quant aux enfants, certains jetaient des regards par les fenêtres lorsque leurs mères ne les voyaient pas. Leurs yeux étaient clairs, vifs et emplis de curiosité.
+Presque chaque maison abritait des occupants, tous des femmes et des enfants. Ils n'étaient pas dénudés comme les hommes, mais leurs corps étaient à peine couverts. Quant aux enfants, certains jetaient des regards par les fenêtres lorsque leurs mères ne les voyaient pas. Leurs yeux étaient clairs, vifs et emplis de curiosité.
 
 En voyant cela, Wang Lin s'arrêta brusquement.
 

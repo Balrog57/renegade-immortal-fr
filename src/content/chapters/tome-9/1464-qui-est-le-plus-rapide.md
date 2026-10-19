@@ -58,7 +58,7 @@ Dans la neuvième carte, la femme sur la plateforme située derrière Tuo Sen se
 
 Tous les regards étaient désormais braqués sur Wang Lin!
 
-Wang Lin était assis sur la plateforme de 80 000 pieds. Celle-ci émettait une puissante lumière dorée, semblable à celle du soleil. Le brouillard environnant reculait devant lui!
+Wang Lin était assis sur la plateforme de 80 000 pieds. Celle-ci émettait une puissante lumière dorée, semblable à celle du soleil. Le brouillard environnant s'agitait autour d'elle et reculait devant lui!
 
 La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la Tombe de l'Ordre Antique lui était désormais révélée!
 
@@ -74,7 +74,7 @@ Grâce à sa plateforme de rang 8, il pouvait localiser précisément les autres
 
 « Malheureusement, je suis à court de trésors démoniaques anciens. Il n'en reste qu'un seul, ce qui est insuffisant pour atteindre le rang 9... » Après avoir atteint le rang 8, la plateforme était devenue un gouffre sans fond. Wang Lin pressentait que les besoins seraient colossaux!
 
-Selon les lois de la Tombe de l'Ordre Antique, Wang Lin devrait tuer tous ceux qui le poursuivaient et leur dérober leurs runes. Ce n'était qu'à ce prix qu'il pourrait porter sa plateforme au rang 9.
+Selon les lois de la Tombe de l'Ordre Antique, Wang Lin devrait tuer tous ceux qui le poursuivaient, s'emparer de leurs plateformes et les intégrer à la sienne. Ce n'était qu'à ce prix qu'il pourrait porter sa plateforme au rang 9.
 
 Cependant, Wang Lin ne comptait pas procéder ainsi. Il ricana en manipulant la plateforme sous ses pieds.
 
@@ -92,7 +92,7 @@ Les autres perdaient un temps précieux à chercher leur chemin dans la huitièm
 
 Alors qu'il progressait, un grondement de tonnerre retentit. Il contourna prestement les quatre poursuivants, sortit de la sixième carte et pénétra dans la septième.
 
-Maître Démon des Neuf Cieux se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme un ver glissant qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
+Maître Démon des Neuf Cieux se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme une loche glissante qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
 
 « C'est sûrement parce que la plateforme de rang 8 peut ressentir les autres plateformes avec encore plus de clarté... » Les yeux du Maître Démon des Neuf Cieux s'illuminèrent et il confectionna un sceau manuel. Puis, il frappa violemment sa plateforme, la faisant bondir vers l'avant.
 

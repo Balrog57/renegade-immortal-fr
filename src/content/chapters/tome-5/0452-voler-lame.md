@@ -24,7 +24,7 @@ Ce vieillard était celui qui avait poursuivi Wang Lin dans la faille spatiale a
 
 En fin de compte, il s'était appuyé sur son lien avec l'Esprit Ancestral pour être finalement secouru par son clan. Sa haine envers Wang Lin avait atteint des sommets, le poussant à mener un véritable massacre durant cette guerre. Parmi tous les chamans à huit feuilles, c'était lui qui avait tué le plus de cultivateurs.
 
-L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine de mourir, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de culture de Wang Lin était bien plus élevé qu'auparavant.
+L'apparition de Wang Lin choqua le vieil homme. Il devait concentrer toute son attention sur la forme de vie aquatique sous peine de mourir, et n'avait donc pas remarqué l'approche du jeune homme. De plus, le niveau de culture de Wang Lin était bien plus élevé qu'auparavant: il avait atteint le début du stade de la Transformation de l'Âme.
 
 C'est ce qui avait permis à Wang Lin de passer inaperçu.
 
@@ -50,7 +50,7 @@ Toute la gorge fut envahie par les fragments d'âme qui se précipitèrent tous 
 
 Le vieil homme voûté jura intérieurement et recula sans hésiter. S'il n'y avait eu que quelques fragments au stade de la Transformation de l'Âme, il ne se serait pas inquiété à ce point; après tout, un fragment d'âme ne pouvait égaler un véritable cultivateur.
 
-Même face à trois ou quatre d'entre eux, il aurait pu s'échapper ou combattre jusqu'à l'impasse.
+Même face à trois ou quatre d'entre eux, il aurait pu s'échapper ou faire match nul au combat.
 
 Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture actuel. Ce Qilin pourpre et or était particulièrement terrifiant; le simple fait de le regarder faisait trembler son cœur.
 
@@ -74,7 +74,7 @@ Wang Lin avait anticipé cela, il n'avait aucune intention de la laisser filer. 
 
 Dès que la femme ressemblant à Li Muwan tenta de s'enfuir, Wang Lin prit une profonde inspiration et, d'une seule pensée, fit converger tous les fragments d'âme pour former un filet. Hormis les quelques âmes primaires qui poursuivaient le vieillard, toutes les autres furent rassemblées ici.
 
-Une aura puissante émana de tous côtés; la femme regarda calmement autour d'elle avant que son regard ne se pose sur Wang Lin. Elle laissa échapper un rire et dit: « Vous m'avez sauvée, et pourtant, vous me piègez maintenant. Que voulez-vous? »
+Une aura puissante émana de tous côtés; la femme regarda calmement autour d'elle avant que son regard ne se pose sur Wang Lin. Elle laissa échapper un rire et dit: « Tu m'as sauvée, et pourtant, tu me pièges maintenant. Que veux-tu? »
 
 Wang Lin demanda froidement: « Veux-tu vivre ou mourir? »
 

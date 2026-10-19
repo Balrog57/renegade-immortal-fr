@@ -16,7 +16,7 @@ Cette montagne n'était pas haute et était densément boisée. Le vent faisait 
 
 Wang Lin paraissait calme au sommet de la montagne. Il ne ressentait ni fierté pour avoir franchi le 17e palais, ni arrogance face à l'imminente venue des Grands Empyréens pour le recruter. Tout comme dans le monde des grottes, il contemplait silencieusement le ciel.
 
-Après un temps indéterminé, alors que le soleil se couchait, Wang Lin resta immobile et le ciel changea soudainement. Les nuages blancs furent enveloppés par l'obscurité, puis le soleil surgit dans le firmament sombre!
+Après un temps indéterminé, alors que le soleil se couchait, Wang Lin resta immobile et le ciel changea soudainement. Les nuages blancs, jusque-là engloutis par l'obscurité, réapparurent, puis le soleil surgit dans le firmament sombre!
 
 L'astre apparut de nulle part, émettant une lumière si éblouissante que la terre sembla redevenir jour. Une chaleur infinie émanait du soleil, comme si Wang Lin était extrêmement proche de lui, et une silhouette sortit lentement de l'astre.
 
@@ -42,7 +42,7 @@ Il faut dire qu'il était présent avec son corps véritable. Ce n'était ni un 
 
 « Wang Lin, suis ce seigneur. Ce seigneur t'a promis jadis que si je ne mourrais pas, tu ne mourrais pas! » Le Grand Empyréen Dao Yi sourit. Il semblait avoir oublié qu'il avait renoncé à recruter Wang Lin lors de l'Épreuve Empyrée.
 
-Wang Lin réfléchit silencieusement, puis joignit les mains en signe de respect devant le Grand Empyréen Dao Yi.
+Wang Lin resta silencieux, puis joignit les mains en signe de respect devant le Grand Empyréen Dao Yi.
 
 Le Grand Empyréen Dao Yi fronça légèrement les sourcils avant de se détendre. Il regarda Wang Lin et prit la parole. Sa voix n'était pas forte et ne résonnait pas, mais chaque mot semblait imprégné de Loi et faisait trembler le monde.
 
@@ -72,7 +72,7 @@ Cette aura de mort balaya le monde, brisant l'état de stase causé par la press
 
 Ce crâne ne ressemblait pas à celui d'un adulte, mais à celui d'un nourrisson!
 
-« Cela ne provient pas du Royaume Divin Immémorial. Il y a très longtemps, lorsque j'ai quitté le Continent Astral Immortel, je l'ai trouvé sur un continent en ruines.
+« Cela ne provient pas du Royaume Divin Immémorial. Il y a très longtemps, lorsque j'ai quitté le Continent Astral Immortel, je l'ai trouvé sur un continent flottant en ruines.
 
 « Au moment où je m'en suis emparé, le continent a disparu... Cet objet contient une trace de pouvoir que je ne saisis pas, mais j'ai le vague sentiment que si je parviens à absorber cette puissance, je pourrais peut-être briser les limites des Grands Empyréens pour devenir une existence comparable à l'Ancêtre Céleste...
 

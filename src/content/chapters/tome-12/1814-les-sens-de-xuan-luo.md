@@ -10,13 +10,13 @@ slug: les-sens-de-xuan-luo
 
 Dès que l'empreinte dorée disparut, la lumière dorée s'éteignit de ce monde.
 
-Wang Lin rangea l'empreinte et dit lentement: « Je ne te saluerai pas! »
+Wang Lin rangea l'empreinte et dit lentement: « Je ne te raccompagnerai pas! »
 
 Lorsque l'empreinte disparut, Du Qing ressentit secrètement un soulagement. Il recula de quelques pas, prêt à partir. Durant la poursuite, Wang Lin l'avait choqué à maintes reprises. Finalement, cette empreinte dorée dégageant une aura de Grand Empyréen l'avait poussé à abandonner toute idée de combat. Il ne voulait que partir le plus vite possible.
 
 « Vicieux! Simplement trop vicieux! » Du Qing était profondément déprimé et recula de mille pieds. Il s'arrêta soudainement et regarda Wang Lin, toujours entouré par la boule de feu.
 
-« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empyréen. Rencontrer quelqu'un de cette trempe est une chance inouïe! Comment pourrais-je perdre mes moyens et partir ainsi? Si je peux obtenir les conseils d'un Grand Empyréen, mon niveau de culture augmentera sans aucun doute! »
+« Cette personne possède un passé extrêmement puissant, et elle a reçu un trésor d'un Grand Empyréen. Rencontrer quelqu'un de cette trempe est une chance inouïe! J'ai perdu la tête! Comment ai-je pu partir ainsi? Si je peux obtenir les conseils d'un Grand Empyréen, mon niveau de culture augmentera sans aucun doute! »
 
 « Si je le suis et que j'accède à ce passé, je n'aurai plus à me soucier de la Secte de la Grande Âme. Je n'aurai plus besoin de lui envoyer les précieux trésors que je trouverai! » En y pensant, l'expression déprimée de Du Qing s'effaça pour laisser place à l'excitation.
 
@@ -88,7 +88,7 @@ Les yeux de Du Qing brillèrent d'une lueur singulière. Il fixa la boule et une
 
 « Serait-il en train de vouloir former un Corps Véritable d'Essence?! » Du Qing suffoqua, la peur dans son regard devenant plus intense encore.
 
-« Une fois qu'un cultivateur possède une essence, il peut accéder à la troisième étape: le Néant de Nirvana. Il peut alors utiliser son essence pour absorber la puissance du monde vaste et devenir invincible! Obtenir une essence corporelle est relativement simple, mais pour atteindre le Néant Arcane, il faut personnellement comprendre une essence éthérée. »
+« Une fois qu'un cultivateur possède une essence, il peut accéder à la troisième étape: le Vide du Nirvana. Il peut alors utiliser son essence pour absorber la puissance du monde vaste et devenir invincible! Obtenir une essence corporelle est relativement simple, mais pour atteindre le Néant Arcanique, il faut personnellement comprendre une essence éthérée. »
 
 « Plus on possède d'essences, plus on devient puissant. C'est un savoir universel parmi les cultivateurs du Continent Astral Immortel! »
 

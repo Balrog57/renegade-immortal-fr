@@ -30,7 +30,7 @@ Dès l'apparition de ce signe, une aura glaciale envahit le monde pour contrer l
 
 Il le projeta vers l'ancien parapluie qui déchaînait des torrents de flammes.
 
-« Prenant la force vitale de ce vieil homme pour Dao, l'âme de la glace et de la neige pour Ciel, et le froid pour catalyseur... Glace Éternelle! » L'homme en blanc jouissait manifestement d'un statut supérieur aux deux autres; il se situait juste en dessous des cinq maîtres du Système Stellaire Antique.
+« Prenant ma propre longévité pour Dao, l'âme de la glace et de la neige pour Ciel, et le froid pour catalyseur... Glace Éternelle! » L'homme en blanc jouissait manifestement d'un statut supérieur aux deux autres; il se situait juste en dessous des cinq maîtres du Système Stellaire Antique.
 
 Le monde changea de couleur sous la puissance de son attaque!
 
@@ -38,7 +38,7 @@ Dans ce monde semblable à un puits, alors que l'aura glaciale se répandait, de
 
 L'immense masse de glace émit des filaments d'énergie froide qui affrontèrent la mer de feu, faisant trembler l'univers entier.
 
-Un motif de flocon de neige de plusieurs dizaines de milliers de pieds de large apparut dans le ciel, là où se trouvait l'ancien parapluie. Le firmament gronda, puis fut totalement figé!
+Un motif de flocon de neige de plusieurs centaines de milliers de pieds de large apparut dans le ciel, là où se trouvait l'ancien parapluie. Le firmament gronda, puis fut totalement figé!
 
 Le ciel était gelé!
 
@@ -62,7 +62,7 @@ La mer de feu enfermée dans la glace jaillit violemment, brisant la structure g
 
 L'intention meurtrière inonda le regard de Wang Lin alors qu'il pointait la vieille femme en fuite. Une partie de la mer de feu qui avait percuté la glace se détacha et fonça sur elle. Son visage pâlit tandis qu'elle tentait de former un sceau, mais son corps fut instantanément dévoré par les flammes. Son cri résonna avant que sa projection ne s'effondre.
 
-Au moment où elle fut tuée par l'Ombrelle Brûlante du Royaume, dans le palais flottant éternel du Système Stellaire Antique, plusieurs personnes étaient assises près du puits, à l'intérieur de la salle.
+Au moment où elle fut tuée par l'Ombrelle Brûlante du Royaume, dans le pavillon noir flottant éternellement du Système Stellaire Antique, plusieurs personnes étaient assises près du puits, à l'intérieur de la salle.
 
 L'une d'elles était la vieille femme. Elle ouvrit soudainement les yeux et cracha une bouchée de sang, fixant intensément le puits devant elle! Ce puits révélait le monde dans lequel se trouvait Wang Lin.
 
@@ -70,7 +70,7 @@ Après un long silence, la vieille femme leva la tête vers les profondeurs de l
 
 « Donnez-moi des explications! »
 
-« Ce n'est pas le moment... Cet enfant tient quelque chose dans sa main... » Une voix séculaire s'éleva des profondeurs du palais.
+« Ce n'est pas le moment... Cet enfant tient quelque chose dans sa main... » Une voix séculaire s'éleva des profondeurs de la salle.
 
 La vieille femme resta silencieuse, son regard plongé dans le monde contenu au fond du puits.
 
@@ -90,7 +90,7 @@ Dans la salle du Système Stellaire Antique, le vieil homme en robe grise était
 
 Dans le monde du puits, le dernier souffle de feu de l'ancien parapluie balaya l'homme en blanc. Celui-ci fut enveloppé d'une masse de glace qui, sous l'assaut des flammes, fondait et se reformait sans cesse autour de lui.
 
-Il fut projeté en arrière et s'arrêta à plusieurs dizaines de milliers de pieds de là. Tandis que les couches de glace se reconstituaient, elles formèrent un sceau emprisonnant le feu.
+Il fut projeté en arrière et s'arrêta à plusieurs centaines de milliers de pieds de là. Tandis que les couches de glace se reconstituaient, elles formèrent un sceau emprisonnant le feu.
 
 Le visage de Wang Lin avait considérablement vieilli. Il avait sacrifié trop de vitalité pour utiliser l'Ombrelle Brûlante du Royaume; sans cela, une telle puissance n'aurait pas été possible. La force de rejet interne faisait trembler tout son corps.
 

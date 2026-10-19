@@ -12,7 +12,7 @@ La neuvième épine était nichée dans sa colonne vertébrale; elle y était to
 
 Le visage d'inconscience de Qing Shui restait tordu par la douleur, mais une nuance de soulagement et de joie perçait ses traits. Son soulagement était dû à Wang Lin, tout comme sa joie.
 
-Après un bref moment de culture, l'épuisement de Wang Lin se dissipa quelque peu. Il prit une profonde inspiration et souleva le corps inconscient de Qing Shui, le plaçant dos à lui. Les yeux de Wang Lin brillaient comme des éclairs tandis qu'il fixait le dos gracile de son compagnon.
+Après un bref moment de culture, l'épuisement de Wang Lin se dissipa quelque peu. Il prit une profonde inspiration et souleva le corps inconscient de Qing Shui, le plaçant dos à lui. Les yeux de Wang Lin brillaient comme des éclairs tandis qu'il fixait le dos décharné de son compagnon.
 
 La colonne vertébrale de Qing Shui était enflée; l'image était révoltante.
 
@@ -36,7 +36,7 @@ Le visage de Qing Shui devint livide et une sueur froide perla sur son front. Ce
 
 Wang Lin pinça l'épine et commença à la retirer lentement. C'était comme extraire la moelle osseuse; très peu de gens auraient pu endurer un tel supplice.
 
-L'expression de Wang Lin était d'un sérieux extrême, refusant de laisser ses doigts trembler. Il pinça l'épine et la tira avec une lenteur méticuleuse. Chaque pouce extrait provoquait chez Qing Shui un gémissement étouffé. La main de ce dernier agrippa le sol avec force, creusant un sillon profond dans la terre.
+L'expression de Wang Lin était d'un sérieux extrême, refusant de laisser ses doigts trembler. Il pinça l'épine et la tira avec une lenteur méticuleuse. Chaque pouce extrait provoquait chez Qing Shui un gémissement étouffé. La main de ce dernier agrippa le sol avec force, creusant une fosse profonde dans la terre.
 
 Wang Lin ne pouvait voir l'expression de Qing Shui, toute son attention étant concentrée sur ses doigts. Il tirait lentement, maintenant une cadence régulière et douce; il n'osait agir avec trop de violence. Bien que cette épine molle ne fût pas totalement intégrée à la colonne vertébrale, la majeure partie l'était déjà, et il devait être d'une prudence absolue.
 
@@ -58,7 +58,7 @@ Il dit doucement: « Senior Frère, la dernière... »
 
 Qing Shui expira lentement et se retourna vers lui. Il observa silencieusement son jeune frère du passé. En voyant cet air épuisé et ces traces de sang séché, une lueur de tendresse apparut dans ses yeux.
 
-« Tu as grandi... » Un sourire esquissa les lèvres de Qing Shui. Le jeune frère devant lui n'était plus ce petit cultivateur nécessitant sa protection, mais un être extrêmement puissant capable de faire trembler tout le système stellaire.
+« Tu as grandi... » Un sourire esquissa les lèvres de Qing Shui. Le jeune frère devant lui n'était plus ce petit cultivateur nécessitant sa protection, mais un être extrêmement puissant capable de faire trembler le ciel étoilé.
 
 Wang Lin regarda Qing Shui et sourit à son tour. Bien que ce sourire fût empreint d'épuisement, il témoignait d'un véritable bonheur.
 
@@ -92,13 +92,13 @@ L'épine était souple comme un serpent, et la partie en cours d'extraction ondu
 
 Au moment où il buvait, Wang Lin tira d'un coup sec, extrayant sept pieds de l'épine. Le visage de Qing Shui vira au bleu et son corps fut secoué de spasmes. De faibles rugissements s'échappèrent de sa gorge. Il fixa le ciel, la colère brûlant à nouveau dans ses yeux. La douleur intense le poussa à broyer la cruche, faisant éclater le vin partout autour d'eux.
 
-« Wang Lin, as-tu du vin... »
+« Wang Lin, as-tu du vin corsé... »
 
-La main gauche de Wang Lin plongea dans le vide et une gourde verte apparut. Ce n'était pas du vin, mais le sang de dragon que l'ancien Oiseau Vermillon lui avait donné!
+La main gauche de Wang Lin plongea dans le vide et une gourde verte apparut. Ce n'était pas du vin, mais le sang de dragon de feu que l'ancien Oiseau Vermillon lui avait donné!
 
 Ce sang était féroce!
 
-Qing Shui saisit la gourde et but une gorgée. Il aspira un souffle d'air froid et sourit. « Un peu âcre, mais avec une note sucrée. Quel genre de vin est-ce là? C'est manifestement du sang, mais ce vin de sang est assez puissant! Wang Lin, retire l'épine tout entière! »
+Qing Shui saisit la gourde et but une gorgée. Il aspira un souffle d'air froid et sourit. « Une odeur un peu fétide, mais avec une note sucrée. Quel genre de vin est-ce là? C'est manifestement du sang, mais ce vin de sang est assez puissant! Wang Lin, retire l'épine tout entière! »
 
 Le regard de Wang Lin devint grave et il retira impitoyablement l'épine! Les veines sur tout le corps de Qing Shui se gonflèrent et convergèrent vers sa poitrine.
 

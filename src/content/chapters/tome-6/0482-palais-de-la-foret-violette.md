@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 482 - Purple Forest Palace
 slug: palais-de-la-forêt-violette
 ---
-Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète à la culture déclinante, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
+Le visage du vieil homme était d'une pâleur cadavérique. Il n'aurait jamais imaginé qu'un cultivateur issu d'une planète de culture stérile, qu'il considérait comme un simple paysan, puisse être aussi puissant. Cet individu l'avait pris au piège en quelques instants et était actuellement en train de raffiner un autre Ancien.
 
 Un tel niveau de puissance n'était comparable qu'à celui de cultivateurs du stade moyen de la Transformation de l'Âme!
 
@@ -46,7 +46,7 @@ Un cri strident retentit de l'intérieur de cette lueur verte.
 
 « Je suis un Ancien disciplinaire... » Avant qu'il ne puisse achever sa phrase, Wang Lin serra le poing. La lueur verte s'effondra, révélant une âme originelle extrêmement faible.
 
-Sans même y accorder d'importance, Wang Lin la jeta dans sa bouche. Dès que l'âme originelle pénétra en lui, une force puissante l'aspira vers le drapeau des mille millions d'âmes situé à l'intérieur de son corps.
+Sans même y accorder d'importance, Wang Lin la jeta dans sa bouche. Dès que l'âme originelle pénétra en lui, une force puissante l'aspira vers le drapeau des âmes situé à l'intérieur de son corps.
 
 Une fois cela fait, Wang Lin regarda le vieil homme et demanda calmement: « Vous ne souhaitez pas partir? »
 

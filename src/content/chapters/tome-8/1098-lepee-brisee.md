@@ -28,13 +28,13 @@ En vérité, il n'y avait aucune odeur réelle, mais le simple fait d'être enve
 
 « La disciple Li Yingzhi salue le troisième roi! » La belle femme s'agenouilla au sol, les yeux emplis de terreur. Elle n'aurait jamais cru que ce jade réveillerait le troisième roi!
 
-En songeant aux légendes du troisième roi, Li Yingzhi fut prise d'un profond malaise. À l'origine, elle pensait que si les informations contenues dans ce jade allaient provoquer un choc, cela ne ferait, au plus, qu'éveiller le cinquième roi. Elle avait déjà quelques spéculations sur le cadavre marqué dans son propre jade.
+En songeant aux légendes du troisième roi, Li Yingzhi fut prise d'un profond malaise. À l'origine, elle pensait que si les informations contenues dans ce jade allaient provoquer un choc, cela ne ferait, au plus, qu'éveiller le cinquième roi. Elle avait déjà quelques spéculations sur le cadavre marqué dans ce jade.
 
 Cependant, dès que cette aura de massacre se propagea, Li Yingzhi comprit qu'elle avait sous-estimé le cadavre enregistré à l'intérieur de ce jade.
 
 Non seulement elle, mais presque tous les disciples de la Secte des Cadavres de la région sud ressentirent ce sens divin couvrir la zone. Ils interrompirent leurs activités pour s'agenouiller en signe d'adoration.
 
-« Tu as accompli un exploit immense en rapportant ce jade! Tu peux entrer dans le Fossé des Cadavres, et je t'accorde le droit de pénétrer au sixième étage du fossé pour choisir un cadavre! » Alors que cette voix lugubre résonnait à ses oreilles, Li Yingzhi trembla d'excitation. En pensant aux cadavres légendaires du sixième étage, sa respiration devint saccadée.
+« Tu as accompli un exploit immense en rapportant ce jade! Tu peux entrer dans le Fossé des Cadavres, et je t'accorde le droit de pénétrer au sixième étage du fossé pour choisir une marionnette cadavérique! » Alors que cette voix lugubre résonnait à ses oreilles, Li Yingzhi trembla d'excitation. En pensant aux cadavres légendaires du sixième étage, sa respiration devint saccadée.
 
 « Merci infiniment, troisième roi! »
 
@@ -58,7 +58,7 @@ En conséquence, une tempête colossale s'abattit sur la région sud!
 
 « La disciple n'est pas certaine de la véracité des informations contenues dans ce jade... » Li Yingzhi était terrifiée. Bien qu'elle sût que le contenu allait bouleverser toute la Secte des Cadavres, il ne s'agissait pas d'un simple choc. La secte mobilisait désormais toutes ses forces.
 
-Elle ne put s'empêcher de paniquer. Si ce jade était authentique, peu importait; mais elle n'en était pas sûre. Si le contenu du jade s'avérait faux, elle devrait en assumer des conséquences inimaginables. Après tout, c'était elle qui l'avait rapporté.
+Elle ne put s'empêcher de paniquer. Si ce jade était authentique, tout irait bien; mais elle n'en était pas sûre. Si le contenu du jade s'avérait faux, elle devrait en assumer des conséquences inimaginables. Après tout, c'était elle qui l'avait rapporté.
 
 « Aucun problème. L'Empereur Divin de l'Oiseau Vermillon t'a dit de l'apporter ici. Étant donné son statut, il y a 70 % de chances que ce soit vrai. Les Quatre Sectes Divines ne diffuseraient pas de fausses nouvelles aussi facilement. Cela reviendrait à provoquer inutilement ma Secte des Cadavres, Luotian et le reste des forces de l'Alliance! »
 
@@ -68,7 +68,7 @@ Les deux morceaux de jade étaient comme deux mains invisibles géantes manipula
 
 De même, lorsque Mo Zhi retourna dans le pays de Chu Yun, les trois jades furent rapidement envoyés aux trois autres puissantes forces de l'Alliance. Simultanément, avec la trêve de Luotian, une multitude de cultivateurs quittèrent le champ de bataille.
 
-Les membres de la Secte des Cadavres cessèrent tout commerce avec les deux camps et regagnèrent précipitamment leur secte. Ces changements étranges ne manquèrent pas d'attirer l'attention des cultivateurs de l'Alliance.
+Les membres de la Secte des Cadavres cessèrent tout commerce avec les autres forces et regagnèrent précipitamment leur secte. Ces changements étranges ne manquèrent pas d'attirer l'attention des cultivateurs de l'Alliance.
 
 L'homme à l'origine de tout cela, Wang Lin, restait sereinement au sein de la Secte Divine de l'Oiseau Vermillon. Il était assis au bord du volcan et cultivait calmement.
 
@@ -82,7 +82,7 @@ L'esprit de Wang Lin était extraordinaire, bien qu'il utilisât rarement la rus
 
 Il avait ouvertement diffusé la nouvelle concernant le dieu ancien, et tout le monde savait que Wang Lin devait comploter quelque chose. Quiconque possédait un minimum d'intelligence pouvait le voir clairement.
 
-Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il s'en serait tiré mal pour lui-même. Que ce soit la Secte des Cadavres ou Luotian, ils l'auraient d'abord capturé pour l'interroger.
+Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il se serait attiré un péril mortel. Que ce soit la Secte des Cadavres ou Luotian, ils l'auraient d'abord capturé pour l'interroger.
 
 Cependant, à présent, ni la Secte des Cadavres ni Luotian n'avaient le choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
 

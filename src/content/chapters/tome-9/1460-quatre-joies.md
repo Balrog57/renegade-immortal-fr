@@ -46,7 +46,7 @@ Cette jeune fille étant proche du Maître Dao Miao Yin, elle connaissait nombre
 
 Le visage de la jeune fille pâlit de plus en plus. Il ne lui fut pas difficile de constater que c'était la vérité. Sous l'attaque combinée de Wang Lin et de la Grande Désolation, l'avatar de Miao Yin, dont la culture était supprimée, n'avait aucune chance de survivre.
 
-Le fait de voir la Grande Désolation posséder l'avatar de Miao Yin fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, j'écraserai ton âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
+Le fait de voir la Grande Désolation posséder l'avatar de Miao Yin fit disparaître son dernier espoir; elle se mit à trembler. « Ma patience est limitée. Si tu ne réponds pas à ma question, je lancerai une recherche d'âme! » La voix de Wang Lin devint de plus en plus glaciale. Il savait que le Clan de l'Extermination des Sceaux cachait quelque chose d'étrange; il n'utilisa donc pas la recherche d'âme directement, mais chercha d'abord à briser sa résistance.
 
 La panique dans les yeux de la jeune fille s'intensifia. Elle savait qu'elle n'avait aucune issue. Son maître était déjà mort, scellant ainsi toute voie de retraite.
 

@@ -64,7 +64,7 @@ La sculpture projeta alors des rayons de lumière bleue. Sous cette lueur, les �
 
 Cependant, le javelot formé par le gaz de restriction perça la lumière bleue et chargea.
 
-Le corps de Wang Lin s'élança à son tour. Il suivit de près le javelot en criant: « Papillon Rouge! Tes parents n'avaient personne pour leur rendre leurs derniers honneurs. Tu es une enfant ingrate! »
+Le corps de Wang Lin s'élança à son tour. Il suivit de près le javelot en criant: « Papillon Rouge! Tes parents n'avaient personne pour les accompagner dans leurs derniers instants. Tu es une enfant ingrate! »
 
 Voyant que Wang Lin chargeait personnellement, les âmes errantes n'osèrent pas rester en arrière. Elles volaient derrière lui comme la traîne d'un paon noir, renforçant sa prestance terrifiante.
 

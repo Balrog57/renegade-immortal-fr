@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 721 - Heaven Defying Beads Beckoning
 slug: lappel-de-la-perle-defiant-le-ciel
 ---
-La peau de l'ancien dieu était rugueuse et couverte de fissures. Pourtant, la main formée par la lumière violette était d'une extrême lissité. Bien qu'immense, elle semblait avoir été façonnée par un sortilège.
+La peau de l'ancien dieu était rugueuse et couverte de fines fissures semblables à des talismans. Pourtant, la main formée par la lumière violette était d'une extrême lissité. Bien qu'immense, elle dégageait une aura ancienne et semblait avoir été façonnée par un sortilège.
 
 Elle fit un geste invitant Wang Lin, tel un aîné appelant un enfant. Le mouvement était lent, mais il se répétait sans cesse.
 
@@ -22,7 +22,7 @@ Il semblait que s'il ne s'y précipitait pas, il n'aurait plus jamais l'occasion
 
 Wang Lin serra les dents et fit un pas en avant. Sa main droite se tendit vers la seule chose qui ne s'était pas encore effondrée: l'os du Serpent aux yeux de lune.
 
-Bien que cet os ait perdu son élément métallique, il était toujours aussi dur qu'auparavant. Après tout, c'était un vestige appartenant au Serpent aux yeux de lune!
+Bien que cet os ait perdu son métal à flamme, il était toujours aussi dur qu'auparavant. Après tout, c'était un vestige appartenant au Serpent aux yeux de lune!
 
 Après avoir saisi le gigantesque os, Wang Lin poussa un rugissement et l'énergie spirituelle céleste déferla dans son corps alors qu'il lançait sans ménagement l'os vers le ciel. L'immense relique siffla dans les airs, fonçant droit vers la porte.
 
@@ -54,7 +54,7 @@ Elle semblait tout à fait ordinaire, comme une pierre quelconque. Pourtant, à 
 
 Le Sens Divin de Wang Lin pénétra dans la perle. Les âmes de Li Muwan, de Wang Ping et de Qing Yi étaient toujours là.
 
-Comparées à auparavant, elles semblaient plus vivantes, en particulier l'âme de Li Muwan, qui paraissait désormais plus stable.
+Comparées à auparavant, elles semblaient plus vivantes, en particulier l'âme de Li Muwan, qui semblait désormais plus condensée et raffinée.
 
 « Quelle est donc la véritable puissance de la perle défiant le ciel... Où cette immense porte mène-t-elle... Et ce bras derrière la porte... » Wang Lin songea.
 
@@ -106,11 +106,11 @@ La Bête du Tonnerre traversa une dernière zone d'astéroïdes avant de s'arrê
 
 Lorsque Wang Lin vit ce qui se dressait devant lui, il eut le souffle coupé et ses yeux brillèrent intensément.
 
-Il n'y avait aucune planète devant lui, mais un vaste lac de tonnerre. L'endroit était saturé d'éclairs et de foudres. C'était un véritable enfer de tonnerre!
+Il n'y avait aucune planète devant lui, mais un vaste lac de tonnerre s'étendant à perte de vue. L'endroit était saturé d'éclairs et de foudres. C'était un véritable enfer de tonnerre!
 
 La planète de tonnerre qu'il avait visitée auparavant paraissait insignifiante en comparaison.
 
-Dans ce lac de tonnerre sans fin, les éclairs serpentaient comme des dragons, et leurs grondements libéraient une aura surpuissante.
+Dans ce lac de tonnerre sans fin, les éclairs serpentaient comme des dragons, et leurs grondements libéraient une aura furieuse et surpuissante.
 
 La Bête du Tonnerre poussa un rugissement et regarda le lac avec hésitation. La puissance électrique était trop intense; même pour une créature de sa race, elle sentait qu'elle pourrait ne pas y résister.
 

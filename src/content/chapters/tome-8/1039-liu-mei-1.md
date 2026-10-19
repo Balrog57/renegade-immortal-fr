@@ -28,7 +28,7 @@ Le monde entier semblait avoir subi une métamorphose profonde.
 
 « Pas étonnant que des personnes comme Bei Lou puissent voyager si aisément à travers les 99 royaumes du flacon... Vraisemblablement, si Situ Nan le voulait, il pourrait en faire autant... Même Maître Fu Fengzi pouvait briser un royaume dans le monde du flacon. »
 
-« Si je retournais dans le monde du flacon, même si je n'ai pas la certitude de pouvoir traverser les 99 royaumes, je serais certainement capable d'en franchir plusieurs d'un coup... »
+« Si je retournais dans le monde du flacon, même si je ne peux pas traverser les 99 royaumes, je serais certainement capable d'en franchir plusieurs d'un coup... »
 
 Ces vieux monstres au stade du Purificateur du Nirvana pouvaient percevoir les lois. Ils pouvaient également les contrôler, ce qui leur permettait naturellement de naviguer entre les royaumes.
 

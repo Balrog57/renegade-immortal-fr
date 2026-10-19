@@ -6,13 +6,13 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 574 - Celestial Slaughter Art (Part 3)
 slug: lart-du-massacre-celeste-partie-3
 ---
-Au moment où le dragon argenté disparut, les yeux de Wang Lin retrouvèrent une clarté absolue. Il comprit que ce dragon était probablement l'épée démoniaque dont parlait l'homme nommé Xu. L'énergie de massacre produite ici était sans doute la nourriture de cette épée démoniaque!
+Au moment où le dragon argenté disparut, les yeux de Wang Lin retrouvèrent une clarté absolue. Il comprit que ce dragon était probablement l'épée démoniaque de l'Empereur Démon dont parlait l'homme nommé Xu. L'énergie de massacre produite ici était sans doute la nourriture de cette épée démoniaque!
 
 Quant au jeune homme aux cheveux noirs, bien qu'il fût mort, il avait été ressuscité dans un bassin de sang. Toute la brume de sang qui l'entourait avait disparu, et il allait devoir remonter à nouveau!
 
 Après une journée de massacre, cet endroit devint silencieux. Wang Lin s'assit dans le bassin de sang et médita sur l'essence même du massacre.
 
-« Quand j'ai appris l'Art du Massacre Céleste, cette personne m'a dit que, puisque je cultivais l'aura de la vie et de la mort, je pouvais pratiquer ce sortilège. Je comprends enfin! » Des filaments d'intention meurtrière pénétrèrent le corps de Wang Lin en provenance du bassin de sang.
+« Quand j'ai appris l'Art du Massacre Céleste, cette personne m'a dit que, puisque je cultivais le domaine de la vie et de la mort, je pouvais pratiquer ce sortilège. Je comprends enfin! » Des filaments d'intention meurtrière pénétrèrent le corps de Wang Lin en provenance du bassin de sang.
 
 « Cependant, certains détails restent flous... La relation entre l'Art du Massacre Céleste et le domaine de la vie et de la mort... » Songeait Wang Lin.
 
@@ -60,7 +60,7 @@ Wang Lin s'assit seul dans le bassin de sang, l'esprit lucide. Un sourire apparu
 
 Ce sortilège n'était, en fait, que le mouvement entre la vie et la mort de la réincarnation! La transformation entre l'existence et le trépas! Ce dragon argenté faisait exactement la même chose, absorbant toute cette mort pour la transformer en vitalité! La formation ici suivait le même principe... tout devenait clair! Les yeux de Wang Lin brillèrent. Il avait atteint l'illumination!
 
-Au moment de son illumination, les cinq filaments d'énergie de massacre qui servaient de sceaux de vie autour de lui apparurent soudainement devant lui. Ils se rassemblèrent devant sa poitrine pour former un gigantesque vortex gris.
+Au moment de son illumination, les cinq filaments d'énergie de massacre qui servaient de sceaux de vie autour de lui apparurent soudainement devant lui. Ils se rassemblèrent devant sa poitrine pour former un vortex gris.
 
 Ce vortex tourna frénétiquement devant lui avant de disparaître à l'intérieur de son corps. À cet instant, son être entier fut transfiguré, et une aura meurtrière sans précédent surgit soudainement dans ce monde écarlate!
 

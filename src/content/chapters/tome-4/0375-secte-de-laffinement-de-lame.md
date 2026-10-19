@@ -30,7 +30,7 @@ Wang Lin baissa la tête pour regarder le village des Nuages de Feu. Après avoi
 
 « Plus lentement! » L'expression de Wang Lin changea. Sa culture n'étant revenue qu'au début de l'Établissement des Fondations, il ne pouvait supporter la vitesse de la bête moustique, dont le niveau se situait vers la fin de l'Âme Naissante.
 
-Le moustique ralentit immédiatement et reprit un vol paisible.
+Le moustique ralentit immédiatement, à contrecœur, et reprit un vol paisible.
 
 Assis sur le dos de la créature, Wang Lin sortit la carte de jade et regarda vers le sud. C’est là que se trouvait la Secte de l'Affinement de l'Âme, dans le pays de Pilu.
 

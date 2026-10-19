@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1165 - Lu Yuncong Cant Compare!"
 slug: lu-yuncong-ne-peut-pas-rivaliser
 ---
-« Pour la grenouille dans un puits, l'ouverture du puits est le ciel. Pour les poissons dans l'eau, l'eau est le ciel... Le puits est la cage de la grenouille, et la surface de l'eau est la limite des poissons. » Lu Yuncong regarda la femme et dit calmement: « Les humains sont comme les grenouilles et les poissons, le ciel est donc notre cage! La grenouille souhaite quitter son puits et les poissons désirent toujours sauter hors de l'eau. Naturellement, les humains veulent aussi briser les cieux pour sortir de leur cage! »
+« Pour la grenouille dans un puits, l'ouverture du puits est le ciel. Pour les poissons dans l'eau, l'eau est le ciel... Le puits est la cage de la grenouille, et la surface de l'eau est la limite des poissons. » Lu Yuncong regarda la femme et dit calmement: « Les humains sont comme les grenouilles et les poissons, le ciel est donc notre cage! La grenouille souhaite quitter son puits et les poissons désirent toujours sauter hors de l'eau. Naturellement, les humains ont aussi la voie pour briser les cieux et sortir de leur cage! »
 
 Li Qianmei réfléchit un instant, puis ses yeux s'illuminèrent. Une expression d'admiration se lut dans son regard alors qu'elle rejetait quelques mèches de cheveux derrière son oreille et dit: « La réponse de Frère Lu est très singulière. J'ai interrogé beaucoup de gens en chemin, mais seul Frère Lu a pu dissiper ma confusion. »
 
@@ -134,7 +134,7 @@ Que pouvait bien utiliser Lu Yuncong pour comparer? Quelle était sa qualificati
 
 Il ne pouvait pas rivaliser!
 
-Li Qianmei observait la scène depuis le début. Elle accompagnait Lu Yuncong par admiration pour sa compréhension du Dao et par estime. Elle pensait que parmi la jeune génération, personne n'avait une compréhension plus profonde que lui. C'était d'ailleurs pour cela que les grandes sectes portaient un regard sur lui.
+Li Qianmei observait la scène depuis le début. Elle accompagnait Lu Yuncong par admiration pour sa compréhension du Dao et par estime. Elle pensait que parmi la jeune génération, rares étaient ceux qui avaient une compréhension plus profonde que lui. C'était d'ailleurs pour cela que les grandes sectes portaient un regard sur lui.
 
 Cependant, son opinion changea lorsqu'elle posa les yeux sur Wang Lin, et ses yeux brillèrent plus intensément qu'ils ne l'avaient jamais fait auparavant.
 

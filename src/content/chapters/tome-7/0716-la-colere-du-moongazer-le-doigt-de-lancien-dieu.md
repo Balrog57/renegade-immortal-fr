@@ -110,7 +110,7 @@ Le Serpent aux yeux de lune poussa un rugissement. Alors que ce cri résonnait, 
 
 Quant au garde céleste, il trembla violemment et la lumière dorée qui l'entourait s'effondra. Même l'éclat de ses yeux s'était terni, mais comparées à celles de Wang Lin, ses blessures étaient plutôt légères.
 
-Alors que le fourneau se dilatait, Wang Lin s'élança avec détermination. La gueule du Serpent aux yeux de lune était maintenue ouverte par l'expansion du fourneau.
+Alors que le fourneau se dilatait, Cupidité s'élança avec détermination. La gueule du Serpent aux yeux de lune était maintenue ouverte par l'expansion du fourneau.
 
 « Ce vieil homme ne veut pas de ce fourneau! » Le cœur de Cupidité se serra alors qu'il tentait de faire demi-tour pour s'enfuir.
 

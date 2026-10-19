@@ -52,7 +52,7 @@ Par conséquent, Wang Lin n'hésita pas à rendre l'essence sanguine de l'âme d
 
 Quelques minutes plus tard, la silhouette de la femme apparut à l'embouchure du volcan où Wang Lin avait déposé l'objet. Elle tendit la main droite et l'essence sanguine de l'âme de Zhou Zihong vint rapidement à elle.
 
-La femme contempla la lueur avec une expression tendre et aimante. Après avoir soigneusement rangé l'essence sanguine, elle regarda dans la direction prise par Wang Lin et murmura doucement: « Puisque vous avez sauvé Hong Er et rendu si promptement son essence sanguine, je réglerai pour vous ce problème de possession. »
+La femme contempla la lueur avec une expression tendre et aimante. Après avoir soigneusement rangé l'essence sanguine, elle regarda dans la direction prise par Wang Lin et murmura doucement: « Puisque vous avez sauvé Hong Er et rendu si promptement son essence sanguine, j'ai réglé pour vous ce problème de possession. »
 
 Pendant deux jours, hormis quelques pauses nécessaires, il avait volé sans interruption. Comme cette femme n'était jamais réapparue, il se détendit un peu, mais soudain, ses yeux se fixèrent sur le sol, non loin de lui.
 
@@ -76,7 +76,7 @@ Sur ces mots, il joignit de nouveau les mains, saisit la jeune fille à ses côt
 
 Une fois qu'ils furent partis, Wang Lin regarda le sol et avança sans dire un mot. Peu de temps après, il fronça les sourcils. Il sortit le morceau de métal de son sac de rangement et le projeta violemment au sol.
 
-Le morceau de métal fendit l'air avec rapidité et percuta le sol dans un fracas. Aussitôt, une silhouette très pitoyable surgit du sol à vingt mètres de là.
+Le morceau de métal fendit l'air avec rapidité et percuta le sol dans un fracas. Aussitôt, une silhouette très pitoyable émergea à travers vingt mètres de terre.
 
 L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux brillaient d'intelligence. Il leva précipitamment la main et cria: « Camarade cultivateur, c'est un malentendu, un malentendu! » Tout en parlant, il jeta un regard inquiet autour de lui avant de bondir. Une épée volante apparut et le transporta vers Wang Lin.
 
@@ -102,4 +102,4 @@ Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de la sœur aînée 
 
 Sun Youcai se frappa soudain le front en souriant. « Quelle mémoire! C'est bien elle, Zhou Zihong. Alors, comment est-elle? »
 
-Wang Lin hocha la tête et répondit: « La sœur aînée Zhou est certes magnifique, mais son tempérament est très froid; je ne l'ai donc vue que quelques fois. »
+Wang Lin hocha la tête et répondit: « La sœur aînée Zhou est certes magnifique, mais son tempérament est un peu froid; je ne l'ai vue que quelques fois. »

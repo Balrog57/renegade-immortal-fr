@@ -12,7 +12,7 @@ Un grondement assourdissant résonna et la porte trembla. Le chaos doré à l'in
 
 L'ouverture était extrêmement profonde, et nul ne savait où elle menait. À première vue, tout n'était que ténèbres, mais une étrange pression émanait du chaos. Tandis que cette pression s'intensifiait, l'ouverture commença à se refermer rapidement.
 
-Les yeux de Xuan Luo s'illuminèrent et il agita le fouet une fois de plus. Il porta neuf coups successifs, chaque assaut provoquant un grondement tonitruant; le fouet du dragon s'étendit alors sur des dizaines de milliers de pieds. Finalement, l'arme s'engouffra dans la porte et perça le chaos, utilisant son propre corps pour tracer un chemin!
+Les yeux de Xuan Luo s'illuminèrent et il agita le fouet une fois de plus. Il porta neuf coups successifs, chaque assaut provoquant un grondement tonitruant; le fouet du dragon s'étendit alors sur des centaines de milliers de pieds. Finalement, l'arme s'engouffra dans la porte et perça le chaos, utilisant son propre corps pour tracer un chemin!
 
 Cette route menait au Continent Astral Immortel; elle était semblable au sentier de la réincarnation!
 
@@ -34,7 +34,7 @@ Le chemin de la réincarnation était désormais protégé par la montagne ennei
 
 « Cette épée est féroce; dès qu'elle apparaît, les Célestiels tremblent de peur! Aujourd'hui, je l'envoie pour vous escorter sur le chemin de la réincarnation! Elle assurera votre sécurité tout au long du voyage! » Xuan Luo agita sa main gauche et l'épée dégagea une aura redoutable en s'élançant vers la porte, entourée d'une énergie tranchante et terrifiante.
 
-Ce sentier avait le dragon pour route, la montagne enneigée comme garde et l'éternelle épée féroce pour guider le passage. Bien que le trajet fût long, hormis les lois du Continent Astral Immortel, tous les autres obstacles avaient été levés, réduisant considérablement les risques de la réincarnation!
+Ce sentier avait le dragon pour route, la montagne enneigée comme garde et l'épée féroce, au qi tranchant sans fin, pour guider le passage. Bien que le trajet fût long, hormis les lois du Continent Astral Immortel, tous les autres obstacles avaient été levés, réduisant considérablement les risques de la réincarnation!
 
 « Quatrième esprit, Démon du Vent, apparais devant moi! » Les préparatifs de Xuan Luo ne s'arrêtèrent pas là. La réincarnation ne se déroulant pas sur le Continent Astral Immortel, l'enjeu majeur était de résister aux lois de ce dernier.
 
@@ -94,7 +94,7 @@ Qing Lin laissa échapper un long soupir et s'avança. Il fut le premier à marc
 
 Qing Lin fit volte-face et s'enfonça dans la brume miroitante. L'expression de Qing Shuang était glaciale, comme si rien au monde ne pouvait l'atteindre. Cependant, avant de franchir le brouillard, elle marqua un arrêt et jeta un regard vers Zhou Yi.
 
-« J'espère que vous ne me dérangerez pas... » Ses mots étaient aussi froids que son visage, mais ils semblaient porter une signification plus profonde. Qing Shuang disparut dans la brume.
+« J'espère que vous ne me dérangerez plus... » Ses mots étaient aussi froids que son visage, mais ils semblaient porter une signification plus profonde. Qing Shuang disparut dans la brume.
 
 Zhou Yi resta silencieux, le visage empreint d'amertume.
 

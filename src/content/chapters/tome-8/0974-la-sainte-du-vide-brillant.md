@@ -22,9 +22,9 @@ L'expression de Ling Tianhou devint instantanément sombre et il fronça les sou
 
 Peu après, l'expression de Ling Tianhou devint encore plus lugubre et il marmonna: « Ce vieux maudit d'Omniscient, qu'est-il en train de manigancer... » Tout en réfléchissant, il leva la tête et regarda Wang Lin.
 
-« Si l'Omniscient complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de l'Omniscient! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de l'Omniscient à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser la Secte des Quatre Divinités pour lui seul! »
+« Si l'Omniscient complote ainsi contre Wang Lin, cela signifie qu'il doit être d'une grande utilité. Je présume qu'il est crucial pour le Dao de l'Omniscient! Surtout si l'on considère que cette personne fait partie de la Série de l'Oiseau Vermillon... Le plan de l'Omniscient à son égard doit être d'une importance capitale, sinon il ne serait pas prêt à offenser les Quatre Sectes Divines pour lui seul! »
 
-« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler la Secte des Quatre Divinités! Si c'est le cas, je dois arrêter ce vieil Omniscient. Sinon, si l'Omniscient triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
+« Si son plan réussit, il pourrait obtenir un pouvoir capable de faire trembler les Quatre Sectes Divines! Si c'est le cas, je dois arrêter ce vieil Omniscient. Sinon, si l'Omniscient triomphe, je n'aurai plus jamais l'espoir de me retourner contre lui de mon vivant! »
 
 Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
@@ -32,7 +32,7 @@ Des pensées fulgurantes traversèrent l'esprit de Ling Tianhou.
 
 Wang Lin réfléchissait sans relâche à la relation entre Ling Tianhou et l'Omniscient. À cet instant, il joignit ses mains: « Il y a trois personnes dans la Série de l'Oiseau Vermillon, et je ne suis que l'une d'entre elles. En bref, ce junior se souviendra de l'aide du Saint de l'Épée! »
 
-Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon est monté au pouvoir, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Omniscient. »
+Ling Tianhou hocha la tête avec un sourire. « Lorsque l'Empereur Saint de l'Oiseau Vermillon a atteint le Dao, je n'étais qu'un cadet. Sa grâce m'a aidé autrefois, mais trop de temps a passé et je doute qu'il s'en souvienne. Tu es de la Série de l'Oiseau Vermillon et, si tu saisis la bonne opportunité, tu seras le prochain Empereur Saint. Il est préférable que nous parlions d'égal à égal. Après tout, tu n'es plus le disciple de ce vieil Omniscient. »
 
 L'expression de Wang Lin resta calme: « Le Saint de l'Épée est trop aimable. Puisqu'il en est ainsi, je suivrai les conseils du Saint de l'Épée. »
 
@@ -50,7 +50,7 @@ Tout au long du trajet, bien que Wang Lin parlât peu, ses paroles suscitaient l
 
 Pendant qu'ils parlaient, Wang Lin réfléchissait également à la question du Yang Extrême et élaborait un plan. Il médita longtemps sans parvenir à comprendre pourquoi l'Omniscient avait renoncé si calmement.
 
-Cependant, il avait la vague intuition que l'action de l'Omniscient ne lui était pas directement destinée... Mais... Wang Lin jeta un regard vers Ling Tianhou derrière lui.
+Cependant, il avait la vague intuition que l'action de l'Omniscient ne lui était pas directement destinée... Mais... Wang Lin jeta un regard vers Ling Tianhou, à ses côtés.
 
 « Est-ce que ce Ling Tianhou était... »
 
@@ -64,7 +64,7 @@ C'est ce qui lui donnait cet aspect chaotique. Cependant, Wang Lin réalisa que 
 
 « Cette planète provient d'une planète illusoire qui brûle éternellement dans le domaine du Vide Brillant. Cette planète illusoire était immense, plus de mille fois plus grande que la planète Tian Yun! » La voix de Ling Tianhou était calme, mais empreinte d'une pointe de fierté.
 
-« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Maître de l'Esprit du Vide de la Secte de Culture du Vide Brillant. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
+« À la suite d'un incident, la planète illusoire s'est effondrée, et la planète Da Luo n'est qu'un fragment de cet effondrement. Ce fragment a été raffiné comme une épée par le Vénérable Xu Ling de la Secte de Culture du Vide Brillant. C'est ainsi que la planète Da Luo est devenue ce que tu vois! »
 
 « Vide Brillant! » L'expression de Wang Lin changea. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par Qing Shui. Il semblait que le Système Stellaire de l'Alliance s'appelait autrefois le Système Stellaire du Vide Brillant.
 
@@ -88,11 +88,11 @@ Wang Lin fut stupéfait. La première personne à laquelle il pensa fut la femme
 
 « Sainte du Vide Brillant... » Wang Lin se frotta les tempes. Tout ce que Ling Tianhou venait de dire étaient des informations qu'il n'avait jamais entendues auparavant.
 
-« Votre Secte des Quatre Divinités était la puissance dominante du Vide Brillant il y a très longtemps. Malheureusement... » Ling Tianhou secoua la tête sans poursuivre.
+« Vos Quatre Sectes Divines étaient la puissance dominante du Vide Brillant il y a très longtemps. Malheureusement... » Ling Tianhou secoua la tête sans poursuivre.
 
 Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
-« La Secte des Quatre Divinités était autrefois la puissance dominante du Vide Brillant? » Wang Lin avait déjà conjecturé la puissance de la Secte des Quatre Divinités, mais il semblait qu'elle surpassait de loin son imagination.
+« Les Quatre Sectes Divines étaient autrefois la puissance dominante du Vide Brillant? » Wang Lin avait déjà conjecturé la puissance des Quatre Sectes Divines, mais il semblait qu'elles surpassaient de loin son imagination.
 
 À mesure qu'ils avançaient, la planète Da Luo se rapprochait. C'était la première fois que Wang Lin venait sur cette planète. Plus il s'en approchait, plus il ressentait l'énergie d'épée infinie qui s'en dégageait constamment.
 

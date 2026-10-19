@@ -44,7 +44,7 @@ L'expression de l'Omniscient demeurait sereine. Après avoir arraché la marque 
 
 Wang Lin cracha une gorgée de sang, le visage empreint d'une férocité sauvage. Durant toute sa vie de culture, si ce n'était sa lutte acharnée et sa résilience, il serait déjà mort bien des fois.
 
-Le sang perlant encore au coin de ses lèvres, il frappa son sac de rangement, faisant surgir des dizaines d'épées volantes. Dans un rugissement, il les pointa vers l'Omniscient pour qu'elles s'élancent toutes d'un coup. Simultanément, Wang Lin sortit le troisième Charriot de Guerre Divin!
+Le sang perlant encore au coin de ses lèvres, il frappa son sac de rangement, faisant surgir des dizaines d'épées volantes. Dans un rugissement, il les pointa vers l'Omniscient pour qu'elles s'élancent toutes d'un coup. Simultanément, Wang Lin sortit le troisième Char de Guerre Divin!
 
 Dès son apparition, le charriot se mua en papillon et, d'un battement d'ailes, fit surgir les lois de l'univers.
 
@@ -56,13 +56,13 @@ Sous l'effet d'un sort inconnu lancé par l'Omniscient, ces débris se rejoignir
 
 Le papillon battit des ailes et un craquement strident émana du dragon. Le son était atroce, semblable au frottement de milliers de pièces métalliques. En un instant, le dragon vola de nouveau en éclats, se transformant en une poussière dispersée par le vent.
 
-Cette scène glaça le sang de Wang Lin. C'était la première fois qu'il se retrouvait face à une puissance dont il ne pouvait même pas identifier le sort, le portant presque à la mort. S'il n'avait pas sorti le Charriot de Guerre Divin assez promptement, il aurait été pris au dépourvu.
+Cette scène glaça le sang de Wang Lin. C'était la première fois qu'il se retrouvait face à une puissance dont il ne pouvait même pas identifier le sort, le portant presque à la mort. S'il n'avait pas sorti le Char de Guerre Divin assez promptement, il aurait été pris au dépourvu.
 
 Le papillon battit des ailes et un vent invisible imprégné de lois fut projeté vers l'Omniscient. Pourtant, ce dernier ne cilla pas devant l'apparition du papillon et se contenta de réciter une nouvelle incantation.
 
 Des explosions dévastatrices secouèrent le papillon tandis que des ondes de choc se propageaient en cercles concentriques. L'artefact trembla, montrant des signes d'effondrement imminent.
 
-Le visage de Wang Lin trahissait un combat intérieur acharné; il forma un sceau de la main et cracha une large quantité de sang sur le papillon avant de hurler: « Activez le troisième sceau! »
+Le visage de Wang Lin trahissait un combat intérieur acharné; il forma un sceau de la main et cracha une large quantité de sang sur le papillon avant de hurler: « Ouvrez le troisième sceau! »
 
 Le papillon trembla et battit des ailes une ultime fois. Quatre pétales incomplets apparurent au-dessus de lui et, portés par le mouvement des ailes, ils glissèrent vers l'avant.
 
@@ -98,7 +98,7 @@ Cette silhouette était plusieurs fois plus rapide que l'Omniscient. Elle fendit
 
 « Quiconque blesse mon seigneur sera l'ennemi mortel de Ta Shan! »
 
-Au moment où la paume de l'Omniscient descendait, l'ombre lança un talisman en peau animale qui se consuma en fumée. Cette fumée conféra à l'ombre une célérité décuplée et, en un éclair, elle s'interposa devant Wang Lin pour bloquer l'attaque.
+Au moment où la paume de l'Omniscient descendait, l'ombre lança un talisman en peau animale qui se consuma en fumée. Cette fumée conféra à l'ombre une célérité multipliée par plusieurs et, en un éclair, elle s'interposa devant Wang Lin pour bloquer l'attaque.
 
 Un fracas tonnerre retentit alors que l'homme tatoué reculait, portant Wang Lin dans ses bras, tout en crachant du sang. De nombreux tatouages sur son corps s'effacèrent sous le choc, mais son expression restait féroce.
 

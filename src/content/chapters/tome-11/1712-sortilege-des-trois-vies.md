@@ -28,7 +28,7 @@ Tandis que l'autel tremblait violemment, de fines fissures apparurent à sa surf
 
 Wang Lin devint prudent. Ses mains formèrent de nouveaux sceaux pour créer encore plus de restrictions. Celles-ci entourèrent l'autel avant de se poser lentement une à une sur sa surface. Cela provoqua des tremblements plus intenses encore, faisant chuter davantage de débris.
 
-Après la durée d'un demi-bâton d'encens, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait perdu environ un tiers de sa circonférence, et les fissures sur sa surface s'étaient multipliées.
+Après la durée d'un demi-bâton d'encens, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait nettement rétréci, et les fissures sur sa surface s'étaient multipliées.
 
 « La bizarrerie de cet autel réside probablement dans ce qu'il contient... Mais une force étrange m'empêche de voir l'intérieur avec mon Sens Divin. » Wang Lin fixa l'autel et créa un million de restrictions supplémentaires. Les innombrables barrières s'abattirent sur l'autel, faisant tomber encore plus de couches jusqu'à ce qu'il ne reste que la moitié de sa taille d'origine.
 
@@ -44,7 +44,7 @@ Wang Lin fixa l'autel, désormais réduit de plus de moitié et entouré de cett
 
 « Cette lumière rouge me semble très familière... Cet autel pourrait-il être... » Le cœur de Wang Lin tressaillit. Dès que la lueur rouge se propagea vers lui, il tendit sa main droite pour l'agripper.
 
-Le bras géant de Ye Mo apparut soudainement devant lui, griffant également le vide.
+Le bras géant de Ye Mo apparut soudainement derrière lui, griffant également le vide.
 
 « Déchirure du Ciel! » rugit Wang Lin en déchiquetant l'espace de sa main droite. Par ce cri, il utilisa toute la puissance du bras droit de Ye Mo, ainsi que ses pouvoirs d'Ancien Dieu, d'Ancien Démon et d'Ancien Diable à 8 étoiles.
 
@@ -84,7 +84,7 @@ Fixant l'emblème, Wang Lin le pressa entre ses sourcils. Une sensation de brûl
 
 Cette douleur était insignifiante pour Wang Lin. Il resta calme, mordit le bout de sa langue et cracha une gorgée de sang.
 
-« Par la marque du Clan de l'Extermination des Sceaux, j'active cet autel et invoque l'esprit ancestral du clan, qui perdure entre ciel et terre! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
+« Par le sceau, j'ouvre les Enfers. Je possède la marque du Clan de l'Extermination des Sceaux : j'invoque l'esprit ancestral du clan, qui perdure entre ciel et terre! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
 
 Dès que la voix de Wang Lin résonna, le sang qu'il avait craché se condensa et commença à onduler frénétiquement devant lui. Puis, les trois autels libérèrent une lumière rouge aveuglante qui fut absorbée par le sang.
 

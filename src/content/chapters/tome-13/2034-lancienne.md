@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: Chapter 2034 - Old
 slug: lancienne
 ---
-Cette voix était rauque, empreinte d'une haine farouche. Provenant des profondeurs de la place, elle fit trembler le sol tandis que des fissures commençaient à apparaître. Ces crevasses s’élargirent jusqu'à ce que la place ne se fende en deux.
+Cette voix était rauque, empreinte d'une haine farouche. Provenant des profondeurs de la place, elle fit trembler le sol tandis que des fissures commençaient à apparaître. Ces crevasses, larges de plusieurs dizaines de pieds, s’élargirent jusqu’à ce que la place ne se brise en morceaux.
 
 À mesure que les failles s'étendaient, le centre de la place s'effondra. Les membres du Dao Antique présents sur la place reculèrent précipitamment, certains prenant même leur envol.
 
@@ -22,7 +22,7 @@ Trois dagues étaient plantées dans son corps: une entre les sourcils, une dans
 
 « Salutations, Ancêtre de l'Empereur Saint! » À l'instant même de son apparition, tous les membres du Dao Antique s'agenouillèrent à nouveau. Leurs voix se fondirent en une onde qui résonna à travers le monde.
 
-Les membres du Dao Antique témoignaient envers elle du même respect qu'envers l'Ancêtre Ancêtre. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire!
+Les membres du Dao Antique témoignaient envers elle du même respect qu'envers l'Ancêtre Ancestral. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire!
 
 Parmi les générations passées des Empereurs du Dao Antique, une seule personne pouvait être appelée l'Empereur Saint!
 
@@ -30,11 +30,11 @@ En voyant la vieille femme, Xuan Luo se remémora le passé. Il poussa un soupir
 
 « Ye Wei... »
 
-Wang Lin restait suspendu dans les airs, le visage impassible. L'apparition de cette vieille femme ne le surprit pas. En réalité, dès que l'ombre de l'Ancêtre Ancêtre était apparue, il avait déjà perçu cette aura à la fois vivante et morte.
+Wang Lin restait suspendu dans les airs, le visage impassible. L'apparition de cette vieille femme ne le surprit pas. En réalité, dès que l'ombre de l'Ancêtre Ancestral était apparue, il avait déjà perçu cette aura à la fois vivante et morte.
 
 Même s'il n'avait pas remarqué cette aura, Wang Lin n'aurait pas été étonné, car lors du banquet, quatre tables avaient été placées au plus près du palais.
 
-Ces quatre tables avaient manifestement été préparées pour le Grand Empyréen, l'Enseignant Impérial et le père de l'empereur, l'ancien empereur. Cependant, cela ne faisait que trois personnes pour quatre tables. Cela signifiait que cette personne occupait un rang si élevé que, même si elle n'était pas censée venir, une table devait lui être réservée.
+Ces quatre tables avaient manifestement été préparées pour le Grand Empyréen, le Maître Impérial et le père de l'empereur, l'ancien empereur. Cependant, cela ne faisait que trois personnes pour quatre tables. Cela signifiait que cette personne occupait un rang si élevé que, même si elle n'était pas censée venir, une table devait lui être réservée.
 
 Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée au Dao Antique, il avait étudié l'histoire des générations passées d'empereurs.
 
@@ -56,9 +56,9 @@ Tout cela traversa instantanément l'esprit de Wang Lin. Il fixa la vieille femm
 
 En voyant la vieille femme, Song Zhi parut terrifiée. Wang Lin resserra sa prise sur elle pour la rassurer.
 
-La vieille femme regarda Wang Lin et dit d'une voix rauque: « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais du Dao Antique est un endroit où l'on vient et part comme bon nous semble?! » L'aura de mort émanant de son corps sembla s'intensifier.
+La vieille femme regarda Wang Lin et dit d'une voix rauque: « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancestral pour invoquer son ombre, crois-tu vraiment que le palais du Dao Antique est un endroit où l'on vient et part comme bon nous semble?! » L'aura de mort émanant de son corps sembla s'intensifier.
 
-Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais du Dao Antique, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance! »
+Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais du Dao Antique, qui abrite la Grande Formation des Cent Mille. Cette formation fut établie par l'Ancêtre Ancestral, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance! »
 
 L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentua.
 
@@ -66,7 +66,7 @@ L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentu
 
 L'ombre semblait porter le soleil de l'empereur et fixa froidement la vieille femme.
 
-Wang Lin ne pouvait invoquer l'ombre de l'Ancêtre Ancêtre qu'en brûlant le sang de son âme. Il venait de le faire une fois; son sang d'âme était donc dispersé dans tout son corps. Il lui faudrait du temps pour le rassembler et pouvoir l'utiliser à nouveau.
+Wang Lin ne pouvait invoquer l'ombre de l'Ancêtre Ancestral qu'en brûlant le sang de son âme. Il venait de le faire une fois; son sang d'âme était donc dispersé dans tout son corps. Il lui faudrait du temps pour le rassembler et pouvoir l'utiliser à nouveau.
 
 Les yeux ternes de la vieille femme s'illuminèrent et elle leva son bras osseux. Juste au moment où elle allait porter un coup, un soupir s'échappa de Xuan Luo.
 
@@ -94,17 +94,17 @@ La vieille femme réfléchit en silence. Un instant plus tard, elle déclara d'u
 
 Dès qu'elle eut fini de parler, Wang Lin éclata de rire, la froideur de son regard devenant plus étrange encore. Il leva la main droite et les Huit Daos Extrêmes de l'Ancêtre Céleste commencèrent à se déployer.
 
-La fumée verte était le Dao Extrême du Feu!
-Les ondulations bleues étaient le Dao Extrême de l'Eau!
-La lumière dorée était le Dao Extrême du Métal!
+La fumée verte était le Dao du Feu Extrême!
+Les ondulations bleues étaient le Dao de l'Eau Extrême!
+La lumière dorée était le Dao du Métal Extrême!
 
-Wang Lin avait appris six des Huit Daos Extrêmes de l'Ancêtre Céleste lors des Épreuves Empyrées. D'un mouvement de manche, les six Daos apparurent l'un après l'autre.
+Wang Lin avait appris six des Huit Daos Extrêmes de l'Ancêtre Céleste lors des Épreuves Empyréennes. D'un mouvement de manche, les six Daos apparurent l'un après l'autre.
 
 Outre l'eau, le feu et le métal, il y avait aussi le bois et la terre. Une fois les cinq éléments complets, le sixième fut le Dao Extrême de la Vie et de la Mort!
 
 Quant au septième, le Dao Extrême de la Richesse, et au dernier, le Dao Extrême du Ciel, bien que Wang Lin ne les ait pas encore obtenus, il pouvait les ressentir. Avec suffisamment de temps, il ne lui serait pas impossible de les maîtriser également.
 
-Au moment où le sort de l'Ancêtre Céleste se manifesta, Wang Lin leva son index droit. Une lumière argentée jaillit et le sort du doigt de l'Ancêtre Ancêtre prit forme.
+Au moment où le sort de l'Ancêtre Céleste se manifesta, Wang Lin leva son index droit. Une lumière argentée jaillit et le sort du doigt de l'Ancêtre Ancestral prit forme.
 
 Cette action fit contracter les pupilles de la vieille femme. Elle pensait qu'en attaquant avec la puissance de la formation, même des Grands Empyréens n'auraient que 30 % de chances de survivre.
 
@@ -112,7 +112,7 @@ Ce Wang Lin devait sûrement frôler la mort dans la formation.
 
 Pourtant, la vieille femme hésita désormais. Elle fixa les six Daos Extrêmes entourant Wang Lin et sentit clairement leur puissance destructrice.
 
-Il y avait aussi le doigt de l'Ancêtre Ancêtre. Elle ne s'était pas manifestée plus tôt, mais elle avait ressenti sa puissance. Elle avait cru qu'il était issu du jade, mais elle découvrait maintenant que Wang Lin pouvait l'utiliser lui-même.
+Il y avait aussi le doigt de l'Ancêtre Ancestral. Elle ne s'était pas manifestée plus tôt, mais elle avait ressenti sa puissance. Elle avait cru qu'il ne s'agissait que d'une attaque unique issue du jade, mais elle découvrait maintenant que Wang Lin pouvait l'utiliser lui-même.
 
 Tandis qu'elle hésitait, Wang Lin ricana et ses cheveux passèrent progressivement de moitié noirs et moitié blancs à un noir total. Une intention meurtrière effrayante se dégagea de son corps.
 

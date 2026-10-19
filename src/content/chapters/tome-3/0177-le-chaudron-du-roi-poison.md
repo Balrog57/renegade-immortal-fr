@@ -82,7 +82,7 @@ Outre cela, le sac contenait de nombreux jades. Wang Lin les examina un à un, e
 
 Ces connaissances étaient précieuses pour le Wang Lin actuel; il n'aurait plus jamais de mal à identifier un matériau de valeur.
 
-De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui augmenta ses connaissances d'un facteur cent.
+De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui multiplia ses connaissances par plus de cent.
 
 Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Ming* (Sous-monde).
 
@@ -108,9 +108,9 @@ Il s'agissait du trésor vital de Bossu Meng: le chaudron vert.
 
 Bien que fendu en deux, l'objet dégageait encore une puissante énergie spirituelle. Cependant, cette énergie était saturée de poison. La substance verte capable de détruire le Sens Divin incitait Wang Lin à la plus grande prudence lors de son examen.
 
-Il savait qu'hormis les pierres de qualité suprême et le jade vert, la chose la plus précieuse dans le sac était ce chaudron. Après tout, c'était le trésor vital d'un cultivateur de la Formation de l'Âme, affiné au sein de son propre corps pendant des millénaires.
+Il savait qu'hormis les pierres de qualité suprême et le jade vert, la chose la plus précieuse dans le sac était ce chaudron. Après tout, c'était le trésor vital d'un cultivateur de la Formation de l'Âme, affiné par le feu de son propre corps pendant des millénaires.
 
-En consultant les jades, il trouva une explication: lorsqu'on atteint le deuxième niveau, un trésor est nécessaire pour supprimer le poison interne.
+En consultant les jades, il trouva une explication: lorsqu'on atteint le deuxième niveau, il faut un objet porteur de poison dans le corps, en guise de trésor pour tenir en respect le corps empoisonné.
 
 Ce chaudron était une imitation du légendaire Chaudron Médicinal Royal. Bien qu'il s'agînt d'une copie, les matériaux dont il était constitué n'étaient pas inférieurs à ceux de l'original. Sa seule faiblesse résidait dans son incapacité à absorber l'énergie spirituelle de dizaines de milliers de plantes comme le faisait le véritable Chaudron Médicinal Royal.
 
@@ -132,7 +132,7 @@ C'était l'essence de sang qu'il avait condensée par la technique d'affinement 
 
 Cet esprit d'épée n'avait initialement ni forme ni conscience, mais après avoir séjourné dans la mer de conscience de Wang Lin durant tant d'années et suite à sa transformation en dévoreur d'âmes, il avait acquis une étincelle de conscience.
 
-Ce n'est qu'en utilisant la technique d'affinement du Sanctuaire du Dieu de la Guerre pour lui donner un nouveau corps que sa transformation fut achevée.
+Ce n'est qu'en utilisant la technique d'affinement du Sanctuaire du Dieu de la Guerre pour lui donner un nouveau corps que le transfert de l'esprit de l'épée fut achevé.
 
 On pouvait dire que cette épée avait énormément servi Wang Lin. D'innombrables vies avaient été fauchées par elle. L'arme avait accumulé une telle intention meurtrière qu'elle pouvait désormais être considérée comme une arme sinistre.
 
@@ -196,7 +196,7 @@ Au sein du fluide, l'image d'un petit chaudron apparaissait et disparaissait. Wa
 
 L'esprit du chaudron rejoignit la fusion. L'expression de Wang Lin devint sérieuse. Contrairement à ses prévisions, les deux esprits ne s'attaquèrent pas immédiatement. Après une brève résistance, l'esprit du chaudron se transforma en gaz vert et pénétra l'esprit de l'épée.
 
-Une fois la fusion accomplie, Wang Lin se détendit enfin. Ses mains tracèrent plusieurs sceaux tandis que le liquide vert se solidifiait selon sa volonté pour prendre la forme d'une courte épée de quinze centimètres.
+Une fois la fusion accomplie, Wang Lin se détendit enfin. Ses mains tracèrent plusieurs sceaux tandis que le liquide vert se solidifiait selon sa volonté pour prendre la forme d'une courte épée de vingt centimètres.
 
 Deux rangées d'innombrables petites épines poussèrent sur les flancs de l'arme, dégageant une lueur verte éblouissante.
 
@@ -204,7 +204,7 @@ L'épée volante était désormais d'un vert sombre et parfaitement solidifiée.
 
 Même un cultivateur au stade de l'Âme Naissante ne pourrait échapper à la mort s'il était frappé par surprise par cette arme. Après tout, ce venin provenait du trésor de Bossu Meng.
 
-Cependant, après avoir reformé cette épée, il n'osait plus chercher à l'absorber; il choisit de la nourrir au sein de son Noyau d'Or. Même lors de son utilisation, il devrait rester vigilant, car s'il était touché par sa propre arme, sa survie serait compromise.
+Cependant, après avoir reformé cette épée, il n'osait plus l'avaler pour la nourrir de son Noyau d'Or. Même lors de son utilisation, il devrait rester vigilant, car s'il était touché par sa propre arme, sa survie serait compromise.
 
 Il n'existait aucun antidote pour le poison du Chaudron du Roi Poison. Hormis Bossu Meng, personne ne pouvait en guérir les victimes.
 

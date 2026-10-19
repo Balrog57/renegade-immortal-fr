@@ -97,7 +97,7 @@ Le second niveau contenait également des milliers de corps d'âme. Les auras qu
 
 « Ces sorts sont principalement destinés aux cultivateurs du Vide Nirvana et peuvent déployer une puissance extraordinaire... mais ils ne me servent à rien. » Wang Lin songea ainsi avant de poursuivre son ascension.
 
-Le troisième étage, le quatrième, le cinquième! Wang Lin ne s'attarda pas longtemps à chaque niveau jusqu'à atteindre le cinquième étage. Ici, le nombre de corps d'âme avait considérablement diminué pour n'en compter qu'environ 500. Les auras émanaient du niveau Arcane Vide; c'était manifestement destiné aux cultivateurs de ce stade.
+Le troisième étage, le quatrième, le cinquième! Wang Lin ne s'attarda pas longtemps à chaque niveau jusqu'à atteindre le cinquième étage. Ici, le nombre de corps d'âme avait considérablement diminué pour n'en compter qu'environ 500. Les auras émanaient du niveau Vide Arcane; c'était manifestement destiné aux cultivateurs de ce stade.
 
 Bien que Wang Lin ne pût percevoir leurs incantations ni leur fonctionnement, il sentait que chacun d'eux était extrêmement puissant. Il ignorait ce qu'il adviendrait si l'un de ces corps était emmené à l'extérieur, mais il savait que s'il était transporté dans le Monde des Grottes, cela provoquerait une immense calamité!
 

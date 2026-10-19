@@ -18,7 +18,7 @@ Le nuage rouge ressemblait à une bête antique et féroce fendant les cieux. Lo
 
 Zhou Wutai répondit promptement et s'engouffra dans le nuage rouge.
 
-À l'intérieur se trouvait un vieil homme vêtu de rouge qui contemplait l'horizon. Bien que ses pieds fussent immobiles, le nuage rouge filait à une vitesse prodigieuse.
+À l'intérieur se trouvait un vieil homme vêtu de rouge, les mains dans le dos, qui contemplait l'horizon. Bien que ses pieds fussent immobiles, le nuage rouge filait à une vitesse prodigieuse.
 
 Zhou Wutai se tint respectueusement aux côtés du vieil homme.
 
@@ -50,7 +50,7 @@ De retour auprès de Wang Lin et Papillon Rouge.
 
 La rose rouge étincelante dégageait un charme délicat. L'image de Papillon Rouge était l'étincelle de Sens Divin qu'elle avait gardée cachée. C'était sa véritable essence.
 
-Elle regarda Wang Lin, les yeux empreints de fierté, et murmura: « Ceng Niu, agis maintenant... tue-moi... cette vie sans ma volonté ne vaut pas la peine d'être vécue. Moi, Papillon Rouge, je préférerais mourir plutôt que de vivre ainsi... »
+Elle regarda Wang Lin, les yeux empreints de fierté, et murmura: « Ceng Niu, agis maintenant... tue-moi... une vie privée de conscience ne vaut pas la peine d'être vécue. Moi, Papillon Rouge, je préférerais mourir plutôt que de vivre ainsi... »
 
 Les souvenirs de Papillon Rouge défilèrent dans l'esprit de Wang Lin tandis qu'elle parlait.
 
@@ -60,13 +60,13 @@ Les souvenirs de Papillon Rouge défilèrent dans l'esprit de Wang Lin tandis qu
 
 Cette hache charriait une aura surpuissante. En traversant le ciel, elle fit trembler l'éther comme si le monde allait s'effondrer. À mesure qu'elle approchait du sol, la terre se fissurait et volait en éclats sous sa progression.
 
-Papillon Rouge leva la tête pour contempler l'arme. Le fragment de Sens Divin logé dans la rose se mua en fumée et pénétra son front. À cet instant, le regard de Papillon Rouge n'était plus empreint de vide ou d'intention martiale; il était désormais rempli de clarté, de fierté et de haine.
+Papillon Rouge leva la tête pour contempler l'arme. Le fragment de Sens Divin logé dans la rose se mua en fumée et pénétra son front. À cet instant, le regard de Papillon Rouge n'était plus empreint de vide ou d'intention martiale; il était désormais rempli de clarté, de fierté, de tristesse et de haine.
 
 Elle esquissa lentement un léger sourire, un sourire empreint de joie, une expression rarement vue sur son visage. Elle ressemblait alors à une jeune fille innocente ayant libéré tous les tourments de son cœur.
 
 Une intention martiale monstrueuse émanait de la hache tandis qu'elle descendait des cieux, comme si un géant invisible la maniait pour frapper le sol.
 
-Bien que le sourire sur le visage de Papillon Rouge fût magnifique, il conservait une pointe d'orgueil. Cet orgueil était son moi véritable. Elle avait passé sa vie à être fière, et même à l'instant de sa mort, elle l'était encore. Sa fierté atteignait les nuages et était aussi captivante qu'un papillon rouge vif...
+Bien que le sourire sur le visage de Papillon Rouge fût magnifique, il conservait un orgueil profond et tenace. Cet orgueil était son moi véritable. Elle avait passé sa vie à être fière, et même à l'instant de sa mort, elle l'était encore. Sa fierté atteignait les nuages et était aussi captivante qu'un papillon rouge vif...
 
 La hache déchira le ciel, provoquant une bourrasque de vent titanesque et une série de détonations soniques qui résonnèrent dans les cieux. Papillon Rouge n'avait pas encore vécu deux cents ans, mais à l'instar de ce papillon rouge, bien que sa vie fût éphémère, sa beauté et sa fierté resteraient gravées dans la mémoire des hommes!
 

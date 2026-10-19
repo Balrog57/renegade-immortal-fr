@@ -8,7 +8,7 @@ slug: tracer-un-chemin-sanglant
 ---
 Alors que la goutte de sang dorée s'échappait du front de Shang Guanmo, elle dégagea une douce lueur. L'expression de Wang Lin resta imperturbable tandis qu'il tendait la main pour saisir la goutte de sang.
 
-Après l'avoir inspectée, Wang Lin l'avala sans la moindre hésitation. La goutte de sang était désormais au sein de sa conscience, entourée par son Royaume du Ji. À cet instant, il n'avait besoin que d'une seule pensée pour tuer Shang Guanmo.
+Après l'avoir inspectée, Wang Lin l'avala sans la moindre hésitation. La goutte de sang était désormais au sein de sa conscience, entourée par son Royaume Ji. À cet instant, il n'avait besoin que d'une seule pensée pour tuer Shang Guanmo.
 
 De la même manière, si Wang Lin venait à mourir, Shang Guanmo mourrait également.
 
@@ -20,7 +20,7 @@ Il existe également un autre point crucial: le sang d'essence d'âme ne peut ê
 
 Shang Guanmo était lui aussi acculé. Il savait que Wang Lin ne lui pardonnerait pas facilement et qu'il placerait probablement une restriction sur lui. S'il avait imploré Wang Lin de l'accepter comme disciple, c'était simplement pour offrir à ce dernier une raison de le laisser vivre.
 
-Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. Ce n'est qu'à ce moment-là qu'il fut contraint de livrer son sang d'essence d'âme. Ce n'est qu'après avoir vu Wang Lin l'accepter que son cœur finit par s'apaiser quelque peu.
+Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. C'est alors, à contrecœur mais de son propre chef, qu'il livra son sang d'essence d'âme. Ce n'est qu'après avoir vu Wang Lin l'accepter que son cœur finit par s'apaiser quelque peu.
 
 Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan: « Continue de montrer le chemin. »
 
@@ -82,9 +82,9 @@ Les yeux de Wang Lin devinrent encore plus glacials; il s'arrêta soudainement e
 
 Sur ce, il ferma les yeux. Après une respiration, il les rouvrit, leurs pupilles parcourues d'éclairs rouges. Il passa de la main qui tenait le bras de Li Muwan à celle qui soutenait sa taille. Sans même avoir le temps de savourer cette sensation de douceur, il chargea brusquement en arrière.
 
-Le Sens Divin du Royaume du Ji se propagea avec une intensité folle, et une lueur cristalline jaillit de sa bouche avant de disparaître après quelques éclats. C'était la première fois que Wang Lin entamait un massacre à une telle échelle.
+Le Sens Divin du Royaume Ji se propagea avec une intensité folle, et une lueur cristalline jaillit de sa bouche avant de disparaître après quelques éclats. C'était la première fois que Wang Lin entamait un massacre à une telle échelle.
 
-Éliminer des cultivateurs au stade de l'Établissement des Fondations dans le rayon d'action du Royaume du Ji était aussi simple que d'écraser des fourmis. Après avoir entendu d'innombrables cris de détresse, les cultivateurs restants furent terrifiés et s'enfuirent précipitamment.
+Éliminer des cultivateurs au stade de l'Établissement des Fondations dans le rayon d'action du Royaume Ji était aussi simple que d'écraser des fourmis. Après avoir entendu d'innombrables cris de détresse, les cultivateurs restants furent terrifiés et reculèrent précipitamment.
 
 Finalement, la majorité des cultivateurs épuisèrent toute leur énergie spirituelle pour courir, mais avant que la plupart ne puissent s'éloigner, un éclair de lumière cristalline surgissait et leurs têtes explosaient.
 
@@ -98,7 +98,7 @@ La vitesse de Wang Lin ne ralentit pas; au contraire, il devint encore plus rapi
 
 En plus de cela, tous ceux qui tentaient de fuir étaient terrifiés par la lumière cristalline. Chaque fois qu'elle apparaissait, quelqu'un mourait d'une mort mystérieuse.
 
-En seulement une demi-heure, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume du Ji de Wang Lin.
+En seulement une demi-heure, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume Ji de Wang Lin.
 
 Plus de 1 000 cadavres étaient déjà entremêlés dans le tendon de dragon derrière lui. Le tendon ressemblait à une cape de mort flottant derrière Wang Lin.
 

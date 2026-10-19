@@ -8,7 +8,7 @@ slug: changement
 ---
 C'était comme si un tonnerre cataclysmique, surgissant du début des temps, s'était abattu sur Wang Lin. Son esprit rugissait violemment: il comprenait!
 
-« Le Dao des cieux est une chose que chacun peut prouver et que chacun peut confirmer. Les cieux ne sont pas le Dao. Le Dao est formé par la volonté des cieux et de la terre. Tout un chacun peut posséder cette volonté!
+« Le Dao des cieux est une chose que chacun peut prouver et que chacun peut atteindre. Les cieux ne sont pas le Dao. Le Dao est formé par la volonté des cieux et de la terre. Tout un chacun peut posséder cette volonté!
 
 « Tel le poisson qui vit dans la rivière. Il ne transgresse pas les cieux et ne provoque ni le yin ni le yang; il vit paisiblement et librement! Cette rivière est les cieux, le monde. Le poisson représente tous les êtres vivants qui existent au sein de ce monde!
 
@@ -26,7 +26,7 @@ Il laissa derrière lui le vieil homme terrifié sous sa cape de pluie; quant au
 
 Le vieil homme nommé Xie marmonna: « Lui... est-il un homme ou un fantôme...? »
 
-Le vent se dispersa et fusionna avec la planète Qing Ling. À cet instant, l'énergie spirituelle augmenta de façon exponentielle. D'innombrables veines spirituelles se formèrent et une énergie spirituelle infinie jaillit.
+Le vent se dispersa et fusionna avec la planète Qing Ling. À cet instant, l'énergie spirituelle augmenta de façon exponentielle. D'innombrables veines spirituelles grondèrent et une énergie spirituelle infinie jaillit.
 
 L'énergie spirituelle remplit un fleuve après l'autre, qui devinrent verdoyants!
 
@@ -68,7 +68,7 @@ La richesse de l'énergie spirituelle qui s'y trouvait était inimaginable!
 
 Ses yeux étaient ternes, mais ils contenaient le soleil, la lune et l'univers tout entier. Son expression était dépourvue de joie, mais la puissance des cieux l'entourait. Son visage était pâle, mais il rayonnait d'une clarté singulière!
 
-Le corps de Wang Lin dégageait l'aura de celui qui a pris conscience de son propre Dao et en a obtenu le contrôle absolu! Ce corps était présent, tout comme son âme originelle. Pourtant, si un cultivateur s'approchait et fermait les yeux, il ne pourrait absolument pas détecter l'existence de Wang Lin.
+Le corps de Wang Lin dégageait l'aura de celui qui a pris conscience de son propre Dao et dont l'esprit est affranchi de toute pensée futile! Ce corps était présent, tout comme son âme originelle. Pourtant, si un cultivateur s'approchait et fermait les yeux, il ne pourrait absolument pas détecter l'existence de Wang Lin.
 
 C'était comme si Wang Lin s'était déjà fondu dans le monde! Auparavant, lorsqu'il fusionnait avec le monde, son corps disparaissait. Cependant, bien que son corps et son âme originelle fussent là à présent, ils donnaient l'impression qu'il n'avait fait qu'un avec l'univers.
 
@@ -78,6 +78,6 @@ C'était comme si, par une simple pensée, la distance n'existait plus. C'était
 
 Son regard était empreint d'une intention meurtrière et d'une froideur infinie. En levant les yeux vers l'azur, il ressentit une puissance infinie émanant de la planète Qing Ling. Elle venait de chaque cultivateur, de chaque mortel, de chaque être vivant!
 
-Cette puissance convergea vers Wang Lin avec frénésie avant de jaillir vers le ciel!
+Cette puissance convergea vers Wang Lin avec frénésie, avant de jaillir vers le ciel en suivant son regard!
 
 À cet instant, si la planète Qing Ling était la rivière, alors toutes les créatures de la planète étaient des poissons qui se débattaient. Elles s'étaient toutes rassemblées en Wang Lin pour se révolter contre les cieux!

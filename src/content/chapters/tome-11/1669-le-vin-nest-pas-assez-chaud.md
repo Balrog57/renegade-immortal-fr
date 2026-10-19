@@ -12,9 +12,9 @@ Des runes complexes, tracées d'un rouge vif, ornaient ces peaux. Elles scintill
 
 Outre ces chars de guerre, des rugissements résonnaient au loin. Derrière les 100 000 cultivateurs, une gigantesque tablette de pierre était transportée par plusieurs milliers de cultivateurs torse nu.
 
-Ces tablettes de pierre mesuraient environ dix mille pieds de haut et dégageaient une aura ancestrale. Plus impressionnant encore étaient les neuf chaînes entourant la tablette: au bout de chaque chaîne pendait un cercueil.
+Ces tablettes de pierre mesuraient environ plusieurs milliers de pieds de haut et dégageaient une aura ancestrale. Plus impressionnant encore étaient les neuf chaînes entourant la tablette: au bout de chaque chaîne pendait un cercueil.
 
-Chaque cercueil était haut de plusieurs milliers de pieds. De loin, l'ensemble ressemblait à une pieuvre, offrant un spectacle terrifiant.
+Chaque cercueil était haut de plusieurs centaines de pieds. De loin, l'ensemble ressemblait à une pieuvre, offrant un spectacle terrifiant.
 
 Telle était la nouvelle force que le Royaume Extérieur avait rassemblée. Ce serait la première bataille pour pulvériser la formation de la roue de Wang Lin!
 
@@ -28,7 +28,7 @@ Wang Lin se redressa et se tint debout sur le Fourneau Impérial. Ses cheveux bl
 
 L'esprit de Xi Zifeng, initialement ébranlé, fut instantanément apaisé par les paroles de Wang Lin. Elle leva sa main délicate et écarta ses mèches de cheveux derrière ses oreilles avec un sourire, puis hocha la tête.
 
-Des grondements tonitruants résonnèrent à l'extérieur de la formation. Les 100 000 cultivateurs ne s'approchèrent pas, mais s'arrêtèrent à une certaine distance. Ils savaient parfaitement quelle était la puissance de Wang Lin et de cette formation. Ils s'assirent alors et portèrent leurs doigts entre leurs sourcils.
+Des grondements tonitruants résonnèrent à l'extérieur de la formation. Les 100 000 cultivateurs ne s'approchèrent pas, mais s'arrêtèrent à dix mille pieds de distance. Ils savaient parfaitement quelle était la puissance de Wang Lin et de cette formation. Ils s'assirent alors et portèrent leurs doigts entre leurs sourcils.
 
 À cet instant, les âmes originelles de ces 100 000 cultivateurs du Royaume Extérieur jaillirent. Ces âmes libérèrent une lumière monstrueuse qui illumina le système stellaire ténébreux.
 
@@ -44,15 +44,15 @@ Des grondements sourds retentirent. La puissance des cinq fusionna pour déferle
 
 Ce dernier était un vieillard aux cheveux blancs. L'expression grave, il sentit la puissance des quatre cultivateurs derrière lui affluer en lui; ses cheveux s'agitèrent sans qu'aucun vent ne soufflât. Ses yeux brillèrent d'un éclat inédit.
 
-« Par ma culture et mon lignage, j'invoque l'ancien sort! Dao brise-ciel, un seul Dao éteint le vide! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de 100 000 pieds!
+« Par ma culture et mon lignage, j'invoque l'ancien sort! Dao brise-ciel, un seul Dao éteint le vide! » rugit le vieillard en pointant le ciel du doigt. Une lumière aveuglante jaillit, faisant apparaître une épée de dix mille pieds!
 
 Une fois l'épée manifestée, les 100 000 âmes originelles s'y précipitèrent, lui conférant une aura colossale.
 
 « Tranche! » hurla le vieillard aux cheveux blancs en abattant sa main droite vers la formation des trois essences de Wang Lin.
 
-L'épée de 100 000 pieds, chargée des 100 000 âmes originelles et de toute la puissance des cinq cultivateurs de la troisième étape, se transforma, par ce sort antique, en une force capable de fendre les cieux qui s'abattit sur sa cible.
+L'épée de dix mille pieds, chargée des 100 000 âmes originelles et de toute la puissance des cinq cultivateurs de la troisième étape, se transforma, par ce sort antique, en une force capable de fendre les cieux qui s'abattit sur sa cible.
 
-De loin, la scène était époustouflante. L'épée géante commença à croître, passant de 100 000 pieds à des dizaines de fois cette taille, puis à une taille sans limite, avant de frapper la formation circulaire.
+De loin, la scène était époustouflante. L'épée géante commença à croître, passant de dix mille pieds à des dizaines de fois cette taille, puis à une taille sans limite, avant de frapper la formation circulaire.
 
 Wang Lin fit un pas en avant pour se placer au cœur de la formation. Il observa calmement l'épée converger vers lui sans esquisser le moindre mouvement, laissant le monstrueux hurlement de l'arme l'assaillir.
 
@@ -78,7 +78,7 @@ Une attaque consumant la force vitale de 100 000 cultivateurs était capable d'a
 
 « À l'aube du monde, tout n'était que ténèbres, sans lumière ni vie. Le Souverain Céleste Antique descendit et créa la vie. Il appela la lumière du monde ancien pour illuminer ce monde! »
 
-« J'offre cent mille vies en sacrifice pour invoquer l'ancien pacte et convoquer cette lumière primordiale! Cette lumière a engendré toute forme de vie, mais elle fut aussi la cause de sa destruction! » hurla le vieillard d'une voix déformée.
+« J'offre cent mille vies en sacrifice pour invoquer l'ancienne ordonnance et convoquer cette lumière primordiale! Cette lumière a engendré toute forme de vie, mais elle peut aussi anéantir les âmes célestes! » hurla le vieillard d'une voix déformée.
 
 Alors que ses paroles se propageaient, les 100 000 âmes originelles convergèrent avec frénésie, formant un brouillard si dense qu'il devint impossible de les distinguer. Ce brouillard commença à tourbillonner, accélérant jusqu'à former un vortex gigantesque. Son centre ressemblait à un trou noir menant vers un autre monde.
 

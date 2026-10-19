@@ -30,7 +30,7 @@ Le regard empreint de résolution, il se redressa et reprit sa marche.
 
 Mais à cet instant précis, des bruits de sabots retentirent derrière lui. Ce son était particulièrement strident dans le silence de la nuit.
 
-Aussitôt qu'il entendit ce bruit, un groupe de chevaux noirs surgit, les uns après les autres. Sur leurs dos siégeaient des hommes massifs aux visages de meurtriers. L'un d'eux aperçut Wang Lin au passage et tira brusquement sur les rênes en s'exclamant: « Haha, quel gamin laid! Quel arbre à billets! » Il tendit la main pour l'agripper.
+Aussitôt qu'il entendit ce bruit, un groupe de chevaux noirs surgit, les uns après les autres. Sur leurs dos siégeaient des hommes massifs aux tempes saillantes et aux visages de meurtriers. L'un d'eux aperçut Wang Lin au passage et tira brusquement sur les rênes en s'exclamant: « Haha, quel gamin laid! Quel arbre à billets! » Il tendit la main pour l'agripper.
 
 Un cri retentit de l'avant: « Quatrième Ma, que fais-tu?! »
 
@@ -54,7 +54,7 @@ En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. Ce derni
 
 Dans une série de craquements sinistres, les épaules et les jambes de Wang Lin furent brisées. Des vagues de douleur envahirent son corps et des perles de sueur inondèrent son front. Son regard se fixa sur l'homme balafré, gravant son visage dans sa mémoire.
 
-L'homme renifla, appliqua une pâte médicinale sur les blessures de Wang Lin, puis disparut dans les buissons.
+L'homme renifla, appliqua une poudre médicinale sur les blessures de Wang Lin, puis disparut dans les buissons.
 
 Allongé là, une intention meurtrière bouillonnait en lui. Il n'avait jamais été traité ainsi de toute sa vie, mais son corps était si faible qu'il finit par perdre connaissance.
 
@@ -68,7 +68,7 @@ Les convois reprirent leur marche, mais alors qu'ils passaient à l'endroit où 
 
 « Compagnie d'escorte Puissance Céleste, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné? Restez là pour moi! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
 
-Dès que les torches s'allumèrent, la pâte appliquée sur Wang Lin se dissolut et un gaz incolore et inodore se répandit, enveloppant rapidement tout le convoi.
+Dès que les torches s'allumèrent, la poudre appliquée sur Wang Lin se dissolut et un gaz incolore et inodore se répandit, enveloppant rapidement tout le convoi.
 
 « Le Poison des Nuages de Feu! » hurla quelqu'un dans le convoi. Peu après, chaque membre de l'escorte sentit sa force s'évaporer de son corps.
 

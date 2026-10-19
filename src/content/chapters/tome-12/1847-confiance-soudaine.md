@@ -24,7 +24,7 @@ Au moment où Wang Lin chargea, la sixième couche de brouillard sous lui se dé
 
 Si Wang Lin était stoppé par cette énergie, il ne pourrait jamais quitter le septième étage. Bien qu'il fût en pleine crise, Wang Lin avait déjà affronté de nombreux ennemis; plus la situation était périlleuse, plus il devenait calme.
 
-Au moment où l'énergie de l'épée se rapprochait, il se retourna et leva la main droite. Son corps véritable d'essence apparut et sa paume pointa vers le ciel. Le brouillard du septième étage gronda et une paume géante surgit!
+Au moment où l'énergie de l'épée se rapprochait, il se retourna et leva la main droite. Son corps véritable d'essence de feu apparut et sa paume pointa vers le ciel. Le brouillard du septième étage gronda et une paume géante surgit!
 
 Empreinte de l'Esprit Guerrier!
 
@@ -36,7 +36,7 @@ Simultanément, sous Wang Lin et Yun Kong, dans la mer scindée en deux, le Sens
 
 Trois empreintes de paumes — deux en haut et une en bas — foncèrent toutes vers Yun Kong et son rayon d'énergie d'épée!
 
-L'empreinte de Wang Lin atteignit la cible la première et percuta l'énergie de l'épée. Des bruits de craquements résonnèrent alors que l'empreinte s'effondrait. Au même instant, l'empreinte issue du corps véritable d'essence de feu descendit.
+L'empreinte de Wang Lin atteignit la cible la première et percuta l'énergie de l'épée. Des grondements retentirent alors que l'empreinte s'effondrait. Au même instant, l'empreinte issue du corps véritable d'essence de feu descendit.
 
 Précisément à ce moment-là, la paume d'essence d'eau formée par l'océan s'élança vers Yun Kong et son épée. C'était une fusion de l'eau et du feu, une attaque combinée des deux essences!
 
@@ -50,9 +50,9 @@ Un grondement violent retentit lors de la collision des deux empreintes, avec Yu
 
 Cette force était le gaz!
 
-Le gaz était une essence extrêmement difficile à obtenir. Plus précisément, il était impossible de l'obtenir. Il fallait dominer les essences d'eau et de feu et les combiner parfaitement pour créer l'essence de gaz!
+Le gaz était une essence extrêmement difficile à obtenir. Plus précisément, on ne pouvait pas le posséder. Il fallait dominer les essences d'eau et de feu et les combiner parfaitement pour créer l'essence de gaz!
 
-Cette essence était bien plus précieuse que n'importe quelle autre!
+Cette essence était bien plus précieuse que n'importe quelle essence unique!
 
 Dès l'apparition de l'essence de gaz, les paumes d'eau et de feu s'effondrèrent, mais l'énergie de l'épée de Yun Kong s'effondra elle aussi, complètement pour la première fois. Une puissante onde de choc se propagea dans toutes les directions. Wang Lin recula et utilisa cette force pour propulser Tigre Blanc et sa compagnie vers le septième étage.
 
@@ -64,7 +64,7 @@ Le timing était parfait, et son intention meurtrière se rapprochait. L'express
 
 Tout cela se passa à une vitesse vertigineuse. En un éclair, l'énergie de l'épée atteignit Yi Si et lui trancha le bras droit. La marionnette poussa un cri et recula brusquement. Cependant, le bras sectionné se transforma en cinq brins de gaz noir qui s'engouffrèrent dans le corps de Yun Kong!
 
-Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de la lignée de l'Ancien Dao!
+Yun Kong laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de la lignée du Dao Antique!
 
 « Cher confrère Yun Kong, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Yun Kong leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena Tigre Blanc et sa compagnie au septième étage et disparut sans laisser de trace.
 
@@ -80,7 +80,7 @@ L'ensemble de la Mer des Pilules était devenu le domaine du Continent du Démon
 
 « Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin de la Secte de la Grande Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
 
-« Quant à la Secte de la Grande Âme, je les informerai! » Wang Lin regarda la Mer des Pilules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message de la Secte de la Grande Âme. Après avoir transmis son message, il l'effaça d'un geste.
+« Quant à la Secte de la Grande Âme, je les informerai! » Wang Lin regarda la Mer des Pilules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message de la Secte de la Grande Âme. Après y avoir déposé son message, il la lança dans le ciel, où elle s'éloigna en une lueur sombre.
 
 Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand la Secte de la Grande Âme la recevrait précisément.
 
@@ -88,7 +88,7 @@ En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agis
 
 Wang Lin détourna les yeux de la Mer des Pilules. Remarquant leurs expressions, il dit lentement: « J'ai rejoint la Secte de la Grande Âme et je suis devenu un Ancien. »
 
-« Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour ce qui s'était passé dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
+« Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour l'oubli des rancunes dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
 
 « Vous aussi, prenez soin de vous! » Wang Lin afficha un sourire sincère. Il leur rendit leur salut et jeta un coup d'œil à l'Oiseau Vermillon.
 
@@ -98,7 +98,7 @@ Une fois qu'ils disparurent à l'horizon, Wang Lin se tourna de nouveau vers la 
 
 « Depuis mon arrivée sur le Continent Astral Immortel, je n'ai jamais subi une telle perte! Yun Kong, si je ne profite pas du fait que tu sois blessé pour t'éliminer, je ne pourrai pas me le pardonner! » Les cris de Yi Si résonnaient encore dans son esprit, lui causant une douleur lancinante. La culture de Yun Kong était très étrange; son niveau n'était pas élevé, si l'on excepte cette dévastatrice énergie d'épée!
 
-Wang Lin avait déjà extrait le Sens Divin de Yan Luan des deux trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
+Wang Lin avait déjà extrait le Sens Divin de Yan Luan de plusieurs trésors qu'il avait obtenus d'elle. La gourde contenant 30 millions d'âmes dao pouvait libérer une attaque extrêmement puissante, même avec une seule chance!
 
 Ayant pris sa décision, il chargea vers la Mer des Pilules.
 

@@ -38,7 +38,7 @@ Cette force destructrice ébranla tous les cultivateurs Fléau Céleste de la Te
 
 Cependant, nul ne savait si Cupidité possédait des trésors encore plus redoutables. Après tout, il était le maître d'innombrables richesses.
 
-Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Briseur du Nirvana et Fléau Céleste?
+Ce trésor dépassait déjà l'imagination de tous. Mais pouvait-il exister un objet capable d'exterminer instantanément des cultivateurs Fléau Céleste?
 
 Après cette bataille, la renommée de Cupidité devint immense. La rumeur disait que le Grand Empereur s'était intéressé à lui et l'avait recherché. Cupidité saisit cette occasion pour lui offrir un trésor, et en retour, le Grand Empereur lui remit une pilule pour favoriser sa culture.
 
@@ -50,11 +50,11 @@ Les rumeurs sur la richesse inépuisable de Cupidité continuèrent de circuler.
 
 Outre ses sorts et ses trésors, Cupidité possédait une autre faculté: partout où il apparaissait, un trésor céleste surgissait. Même sur une planète abandonnée, il parvenait à débusquer un objet capable de secouer les cieux.
 
-C'est ainsi que commença à se répandre l'adage: « Cupidité ne va nulle part sans ses trésors ».
+C'est ainsi que commença à se répandre l'adage: « Cupidité ne se rend jamais dans un lieu sans trésor ».
 
-Mais en plus de ses sorts et de ses richesses, Cupidité avait une autre particularité. Quiconque manifestait une réaction étrange en sa présence subissait sa riposte.
+Mais en plus de ses sorts et de ses richesses, Cupidité avait une autre particularité. Quiconque évoquait son odeur ou manifestait une réaction étrange en sa présence subissait sa riposte.
 
-Cela était dû au sortilège logé en lui!
+Ce point sensible, c'était l'odeur de son corps, due au sortilège logé en lui!
 
 Cupidité pratiquait un sort inconnu qui laissait derrière lui, partout où il passait, une odeur nauséabonde persistante, perceptible de très loin.
 
@@ -74,7 +74,7 @@ Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine en
 
 « Omniscient, si vous ne m'aviez pas forcé à aller à Luotian, je ne me serais pas retrouvé dans un état aussi misérable. Et il y a aussi ce serpent aux yeux de lune... Ce vieil homme jure qu'il va le réduire en miettes! »
 
-« Le plus important, c'est Wang Lin! Cet homme... cet homme est mon ennemi juré! Il m'a volé tous mes trésors. Mon fourneau de téléportation, mon ancien dragon de tonnerre, ma Peinture Montagne et Rivière, mon âme de montagne... Tous les trésors que j'ai rassemblés pendant des dizaines de milliers d'années lui ont été dérobés! »
+« Le plus important, c'est Wang Lin! Cet homme... cet homme est ma némésis! Il m'a volé tous mes trésors. Mon fourneau de téléportation, mon ancien dragon de tonnerre, ma Peinture Montagne et Rivière, mon âme de montagne... Tous les trésors que j'ai rassemblés pendant des dizaines de milliers d'années lui ont été dérobés! »
 
 Chaque fois que Cupidité songeait à cela, son cœur se serrait de douleur. Outre sa haine pour Wang Lin, une ombre immense planait sur son âme. Après avoir croisé la route de Wang Lin à plusieurs reprises, il ressentait une terreur extrême à son égard.
 
@@ -82,7 +82,7 @@ Avec le temps, cette sensation s'était muée en une peur profonde. Bien que son
 
 Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à Wang Lin, son esprit tremblait.
 
-« Mon ennemi de toujours! Sur la planète Suzaku, la Perle Défiant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
+« Ma némésis de toujours! Sur la planète Suzaku, la Perle Défiant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
 
 « Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis ce maudit Serpent aux yeux de lune m'a avalé jusque dans ses voies excrétrices et, tandis que je souffrais le martyre, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
 
@@ -90,7 +90,7 @@ Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à W
 
 Il avait passé sa vie à chercher des trésors, mais ce n'est qu'en affrontant Wang Lin qu'il avait tout perdu et frôlé la mort. C'était un cauchemar dont il ne pouvait se défaire.
 
-« Désormais, je possède encore plus de trésors et mon niveau de culture est bien plus élevé. Mes richesses sont même plus puissantes qu'auparavant. Je ne crois pas que vous puissiez sortir du Royaume Intérieur pour venir dans cette Terre Déchue voler mes biens! Si cela devait réellement arriver, alors toi, Wang Lin, tu serais véritablement l'ennemi de ma vie! »
+« Désormais, je possède encore plus de trésors et mon niveau de culture est bien plus élevé. Mes richesses sont même plus puissantes qu'auparavant. Je ne crois pas que vous puissiez sortir du Royaume Intérieur pour venir dans cette Terre Déchue voler mes biens! Si cela devait réellement arriver, alors toi, Wang Lin, tu serais véritablement ma némésis! »
 
 Cupidité ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalité. À ses yeux, c'était totalement impossible.
 
@@ -98,7 +98,7 @@ Cupidité ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalit�
 
 « Maintenant que j'ai compris 70 à 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion de Dix Mille Ans du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir me débarrasser de ce sortilège! » Tout en méditant ainsi, Cupidité ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
 
-« Mes trésors passés... Il est vraiment mon ennemi juré. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Cupidité était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
+« Mes trésors passés... Il est vraiment ma némésis. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Cupidité était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
 
 Tout comme un oiseau qui, après avoir failli être tué par une flèche, survit et devient un souverain parmi les oiseaux, la blessure du passé resterait à jamais gravée dans son esprit. Il tremblerait au simple bruit d'un arc.
 

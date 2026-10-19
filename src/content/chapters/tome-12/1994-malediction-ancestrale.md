@@ -8,7 +8,7 @@ slug: malediction-ancestrale
 ---
 Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce plan a été conçu par le génie du clan Dao Wang, et il est en marche depuis des générations. Il m'a aidé à devenir un Grand Empyréen en échange de mon aide.
 
-« Lorsque le précédent Empereur Céleste est décédé, avant que vous ne preniez le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
+« Lorsque le précédent Empereur Céleste est décédé, et que vous avez pris le trône, l'ancien Maître Impérial m'a trouvé. Selon le plan, nous nous sommes mariés et avons eu une fille.
 
 « Cette petite fille possède un corps issu du Continent Astral Immortel, mais l'âme du clan Dao Wang... À l'origine, cela ne pouvait se produire sous le sceau de l'Ancêtre Céleste, car la puissance du sceau était trop grande!
 
@@ -20,7 +20,7 @@ Jiu Di regarda l'Empereur Céleste et expliqua l'origine de tout cela: « Ce pla
 
 « Tout le clan Dao Wang a passé d'innombrables années à accomplir ce plan sur le corps de Hai Zi, et elle est la seule capable de le mener à bien. » Jiu Di regarda calmement l'Empereur Céleste en révélant ainsi la vérité.
 
-« Parce qu'elle est votre fille, vous avez pu l'aider sans réserve! Vous êtes même devenu le parrain du clan Dao Wang et avez obtenu les Flammes Joss que seul l'Ancêtre Céleste était éligible pour posséder... Le clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
+« Parce qu'elle est votre fille, vous pouvez l'aider sans réserve! Vous pourriez même devenir le parrain du clan Dao Wang et obtenir les Flammes Joss que seul l'Ancêtre Céleste était éligible pour posséder... Le clan Dao Wang a réellement payé un tel prix pour lever le sceau... » L'Empereur Céleste laissa échapper un soupir, affichant une expression complexe.
 
 « Outre Hai Zi, le dernier membre du clan Dao Wang était le Maître Impérial qui vient de mourir... En réalité, vous n'auriez pas été obligé de lever le sceau sur le clan Dao Wang, mais l'ancêtre du clan avait déjà diviné vos actions. Il savait votre désir d'hériter de la puissance de l'Ancêtre Céleste et qu'en faisant face à la pression des quatre Grands Empyréens, vous n'abandonneriez pas, mais choisiriez de combattre!
 
@@ -36,7 +36,7 @@ L'Empereur Céleste resta silencieux un instant, songeant à ces révélations. 
 
 « Si vous aviez renoncé à l'héritage de la culture de l'Ancêtre Céleste, l'embuscade que mon clan Dao Wang avait préparée se serait déclenchée! Tous les temples spirituels des 72 continents obéissent à mon clan!
 
-« Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Le coût de leur éveil ferait trembler la tête de l'Ancêtre Céleste, et à ce moment-là, seul l'Ancêtre Céleste lui-même pourrait le contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan! » parla doucement Hai Zi.
+« Tous les temples sont prêts à réveiller les esprits scellés dans leurs continents respectifs. Au prix de leur éveil, la force qui retient la tête de l'Ancêtre Céleste en ces lieux serait ébranlée, et alors seul l'Ancêtre Céleste lui-même pourrait la contenir. Vous auriez été contraint d'hériter de sa puissance, sous peine de voir tout le clan céleste sombrer dans le chaos! Et une fois que vous auriez tenté d'absorber ce pouvoir, vous auriez dû lever le sceau sur mon clan! » parla doucement Hai Zi.
 
 « Comme le Temple du Scorpion Vert... » Les pupilles de l'Empereur Céleste se rétractèrent.
 
@@ -44,7 +44,7 @@ Hai Zi acquiesça.
 
 « Dao Yi, Wu Feng, je présume que vous deux étiez au courant? » Le regard de l'Empereur Céleste se tourna vers eux.
 
-Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di est venu me voir pour m'exposer le plan du clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet! »
+Dao Yi fronça les sourcils et déclara lentement: « Le Grand Empyréen Jiu Di est venu me voir, sans rien me cacher, pour m'exposer le plan du clan Dao Wang. Mais je ne savais rien de ce Wang Lin. Je viens à peine de découvrir qu'il était un élément clé de son projet! »
 
 Wu Feng réfléchit en silence avant d'acquiescer.
 
@@ -66,7 +66,7 @@ L'Empereur Céleste leva les yeux et sa voix résonna comme le tonnerre: « Cepe
 
 « Jiu Di, vous avez utilisé Wang Lin pour attirer le Grand Empyréen Gémeaux ici. Autrement, à vous trois seuls, vous n'auriez pas eu assez de puissance pour me contraindre à tenter d'absorber la force de l'Ancêtre Céleste!
 
-« Vous avez aussi utilisé l'Ascendant Empyréen Ming Dao, Dao Fei, moi-même et les 72 esprits scellés! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille!
+« Vous avez aussi utilisé l'Ascendant Empyréen Ming Dao, Lian Daofei, moi-même et les 72 esprits scellés! Je ne crois pas que vous ayez fait tout cela uniquement pour le clan Dao Wang, même si elle est votre fille!
 
 « Et vous deux, Dao Yi et Wu Feng. Pour que vous acceptiez de venir, Jiu Di a dû vous promettre d'immenses bénéfices. Vous êtes venus par intérêt personnel!
 
@@ -92,7 +92,7 @@ Gémeaux réfléchit en silence. Comment ne pas avoir percé à jour leurs inten
 
 « J'ai cherché pendant de nombreuses années et j'ai enfin trouvé un indice il y a peu. Grâce à lui, j'ai pu confirmer que la légende était vraie. Si l'Ancêtre Céleste est mort, quiconque tenterait de détruire son corps mourrait...
 
-« À moins qu'il ne s'agisse d'un successeur possédant la même lignée. Un successeur peut utiliser son sang pour endosser le poids de la malédiction afin de rompre la lignée. Dès lors, il n'y aura plus de descendance de l'Ancêtre Céleste à transmettre, et seulement alors la malédiction pourra être levée! Empereur Céleste, vous n'avez d'autre choix que de porter cette malédiction. Vous ne mourrez pas, mais le titre des Huit Extrêmes s'éteindra avec votre génération. Cependant, l'Ancêtre Céleste est mort depuis des éons et sa puissance enveloppe encore le clan céleste. Le temps est venu de changer!
+« À moins qu'il ne s'agisse d'un successeur possédant la même lignée qui, par la force de son sang, tue l'Ancêtre Céleste et endosse le poids de la malédiction afin de rompre la lignée. Dès lors, il n'y aura plus de descendance de l'Ancêtre Céleste à transmettre, et seulement alors la malédiction pourra être levée! Empereur Céleste, vous n'avez d'autre choix que de porter cette malédiction. Vous ne mourrez pas, mais le titre des Huit Extrêmes s'éteindra avec votre génération. Cependant, l'Ancêtre Céleste est mort depuis des éons et sa puissance enveloppe encore le clan céleste. Le temps est venu de changer!
 
 « Si vous refusez, vous mourrez sans aucun doute! Si je ne m'inquiétais pas de l'instabilité du Clan Ancien après votre mort, ce vieil homme ne perdrait pas autant de temps à discuter avec vous. »
 

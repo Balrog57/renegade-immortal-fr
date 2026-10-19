@@ -54,23 +54,23 @@ Une fois apparu, le géant fonça vers le cultivateur assis là. Sa vitesse éta
 
 Alors que le coup s'approchait, le visage du cultivateur devint d'une pâleur mortelle et ses yeux se remplirent de terreur. Ses vêtements et ses cheveux furent violemment projetés en arrière par la pression de l'attaque.
 
-Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au moment où le poing du géant doré percuta sa cible, le corps du cultivateur trembla et il cracha un flot de sang. L'âme d'origine fut violemment ébranlée, perdant toute netteté. Terrifiée, l'âme d'origine du cultivateur tenta de se rétracter précipitamment.
+Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au moment où le poing du géant doré percuta sa cible, le corps du cultivateur trembla et il cracha un flot de sang. L'âme originelle fut violemment ébranlée, perdant toute netteté. Terrifiée, l'âme originelle du cultivateur tenta de se rétracter précipitamment.
 
 Luo Su laissa échapper un reniflement froid, le géant doré rétracta son poing, recula de quelques pas et se tint à nouveau aux côtés de Luo Su.
 
 « Déchet! Avec une telle culture et une telle force mentale, tu n'es absolument pas qualifié pour participer à cette compétition céleste. Tu n'es pas digne de cela! » L'impatience dans les yeux de Luo Su s'intensifia. Il estimait que tester cet individu était une pure perte de temps.
 
-L'âme d'origine du cultivateur réintégra son corps. Il regarda ensuite Luo Su d'un air livide et ouvrit la bouche comme pour protester, mais finit par se taire et s'inclina. C’est avec tristesse qu'il retourna vers le réseau de transfert et disparut en un éclair.
+L'âme originelle du cultivateur réintégra son corps. Il regarda ensuite Luo Su d'un air livide et ouvrit la bouche comme pour protester, mais finit par se taire et s'inclina. C’est avec tristesse qu'il retourna vers le réseau de transfert et disparut en un éclair.
 
 Il y avait désormais un candidat de moins parmi les 325 initiaux.
 
-Luo Su fronça les sourcils, son regard balayant les cultivateurs suspendus dans le ciel, puis il désigna une personne au hasard. Le cultivateur pointé serra les dents et descendit en hâte. Une fois sur la place, il joignit les mains devant Luo Su et dit respectueusement: « Aîné, je vous prie de m'instruire! »
+Luo Su fronça les sourcils, son regard balayant les cultivateurs suspendus dans le ciel, puis il désigna une personne au hasard. Le cultivateur pointé serra les dents et descendit en hâte. Une fois sur la place, il joignit les mains devant Luo Su et dit respectueusement: « Senior, je vous prie de m'instruire! »
 
 L'expression de Luo Su s'adoucit légèrement, mais il ne répondit pas. Le géant doré fit un pas en avant et utilisa le même sort qu'auparavant.
 
 Le cultivateur serra les dents, ses mains formant un sceau tandis qu'une lumière blanche enveloppait son corps pour tenter d'endiguer le géant. Cependant, la lumière blanche s'effondra instantanément face au poing doré. Le cultivateur fut repoussé; il mordit alors l'extrémité de sa langue et cracha du sang pour tenter de bloquer l'impact.
 
-Lorsque le poing du géant frappa ce brouillard de sang, un grondement retentit. La brume se dissipa aussitôt et le visage du cultivateur devint blême. Son âme d'origine était sortie de plus de moitié de son corps, mais alors qu'il poussait un cri d'agonie, un bruit de craquement émana de lui et il parvint à réintégrer son âme en force.
+Lorsque le poing du géant frappa ce brouillard de sang, un grondement retentit. La brume se dissipa aussitôt et le visage du cultivateur devint blême. Son âme originelle était sortie de plus de moitié de son corps, mais alors qu'il poussait un cri d'agonie, un bruit de craquement émana de lui et il parvint à réintégrer son âme en force.
 
 Toutefois, cela dépassait ses limites. Bien que son âme soit revenue dans son corps, il se retrouva totalement affaibli.
 

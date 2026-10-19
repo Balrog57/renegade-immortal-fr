@@ -28,7 +28,7 @@ Un sentiment de vie ou de mort envahit son cœur.
 
 « Que diable est-il donc?! Le sort du cercle de fumée était déjà impressionnant, mais je ne pensais pas qu'il possédait un sort aussi terrifiant! » Il était trop tard pour que Yan Luan réfléchisse. Elle mordit le bout de sa langue et cracha une bouchée de sang. Sa main de jade forma un sceau avant de saisir le sang pour l'écraser sans pitié!
 
-« J'utiliserai mon essence de sang pour invoquer les âmes héroïques des Ancêtres de la Secte de la Grande Âme de tous les âges et briser le vide!! Origine du Fantôme de l'Âme! » La voix de Yan Luan était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
+« J'utiliserai mon essence de sang pour invoquer les âmes héroïques des Ancêtres de la Secte de la Grande Âme de tous les âges et briser le vide!! Retour du Fantôme de l'Âme! » La voix de Yan Luan était aiguë, empreinte d'une force pénétrante. Son cri perça la tempête de feu et atteignit les oreilles de tous les spectateurs.
 
 Lorsque Yan Luan broya le sang, des volutes de brume sanguine s'échappèrent entre ses doigts. Rapidement, cette masse de brouillard se rassembla pour former une route de sang!
 
@@ -36,9 +36,9 @@ Cette voie sanglante s'étendait vers le vide infini et plongeait dans l'inconnu
 
 Au moment où elle posa le pied sur la route de sang, le monde changea de couleur!
 
-« C'est le neuvième Ancêtre. L'Origine du Fantôme de l'Âme de Yan Luan peut invoquer le neuvième Ancêtre! Depuis quand possède-t-elle une volonté aussi puissante? »
+« C'est le neuvième Ancêtre. Le Retour du Fantôme de l'Âme de Yan Luan peut invoquer le neuvième Ancêtre! Depuis quand possède-t-elle une volonté aussi puissante? »
 
-« Le neuvième Ancêtre, Luo Yunhai. Des peintures murales dans la secte dépeignent sa vie de massacre. Il avait emprisonné un milliard d'âmes; c'était la puissance d'une génération! »
+« Le neuvième Ancêtre, Luo Yunhai. Des peintures murales dans la secte dépeignent sa vie de massacre. Il avait emprisonné un milliard d'âmes; c'était un puissant hors pair de son époque! »
 
 « À son apogée, le neuvième Ancêtre avait défié le Grand Empyréen Dao Yi. Il échoua et fut tué par le Grand Empyréen. Cependant, devant son talent exceptionnel, son âme ne fut pas détruite et il fut autorisé à revenir au sein de la secte! »
 
@@ -48,7 +48,7 @@ Il était impossible de distinguer le visage de cette ombre, et même son corps 
 
 Ce pas fit vibrer le monde entier, et une pression d'intention meurtrière se propagea dans toutes les directions. La tempête de feu autour de Yan Luan fut repoussée, comme incapable de supporter cette pression. Même Wang Lin fut stupéfait, ses yeux brillant d'un éclat vif.
 
-« Les sorts du Dao de la Secte de la Grande Âme sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Sort de l'Œil de l'Âme ou cette Origine du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
+« Les sorts du Dao de la Secte de la Grande Âme sont effectivement prodigieux! Le statut d'Ancien est un immense avantage pour moi! Que ce soit le Dao de l'Œil de l'Âme ou ce Retour du Fantôme de l'Âme, ils sont tous puissants. Je dois les apprendre! » Les yeux de Wang Lin s'illuminèrent et il recula de trois pas sous la pression terrifiante. Une aura du Dao Antique jaillit de son corps et une ombre géante apparut derrière lui. Cette silhouette se solidifia rapidement pour paraître extrêmement réelle: elle portait une armure antique et ressemblait trait pour trait à Wang Lin!
 
 Tout en reculant, Wang Lin retira sa main droite et tendit son index!
 
@@ -86,7 +86,7 @@ Dans la partie la plus profonde de la Secte de la Grande Âme, sur le pic le plu
 
 Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
 
-« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte de la Grande Âme vers le Continent du Taureau Céleste et a choisi cette veine principale de terre-feu pour attendre une seule personne! »
+« Une âme capable de déclencher le Taureau Céleste... C'est la personne dont l'Ancêtre a parlé!! Il y a d'innombrables années, l'Ancêtre a déplacé toute la Secte de la Grande Âme vers le Continent du Taureau Céleste et a choisi cette veine principale de feu terrestre comme l'un de ses sommets pour attendre une seule personne! »
 
 « Cette personne peut réveiller le Taureau Céleste... elle vient du monde des grottes... c'est lui!! »
 
@@ -96,7 +96,7 @@ Ses yeux clos s'ouvrirent soudainement, révélant une rare pointe d'excitation.
 
 Au moment où le Taureau Céleste d'aura mortelle apparut, le visage de Yan Luan devint livide. Elle n'avait pas imaginé que ce combat prendrait une telle tournure.
 
-Un rugissement déchira le monde alors que le taureau d'ombre et de mort chargeait Yan Luan, porté par l'océan funeste. Simultanément, l'ombre de sang sur la voie derrière elle leva le pied et fit trois pas!
+Un rugissement déchira le monde alors que le taureau d'aura mortelle chargeait Yan Luan, porté par l'océan funeste. Simultanément, l'ombre de sang sur la voie derrière elle leva le pied et fit trois pas!
 
 À chaque pas, le visage de Yan Luan pâlissait davantage tandis que la pression de l'ombre de sang s'intensifiait pour contrer le Taureau Céleste!
 

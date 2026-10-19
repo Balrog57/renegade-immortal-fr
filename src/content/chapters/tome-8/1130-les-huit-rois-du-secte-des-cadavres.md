@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1130 - Corpse Sects Eight Kings
 slug: les-huit-rois-du-secte-des-cadavres
 ---
-Alors que le rire de Tuo Sen résonnait, le monde entier changea de couleur. La mer de sang infinie commença à s'agiter, libérant des rugissements colériques.
+Alors que les paroles de Tuo Sen résonnaient, le monde entier changea de couleur. La mer de sang infinie commença à s'agiter, libérant des rugissements colériques.
 
 Les cheveux rouges de Tuo Sen flottaient dans les airs tandis qu'il déchirait une nouvelle fois le ciel avec un sourire féroce. La fissure céleste s'ouvrit davantage, devenant plusieurs fois plus large; d'un seul regard, on aurait dit qu'elle traversait l'immensité du firmament.
 
@@ -76,7 +76,7 @@ Un vieil homme aux cheveux violets cria promptement: « Activez la Quatrième Fo
 
 Sans hésiter, les huit s'assirent en tailleur et formèrent un sceau. Ils bougèrent de concert et une énergie glaciale surgit soudainement. Cette froideur croît de manière exponentielle pour former rapidement une masse de glace noire.
 
-Le cristal de glace grandit et s'étira jusqu'à se transformer, en un clin d'œil, en un géant de glace de plus de mille pieds de haut! Dès que le géant prit forme, les huit personnes situées dans son abdomen s'animèrent!
+Le cristal de glace grandit et s'étira jusqu'à se transformer, en un clin d'œil, en un géant de glace de près de mille pieds de haut! Dès que le géant prit forme, les huit personnes situées dans son abdomen s'animèrent!
 
 L'un resta dans l'abdomen, un autre partit dans le bras gauche, un autre dans le bras droit, deux dans les jambes, un dans la poitrine, et les deux derniers rejoignirent la tête pour devenir les yeux du géant!
 

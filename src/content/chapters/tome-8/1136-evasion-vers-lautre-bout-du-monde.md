@@ -44,7 +44,7 @@ Le vieil homme en noir reculait, mais il se retourna tandis que sa main droite p
 
 L'homme mordit le bout de sa langue et cracha du sang sur l'épée brisée. Il la projeta ensuite vers Tuo Sen.
 
-L'épée brisée siffla dans les airs, portée par une intention meurtrière céleste et une énergie d'épée fulgurante. Le pied de Tuo Sen s'arrêta un instant avant de reprendre sa marche, mais au moment où l'arme entra en contact avec lui, Tuo Sen poussa un rugissement de rage et du sang jaillit.
+L'épée brisée siffla dans les airs, portée par une intention meurtrière qui ébranlait le ciel et une énergie d'épée fulgurante. Le pied de Tuo Sen s'arrêta un instant avant de reprendre sa marche, mais au moment où l'arme entra en contact avec lui, Tuo Sen poussa un rugissement de rage et du sang jaillit.
 
 L'épée brisée pénétra inopinément le pied droit de Tuo Sen. Portant une force irrésistible, elle traversa la jambe et chargea vers le visage du colosse.
 
@@ -94,11 +94,11 @@ Elle était trop rapide pour que l'œil ou le sens divin puisse la suivre. Des f
 
 L'expression du vieil homme en noir devint sombre. Même s'il parvenait à entrer dans le vortex, il serait inévitablement blessé par la Lance Tueuse de Dieux. S'il était retardé et que la cinquième étoile se libérait de l'emprise de Maître Wuji, il serait alors condamné à rester piégé ici!
 
-Il n'eut cependant pas le temps de trop réfléchir. Ses mains formèrent un sceau et l'épée brisée réapparut devant lui. Il cracha du sang et d'un geste de la main, lança l'épée brisée contre la Lance Tueuse de Dieux.
+Il n'eut cependant pas le temps de trop réfléchir : il s'engouffra dans le vortex, ses mains formèrent un sceau et l'épée brisée réapparut devant lui. Il cracha du sang et d'un geste de la main, lança l'épée brisée contre la Lance Tueuse de Dieux.
 
 Wang Lin observait silencieusement. Il avait vu la puissance de Tuo Sen; bien qu'il possède les souvenirs de la force de Tu Si, la voir de ses propres yeux était une expérience d'une tout autre dimension.
 
-Il fixa la Lance Tueuse de Dieux qui traversait le vide. Pour d'autres, cette lance aurait pu sembler être la volonté même des cieux, capable de terrasser toute créature, mais pour Wang Lin, ce n'était qu'un trésor!
+Il fixa la Lance Tueuse de Dieux qui traversait le vide. Pour d'autres, cette lance aurait pu sembler être la volonté même des cieux, capable de terrasser toute créature, mais pour Wang Lin, ce n'était qu'un trésor magique!
 
 L'épée brisée percuta immédiatement la Lance Tueuse de Dieux. Bien que sa taille fût dérisoire face à celle de la lance, son aura n'était que légèrement plus faible. Bien qu'il fût impossible de distinguer l'épée à l'œil nu, un grondement sourd retentit et la Lance Tueuse de Dieux marqua un temps d'arrêt.
 
@@ -118,7 +118,7 @@ L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer da
 
 La Lance Tueuse de Dieux percuta directement le vortex, provoquant une onde de choc dévastatrice. Maître Yan Leizi venait à peine de franchir le vortex lorsqu'il fut frappé par cette force. Il cracha du sang et parut instantanément affaibli. Ses deux jambes explosèrent et même son âme originelle devint instable.
 
-Il laissa échapper un sourire misérable, sa haine envers Tuo Sen n'ayant d'égale que celle qu'il vouait à Maître Zhong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Yan Leizi. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
+Il laissa échapper un sourire misérable, sa haine envers Tuo Sen ne venant qu'après celle qu'il vouait à Maître Zhong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Yan Leizi. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
 
 Le vieil homme en noir apparut aux côtés de Maître Yan Leizi, l'attrapa et disparut.
 
@@ -128,11 +128,11 @@ Les trois restants sortirent des cercueils en hâte pour obtenir de nouveaux cor
 
 Ce cycle se répéta. Cette distance de moins de dix mille pieds était pour eux une véritable apocalypse. Ils laissaient derrière eux une traînée de brume sanglante à chaque nouvelle mort.
 
-Les deux derniers rois de la Secte des Cadavres étaient sur le point de perdre la raison. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
+Les deux derniers rois de la Secte des Cadavres étaient sur le point de voir leur âme se disperser. Voyant la force se refermer sur eux, ils sombrèrent dans le désespoir. À cet instant, un vortex noir apparut soudainement près d'eux et deux bras s'étendirent pour les saisir et les aspirer à l'intérieur.
 
 « Seigneur Souverain! » Leurs yeux brillèrent d'extase; ils ne résistèrent pas, se laissant entraîner par ces bras. Au même moment, la force de la Lance Tueuse de Dieux pénétra le vortex. Un gémissement de douleur retentit, mais il semblait qu'ils avaient survécu avant que le vortex ne disparaisse.
 
-Sur la lune située à l'extérieur de la planète Suzaku, dans une montagne très ordinaire, Wang Lin ouvrit les yeux. Après un instant de confusion, il se redressa brusquement et d'un geste de la main, rangea le cadavre féminin. Il détruisit ensuite la formation au sol et disparut en utilisant la Déformation Spatiale.
+Sur la lune située à l'extérieur de la planète Suzaku, dans une montagne très ordinaire, Wang Lin ouvrit les yeux. Après un instant de confusion, il se redressa brusquement et d'un geste de la main, rangea le cadavre féminin vêtu d'argent. Il détruisit ensuite la formation au sol et disparut en utilisant la Déformation Spatiale.
 
 Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtant, Wang Lin ne ralentit pas et continua sa course rapide. Son visage était pâle et sombre. Il n'avait jamais connu la peur auparavant, mais son esprit vacillait. Les paroles de Tuo Sen résonnaient encore en lui:
 
@@ -140,4 +140,4 @@ Lorsqu'il réapparut, il était déjà très loin de la planète Suzaku. Pourtan
 
 « Si j'avais dû affronter Tuo Sen, même si mon corps originel avait traversé les Trois Épreuves et Sept Calamités, même si j'avais le trident en main, je ne survivrais pas à un seul de ses coups... » Wang Lin afficha une expression amère. Il ignorait si Tuo Sen s'était échappé, mais il savait qu'il ne pouvait rester dans le Système Stellaire de l'Alliance. Il devait partir au plus vite et ne jamais... jamais revenir... À moins d'acquérir la puissance nécessaire pour résister à Tuo Sen...
 
-Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et désertique... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure.
+Il disparut une nouvelle fois, le visage marqué par l'amertume, utilisant la Déformation Spatiale pour rejoindre l'endroit où il avait préparé une voie de secours. C'était une planète isolée et désertique... Il y avait installé une formation avant sa rencontre avec l'Empereur Divin du Dragon Azure, à la Secte des Quatre Divinités.

@@ -30,7 +30,7 @@ Chu Yunfei arriva aux côtés du cercueil, lui asséna un coup de paume et tonna
 
 Avant que la main de Chu Yunfei ne puisse frapper, le cinquième ancêtre tendit le bras, saisit le cadavre géant à distance et le jeta vers le centre, là où les membres du clan effectuaient leurs offrandes.
 
-Dans un fracas sourd, l'immense corps s'écrasa au sol, créant une onde de choc qui souleva un épais nuage de poussière. Sous la force de la paume de Chu Yunfei, le cercueil avait été réduit en cendres.
+Dans un fracas sourd, l'immense corps s'écrasa au sol, créant une onde de choc qui souleva un épais nuage de poussière. Sous la force de la paume de Chu Yunfei, le cercueil avait volé en éclats.
 
 Le cinquième ancêtre lança promptement: « Activez l'Arbre de la Réincarnation! » Puis, il chargea vers Chu Yunfei et agita la main. Des nuages noirs surgirent aussitôt pour les envelopper, lui et son adversaire.
 
@@ -46,9 +46,9 @@ La lumière fulgura alors que l'épée volante transperçait la poitrine du cham
 
 Puis, il laissa échapper un rire et essuya sa blessure. Il lécha le sang sur ses doigts avant de charger à nouveau pour affronter l'homme d'âge mûr.
 
-L'éclat doré sur le corps du cadavre du Clan du Démon Géant devint de plus en plus intense.
+L'éclat doré sur le corps du cadavre du Clan des Démons Géants devint de plus en plus intense.
 
-Chu Yunfei, qui affrontait le cinquième ancêtre, fronça les sourcils en reculant et hurla: « Détruisez ce cadavre du Clan du Démon Géant! »
+Chu Yunfei, qui affrontait le cinquième ancêtre, fronça les sourcils en reculant et hurla: « Détruisez ce cadavre du Clan des Démons Géants! »
 
 Les cultivateurs environnants chargèrent tous vers la créature.
 
@@ -66,7 +66,7 @@ Une onde de choc dévastatrice s'en échappa, couvrant l'intégralité de la par
 
 L'expression de Chu Yunfei changea radicalement alors qu'il tentait de reculer précipitamment. Mais frappé par l'onde de choc, un filet de sang s'échappa du coin de sa bouche.
 
-Le cinquième ancêtre ricana en chargeant vers lui. Voyant que la situation était hors de contrôle, Chu Yunfei décida de ne plus lutter et hurla en s'enfuyant: « Repli! »
+Le cinquième ancêtre ricana en chargeant vers lui. Chu Yunfei décida de ne plus lutter et hurla en s'enfuyant: « Repli! »
 
 Les cultivateurs qui combattaient le Clan des Immortels Délaissés poussèrent des soupirs de déception et battirent en retraite.
 

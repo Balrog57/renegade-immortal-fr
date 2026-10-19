@@ -12,11 +12,11 @@ Wang Lin laissa échapper un soupir tandis qu'il s'éloignait de plus en plus de
 
 Il avait amené Li Qianmei ici, et désormais, il partait seul. Wang Lin savait qu'il était très familier avec ce sentiment de solitude, mais il ne pouvait s'empêcher de ressentir une certaine mélancolie.
 
-Après près de 2 000 ans de culture, il avait vu bien des choses en ce monde. Il avait appris à vivre dans la solitude et à dévorer cette errance ainsi que cette mélancolie bleutée.
+Après près de 2 000 ans de culture, il avait vu bien des choses en ce monde. Il avait appris à vivre dans la solitude et à dévorer cette mélancolie bleutée qui l'accompagnait depuis toujours.
 
 « Peu importe… » Wang Lin se retourna et contempla la montagne bleue embrumée. Il aperçut vaguement une silhouette au sommet avant de faire volte-face et de s'enfoncer lentement dans la distance.
 
-Sa silhouette, vue de dos, paraissait quelque peu déchue alors qu'il s'éloignait progressivement.
+Sa silhouette, vue de dos, paraissait quelque peu désolée alors qu'il s'éloignait progressivement.
 
 Le domaine stellaire du Clan de la Soie Bleue était vaste. Wang Lin traversa les étoiles et progressa lentement vers l'horizon.
 
@@ -30,7 +30,7 @@ Wang Lin ressentit un choc en arrivant ici. Cette sensation ne lui était pas in
 
 La dernière fois qu'il l'avait ressentie, c'était juste avant l'arrivée du Shui Daozi!
 
-L'expression de Wang Lin devint sérieuse. C'était la première fois qu'il éprouvait un tel choc depuis qu'il avait obtenu le Système Stellaire Antique. Même lors de l'apparition de Tuo Sen, il n'avait pas ressenti une telle stupeur!
+L'expression de Wang Lin devint sérieuse. C'était la première fois qu'il éprouvait un tel choc depuis son arrivée dans le Système Stellaire Antique. Même lors de l'apparition de Tuo Sen, il n'avait pas ressenti une telle stupeur!
 
 Tout en observant l'espace calme devant lui, Wang Lin ferma lentement les yeux. Son Sens Divin s'étendit vers l'extérieur, mais ne trouva rien. Wang Lin fronça les sourcils et rouvrit les yeux.
 
@@ -60,7 +60,7 @@ La première impression que lui inspira cette femme fut un choc immense. Un sent
 
 « Elle n'est pas humaine! » Pour une raison inconnue, cette pensée surgit brusquement dans l'esprit de Wang Lin!
 
-Après un long silence, Wang Lin recula lentement. Il reculait avec prudence, les yeux mi-clos. Sa main droite était posée négligemment sur le côté, prête à saisir son épée de sang.
+Après un long silence, Wang Lin recula lentement. Il reculait avec prudence, les yeux mi-clos. Sa main droite pendait négligemment sur le côté, une lueur de sang y affleurant.
 
 La femme ne bougea pas d'un pouce et se contenta de contempler silencieusement Wang Lin jusqu'à ce qu'il disparaisse au loin.
 
@@ -94,7 +94,7 @@ Même lorsqu'il avait escorté Li Qianmei vers le Clan de la Soie Bleue, cette s
 
 À cet instant, il se calma et revint sur les derniers jours. Sous son observation attentive, il finit par remarquer quelque chose!
 
-« Cette personne m'a suivi pendant de nombreux jours avant que j'entre dans le Clan de la Soie Bleue, puis elle a cessé de me suivre! » L'expression de Wang Lin devint sombre. Il avait cultivé longtemps, et une telle situation était rare. Quelqu'un l'avait suivi tout ce chemin sans qu'il ne s'en aperçoive!
+« Cette personne m'a suivi pendant de nombreux jours jusqu'à ce que j'entre dans le Clan de la Soie Bleue, puis elle a cessé de me suivre! » L'expression de Wang Lin devint sombre. Il avait cultivé longtemps, et une telle situation était rare. Quelqu'un l'avait suivi tout ce chemin sans qu'il ne s'en aperçoive!
 
 « Ce n'est pas normal! » La suspicion se lut sur son visage alors qu'un souvenir lui revenait.
 

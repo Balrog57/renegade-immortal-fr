@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1031 - Wither Tattoo
 slug: tatou-fletri
 ---
-Alors que les vagues déferlaient au-dessus de l'océan bleu, des couches d'écume fusionnaient pour former une lame d'eau titanesque. De loin, elle ressemblait à une ligne azur qui progressait lentement vers Wang Lin.
+Alors que les vagues déferlaient au-dessus de l'océan bleu, des couches d'écume fusionnaient pour former un mur d'eau titanesque. De loin, elle ressemblait à une ligne azur qui progressait lentement vers Wang Lin.
 
 Avant même qu'elle ne l'atteigne, le grondement sourd de la vague pouvait être entendu. Le bruit était si puissant qu'il faisait bourdonner les oreilles et donnait le sentiment d'être infiniment petit.
 
@@ -16,7 +16,7 @@ Le regard de Wang Lin devint grave tandis qu'il fixait la vague devant lui. Ses 
 
 « Le choc provoqué par l'effondrement du Bassin Funéraire Céleste a blessé mon corps et a même ébranlé mon âme originelle. Pour l'instant, je dois me guérir rapidement. Puisque cette mer étrange fait partie de la restriction, il doit y avoir une succession inépuisable de pièges... »
 
-À mesure que la vague approchait, une vapeur d'eau dense emplissait l'espace. De loin, on aurait dit qu'un brouillard se dressait devant la lame d'eau avant d'être balayé par elle.
+À mesure que la vague approchait, une vapeur d'eau dense emplissait l'espace. De loin, on aurait dit qu'un brouillard se dressait devant le mur d'eau avant d'être balayé par elle.
 
 La vague rugit et continua de s'élever à mesure qu'elle progressait. Elle monta de plus en plus haut dans les airs, puis s'abattit impitoyablement sur Wang Lin.
 
@@ -48,9 +48,9 @@ Le regard de Wang Lin s'éclaira tandis qu'il contemplait les environs avec admi
 
 « Les restrictions se concentrent généralement sur le piégeage et l'attaque; très peu visent uniquement à emprisonner. Il s'agit de la Grotte de l'Empereur Céleste et, d'après les paroles de l'Ancêtre Sainte du Clan du Tatouage, Qiu Yao, Qing Lin est un être impitoyable. Il est impossible que les restrictions ici ne servent qu'à piéger quelqu'un. » Tout en réfléchissant, il ne put s'empêcher de jeter un œil à son sac de rangement. Avant d'entrer, il avait clairement vu l'avatar de Qing Lin pénétrer dans le cristal jaune de son sac.
 
-« D'après l'expression de Qiu Yao, ce qu'elle a dit ne semble pas être faux. Cependant, après mille ans de culture, je ne prendrai jamais les paroles d'autrui pour argent comptant. Comme le noir et le blanc: vus séparément, ils sont distincts, mais si on les mélange, le gris apparaît! » Pour Wang Lin, à moins de voir par lui-même ou de découvrir la vérité par sa propre analyse, il pouvait écouter les autres sans jamais les croire totalement.
+« D'après l'expression de Qiu Yao, ce qu'elle a dit ne semble pas être faux. Cependant, après plus de mille ans de culture, je ne prendrai jamais les paroles d'autrui pour argent comptant. Comme le noir et le blanc: vus séparément, ils sont distincts, mais si on les mélange, le gris apparaît! » Pour Wang Lin, à moins de voir par lui-même ou de découvrir la vérité par sa propre analyse, il pouvait écouter les autres sans jamais les croire totalement.
 
-C'était l'expérience qu'il avait acquise au fil de mille ans de culture. S'il avait été un mortel ou s'il venait d'intégrer la Secte Heng Yue, il l'aurait cru sans réserve.
+C'était l'expérience qu'il avait acquise au fil de plus de mille ans de culture. S'il avait été un mortel ou s'il venait d'intégrer la Secte Heng Yue, il l'aurait cru sans réserve.
 
 « Que ce soit vrai ou faux, peu importe. Au moins, j'ai pu cerner une partie de la personnalité de Qing Lin. Il ne faut surtout pas que les restrictions d'ici soient de nouveau déclenchées! » Les yeux de Wang Lin brillèrent tandis qu'il manipulait avec précaution la bulle pour descendre plus profondément.
 
@@ -82,7 +82,7 @@ Wang Lin leva sa main droite et, par la pensée, fit sortir une sphère de gaz v
 
 Cette sphère n'était pas statique; elle était en mouvement perpétuel. Après réflexion, Wang Lin y injecta une parcelle de son Sens Divin pour l'explorer directement.
 
-L'expression de Wang Lin changea et il fronça progressivement les sourcils. En observant le gaz vert, il oscillait entre la surprise agréable et la confusion.
+L'expression de Wang Lin changea et il fronça progressivement les sourcils. En observant le gaz vert, il oscillait entre la surprise agréable, la réflexion et la confusion.
 
 Après un long moment, Wang Lin serra le poing et la sphère se dissipa.
 
@@ -102,7 +102,7 @@ Un instant plus tard, le talisman s'agita soudainement et un tourbillon noir app
 
 La silhouette vague d'un grand oiseau se dessina au sein du tourbillon. Cet oiseau était d'un noir absolu, ses yeux semblables à des éclairs. Il traversa le tourbillon une fois et disparut avec lui.
 
-« C'est un Tatou Flétri de type évasion, déjà activé par le Clan du Tatouage! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume de la Massacre.
+« C'est un Tatou Flétri de type évasion, déjà activé par le Clan du Tatouage! » Les yeux de Wang Lin se plissèrent et il frappa son sac de rangement. Une grande épée en jaillit. C'était l'une des quatre-vingt-dix-neuf épées qu'il avait obtenues du Royaume de la Boucherie.
 
 Bien qu'il en eût fait exploser plus d'une dizaine, Wang Lin en possédait encore une grande quantité.
 

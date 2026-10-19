@@ -50,7 +50,7 @@ Tandis que les montagnes s'effondraient, Wang Lin sortit lentement de la brume. 
 
 « Rien de tout ceci ne provient de votre propre force. C'est simplement l'esprit de Qing Lin qui coopère avec vous et lui qui vous transmet un héritage vous permettant d'atteindre ce niveau de culture temporaire! Si nous étions à l'extérieur et non dans cette mer de conscience, ce démon pourrait vous tuer aussi facilement qu'il écrase une fourmi! »
 
-« Je refuse de céder! Je ne veux pas abandonner! Ah! » Ta Jia poussa un rugissement, sentant un froid glacial envahir son cœur. Il n'aurait jamais imaginé que le plan de Qing Lin ne consistait pas à trouver un puissant protecteur, mais à absorber son sauveteur dans sa propre mer de conscience!
+« Je refuse de céder! Je ne veux pas abandonner! Ah! » Ta Jia poussa un rugissement, sentant un froid glacial envahir son cœur. Il n'aurait jamais imaginé que le plan de Qing Lin ne consistait pas à trouver un puissant adversaire pour anéantir sa propre âme démoniaque, mais à absorber son sauveteur dans sa propre mer de conscience!
 
 Bien que la majeure partie de la mer de conscience de Qing Lin ait été occupée par l'ancien démon, elle lui appartenait toujours. Il pouvait y provoquer tous les changements qu'il désirait, mais en raison de l'invasion démoniaque, aucune de ces altérations ne pouvait attaquer l'envahisseur.
 
@@ -74,7 +74,7 @@ Tous leurs regards convergeaient vers Wang Lin. Cette scène était si étrange 
 
 Les yeux de Wang Lin, eux, restaient d'une clarté cristalline.
 
-« Tu as commencé ta culture à l'âge de 15 ans et tu as cultivé pendant plus de mille ans... Mais ton destin est funeste: marcher sur la voie du Dao signifiait fatalement détruire tes proches. Ton père et ta mère sont morts et ta famille a presque été anéantie. Bien que quelques-uns aient survécu, ils sont la proie d'une calamité constante! » Alors que ce son résonnait dans le ciel, les yeux ne furent plus confus, mais empreints d'une douleur déchirante.
+« Tu as commencé ta culture à l'âge de 15 ans et tu as cultivé pendant plus de mille ans... Mais ton destin est funeste: marcher sur la voie du Dao signifiait fatalement détruire tes proches. Ton père et ta mère sont morts et ta famille a presque été anéantie. Bien que quelques-uns aient survécu, ils ne sont qu'une goutte dans l'océan et sont la proie d'une calamité constante! » Alors que ce son résonnait dans le ciel, les yeux ne furent plus confus, mais empreints d'une douleur déchirante.
 
 Le corps de Wang Lin trembla légèrement, mais son regard resta limpide.
 

@@ -22,7 +22,7 @@ Et cette fois, ce serait une ouverture complète, telle qu'on n'en avait jamais 
 
 Dao Yi, Wu Feng et les Grands Empyréens du clan Ancien, y compris Xuan Luo, étaient tous venus. Ils contemplèrent silencieusement la porte depuis l'extérieur de la tempête avant de repartir dans le silence.
 
-Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer pour la bataille qui éclaterait dans ce délai.
+Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans royaux et à leurs Grands Empyréens. Le message était d'une simplicité glaciale: il ordonnait de cesser d'observer le Royaume Divin Immémorial, car celui-ci s'ouvrirait dans cinq cents ans. Il enjoignait également les trois clans et leurs Grands Empyréens respectifs à se préparer à la guerre pendant ce délai.
 
 Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction de l'Ancien Dao qui prônait la traque de Wang Lin par le Grand Empyréen Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
 
@@ -32,7 +32,7 @@ L'apparition du Royaume Divin Immémorial avait suscité une tempête sur le Con
 
 Qu'ils soient membres du clan Ancien ou du clan Céleste, tous ceux qui se croyaient dignes d'entrer dans le Royaume Divin Immémorial ressentaient une pression écrasante. Ils pressentaient vaguement qu'au moment de l'ouverture du royaume, un événement grandiose se produirait.
 
-Mais cette affaire risquait de déclencher une guerre entre le clan Céleste et le clan Ancien après si longtemps de paix!
+Mais cette affaire risquait de déclencher une guerre entre le clan Céleste et le clan Ancien, dont on ignorait la durée, après si longtemps de paix!
 
 Le clan Ancien se préparait... Le clan Céleste en faisait autant!
 
@@ -110,10 +110,10 @@ Lorsque le soleil couchant devint une lueur rouge et diffuse, Song Zhi releva la
 
 « Tu ne mourras pas. » Wang Lin regarda calmement la femme. Tout en parlant, il pointa du doigt l'espace entre ses sourcils. La vision de Song Zhi se troubla et elle s'affaissa comme si elle sombrait dans le sommeil.
 
-Une demi-heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
+Une heure plus tard, elle se réveilla, les yeux empreints de confusion. Elle observa silencieusement les alentours en fronçant les sourcils et, après un long moment, sembla se souvenir de quelque chose.
 
 À cet instant, le soleil était presque couché, sur le point de disparaître. Song Zhi se leva et toucha son cou, où elle trouva un pendentif en jade dégageant une douce chaleur.
 
 Elle sentait que le fragment d'âme de Wan Er avait disparu. Elle était toujours Song Zhi et n'avait subi aucune blessure. Pourtant, son cœur se serra d'une pointe de mélancolie et son regard se fit complexe. Elle regarda longuement les alentours déserts, puis se retourna et marcha vers Ville de la Pierre Noire, qui n'était plus très loin.
 
-C'était sa maison.
+C'était sa ville natale.

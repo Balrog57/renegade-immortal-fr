@@ -20,7 +20,7 @@ Venant d'arriver sur cette planète, il ne pouvait simplement décliner l'hospit
 
 Xu Yunshan rit et entretint la conversation tout au long du trajet. Après avoir exposé à Wang Lin la situation de la planète, il lui trouva un lieu de séjour des plus beaux et des plus paisibles.
 
-Après avoir convenu de l'heure de leur prochaine rencontre, Xu Yunshan prit congé.
+Après avoir convenu de se revoir le lendemain, Xu Yunshan prit congé.
 
 L'environnement était empreint d'une grâce et d'un calme absolus. Wang Lin pénétra dans la pièce, ouvrit la fenêtre et contempla le paysage. Des fleurs délicates couvraient les environs, chacune s'efforçant de fleurir avec éclat.
 
@@ -32,7 +32,7 @@ Tout en contemplant la beauté du jardin, Wang Lin se mit à réfléchir.
 
 « L'Art du Massacre Céleste... J'ai pu l'étudier un peu durant le voyage. C'est une technique véritablement exquise. Utiliser des sceaux de force vitale pour protéger son corps peut effectivement créer une défense redoutable. »
 
-« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, il ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se dispute son appartenance. »
+« La perle défiant le ciel manque encore de l'élément métal pour être complète. L'obtention de cet élément est une autre affaire que je dois résoudre au plus vite. Situ Nan pense que la perle ne reconnaîtra un maître qu'une fois les cinq éléments réunis. À ce moment-là, pourra-t-elle enfin manifester sa véritable puissance? Cependant, il ignore quelle nature de pouvoir la perle possède pour que l'Alliance de Culture se la soit disputée autrefois. »
 
 « Je me demande comment vont les choses sur la planète Suzaku... » Wang Lin leva la tête vers le vide. Son regard sembla parcourir une distance incommensurable pour se poser, au loin, sur la planète Suzaku.
 
@@ -116,7 +116,7 @@ Wang Lin avait passé ce mois et demi à étudier l'Art du Massacre Céleste. Ce
 
 Cependant, cette pratique était extrêmement difficile à cultiver.
 
-Après un mois et demi, Wang Lin n'ayant toujours pas saisi l'essence de l'art, il décida finalement d'abandonner pour le moment. À la place, il choisit de contempler les cieux afin de continuer à affiner ses sorts actuels.
+Après un mois et demi, Wang Lin n'ayant toujours pas saisi l'essence de l'art, il décida finalement d'abandonner pour le moment. À la place, il choisit de se consacrer à la compréhension du Dao céleste afin de continuer à affiner ses sorts actuels.
 
 C'est durant cette période qu'il subit un contrecoup de son chariot de guerre!
 

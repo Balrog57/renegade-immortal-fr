@@ -12,11 +12,11 @@ Le corps sphérique de la boule de viande était illusoire; dès son apparition,
 
 Alors qu'il allait percuter sa cible, Wang Lin était toujours assis dans la chambre secrète, sa main droite levée. Dans sa paume reposait une petite silhouette qui cultivait elle aussi.
 
-Wang Lin ouvrit soudain les yeux. Après cent ans, il n'était plus le même homme. Son expression était d'un calme absolu et, à l'instant précis où il ouvrit les paupières, la petite personne dans sa paume fit de même. Ses yeux brillaient d'intelligence et d'une lueur de divination.
+Wang Lin ouvrit soudain les yeux. Après plus d'un siècle de retraite, il n'était plus le même homme. Son expression était d'un calme absolu et, à l'instant précis où il ouvrit les paupières, la petite personne dans sa paume fit de même. Ses yeux brillaient d'intelligence et d'une lueur de divination.
 
 Dans la paume de Wang Lin, la petite silhouette s'agenouilla et effectua des prosternations. Après neuf révérences, Wang Lin referma sa main droite et la petite personne disparut sans laisser de trace.
 
-« Le Dao de l'Œil de l'Âme est véritablement mystérieux! » murmura Wang Lin en levant les yeux, un sourire narquois aux lèvres.
+« Le Dao de la Déduction de l'Âme est véritablement mystérieux! » murmura Wang Lin en levant les yeux, un sourire narquois aux lèvres.
 
 « Il y a vingt ans, j'ai utilisé ce sort pour diviner une chance de fusionner complètement mon véritable corps d'essence de tonnerre de massacre. Après d'innombrables tentatives, j'ai découvert qu'il me fallait l'âme d'une bête féroce!
 
@@ -28,11 +28,11 @@ Même le véritable corps des cinq éléments se figea.
 
 Le Luo Hou, qui rugissait et s'était précipité, s'arrêta net, son cri s'éteignant brusquement. Il semblait pétrifié sur place; bien que son regard fût toujours féroce, cette férocité même paraissait figée dans le temps.
 
-Sort de l'immobilisation!
+Sort de l'immobilisation d'un seul mot!
 
-Utilisé avec le niveau de culture actuel de Wang Lin, ce sort exerçait une puissance phénoménale. Une fois le Luo Hou stoppé, l'alternance du jour et de la nuit reprit son cours, le véritable corps d'essence des restrictions et celui des cinq éléments retrouvèrent leur activité.
+Utilisé avec le niveau de culture actuel de Wang Lin, ce sort exerçait une puissance phénoménale. Une fois le Luo Hou stoppé, l'alternance du jour et de la nuit reprit son cours, les restrictions retrouvèrent leur activité, de même que le véritable corps des cinq éléments.
 
-Immédiatement après, les innombrables restrictions se précipitèrent vers le Luo Hou immobile pour pénétrer dans son corps illusoire. Une lumière infinie jaillit et, après avoir absorbé toutes les restrictions, la créature rétrécit légèrement.
+Immédiatement après, les innombrables restrictions se précipitèrent vers le Luo Hou immobile pour pénétrer dans son corps illusoire. Une lueur blafarde jaillit et, après avoir absorbé toutes les restrictions, la créature rétrécit de près de moitié.
 
 La férocité se dissipa pour laisser place à une silhouette illusoire. Cette forme était floue, mais elle se condensa rapidement pour prendre l'apparence de Wang Lin!
 
@@ -46,13 +46,13 @@ L'ombre brillait d'un éclat solaire et sourit lors de sa formation. Elle sortit
 
 Ce corps était le véritable corps d'essence du commencement absolu que Wang Lin avait condensé au cours des cent dernières années, en combinant son sort de Temps Fluide à la capacité du clan Dao Wang de créer leur propre monde. Son but était de recréer d'innombrables cycles de jour et de nuit!
 
-Peu après, l'essence de la fin absolue, représentant la nuit noire, s'élança vers l'œil. Le corps du Luo Hou ne fut plus que la moitié de sa taille initiale lorsque le troisième véritable corps d'essence en sortit!
+Peu après, l'essence de la fin absolue, représentant la nuit noire, s'élança vers l'œil. Le corps du Luo Hou ne fut plus que la moitié de sa taille initiale lorsque son œil se couvrit de veines rouges et que le troisième véritable corps d'essence en sortit!
 
 Le véritable corps d'essence de la fin absolue!!
 
 Durant les cent dernières années, Wang Lin avait utilisé le Temps Fluide et les sorts du clan Dao Wang pour renforcer ses essences de commencement et de fin absolues jusqu'à ce qu'elles forment des véritables corps d'essence. Cependant, ne pouvant les intégrer pleinement, il avait décidé par divination d'emprunter la puissance du Luo Hou pour tenter l'expérience.
 
-Les cinq véritables corps d'essence absorbèrent tous l'âme de la bête féroce. Ils utilisaient l'attraction mutuelle de cette âme pour tenter de fusionner entre eux!
+Les cinq véritables corps d'essence absorbèrent tous l'âme de la bête féroce. Ils utilisaient l'attraction mutuelle de cette âme et son instinct de se reconstituer pour tenter de fusionner entre eux!
 
 Dans la chambre secrète, après l'apparition des véritables corps d'essence de restriction, du commencement absolu et de la fin absolue, un étrange éclair parcourut le corps de Wang Lin. Une autre ombre superposée apparut alors que son véritable corps d'essence de tonnerre de massacre s'élançait depuis la chambre secrète vers le ciel.
 
@@ -62,7 +62,7 @@ En s'élevant, le véritable corps de tonnerre de massacre propagea un tonnerre 
 
 Que les cinq véritables corps puissent fusionner en un seul dépendra de ceci! » L'expression de Wang Lin était grave; ses mains formèrent des sceaux tandis que son puissant Sens Divin enveloppait le monde.
 
-Le corps de tonnerre fonça vers le Luo Hou scellé et pénétra en lui. Le corps du Luo Hou trembla violemment et rétrécit rapidement jusqu'à disparaître, ne laissant derrière lui qu'un œil gigantesque.
+Le corps de tonnerre fonça vers le Luo Hou immobilisé et pénétra en lui. Le corps du Luo Hou trembla violemment et rétrécit rapidement jusqu'à disparaître, ne laissant derrière lui qu'un œil gigantesque.
 
 L'œil était terne et, de loin, il ressemblait à un œuf!
 
@@ -88,9 +88,9 @@ Peu après, les yeux du véritable corps d'essence de restriction brillèrent et
 
 Au même moment, les véritables corps d'essence du commencement absolu et de la fin absolue sortirent silencieusement. Ils se transformèrent en deux rayons de lumière, l'un noir et l'autre blanc, et fusionnèrent avec lui.
 
-« Je m'appelle Massacre!!! » Les grognements du Wang Lin aux cheveux noirs devinrent un rugissement puissant. Quatre ombres superposées apparurent, comme s'il allait être expulsé par la force de ses propres corps véritables.
+« Je m'appelle Massacre!!! » Les grognements du Wang Lin aux cheveux noirs devinrent un rugissement puissant. Quatre ombres superposées apparurent, comme s'il cherchait à expulser ses propres corps véritables.
 
-« Personne ne peut me contrôler, je suis le massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques centimètres hors de son corps. La scène était d'un grand mystère!
+« Personne ne peut me contrôler, je suis Massacre! » Alors qu'il rugissait, les ombres superposées furent repoussées de quelques centimètres hors de son corps. La scène était d'un grand mystère!
 
 Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna et, simultanément, le véritable corps des cinq éléments apparut dans le ciel. Celui-ci rétrécit et agita la main: une immense paume d'énergie des cinq éléments s'abattit sur lui.
 
@@ -98,7 +98,7 @@ Un second ricanement glacial retentit. Le Wang Lin aux cheveux noirs frissonna e
 
 À ce moment précis, l'ombre d'un Luo Hou apparut derrière le Wang Lin aux cheveux noirs. Cette ombre était fragmentée, mais d'innombrables fils noirs surgirent pour lier les morceaux entre eux. Les ombres superposées autour de lui cessèrent de s'étendre et fusionnèrent toutes ensemble.
 
-« Parce que tu es mon second véritable corps, tu es Massacre! Désormais, tu me remplaceras dans la traque de mes ennemis! Tu répandras mon intention destructrice et tu abattras ceux qui chercheront à me nuire!
+« Parce que tu es mon second véritable corps, tu es Massacre! Désormais, tu me remplaceras pour châtier tous mes ennemis! Tu répandras mon intention destructrice et tu abattras ceux qui chercheront à me nuire!
 
 Ton nom est Massacre, et ton nom Dao est Punition! »
 
@@ -110,4 +110,4 @@ La pression se dissipa et le monde retrouva son calme. Le Wang Lin aux cheveux n
 
 En levant la tête, son regard froid perça l'horizon, semblant capable de franchir des distances infinies. Son regard tomba directement sur la pointe de la corne de la Montagne de l'Origine, sur un Song Tian pétrifié!
 
-« Ce n'est pas bon! » Le corps de Song Tian trembla et il eut un haut-le-cœur. Il se leva par instinct, le visage décomposé, attrapa Chi Man et s'envola dans les airs juste avant que la corne sur laquelle il siégeait ne s'effondre.
+« Ce n'est pas bon! » Song Tian trembla et eut le souffle coupé. Il se leva par instinct, le visage décomposé, attrapa Chi Man et s'envola dans les airs juste avant que la corne sur laquelle il siégeait ne s'effondre.

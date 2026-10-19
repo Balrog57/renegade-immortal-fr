@@ -30,7 +30,7 @@ Il avançait avec une extrême lenteur. Un pas, deux pas, trois pas! À la marqu
 
 À chaque pas supplémentaire, la pression augmentait. Ainsi, plus il avançait, plus la tâche devenait ardue. Pour un cultivateur ordinaire, le corps n'aurait pu supporter une telle charge et il se serait inévitablement effondré.
 
-Cependant, Wang Lin possédait le corps d'un dieu ancien; cela n'était rien pour lui. Pourtant, à cet instant, son visage devint extrêmement pâle et il s'immobilisa au troisième pas. Après un moment, il leva de nouveau les pieds.
+Cependant, Wang Lin possédait le corps d'un Dieu Ancien; cela n'était rien pour lui. Pourtant, à cet instant, son visage devint extrêmement pâle et il s'immobilisa au troisième pas. Après un moment, il leva de nouveau les pieds.
 
 Quatre pas, cinq pas, six pas!
 
@@ -82,7 +82,7 @@ Maître Pin Cendré saisit Wang Lin et s'engouffra directement dans le tunnel qu
 
 Ils progressèrent longtemps à travers le tunnel. Ce n'est que lorsqu'ils n'entendirent plus les rugissements des bêtes qu'ils s'arrêtèrent enfin.
 
-Maître Pin Cendré reposa Wang Lin avec un air de regret et joignit les mains. « Le frère Lu a été prêt à se blesser gravement pour ouvrir la formation. Ce vieil homme s'en souviendra! »
+Maître Pin Cendré reposa Wang Lin avec émotion et joignit les mains. « Le frère Lu a été prêt à se blesser gravement pour ouvrir la formation. Ce vieil homme s'en souviendra! »
 
 Le visage de Wang Lin était livide et une trace de sang maculait le coin de ses lèvres. Il fit un geste de la main avec un sourire amer. « Cette formation était très étrange. Après mon sixième pas, une force est apparue derrière moi; je n'avais d'autre choix que d'avancer... »
 
@@ -102,7 +102,7 @@ Le groupe reprit sa marche dans le tunnel. L'endroit était très calme, seul le
 
 La lumière marquait la sortie du tunnel. En découvrant l'extérieur, Maître Pin Cendré éclata de rire.
 
-Une vaste vallée s'étendait devant eux, luxuriante de végétation, d'où émanait un parfum floral apaisant. Derrière la vallée se dressait une chaîne de montagnes semblable à une muraille de cité. Ces sommets immenses isolaient le monde extérieur.
+Une vaste vallée s'étendait devant eux, luxuriante de végétation, d'où émanait un parfum floral apaisant. Derrière la vallée se dressait une chaîne de montagnes semblable à une muraille de cité. Ces sommets immenses, disposés en anneau, isolaient le monde extérieur.
 
 « Une fois ce massif franchi, nous entrerons dans la partie intérieure de ce royaume! La grotte de Sima Mo ne se trouve pas dans les montagnes, mais dans une vallée située juste avant. » Maître Pin Cendré rit en s'élançant avec rapidité. La femme en vert le suivit et les deux s'envolèrent.
 
@@ -110,7 +110,7 @@ Le visage de Wang Lin était pâle et la lumière aux sept couleurs paraissait d
 
 Bientôt, sous la direction de Maître Pin Cendré, les quatre arrivèrent dans une vallée. Dès leur entrée, ils aperçurent une grotte devant eux.
 
-La paroi de cette demeure était recouverte d'herbe, signe qu'elle n'avait pas été habitée depuis longtemps. Elle n'était pas très vaste et ne comptait que trois pièces. Le sol était jonché de pilules éparpillées; la plupart s'étaient fossilisées et tomberaient en poussière au moindre contact.
+La paroi de cette demeure était recouverte d'herbe, signe qu'elle n'avait pas été habitée depuis longtemps. Elle n'était pas très vaste et ne comptait que trois pièces. Le sol était jonché de pilules éparpillées; la plupart s'étaient altérées avec le temps et tomberaient en poussière au moindre contact.
 
 L'esprit de Maître Pin Cendré n'était manifestement pas tourné vers la grotte. Il regarda la femme en vert et déclara: « Je ne prendrai rien ici. Tout appartient aux camarades cultivateurs Zhao et Lu. »
 

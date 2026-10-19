@@ -20,7 +20,7 @@ Wang Lin continuait de reculer tandis que des bruits de chocs résonnaient à se
 
 Cependant, malgré tous ses efforts, aucune modification n'était apparue sur les marques du soleil et de la lune de la perle défiant le ciel.
 
-« Peu importe à quel point les capacités de l'Omniscient semblent divines, il ne peut pas prévoir que je possède la perle défiant le ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
+« Quelles que soient les intentions de l'Omniscient, il ne peut pas prévoir que je possède la perle défiant le ciel! Et encore moins que je puisse l'utiliser pour absorber cet Yang extrême! »
 
 « Par conséquent, ses calculs seront erronés et je pourrai briser son stratagème! » Les yeux de Wang Lin étaient froids alors qu'il fixait l'Omniscient à la Robe Grise. Plus il y réfléchissait, plus cela semblait réalisable.
 
@@ -56,7 +56,7 @@ Dès qu'il pointa le doigt, le ciel entier devint noir, comme si un géant y ava
 
 « Puisque tu es devenu un saint par les épées, alors je te combattrai avec une épée! Massacre, transforme-toi en lame! » La voix de l'Omniscient à la Robe Grise était monocorde, mais au moment où son doigt se posa, d'innombrables filaments d'énergie de massacre convergèrent vers lui avec frénésie.
 
-Chaque filament d'énergie de massacre représentait une vie. Les millions de parcelles de massacre se rassemblèrent, et cette scène fit suffoquer Wang Lin.
+Chaque filament d'énergie de massacre représentait une vie. Les millions de parcelles de massacre se rassemblèrent comme une myriade de serpents parcourant le ciel et la terre, et cette scène fit suffoquer Wang Lin.
 
 Les brins d'énergie de massacre qui l'entouraient abandonnèrent leur poursuite pour reculer. Ils se regroupèrent là où l'Omniscient pointait son doigt.
 
@@ -84,7 +84,7 @@ La voix de Ling Tianhou émanait de la lumière noire sur un ton extrêmement é
 
 Au moment où ses paupières se refermèrent, son corps trembla et une ombre s'envola de son front. Cette ombre était une épée!
 
-Une épée formée par l'âme originelle de Ling Tianhou, qu'il avait affinée durant toute sa vie!
+Une épée formée par l'âme originelle de Ling Tianhou, qu'il avait affinée pendant des dizaines de milliers d'années!
 
 Dès l'apparition de cette arme, des hymnes d'épées dignes de vénération résonnèrent sur toute la planète Tian Yun!
 

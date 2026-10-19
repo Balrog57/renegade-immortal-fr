@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1370 - I Was Wrong About Him
 slug: je-me-suis-trompe-a-son-sujet
 ---
-Peu après le départ de Wang Lin, sur la planète de culture du clan Zhenyan, les éclairs parcouraient les cent mille montagnes en crépitant, et les rugissements des dizaines de milliers de cultivateurs scellés là devinrent de plus en plus faibles. Il semblait que tout avait été totalement scellé, jusqu'à ne plus laisser échapper aucun son.
+Peu après le départ de Wang Lin, sur la planète de culture du Clan Zhen Yan, les éclairs parcouraient les cent mille montagnes en crépitant, et les rugissements des dizaines de milliers de cultivateurs scellés là devinrent de plus en plus faibles. Il semblait que tout avait été totalement scellé, jusqu'à ne plus laisser échapper aucun son.
 
 Le tatouage de tonnerre imprimé sur les montagnes émettait une lueur spectrale imprégnée d'une subtile puissance céleste.
 
@@ -20,7 +20,7 @@ Il n'était pas pressé auparavant. Il avait progressé lentement et ne se souci
 
 Après avoir détourné le regard, Maître Simo observa la montagne en contrebas et ses pupilles se contractèrent à nouveau. Il prit une profonde inspiration et fixa le tatouage de tonnerre gravé dans la roche. Son expression devint plus grave encore.
 
-« C'est un cultivateur du tonnerre! Il tente d'atteindre le troisième pas en tant que cultivateur du tonnerre! Ceci... ceci est... À travers les âges, les cultivateurs du tonnerre ont toujours eu le plus grand mal à atteindre le troisième pas. Le tonnerre est une puissance céleste, et même au sein du Clan du Tonnerre Dispersé, une seule personne a jamais atteint le troisième pas. Il s'est également arrêté au début du stade Nirvana Vide, mais s'il devenait fou et invoquait le tonnerre céleste, même des cultivateurs du milieu du stade Nirvana Vide auraient bien du mal à l'affronter! »
+« C'est un cultivateur du tonnerre! Il tente d'atteindre le troisième pas en tant que cultivateur du tonnerre! Ceci... ceci est... À travers les âges, les cultivateurs du tonnerre ont toujours eu le plus grand mal à atteindre le troisième pas. Le tonnerre est une puissance céleste, et même au sein du Clan du Tonnerre Dispersé, une seule personne a jamais atteint le troisième pas. Il s'est également arrêté au début du stade Vide du Nirvana, mais s'il devenait fou et invoquait le tonnerre céleste, même des cultivateurs du milieu du stade Vide du Nirvana auraient bien du mal à l'affronter! »
 
 « Pas étonnant qu'il ait voulu détruire le Clan du Tonnerre Dispersé. Son but devait être l'Éclair Éternel du clan. Après avoir dévoré l'Éclair Éternel, il a déclenché l'apparition de la Porte du Vide! » L'expression de Maître Simo était sombre alors qu'il devinait grossièrement ce qui s'était produit.
 
@@ -90,6 +90,6 @@ Bien que cet endroit ne fût pas totalement sûr, il en allait de même pour les
 
 La Terre Déchue n'acceptait que les pilules et les trésors, plus ils étaient insolites, mieux c'était. Même de grandes quantités de cristaux d'origine s'y échangeaient. Wang Lin avait troqué quelques pilules contre cent ans de résidence dans cette grotte.
 
-Wang Lin cultivait ici depuis plusieurs jours et consommait des pilules pour favoriser la guérison de ses blessures. Quant à ses lésions physiques, grâce à la robustesse de son corps de Dieu Ancien, il était presque rétabli.
+Wang Lin cultivait ici depuis plusieurs jours et consommait des pilules pour favoriser la guérison de ses blessures. Quant à ses lésions physiques, grâce à la robustesse de son corps de Dieu Ancien, il était entièrement rétabli.
 
 Ce jour-là, alors que ses yeux étaient clos, son expression changea et il les ouvrit lentement. Une silhouette apparut à l'entrée de la grotte et s'y engouffra rapidement.

@@ -44,13 +44,13 @@ Sans marquer de pause, Wang Lin pointa à nouveau. Un fracas de tonnerre résonn
 
 Après avoir perdu ses deux bras, Dao Feishan poussa un rugissement de douleur. Il était impuissant face à Wang Lin, et les autres cultivateurs du Royaume Extérieur, encore sous le choc de la flèche précédente, n'osaient pas intervenir pour le sauver.
 
-Et même s'ils l'avaient voulu, ils n'étaient guère pressés!
+Et même s'ils étaient venus, il était déjà trop tard!
 
 La main droite de Wang Lin frappa encore plusieurs fois. Les jambes de Dao Feishan furent broyées en un amas de débris. Le dernier coup fut celui de la paume de la mort. Après avoir mutilé les membres de Dao Feishan, il écrasa impitoyablement son front.
 
 Des bruits de craquements résonnèrent à l'intérieur du crâne de Dao Feishan. Il recracha de larges bouffées de sang et ses yeux s'obscurcirent. Même ses cris de détresse s'affaiblirent.
 
-Puis, son corps trembla et explosa. Le sang éclaboussa partout, mais aucune goutte ne toucha Wang Lin. D'un revers de manche, ce dernier repoussa l'hémorragie.
+Puis, son corps trembla et explosa en morceaux. Le sang éclaboussa partout, mais aucune goutte ne toucha Wang Lin. D'un revers de manche, ce dernier repoussa l'hémorragie.
 
 Bien que son corps fût réduit en miettes, l'âme originelle de Dao Feishan était gravement blessée mais pas encore éteinte. Elle s'échappa du cadavre dans un état de confusion totale, avant que Wang Lin ne lui saisisse le cou.
 
@@ -60,7 +60,7 @@ Cette scène sanglante fit reculer les cultivateurs du Royaume Extérieur dans u
 
 Cependant, alors qu'il commençait sa fuite, Wang Lin se retourna brusquement. Ses yeux rouges se fixèrent sur l'homme massif. Ce dernier trembla et, après une seconde d'hésitation, s'enfuit de plus belle.
 
-— Tu as blessé mon frère aîné, comment pourrais-je te laisser t'échapper? Wang Lin se déplaça en un éclair et apparut derrière l'homme. Il agita sa main droite.
+— Tu as blessé mon Senior Frère, comment pourrais-je te laisser t'échapper? Wang Lin se déplaça en un éclair et apparut derrière l'homme. Il agita sa main droite.
 
 L'homme robuste poussa un rugissement de folie et fit volte-face. Ses mains formèrent des sceaux et sa paume jaillit vers Wang Lin.
 
@@ -72,7 +72,7 @@ Au cœur de la tempête tourbillonnaient d'innombrables sphères de tonnerre rou
 
 — Après avoir atteint la troisième étape avec l'essence du vent, tu as aussi obtenu une essence de tonnerre incomplète. C'est en effet rare! Le regard de Wang Lin balaya la scène, mais sa main ne s'arrêta pas pour autant. Sa paume percuta la tempête, puis ses doigts se refermèrent en un poing qu'il ramena vers lui.
 
-Sous l'effet de ce mouvement, la tempête de sang s'effondra et le tonnerre qu'elle contenait frémit. Wang Lin était le maître du tonnerre en ce monde, et son essence de tonnerre avait atteint la perfection. Tout le tonnerre devait lui rendre hommage, et encore moins ces infimes sphères électriques.
+Sous l'effet de ce mouvement, la tempête de sang s'effondra et le tonnerre qu'elle contenait frémit. Wang Lin était l'ancêtre du tonnerre en ce monde, et son essence de tonnerre avait atteint la perfection. Tout le tonnerre devait lui rendre hommage, et encore moins ces infimes sphères électriques.
 
 — Disparais! hurla Wang Lin. Les innombrables boules de tonnerre au sein de la tempête tremblèrent et se dispersèrent dans toutes les directions, disparaissant en un clin d'œil sans laisser de trace.
 
@@ -80,7 +80,7 @@ La puissance du vent et du tonnerre ne put résister à une seule attaque de Wan
 
 Il leva sa main droite et forma une épée avec deux doigts, qu'il pointa négligemment vers le cou de l'homme!
 
-— En punition pour avoir blessé mon frère aîné, je veux que tu subisses la plus grande douleur au monde! D'un geste, le cou de l'homme commença à gonfler. Le sang dans son corps s'agita violemment, aspiré par le doigt de Wang Lin.
+— En punition pour avoir blessé mon Senior Frère, je veux que tu subisses la plus grande douleur au monde! D'un geste, le cou de l'homme commença à gonfler. Le sang dans son corps s'agita violemment, aspiré par le doigt de Wang Lin.
 
 Instantanément, l'homme poussa un cri déchirant et devint livide. Tout le sang de son organisme se concentra au niveau de sa gorge, qui vira au pourpre sombre sous l'effet d'une bosse gigantesque.
 
@@ -104,10 +104,10 @@ Cette sphère gazeuse était l'essence même de l'homme robuste!
 
 Tenant cette sphère, Wang Lin s'approcha de Qing Shui. Il posa sa main libre sur celui-ci, qui avait les yeux clos et semblait à l'article de la mort.
 
-Le corps de Qing Shui trembla et il ouvrit soudainement les yeux. Sept filaments de gaz noir jaillirent de lui, ondulant comme des pythons. Ils semblaient hésiter à quitter son corps, mais la puissance de la culture de Wang Lin les en expulsa de force.
+Le corps de Qing Shui trembla et il ouvrit soudainement les yeux. Sept filaments de gaz noir jaillirent de ses sept orifices, ondulant comme des pythons. Ils semblaient hésiter à quitter son corps, mais la puissance de la culture de Wang Lin les en expulsa de force.
 
 Alors que ces sept filaments se dissipaient, bien que le regard de Qing Shui fût encore terne, l'aura de mort qui l'habitait s'évapora. La vitalité commença alors à revenir en lui.
 
 Après avoir expulsé le poison du corps de Qing Shui, Wang Lin injecta la boule de brume qu'il avait extraite de l'homme robuste dans le corps de ce dernier.
 
-— En absorbant ceci, la guérison de mon frère aîné pourra s'accélérer! Wang Lin jeta un coup d'œil à la femme en rose qui se tenait aux côtés de Qing Shui et le fixait avec stupeur, puis il se retourna et s'avança vers le ciel étoilé.
+— En absorbant ceci, la guérison de mon Senior Frère pourra s'accélérer! Wang Lin jeta un coup d'œil à la femme en rose qui se tenait aux côtés de Qing Shui et le fixait avec stupeur, puis il se retourna et s'avança vers le ciel étoilé.

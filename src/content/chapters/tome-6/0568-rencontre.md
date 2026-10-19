@@ -7,7 +7,7 @@ en: Chapter 568 - Acquaintance
 slug: rencontre
 ---
 
-La Ville Démon Céleste!
+La Cité du Démon Céleste!
 
 Elle est située dans la partie septentrionale du Pays du Démon Céleste. Elle est entourée d'innombrables montagnes qui s'entrecroisent. Si l'on regarde depuis les cieux, ces montagnes semblent former la silhouette de neuf dragons s'enroulant autour de la cité.
 
@@ -17,23 +17,23 @@ Le symbole sacré du Pays du Démon Céleste, l'Ancien Temple Démon, se trouve 
 
 Le Lac des Dragons est lourdement gardé!
 
-La Ville Démon Céleste se dresse face au Lac des Dragons!
+La Cité du Démon Céleste se dresse face au Lac des Dragons!
 
-Pour être plus précis, cette cité est composée de neuf villes de tailles similaires à l'Ancienne Ville Démon. Ces neuf cités sont disposées selon les huit trigrammes divinatoires, avec le palais royal en leur centre!
+Pour être plus précis, cette cité est composée de neuf villes de tailles similaires à la Cité du Démon Antique. Ces neuf cités sont disposées selon les huit trigrammes divinatoires, avec le palais royal en leur centre!
 
 Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes sont tout aussi distinctes, possédant chacune leur propre style.
 
-À l'aube, toute la Ville Démon Céleste est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
+À l'aube, toute la Cité du Démon Céleste est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
 
-La Ville Démon Céleste ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
+La Cité du Démon Céleste ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
 
-Dix-huit tableaux de transfert se trouvent aux abords de la Ville Démon Céleste, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
+Dix-huit tableaux de transfert se trouvent aux abords de la Cité du Démon Céleste, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
 
 Les dix restants ne sont accessibles qu'aux personnes en fonction officielle. La distinction entre les classes est flagrante.
 
 Le quatorzième tableau de transfert est exclusivement réservé aux généraux démons. Chaque fois qu'il s'active, un général démon apparaît!
 
-Un général démon est considéré comme une puissance majeure de la Ville Démon Céleste, un chef capable de commander d'immenses troupes et de déployer des sorts prodigieux!
+Un général démon est considéré comme une puissance majeure de la Cité du Démon Céleste, un chef capable de commander d'immenses troupes et de déployer des sorts prodigieux!
 
 À cet instant, parmi les soldats démons postés devant le quatorzième tableau de transfert, l'un d'eux se distinguait nettement par une armure plus richement ornée que celle de ses camarades.
 
@@ -65,7 +65,7 @@ En voyant l'étonnement sur les visages de ses subordonnés, le capitaine se sen
 
 Le soldat qui massait les épaules demanda: « Capitaine, selon vous, quel seigneur général remportera la victoire? »
 
-« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui est posté à la frontière du Pays Démon du Feu, peut atteindre le top trois! Il y a aussi le Seigneur Mo Lihai de l'Ancienne Ville Démon. Sa culture est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
+« Cela... n'est pas facile à dire. Pour devenir un général démon, il faut posséder des sorts puissants, mais même parmi les sorts, les degrés de force varient. Je pense que le Seigneur Mo Fei, qui est posté à la frontière du Pays Démon du Feu, peut atteindre le top trois! Il y a aussi le Seigneur Mo Lihai de la Cité du Démon Antique. Sa culture est également considérée comme très élevée parmi les généraux démons... » Au moment où le capitaine en était là, son expression changea soudainement. Il se redressa d'un bond, son casque s'envola pour atterrir sur sa tête, et son arme vint se loger dans sa main par un mouvement fluide.
 
 Il fit tout cela en un instant presque imperceptible.
 
@@ -91,11 +91,11 @@ Il regarda dans la direction où Wang Lin et Mo Lihai s'étaient éclipsés en p
 
 Mo Lihai étant un général démon, les soldats de la porte ouest l'accueillirent avec une immense déférence. Ils les guidèrent à l'intérieur de la ville avant de retourner respectueusement à leurs postes.
 
-Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Ville Démon Céleste sont très instables, surtout avec le rassemblement de tous ces généraux démons. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
+Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Cité du Démon Céleste sont très instables, surtout avec le rassemblement de tous ces généraux démons. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
 
 Deux cités étaient reliées à la porte ouest: la première était la Ville Xuan, et la seconde, la Ville Hong!
 
-Mo Lihai expliqua: « La Ville Démon Céleste compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Tian, Di, Xuan et Huang sont les quatre villes intérieures, tandis que Yu, Zhou, Hong et Huang constituent les villes extérieures.
+Mo Lihai expliqua: « La Cité du Démon Céleste compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Tian, Di, Xuan et Huang sont les quatre villes intérieures, tandis que Yu, Zhou, Hong et Huang constituent les villes extérieures.
 
 « Les villes intérieures sont destinées aux fonctionnaires civils, tandis que les villes extérieures sont réservées aux militaires. Il existe également d'autres distinctions selon le rang. Moi, je réside à la Ville Hong! »
 
@@ -109,7 +109,7 @@ La voie était très large, mais la foule se concentrait sur les deux côtés, l
 
 Voyant le regard de Wang Lin se poser sur cet espace, Mo Lihai sourit et expliqua: « Cette voie est une route militaire; les civils n'y sont pas autorisés! »
 
-À ce moment précis, des rugissements retentirent sur la route militaire au loin, et bientôt, un groupe de chevaux de guerre noirs surgit au galop. Wang Lin déploya son Sens Divin et détecta un total de dix-neuf montures. Un soldat en armure noire siégeait sur chacun d'eux, possédant une culture s'approchant de celle des cultivateurs de la Formation de l'Âme. L'énergie spirituelle démoniaque émanant de leurs corps était fusionnée d'une manière mystérieuse.
+À ce moment précis, des rugissements retentirent sur la route militaire au loin, et bientôt, un groupe de chevaux de guerre noirs surgit au galop. Wang Lin déploya son Sens Divin et détecta un total de dix-neuf montures. Un soldat en armure noire siégeait sur chacun d'eux, dont la culture n'était en rien inférieure à celle des cultivateurs de la Formation de l'Âme. L'énergie spirituelle démoniaque émanant de leurs corps était fusionnée d'une manière mystérieuse.
 
 Une énergie spirituelle démoniaque tourbillonnait dans le ciel au-dessus d'eux, formant l'ombre vague d'une bête gigantesque.
 

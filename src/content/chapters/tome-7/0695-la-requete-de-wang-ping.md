@@ -10,7 +10,7 @@ Depuis la disparition de l'ancêtre de la famille Ran et de Xiaoyao Sanren, la f
 
 Au cours de ces plus de vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
 
-La ville des Vastes Eaux possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
+La Ville des Vastes Eaux possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
 
 C'était la première fois que Qing Yi se retrouvait dans une telle situation, elle était donc très nerveuse. Elle gardait la tête baissée, affichant une attitude empreinte de respect.
 
@@ -38,17 +38,17 @@ Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la t�
 
 Qing Yi baissa amèrement la tête et murmura: « Junior ne sait vraiment pas. »
 
-L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle nourrit des pensées déloyales, chassez-la de la famille Sun! »
+L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront bientôt un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle nourrit des pensées déloyales, chassez-la de la famille Sun! »
 
 « Ce vieux souhaite voir sur quelle base cette personne ose proférer des paroles aussi arrogantes que "pas de prochaine fois!" Sur la planète Ran Yun, nul n'ose s'adresser à ma famille Sun avec un tel ton! »
 
-Dans la partie nord de la ville des Vastes Eaux, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
+Dans la partie nord de la Ville des Vastes Eaux, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
 
 Wang Lin n'avait pas remplacé les servantes de la demeure et continuait de les garder; de cette façon, le manoir était bien moins solitaire.
 
 Tard dans la nuit, sous la lumière de la lune, Wang Lin et Wang Ping étaient assis face à face dans le bureau du fond.
 
-Wang Lin dit calmement: « Ping Er, dix-neuf années de vie ordinaire, huit années d'aventure, et ensuite je te donnerai trente années de richesse. La vie d'un homme est faite de joies et de peines; tu devrais connaître les deux. Être riche ou pauvre, c'est la même chose. »
+Wang Lin dit calmement: « Ping Er, dix-neuf années de vie ordinaire, huit années à parcourir montagnes et rivières, et ensuite je te donnerai trente années de richesse. La vie d'un homme est faite de joies et de peines; tu devrais connaître les deux. Être riche ou pauvre, c'est la même chose. »
 
 Wang Ping réfléchit en silence. Après un long moment, il esquissa un faible sourire. Ses yeux brillaient lorsqu'il demanda: « Père, est-ce là la compensation pour ne pas me laisser cultiver? »
 
@@ -80,7 +80,7 @@ Alors que Wang Lin se tenait dans la cour sous le clair de lune, son ombre s'ét
 
 Cette nuit-là, Wang Ping ne dormit pas.
 
-Trois jours plus tard, un homme arriva à Ville des Vastes Eaux. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
+Trois jours plus tard, un homme arriva aux portes de la Ville des Vastes Eaux. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
 
 Tous les cultivateurs de la branche familiale sortirent pour accueillir ce visiteur. Bien qu'ils aient pressenti que l'arrivant serait un cultivateur de la Transformation de l'Âme, lorsque les trois anciens virent qui était là, ils en eurent le souffle coupé et se montrèrent encore plus respectueux.
 

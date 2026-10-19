@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1107 - Battling Against Heaven
 slug: combattre-contre-le-ciel
 ---
-Tous les cultivateurs de la Mer des Nuages avaient été réduits en cendres. Seul le dernier ancien vêtu de pourpre, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
+Tous les cultivateurs de la Mer des Nuages, ainsi que la formation, avaient été désintégrés. Seul le dernier ancien vêtu de pourpre, qui avait craché du sang après le deuxième effondrement, tentait désespérément de s'échapper.
 
 Il était terrifié, absolument terrifié!
 
@@ -44,13 +44,13 @@ Il agita sa main droite. Au loin, la rivière ardente enveloppa la dépouille ca
 
 L'ancien de la Mer des Nuages avait été gravement blessé. La sphère d'éclairs de la rétribution divine avait suffi à briser son corps, bien qu'il ait réussi à la contenir. Puis, l'Effondrement des Montagnes l'avait encore plus affaibli, faisant chuter drastiquement son niveau de culture. Il n'avait désormais plus que la puissance d'un cultivateur au début du stade Purificateur du Nirvana.
 
-En raison de l'encerclement par la rivière ardente, l'âme originelle de l'ancien s'était affaiblie, mais lorsque la rivière revint vers Wang Lin, ses yeux s'ouvrirent brusquement. Son âme originelle se déploya avec frénésie, lui permettant d'échapper au courant, et il chargea Wang Lin!
+En raison de l'encerclement par la rivière ardente, l'âme originelle de l'ancien s'était affaiblie, mais lorsque la rivière revint vers Wang Lin, ses yeux se contractèrent brusquement. Son âme originelle se déploya avec frénésie, lui permettant d'échapper au courant, et il chargea Wang Lin!
 
 « Meurs! » Ce fut le dernier rugissement de l'homme. Il fonça sur Wang Lin, empreint d'une intention meurtrière.
 
 Wang Lin laissa échapper un froid reniflement, puis sa main droite prit la forme d'une paume et s'abattit sur l'âme originelle. L'énergie originelle du champ d'étoiles se rassembla furieusement pour former une empreinte de main gigantesque, qui s'écrasa sur l'âme originelle du vieil homme.
 
-L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit de Guerre de la Secte Divine de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
+L'expression de l'homme changea radicalement et il hurla: « C'est... l'Empreinte de l'Esprit Guerrier de la Secte Divine de Rang 9! » À peine eut-il prononcé ces mots que l'empreinte percuta son âme originelle et le renvoya violemment dans la rivière ardente.
 
 Des grondements tonitruants résonnèrent et l'âme originelle du vieil homme s'effondra instantanément!
 
@@ -88,7 +88,7 @@ Au moment où la montagne de flammes atteignit les 50 000 pieds, un grondement d
 
 Privé de la montagne de flammes, il n'y avait plus rien entre lui et les nuages. Wang Lin était habité par une immense frustration. Il ne manquait que 50 000 pieds... s'il pouvait franchir cette distance, il pourrait attaquer les nuages de la rétribution divine!
 
-Alors que la pression redescendait, une flamme dévorante apparut dans son œil gauche et un tonnerre monstrueux dans son œil droit. La foudre de sa main droite se propagea le long de son bras pour former une sphère d'éclairs au-dessus de sa paume.
+Au moment où la pression s'abattait, une flamme dévorante apparut dans son œil gauche et un tonnerre monstrueux dans son œil droit. La foudre de sa main droite se propagea le long de son bras pour former une sphère d'éclairs grosse comme un poing au-dessus de sa paume.
 
 Simultanément, la flamme de son œil gauche parcourut son bras gauche et une sphère de feu blanc apparut au-dessus de sa main!
 

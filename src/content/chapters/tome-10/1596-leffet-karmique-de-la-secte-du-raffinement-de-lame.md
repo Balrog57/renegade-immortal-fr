@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1596 - Soul Refining Secte’s Karmic Effect
 slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 ---
-« Serait-il possible que ma Secte de l'Affinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
+« Serait-il possible que ma Secte de l'Affinement de l'Âme n'ait plus aucune chance de renaître, aucune chance de perdurer... » L'homme d'âge moyen sembla sombrer dans la folie et se mit à rire amèrement. Cependant, à cet instant précis, son expression changea et il fixa l'horizon.
 
 « Hein! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
 
@@ -88,7 +88,7 @@ Le sujet de l'examen portait sur une peinture. Le dessin était très simple: un
 
 Sous la montagne figuraient quelques esquisses. On aurait dit qu'une famille veillait sur la montagne.
 
-L'intention de cette peinture était limpide: elle signifiait essentiellement que la capacité est le pilier de tout. Tous les autres érudits l'avaient compris, et leurs essais tournaient tous autour de ce thème.
+L'intention de cette peinture était limpide: elle signifiait essentiellement que les talents sont les piliers de l'État. Tous les autres érudits l'avaient compris, et leurs essais tournaient tous autour de ce thème.
 
 Cependant, lorsque Wang Lin vit la peinture, la voix d'il y a cinq jours réapparut dans son esprit.
 
@@ -100,7 +100,7 @@ Seul Wang Lin restait assis en silence, le regard empreint de confusion, sans av
 
 Les candidats commencèrent progressivement à quitter la salle. Certains étaient fiers, d'autres abattus. Ils partaient seuls ou accompagnés de leur serviteur.
 
-Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait plus beaucoup de temps, seulement une demi-heure. Le dernier candidat, hormis Wang Lin, se leva en soupirant. Il jeta un regard à Wang Lin, secoua la tête et partit.
+Le soleil commença à décliner et la salle d'examen s'assombrit. Il ne restait plus beaucoup de temps, seulement moins d'une heure. Le dernier candidat, hormis Wang Lin, se leva en soupirant. Il jeta un regard à Wang Lin, secoua la tête et partit.
 
 « Si vous n'êtes pas capable de le faire, partez vite. Ne nous faites pas perdre notre temps », grommela un examinateur en passant près de Wang Lin en frappant sur la table.
 
@@ -124,4 +124,4 @@ Un homme d'âge moyen vêtu d'une robe noire émergea du vent noir. Une aura gla
 
 « Ce vieil homme ne te fera aucun mal, tu as seulement une question à répondre. »
 
-Il était le frère aîné de Dun Tian, de la Secte de l'Affinement de l'Âme! Presque tous les érudits de ce pays avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la proie suivante.
+Il était le frère aîné de Dun Tian, de la Secte de l'Affinement de l'Âme! Presque tous les érudits de cette ville avaient été trouvés par lui, et il leur avait posé la même question. Puis, déçu, il effaçait leurs souvenirs avant de partir en quête de la personne suivante.

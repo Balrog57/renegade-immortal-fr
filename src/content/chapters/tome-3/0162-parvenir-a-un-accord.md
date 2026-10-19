@@ -60,7 +60,7 @@ Wang Lin écoutait, tout en pesant ses mots. Après ce discours, il n'en croyait
 
 Il avait déjà entendu parler de cette Pilule de Formation de l'Âme Naissante par Li Muwan. Elle pouvait légèrement augmenter les chances de réussir la formation d'une Âme Naissante. C'était une denrée extrêmement rare dans les pays de culture de rang 3, et toujours rare dans ceux de rang 4. Quant à sa recette, elle était le monopole des pays de rang 5.
 
-Wang Lin réfléchit longuement. L'endroit mystérieux dont parlait le vieil homme l'intriguait. Il ne visait pas directement la pilule de Transformation de l'Âme, mais il espérait trouver des ressources pour atteindre le stade de l'Âme Naissante. Sans aide extérieure, il ignorait combien d'années de culture encore seraient nécessaires pour y parvenir.
+Wang Lin réfléchit longuement. L'endroit mystérieux dont parlait le vieil homme l'intriguait. Il ne visait pas directement la pilule de Transformation de l'Âme, mais il espérait trouver des méthodes de culture et des pilules pour augmenter ses chances d'atteindre le stade de l'Âme Naissante. Sans aide extérieure, il ignorait combien d'années de culture encore seraient nécessaires pour y parvenir.
 
 Et s'il continuait à refuser, le vieil homme finirait par le tuer dans un accès de colère. Un seul chemin s'offrait à lui désormais.
 
@@ -78,11 +78,11 @@ Wang Lin ne bougea pas. Il regarda vers l'Union Huo Fen et dit: « Le junior a e
 
 Le vieil homme fronça les sourcils en fixant Wang Lin: « De quoi s'agit-il? »
 
-Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Sentier Divin du Sanctuaire du Dieu de la Guerre? »
+Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Chemin Divin du Sanctuaire du Dieu de la Guerre? »
 
-Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, quand le gamin du Sanctuaire du Dieu de la Guerre l'a obtenue, cela a fait un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
+Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, quand le gamin du Sanctuaire du Dieu de la Guerre l'a obtenue, cela a fait un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Chemin Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
 
-L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Sentier Divin originel.
+L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Chemin Divin originel.
 
 Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Le regard du vieil homme scintilla à plusieurs reprises avant qu'il ne suive Wang Lin sans se presser.
 
@@ -96,7 +96,7 @@ Wang Lin resta calme et esquiva la question: « Senior Feng Luan, le junior a un
 
 Feng Luan jeta un regard très méfiant vers le vieil homme avant de dire calmement: « Parlez. »
 
-Wang Lin articula lentement: « Le junior aimerait consulter le Sentier Divin. »
+Wang Lin articula lentement: « Le junior aimerait consulter le Chemin Divin. »
 
 Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois dernières années, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
 
@@ -104,7 +104,7 @@ Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le 
 
 Sans un mot, Wang Lin vola derrière lui.
 
-L'expression du vieil homme demeura indifférente. Il n'était pas stupide; il comprenait parfaitement que Wang Lin l'utilisait pour accéder au Sentier Divin. Cependant, il ne s'en offusquait guère. Puisqu'il allait aider le gamin, autant le faire jusqu'au bout. De cette manière, il lui rendrait service tout en apaisant leurs relations futures.
+L'expression du vieil homme demeura indifférente. Il n'était pas stupide; il comprenait parfaitement que Wang Lin l'utilisait pour accéder au Chemin Divin. Cependant, il ne s'en offusquait guère. Puisqu'il allait aider le gamin, autant le faire jusqu'au bout. De cette manière, il lui rendrait service tout en apaisant leurs relations futures.
 
 Pensant ainsi, il lança: « Petit ami, je t'attendrai ici. Si tu es blessé de quelque manière que ce soit, je m'assurerai que chaque être vivant sur cette montagne soit enterré avec toi. »
 
@@ -114,4 +114,4 @@ Le vieillard au visage rouge décida de rompre le silence en se tournant vers Wa
 
 Wang Lin acquiesça silencieusement.
 
-L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Sanctuaire du Dieu de la Guerre avec toi. Si tu peux jurer de t'y tenir, alors j'ouvrirai la demeure de pierre pour que tu puisses voir le Sentier Divin! »
+L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Sanctuaire du Dieu de la Guerre avec toi. Si tu peux jurer de t'y tenir, alors j'ouvrirai la demeure de pierre pour que tu puisses voir le Chemin Divin! »

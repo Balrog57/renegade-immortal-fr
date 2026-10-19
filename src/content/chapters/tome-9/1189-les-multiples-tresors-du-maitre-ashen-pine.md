@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1189 - The Many Treasures of Master Ashen Pine
 slug: les-multiples-tresors-du-maitre-ashen-pine
 ---
-Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est l'écriture du Dao! Je ne crains pas que le Confrère Cultivateur Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler l'écriture du Dao! »
+Les yeux du Maître Pin Cendré brillèrent d'une lueur étrange lorsqu'il déclara lentement: « C'est l'écriture du Dao! Je ne crains pas que la camarade cultivatrice Zhao ne découvre mon véritable dessein. Les âmes de bêtes ne sont qu'un objectif secondaire; mon véritable but est de contempler l'écriture du Dao! »
 
 « De nombreux Éveillés sont présents ici, l'écriture du Dao n'est de toute évidence pas simple. Maître Pin Cendré, vous... » La vieille femme en vert fixa le Maître Pin Cendré.
 
-« Confrère Cultivateur Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascendant? » Le Maître Pin Cendré leva les yeux vers la statue.
+« Camarade cultivatrice Zhao, vous souvenez-vous de ce qui se murmurait parmi ma génération lorsque l'on ne possédait point de pilule d'Ascendant? » Le Maître Pin Cendré leva les yeux vers la statue.
 
 La vieille femme répondit d'une voix douce: « Ceux qui cherchent le Dao naissent à l'aube et meurent au crépuscule. Cela suffit! »
 
@@ -22,17 +22,17 @@ Le visage du Maître Pin Cendré était pâle, mais son regard débordait d'exci
 
 Ils ignoraient quelle distance ils avaient parcourue. Au quatrième jour, une petite montagne apparut vaguement devant eux. Cette montagne n'était pas très imposante, culminant à seulement 10 000 pieds, et elle oscillait entre l'apparition et la disparition au gré de la brume.
 
-Une couche de lumière noire entourait la montagne, obstruant tout passage. Le Maître Pin Cendré regarda la vieille femme en vert et dit avec sincérité: « Confrère Cultivateur Zhao, mes connaissances en matière de restrictions ne sauraient égaler les vôtres. Je vous prie de m'aider à briser cette barrière! Cette montagne est le lieu où sont scellées d'innombrables âmes de bêtes. Dès que vous l'aurez ouverte, vous pourrez obtenir ces âmes. »
+Une couche de lumière noire entourait la montagne, obstruant tout passage. Le Maître Pin Cendré regarda la vieille femme en vert et dit avec sincérité: « Camarade cultivatrice Zhao, mes connaissances en matière de restrictions ne sauraient égaler les vôtres. Je vous prie de m'aider à briser cette barrière! Cette montagne est le lieu où sont scellées d'innombrables âmes de bêtes. Dès que vous l'aurez ouverte, vous pourrez obtenir ces âmes. »
 
 La vieille femme en vert observa la barrière de lumière noire. Elle s'en approcha et posa sa main droite sur l'obstacle. Après un long moment, son expression se crispa: « C'est une restriction temporelle. Plus elle subsiste, plus elle gagne en puissance. Je ne parviens pas à déterminer son ancienneté, alors ne parlons même pas de la briser! Si j'avais su qu'une telle restriction se trouvait ici, je ne serais jamais venue! »
 
 Le Maître Pin Cendré sourit et tendit la main. Un espace de stockage s'ouvrit et un objet en sortit: une aiguille noire gravée d'une marque spiralée. Dès qu'il l'eut extraite, une pression écrasante commença à se propager.
 
-« Le Confrère Cultivateur Zhao sait-il ce que c'est? » demanda le Maître Pin Cendré.
+« La camarade cultivatrice Zhao sait-elle ce que c'est? » demanda le Maître Pin Cendré.
 
 La vieille femme fixa l'aiguille, les yeux brillants d'un éclat singulier. Après l'avoir longuement examinée, elle murmura: « Un trésor étrange de l'Antiquité... l'Aiguille Brise-Restriction! »
 
-« Le Confrère Cultivateur Zhao est véritablement digne de son titre de Grand Maître des restrictions, quelle connaissance! Je me demande avec quelle assurance vous comptez briser cette barrière avec ceci! »
+« La camarade cultivatrice Zhao est véritablement digne de son titre de Grand Maître des restrictions, quelle connaissance! Je me demande avec quelle assurance vous comptez briser cette barrière avec ceci! »
 
 La vieille femme réfléchit un instant et demanda: « Combien d'Aiguilles Brise-Restriction possédez-vous? »
 
@@ -48,7 +48,7 @@ Le Maître Pin Cendré ne s'expliqua pas et demanda simplement: « Quelle est vo
 
 La vieille femme détourna le regard pour calculer, puis répondit: « 40 %. S'il y avait l'Empreinte de l'Esprit Guerrier, ce serait 50 %, mais malheureusement... »
 
-Le Maître Pin Cendré hésita un instant avant d'extraire un dernier objet de son espace de stockage. C'était un cristal éclatant qui semblait abriter du sang frais en son sein. À son apparition, une aura destructrice capable de déchirer les cieux se propagea.
+Le Maître Pin Cendré hésita un instant avant d'extraire un autre objet de son espace de stockage. C'était un cristal éclatant qui semblait abriter du sang frais en son sein. À son apparition, une aura destructrice capable de déchirer les cieux se propagea.
 
 « Cela devrait suffire! » lança le Maître Pin Cendré à la vieille femme.
 

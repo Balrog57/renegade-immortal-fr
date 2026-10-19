@@ -12,7 +12,7 @@ Wang Lin en avait déjà ouvert un, et cette fois, il allait en ouvrir un second
 
 Cet espace de stockage devait contenir une quantité suffisante d'énergie spirituelle céleste et d'énergie originelle. Wang Lin n'en manquait pas, car il lui restait encore de nombreux jades célestes et des cristaux originels.
 
-À cet instant, sa main droite s'étira et le son d'un espace qui se déchire résonna. Une immense fissure, large de plusieurs centaines de pieds, s'ouvrit, laissant s'échapper un vent glacial.
+À cet instant, sa main droite s'étira et le son d'un espace qui se déchire résonna. Une immense fissure, large d'environ 10 000 pieds, s'ouvrit, laissant s'échapper un vent glacial.
 
 L'étoile de la loi tourna et des éclairs de tonnerre jaillirent. La foudre circula autour de la faille, la stabilisant.
 
@@ -20,7 +20,7 @@ Simultanément, des flammes bleues s'engouffrèrent dans la fissure et balayère
 
 Peu après, Wang Lin sortit des jades célestes et des cristaux originels pour les lancer dans l'espace de stockage. Ils explosèrent, comblant le vide d'une énergie céleste et originelle suffisante.
 
-Tout fut accompli en un instant, sans aucun gaspillage. Une fois l'espace de stockage stabilisé, il envoya un message, et le roi des moustiques, situé en dessous de lui, poussa immédiatement un rugissement.
+Tout fut accompli en un instant, sans aucun gaspillage. Une fois l'espace de stockage stabilisé, d'un ordre mental, le roi des moustiques, situé en dessous de lui, poussa immédiatement un rugissement.
 
 Sous son cri, les 10 000 bêtes moustiques chargèrent dans la fissure. À mesure qu'elles progressaient, leur nombre diminuait progressivement autour de lui.
 
@@ -74,9 +74,9 @@ Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contemp
 
 « J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai plus impuissant face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
 
-Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait une partie d'une planète. La Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
+Dans la Secte Éternelle de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait près de la moitié d'une planète. La Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
 
-Des grondements résonnèrent sur la plateforme, attirant l'attention des 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternelle étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternelle.
+Des grondements résonnèrent sur la plateforme, attirant l'attention de près de 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternelle étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternelle.
 
 Au sommet des gradins, un vieil homme vêtu de blanc pointait du doigt un disciple du Dao Pourpre qui combattait un disciple d'une autre secte de rang 5, tout en riant. « L’ascension de la Secte du Dao Pourpre est entièrement due à Lu Yuncong! Camarade cultivateur Wang, cette fois, la Secte Divine ne doit pas emmener Lu Yuncong. »
 
@@ -86,7 +86,7 @@ Deux femmes étaient assises près du vieil homme. Toutes deux possédaient une 
 
 Sa beauté semblait presque irréelle, telle une véritable fée. Par sa simple présence, elle captivait tous les cultivateurs alentour. Cependant, elle était si glaciale qu'elle paraissait totalement déconnectée de son environnement, dégageant un sentiment de solitude.
 
-Telle une fleur de lys s'épanouissant dans l'isolement ou une brise soufflant sur une terre étrangère. Tout était inconnu, et aucun visage ne lui semblait familier...
+Telle une fleur de lys s'épanouissant dans l'isolement ou ou une visiteuse venue d'une terre lointaine. Tout était inconnu, et aucun visage ne lui semblait familier...
 
 À ses côtés se trouvait une autre femme. Bien qu'elle fût moins éclatante, son visage doux et magnifique aurait charmé n'importe qui. Son sourire ressemblait à une fleur blanche épanouie capable d'enivrer les âmes.
 
@@ -108,6 +108,6 @@ Elle ignorait pourquoi, mais en voyant Lu Yuncong, l'image d'une autre personne 
 
 « C'est possible », répondit Mu Bingmei, peu disposée à poursuivre la conversation.
 
-« Cela m'intéresse. Lu Yuncong a cultivé pendant environ 3 000 ans sans s'appuyer sur aucun élixir. Il a atteint le stade Ascendant en 1 000 ans, puis le stade de l'Observateur du Nirvana 1 000 ans plus tard, et enfin le stade de Purification du Nirvana après encore 1 000 ans. Sa compréhension du Dao est très profonde. Même Li Qianmei de la Secte Brise-Ciel l'a sollicité pour discuter du Dao. Je me demande s'il existe des gens comme lui dans la région d'origine de la Camarade Cultivatrice Mu? » L'homme qui parla n'était pas le vieil homme en blanc, mais un homme d'âge mûr assis à ses côtés.
+« Cela m'intéresse. Lu Yuncong a cultivé pendant environ 3 000 ans sans s'appuyer sur aucun élixir. Il a atteint le stade Ascendant en 1 000 ans, puis le stade du Scruteur du Nirvana 1 000 ans plus tard, et enfin le stade de Purification du Nirvana après encore 1 000 ans. Sa compréhension du Dao est très profonde. Même Li Qianmei de la Secte Brise-Ciel l'a sollicité pour discuter du Dao. Je me demande s'il existe des gens comme lui dans la région d'origine de la Camarade Cultivatrice Mu? » L'homme qui parla n'était pas le vieil homme en blanc, mais un homme d'âge mûr assis à ses côtés.
 
 Mu Bingmei réfléchit longuement, puis dit doucement, comme si elle se remémorait des souvenirs: « Je connais une personne qui a atteint la Formation du Noyau en 200 ans, la Transformation de l'Âme en 500 ans, l'Ascendant en 800 ans et le stade du Yin Illusoire et du Yang Corporel en 1 000 ans. Avant mon départ, il avait cultivé pendant moins de 2 000 ans et avait déjà atteint le début du stade de Purification du Nirvana. Toute sa vie, il a médité sur le Dao, vu à travers la vie et la mort, et les a transformées en karma. Il y a très peu de gens dans ce monde capables de se comparer à lui! Peut-être que ce Lu Yuncong possède un niveau de culture plus élevé, mais en termes de Dao, il n'est pas son égal! Même dans un combat à mort, il ne ferait toujours pas le poids! »

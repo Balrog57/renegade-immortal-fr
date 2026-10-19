@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 582 - Wang Lin Steps out
 slug: wang-lin-savance
 ---
-Après le troisième coup de tambour, l'écho résonna dans l'esprit de chacun. Le siège restait vacant et la figure illustre que tous attendaient n'était toujours pas apparue.
+Après le troisième coup de tambour, l'écho résonna sur toute la place. Le siège restait vacant et la figure illustre que tous attendaient n'était toujours pas apparue.
 
 À cet instant précis, un homme vêtu d'une armure dorée sortit du palais situé derrière la place. Il balaya les environs du regard avant de fixer la place et de hurler: « Généraux démons, avancez! »
 
@@ -34,7 +34,7 @@ Par conséquent, chacun ferait tout son possible pour gagner. Une fois le premie
 
 « Ce n'est pas une compétition, mais un combat à mort », songea Wang Lin.
 
-L'homme à l'armure dorée reprit: « La mort peut survenir durant la compétition, mais elle ne doit pas frapper les généraux démons. Si un général démon meurt, celui qui l'a tué sera exécuté à son tour! »
+L'homme à l'armure dorée reprit: « La mort peut survenir durant la compétition, mais seuls les adjoints peuvent mourir, jamais les généraux démons. Si un général démon meurt, celui qui l'a tué sera exécuté à son tour! »
 
 Wang Lin fronça les sourcils et lança un regard glacial à l'homme en armure dorée.
 
@@ -74,7 +74,7 @@ Le général démon Mu Yun esquissa un sourire. Ce sourire, mêlé à ses traits
 
 « Shi Xiao! » La main droite de Mu Yun s'avança, et un gaz vert s'échappa de ses doigts. Dans un crépitement sinistre, cinq filaments de gaz vert s'agitèrent autour de ses doigts tels cinq serpents.
 
-« Cinq filaments d'énergie démoniaque de vie et de mort... Il semble que tu aies percé le royaume des sept morts et sept vies! » Shi Xiao observa Mu Yun, secoua la tête et ajouta: « Mais cela ne suffit toujours pas! »
+« Cinq filaments d'énergie démoniaque de vie et de mort... Il semble que tu aies atteint le septième niveau de la méthode des Neuf Morts et Neuf Vies! » Shi Xiao observa Mu Yun, secoua la tête et ajouta: « Mais cela ne suffit toujours pas! »
 
 Mu Yun ricana en tendant sa main droite. Les cinq serpents verts se tordirent et s'élancèrent avec frénésie vers Shi Xiao.
 
@@ -130,7 +130,7 @@ Mo Lihai regarda Shi Xiao et répondit calmement: « J'ai perdu contre Mo Fei, j
 
 Les yeux de Shi Xiao s'embuèrent d'une intention meurtrière alors qu'il fixait longuement Mo Lihai. Finalement, son regard glissa vers Wang Lin et il eut un sourire sardonique: « Toi, viens jouer avec moi! »
 
-Wang Lin ne daigna même pas le regarder et répondit d'un ton monocorde: « Je n'ai aucun intérêt pour un combat où je ne peux pas tuer. »
+Wang Lin ne daigna même pas le regarder et répondit d'un ton monocorde: « Je n'ai aucun intérêt pour un combat où l'on ne tue pas. »
 
 Shi Xiao laissa échapper un reniflement méprisant. L'homme à l'armure dorée lança un regard froid à Wang Lin avant de s'exclamer: « Général démon Shi Xiao, vous avez remporté ce duel! Conformément aux règles, vous ne pouvez défier personne d'autre pour ce tour! »
 

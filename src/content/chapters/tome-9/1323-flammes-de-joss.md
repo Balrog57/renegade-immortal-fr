@@ -64,7 +64,7 @@ Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sou
 
 « Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
-Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
+Le niveau de culture de cet homme était extrêmement élevé, presque comparable à celui de l'Empereur Divin du Dragon Azure, qui s'était échappé jadis du Royaume de la Pluie, et frôlant le quatrième Fléau Céleste. Si Wang Lin l'avait rencontré seul, il n'aurait pas été son égal.
 
 Cependant, cet homme s'était évidemment montré incapable de résister aux attaques dévastatrices de Tuo Sen et finit gravement blessé par ce dernier. Puis, lorsque l'os fut brisé en deux, son corps s'effondra sous la force de l'onde de choc de l'aura du dieu ancien.
 

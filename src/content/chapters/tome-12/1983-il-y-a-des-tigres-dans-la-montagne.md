@@ -124,4 +124,4 @@ Le vent et la neige continuaient de souffler. Tout n'était plus qu'une illusion
 
 Parfois, même en sachant le danger imminent, on choisit de poursuivre sa route!
 
-Wang Lin prit une profonde inspiration et agita la main droite pour ranger Xu Liguo, Liu Jinbiao et le dragon marin dans son espace de stockage. La neige tombait toujours, mais cette fois, sa cible était le palais souterrain!!
+Wang Lin prit une profonde inspiration et agita la main droite pour ranger Xu Liguo, Liu Jinbiao et le dragon marin dans son espace de stockage. Seul, il retourna d'un bond dans la cité ancestrale, sous la neige matinale; cette fois, sa cible était le palais souterrain!!

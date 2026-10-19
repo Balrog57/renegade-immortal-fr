@@ -28,7 +28,7 @@ La racine de l'Arbre de Luotian était constituée par la lumière stellaire de 
 
 Ce trésor aurait dû être considéré comme une création naissante nécessitant du temps pour atteindre la perfection. Cependant, le Maître Lu Fu, doté d'une grande sagacité, avait utilisé la poussière éternelle accumulée durant des éons, conférant ainsi au trésor une aura d'antiquité!
 
-Plus stupéfiant encore était l'intention de combat imprégnée dans l'objet. Il s'agissait de l'intention de bataille unifiée que tous les cultivateurs de Luotian voulaient porter contre le Royaume Extérieur. Ce trésor ne présentait aucune faille! Il était un symbole!
+Plus stupéfiant encore était l'intention de combat imprégnée dans l'objet. Il s'agissait de l'intention de bataille unifiée que tous les cultivateurs de Luotian voulaient mener à mort contre le Royaume Extérieur. Ce trésor ne présentait aucune faille! Il était un symbole!
 
 Si Wang Lin détruisait ce trésor, il briserait l'élan même que Luotian avait rassemblé pour cette guerre! Le Maître Lu Fu l'avait compris et avait déployé la ruse d'un vieux monstre ayant vécu des dizaines de milliers d'années!
 

@@ -18,13 +18,13 @@ Tenant la rune, le Maître Dao Miao Yin l'écrasa, la transformant en une pluie 
 
 Le visage de la Grande Désolation pâlit instantanément à l'intérieur de l'empreinte de paume sombre et il cracha une bouchée de sang, sans toutefois paraître affaibli. Il eut un sourire sardonique et dit: « La méthode de culture de ce vieil homme est différente de la vôtre. Je vole ma fortune aux cieux; comment un simple serment de Flamme Joss pourrait-il sérieusement blesser ce vieil homme? Une simple bouchée de sang suffit! »
 
-Au moment où la Grande Désolation cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
+Au moment où la Grande Désolation cracha son sang, son corps original à l'extérieur fit de même. Bien que la planète désolée sur laquelle il se trouvait fût vivante et que ses montagnes et ses rivières fussent habitées par l'esprit, tout flétrit instantanément au moment même où il cracha son sang. Il ne resta que des ruines de sable jaune. C'était comme si la planète avait épuisé toute sa vie pour devenir un monde de mort.
 
 Dans l'Ancienne Tombe, la Grande Désolation agita la main et l'énorme empreinte de paume chargea le Maître Dao Miao Yin. À cet instant, les cinq doigts changèrent soudainement de forme.
 
 L'index se transforma en un centipède noir de mille pieds aux longues moustaches. Son corps se tordait de manière extrêmement hideuse. Une fois apparu, il laissa échapper un rugissement.
 
-Les quatre autres doigts scintillèrent simultanément pour se transformer en un serpent noir de mille pieds à corne, une immense araignée noire et une queue de scorpion massive semblant capable de briser le vide.
+Les quatre autres doigts scintillèrent simultanément pour se transformer en un serpent noir de mille pieds à corne, une immense araignée noire et un scorpion massif dont la queue semblait capable de briser le vide.
 
 Le pouce devint un crapaud à l'apparence terrifiante, dont le dos était couvert de protubérances exsudant un poison inimaginable.
 

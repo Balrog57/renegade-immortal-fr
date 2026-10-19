@@ -8,7 +8,7 @@ slug: non-qualifie-2
 ---
 Les yeux de Luo Su devinrent encore plus froids, mais lorsqu'il songea que cet individu appartenait à la famille Xu de la planète Dong Lin, il réprima sa colère et laissa échapper un froid reniflement. « Qualifié! »
 
-Après avoir dévoré le géant doré, Xu Ting éclata d'un rire tonitruant et se retira avec sa lance noire. Une fois revenu vers la matrice de transfert, il lança à Wang Lin un regard provocateur.
+Après avoir dévoré le géant doré, Xu Ting éclata d'un rire tonitruant et se retira avec sa lance noire. Une fois revenu vers le réseau de transfert, il lança à Wang Lin un regard provocateur.
 
 L'expression de Luo Su était sombre alors qu'il pointait du doigt les personnes restant dans le ciel. Cette fois, son doigt désigna Wang Lin.
 
@@ -18,7 +18,7 @@ Wang Lin gardait une expression calme et descendit sereinement vers la place. Co
 
 Wang Lin fronça légèrement les sourcils. Alors que l'immense main approchait, elle dégageait une bourrasque violente. S'il ne l'esquivait pas ou ne résistait pas, même s'il réussissait l'épreuve humaine, il en sortirait blessé.
 
-Wang Lin n'était pas du genre à se laisser malmener. Son regard se glaça et son troisième œil, situé entre ses sourcils, s'ouvrit instantanément. Une lumière rouge jaillit de ses yeux en un éventail qui recouvrit immédiatement la main géante.
+Wang Lin n'était pas du genre à se laisser malmener. Son regard se glaça et son troisième œil, situé entre ses sourcils, s'ouvrit instantanément. Une lumière rouge jaillit de son troisième œil en un éventail qui recouvrit immédiatement la main géante.
 
 Sans s'arrêter, il continua sa marche. Tandis que la lueur rouge enveloppait la main, des bruits de craquements retentirent et celle-ci se dissipa. Wang Lin atterrit sur la place, joignit les mains en signe de respect envers Luo Su et dit calmement: « Je vous prie de bien vouloir me conseiller! »
 
@@ -54,7 +54,7 @@ Le cœur de Xi Zifeng battait la chamade et son visage rougit légèrement en fi
 
 Il y avait aussi ce garçon à la grosse tête. Bien qu'il affichait toujours un sourire idiot, une froideur se cachait derrière celui-ci.
 
-Le visage de Luo Su s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué à l'extérieur de la matrice de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
+Le visage de Luo Su s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué à l'extérieur du réseau de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
 
 Et ce Xu Mu se trouvait actuellement au Temple Céleste du Tonnerre, participant à la compétition pour le titre céleste!
 

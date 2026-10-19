@@ -10,7 +10,7 @@ Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blan
 
 Lie Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
 
-À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur de Luotian plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
+À cet instant, un membre du clan des Démons Géants de 10 000 pieds approcha à grands pas dans un grondement. S’il avait rencontré n’importe quel cultivateur de Luotian plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
 
 Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Scruteur du Nirvana.
 
@@ -20,7 +20,7 @@ Grâce à la robustesse de son corps, il ne craignait guère la plupart des tré
 
 Wang Lin hocha la tête et observa l'âme originelle de Lie Yunzi. Celle-ci était en pleine récupération pour invoquer une autre silhouette de sang. Lie Yunzi ne pouvait être dérangé pour l'instant.
 
-Toutefois, Wang Lin ne croyait pas que Lie Yunzi manque de ressources, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
+Toutefois, Wang Lin ne croyait pas que Lie Yunzi n'ait pas de plan de secours, mais ce n'était pas le moment de le tester. Alors que le membre du clan des Démons Géants se rapprochait, les yeux de Wang Lin s'illuminèrent et il dit calmement: « Laisse-moi faire! »
 
 Sur ces mots, il fit un pas et chargea droit vers le géant.
 
@@ -48,7 +48,7 @@ Le corps du colosse trembla violemment sous la force inimaginable émanant du mi
 
 Après avoir poussé un cri déchirant, le géant ne put résister à la puissance de l'autre et fut repoussé.
 
-L'effondrement de son corps ne s'arrêta pas là. Bien qu'il fût issu du clan des Démons Géants, il ne pouvait supporter le pouvoir de l'Ancien Dieu de Wang Lin. Non seulement son bras droit se désintégra, mais une grande partie de son torse fut également pulvérisée.
+L'effondrement de son corps ne s'arrêta pas là. Bien qu'il fût issu du clan des Démons Géants, il ne pouvait supporter le pouvoir de l'Ancien Dieu de Wang Lin. Non seulement son bras droit se désintégra, mais une grande partie de son corps fut également pulvérisée.
 
 La folie dans les yeux du démon s'intensifia. Il poussa un rugissement, une aura destructrice déferla de l'intérieur de son corps et, à cet instant précis, il explosa!
 
@@ -68,7 +68,7 @@ Le visage de Wang Lin devint légèrement pâle et il recula vers le bois géant
 
 La femme en robe de palais sur le bois géant sourit: « J'admire les sorts du compagnon de culture Xu. Ce sort qui vous permet d'accroître instantanément la puissance de votre corps est particulièrement impressionnant. »
 
-Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa l'un des Parchemins de Bataille et y injecta son Sens Divin.
+Lie Yunzi ouvrit les yeux, laissant transparaître son admiration sans toutefois parler. Il pointa le second Parchemin de Bataille et y injecta son Sens Divin.
 
 Une seconde plus tard, un autre des quatorze Lou Fu se rétracta rapidement. Sans s'effondrer, il se condensa en une nouvelle silhouette de sang. Cette entité portait un sort qui donnait l'impression que tout le sang du corps allait s'inverser. Elle chargea directement vers le vieil homme sur la planète de culture qui combattait déjà une autre silhouette de sang et le jeune homme en blanc.
 
@@ -84,7 +84,7 @@ Simultanément, une onde rouge écarlate se propagea depuis la planète. Sous le
 
 Cette onde était trop rapide. En se propageant, elle affecta plusieurs cultivateurs de Luotian qui commencèrent à trembler; en un instant, leurs corps entiers, ainsi que leurs sacs de rangement, s'effondrèrent.
 
-L'onde fonça droit sur le bois géant. L'expression de Wang Lin changea, et Lie Yunzi ouvrit les yeux pour hurler: « Xu Mu, Zi Yan, éparpillez-vous rapidement! Occupez-vous de vos affaires et ne vous souciez plus de protéger ce vieil homme! »
+L'onde fonça droit sur le bois géant. L'expression de Wang Lin changea, et Lie Yunzi ouvrit les yeux pour hurler: « Xu Mu, Ziyan, éparpillez-vous rapidement! Combattez chacun de votre côté et ne vous souciez plus de protéger ce vieil homme! »
 
 Même sans l'ordre de Lie Yunzi, Wang Lin s'était déjà mis en mouvement dès que celui-ci eut parlé. Il quitta le bois géant et s'éloigna promptement grâce à une téléportation.
 

@@ -16,7 +16,7 @@ Wang Lin sourit. « À l'intérieur de la tour repose le cadavre d'une femme. C'
 
 Puis Wang Lin raconta à Li Muwan l'histoire de Zhou Yi et de Ting Er. Li Muwan, qui était une jeune fille très émotive, fut profondément touchée par ce récit.
 
-Elle murmura: « Je me demande comment va le senior Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte des Épées Da Luo... »
+Elle murmura: « Je me demande comment va le senior Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte de l'Épée Da Luo... »
 
 Wang Lin réfléchit. Après un long moment, il secoua la tête et dit: « Quel que soit le résultat, c'était son choix. J'espère qu'il pourra réaliser son vœu... »
 
@@ -26,7 +26,7 @@ Wang Lin décida de construire quelques maisons en pierre près de la pagode en 
 
 Li Muwan essuya la sueur de son front, posa la dernière pierre et dit à Wang Lin d'une voix cristalline: « À partir d'aujourd'hui, ceci est notre nouveau foyer! »
 
-Wang Lin hocha la tête. Voir la fatigue sur son visage lui serra le cœur pour une raison quelconque. Avec sa puissance, elle n'avait nul besoin de l'aider, mais elle s'y entêtait. Une telle détermination était rare chez elle.
+Wang Lin hocha la tête. Voir la fatigue sur son visage lui serra le cœur pour une raison quelconque. Avec sa puissance, il n'avait nul besoin de son aide, mais elle s'y entêtait. Une telle détermination était rare chez elle.
 
 Li Muwan avait toujours été douce, voire un peu fragile. Pourtant, au sein de cette fragilité résidait une volonté d'acier. Puisqu'elle insistait, Wang Lin ne put lui refuser et accepta son aide.
 
@@ -76,11 +76,11 @@ Wang Lin raconta en détail à Li Muwan ce qui lui était arrivé au cours des c
 
 Elle dit avec inquiétude: « Si cette Papillon Rouge découvre que tu es Ceng Niu, elle viendra certainement te chercher. »
 
-Le regard de Wang Lin se fit intense. Il répondit calmement: « Avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la vaincre à nouveau le moment venu! »
+Le regard de Wang Lin se fit intense. Il répondit calmement: « Avec ma culture actuelle, il ne me faut que quelques années de plus pour atteindre le stade intermédiaire de la Formation de l'Âme. Je suis sûr à 70 % de pouvoir la repousser à nouveau le moment venu! »
 
 Li Muwan le regarda et dit soudainement: « Te souviens-tu encore de la grotte dans la Mer des Démons? Wang Lin, je veux y retourner... Je veux aussi voir Huo Fen. »
 
-Wang Lin répondit: « Très bien. Le Pavillon de Raffinage des Trésors va bientôt mettre aux enchères une recette de pilule de rang 6. J'irai l'acheter pour toi. »
+Wang Lin répondit: « Très bien. Le Pavillon de Raffinage des Trésors va bientôt mettre aux enchères une recette de pilule de rang 6. Je t'y emmènerai pour l'acheter. »
 
 « Mhmm! » Li Muwan afficha un sourire radieux.
 
@@ -92,13 +92,13 @@ Li Muwan acquiesça doucement.
 
 La nuit venue, après que Li Muwan s'est endormie, Wang Lin sortit et leva les yeux vers la lune avec tristesse. Le corps de Li Muwan s'améliorait légèrement grâce à l'énergie spirituelle, mais le cycle des cieux n'était pas une chose qu'un individu pouvait changer. L'aura mortelle qui émanait d'elle était plus épaisse qu'auparavant.
 
-« Ce n'est qu'en atteignant le stade de l'Âme Naissante que sa durée de vie pourra être prolongée. Cependant, avec la faiblesse de son corps, il lui est impossible de former une Âme Naissante... Wan Er a déjà atteint la fin de sa vie; même si j'extrais son âme, elle ne pourra pas posséder de nouveau corps. Contrairement à Wang Zhuo, qui avait déjà atteint le stade de l'Âme Naissante et était assez fort pour échapper aux lois célestes. »
+« Ce n'est qu'en atteignant le stade de l'Âme Naissante que sa durée de vie pourra être prolongée. Cependant, avec la faiblesse de son corps, il lui est impossible de former une Âme Naissante... Wan Er a déjà atteint la fin de sa vie; même si j'extrais son âme, elle aura beaucoup de mal à posséder un nouveau corps. Contrairement à Wang Zhuo, qui avait déjà atteint le stade de l'Âme Naissante et était assez fort pour échapper aux lois célestes. »
 
-Il devait obtenir la recette de cette pilule de culture de rang 6. Une pilule de ce rang pourrait aider le corps de Wan Er à se stabiliser un peu. « Tant que son corps se rétablit, je pourrai l'aider à atteindre le stade de l'Âme Naissante. Je lui dois tellement après toutes ces années d'absence. »
+Il devait obtenir la recette de cette pilule de rang 6. Une pilule de ce rang pourrait aider le corps de Wan Er à se rétablir un peu. « Tant que son corps se rétablit, je pourrai l'aider à atteindre le stade de l'Âme Naissante. Je lui dois tellement après toutes ces années d'absence. »
 
 Wang Lin fixa le ciel. Sa silhouette vacilla légèrement tandis qu'un sentiment de solitude l'envahissait. Il poussa un soupir, puis afficha une expression déterminée avant de s'asseoir.
 
-Il réfléchit longuement avant de toucher le piège à bêtes sur son poignet. Il lança le bracelet qui se transforma en crapaud tonnerre avant de toucher le sol. La respiration du crapaud était très faible et son corps était couvert de blessures. Il avait la force d'expirer, mais pas celle d'inspirer.
+Il réfléchit longuement avant de toucher le piège à bêtes sur son poignet. Il fit un geste, et une lueur bleue jaillit du piège, se transformant en crapaud tonnerre en touchant le sol. La respiration du crapaud était très faible et son corps était couvert de blessures. Il avait la force d'expirer, mais pas celle d'inspirer.
 
 Wang Lin agita la main droite et une bouteille de pilules apparut dans sa paume. Il en plaça une dans la bouche du crapaud et utilisa son énergie spirituelle pour l'aider à digérer.
 
@@ -106,7 +106,7 @@ Ces derniers temps, il lui donnait presque chaque jour une pilule. Ces pilules a
 
 Une fois que le crapaud tonnerre eut absorbé les pilules et parut en meilleure santé, Wang Lin le remit dans le piège à bêtes. S'il levait le sceau du piège maintenant, l'animal mourrait; il ne le fit donc pas.
 
-Wang Lin se retourna vers la maison de pierre avant de sortir une épée trésor empruntée à un disciple de la Secte des Épées Da Luo pour l'étudier. Les restrictions sur cette épée étaient très différentes de celles que Wang Lin avait apprises. Il les étudiait depuis un certain temps et finissait par trouver quelques indices.
+Wang Lin se retourna vers la maison de pierre avant de sortir une épée trésor appartenant à un disciple de la Secte de l'Épée Da Luo pour l'étudier. Les restrictions sur cette épée étaient très différentes de celles que Wang Lin avait apprises. Il les étudiait depuis un certain temps et finissait par trouver quelques indices.
 
 La nuit passa lentement, la lumière lunaire faiblissant peu à peu. Puis, alors que le soleil émergeait à l'est, la lune disparut.
 

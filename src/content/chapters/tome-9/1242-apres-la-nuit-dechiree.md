@@ -36,7 +36,7 @@ L'essaim de moustiques dans lequel voyageait Wang Lin s'arrêta. Assis sur le do
 
 Une sensation de temporalité envahit progressivement l'esprit de Wang Lin. À cet instant, il était immergé dans le temps. Il s'y perdit peu à peu, observant la transformation du monde, le passage des âges et les paysages en constante mutation.
 
-Il n'était pas tout à fait juste de parler de porte de pierre, car il ne s'agissait que d'un cadre gigantesque. C'était comme si quelqu'un avait placé une courte traverse entre deux piliers massifs pour esquisser la forme d'une porte. Elle dominait simplement la terre, immobile face aux vents.
+Il n'était pas tout à fait juste de parler de porte de pierre, car il ne s'agissait que d'un cadre gigantesque. C'était comme si quelqu'un avait placé une courte traverse entre deux piliers carrés et massifs pour esquisser la forme d'une porte. Elle dominait simplement la terre, immobile face aux vents.
 
 En contemplant l'édifice, Wang Lin sembla revenir à lui après un long moment. Il prit une profonde inspiration et retrouva peu à peu son calme, mais son regard restait verrouillé sur la gigantesque porte de pierre au loin.
 
@@ -60,7 +60,7 @@ Ce qu'il vit n'était plus une porte, mais une créature!
 
 Cette créature possédait une âme. Il semblait qu'elle avait existé depuis si longtemps qu'elle avait fini par acquérir une conscience. Lorsque le Sens Divin de Wang Lin se projeta sur elle, il sembla fusionner avec la créature et, à cet instant précis, Wang Lin sembla oublier sa propre existence.
 
-Le temps passa lentement. Wang Lin restait là, immobile. Il se trouvait dans un état très étrange; un état qui lui rappelait fortement celui où il avait compris son premier sort original, la Nuit Déchirée, sur la falaise au bord de la mer.
+Le temps passa lentement. Wang Lin restait là, immobile. Il se trouvait dans un état très étrange; un état qui lui rappelait fortement celui où il avait compris son premier sort original, la Nuit Déchirée, sur la falaise au bord de la mer, dans l'Alliance des Cultivateurs, sur la planète de culture des trois frères Chen.
 
 Un vieil adage disait: les cultivateurs parcourent les cieux et adaptent les cieux à leur propre cœur. C'est ainsi seulement qu'ils peuvent embrasser le ciel et la terre et comprendre ce qu'est le Dao! Bien que cela puisse paraître complexe, cela repose sur une raison profonde.
 

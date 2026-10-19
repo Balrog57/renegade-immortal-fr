@@ -60,7 +60,7 @@ La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs de Luot
 
 « Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
 
-« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné plusieurs trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura des dizaines de fois plus puissante que précédemment, balayant les étoiles.
+« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné plusieurs trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura des dizaines de fois plus puissante que précédemment, formant un gigantesque tourbillon qui balayait les étoiles.
 
 Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui avaient été choqués par l'apparition de Ling Dong poussèrent à nouveau des rugissements fervents.
 
@@ -82,7 +82,7 @@ En un éclair, dix-huit trésors apparurent un à un au milieu de la tempête. C
 
 Une force indescriptible s'accumula dans la tempête et se projeta vers Wang Lin et l'Estimé Ling Dong!
 
-Les rugissements des dizaines de milliers de cultivateurs de Luotian parvinrent aux oreilles de Wang Lin!
+Les rugissements des dizaines de milliers de cultivateurs de Luotian parvinrent aux oreilles de Wang Lin et pénétrèrent jusqu'à son esprit!
 
 « Ancêtre de Luotian! Ancêtre Luotian! »
 

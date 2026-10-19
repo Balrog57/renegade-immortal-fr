@@ -7,7 +7,7 @@ en: Chapter 388 - Collecting Qilin Soul Flag
 slug: collecte-de-letendard-dame-du-qilin
 ---
 
-Ce Qilin ressemblait presque trait pour trait à celui que possédait Ling Tianhou; seule sa couleur différait. Cependant, son aura était bien plus faible que celle du saint de l'épée, Ling Tianhou.
+Ce Qilin ressemblait presque trait pour trait à celui que possédait Ling Tianhou au temps du Royaume Céleste; seule sa couleur différait. Cependant, son aura était bien plus faible que celle du saint de l'épée, Ling Tianhou.
 
 « Un fragment d'âme de Qilin! »
 
@@ -49,7 +49,7 @@ Plusieurs détonations retentirent lors de la collision entre les lances et les 
 
 Le Qilin poussa un rugissement puissant et se débattit avec acharnement, faisant éclater une à une les restrictions qui pesaient sur lui.
 
-Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà presque aussi fort qu'un cultivateur au sommet du stade tardif de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
+Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà presque aussi fort qu'un cultivateur au sommet du stade avancé de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
 
 Le regard de Wang Lin s'assombrit. Il leva la main droite et le piège à bêtes vola hors de sa main; il atterrit sur le côté et se transforma en Char de Guerre Divin. La bête avait considérablement faibli après son combat contre Papillon Rouge, mais dès qu'elle vit le Qilin, son corps trembla et ses yeux s'emplirent d'avidité.
 

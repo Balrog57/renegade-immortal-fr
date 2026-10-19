@@ -9,7 +9,7 @@ slug: spectre
 
 Nul ne savait à quoi ressemblait la cinquième grotte du Royaume Céleste des Esprits où se trouvait l'Empereur Céleste Qing Lin en culture de porte close, pas même sa dimension.
 
-Seul Qing Lin avait eu le droit d'y pénétrer autrefois. Aucun étranger n'était autorisé, et tout contrevenant était exécuté! Même Qing Shuang n'avait jamais fait un seul pas à l'intérieur. Cette cinquième grotte était le secret absolu de Qing Lin!
+Seul Qing Lin avait eu le droit d'y pénétrer autrefois. Aucun étranger n'était autorisé, et tout contrevenant était exécuté! Même sa fille, Qing Shuang, n'avait jamais fait un seul pas à l'intérieur. Cette cinquième grotte était le secret absolu de Qing Lin!
 
 À cet instant, alors que la lumière violette se dissipait, chacun disparut sans laisser de trace.
 
@@ -57,7 +57,7 @@ En fuyant, il pouvait ressentir la force d'aspiration venant de ses arrières. C
 
 Bien que la distance ne fût que de mille pieds, cela redonna de la détermination à Wang Lin. Le tourbillon ne mettait qu'une seconde à parcourir cette distance. Même en utilisant toute sa puissance de Dieu Ancien sur le fourneau pour s'échapper, cela ne suffirait pas. S'il voulait véritablement s'en sortir, il devait arrêter le tourbillon. Même s'il n'était stoppé qu'une seconde, cela offrirait à Wang Lin une lueur d'espoir.
 
-Il tourna la tête et toucha son sac de rangement. Plus d'une douzaine d'épées en sortirent. À l'instant où elles furent libérées, elles formèrent une formation d'épées et chargèrent le tourbillon imminent. Il n'y avait pas de place pour les regrets en ce moment. Alors que les douze épées approchaient du vortex, Wang Lin hurla: « Épées, explosez! »
+Il tourna la tête et toucha son sac de rangement. Plus d'une douzaine d'épées en sortirent. À l'instant où elles furent libérées, elles formèrent une formation d'épées et chargèrent le tourbillon imminent. Il n'y avait pas de place pour les regrets en ce moment. Alors que les épées approchaient du vortex, Wang Lin hurla: « Épées, explosez! »
 
 À son cri, l'une des grandes épées dégagea une aura destructrice et explosa en d'innombrables fragments qui s'abattirent sur le tourbillon. Simultanément, toutes les autres grandes épées explosèrent de la même manière. Les innombrables éclats balayèrent le tourbillon, le forçant à marquer une pause.
 
@@ -77,7 +77,7 @@ Les tourbillons se rapprochaient sans cesse et continuaient d'absorber le gaz gr
 
 « Puisque je ne peux pas les esquiver, je dois les affronter! » Wang Lin s'arrêta net. Il ne pouvait pas laisser aux tourbillons le temps de gagner en puissance. Au moment où il s'immobilisa, sa puissance de Dieu Ancien emplit son corps et celui-ci grandit considérablement!
 
-Le véritable corps d'un Dieu Ancien apparut une fois de plus! Ce corps, haut de plusieurs milliers de pieds, semblait capable de soutenir le monde entier. Les cinq étoiles du Dieu Ancien tournèrent rapidement alors que les dix tourbillons se refermaient sur lui. Wang Lin laissa échapper un rugissement qui ébranla le monde!
+Le véritable corps d'un Dieu Ancien apparut une fois de plus! Ce corps, haut de plusieurs milliers de pieds, semblait capable de soutenir le monde entier. Les cinq étoiles du Dieu Ancien tournèrent rapidement alors que plus d'une dizaine de tourbillons se refermaient sur lui. Wang Lin laissa échapper un rugissement qui ébranla le monde!
 
 Il ne fuyait plus. Alors qu'il avançait, le fourneau du Dieu Ancien brilla et il disparut. Lorsqu'il réapparut, il se trouvait face à un tourbillon.
 

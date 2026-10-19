@@ -14,7 +14,7 @@ L'homme âgé vêtu de noir n'attaqua pas; il se contenta de contempler silencie
 
 Au loin, les huit rois de la Secte des Cadavres se lancèrent vers le dragon de sang tels huit glaives!
 
-Le dragon de sang restait vigilant. La formation étrange que les huit avaient créée lui avait fait subir d'importants dommages. À cet instant, ses yeux s'animèrent et il chargea les huit rois de la Secte des Cadavres, ignorant totalement Maître Yan Leizi.
+Le dragon de sang restait vigilant. La formation étrange que les huit avaient créée lui avait fait subir d'importants dommages. À cet instant, ses yeux s'animèrent et il fondit sur les huit rois de la Secte des Cadavres pour les engloutir d'une bouchée, ignorant totalement Maître Yan Leizi.
 
 Sa vitesse était telle qu'il laissait derrière lui des images rémanentes.
 
@@ -26,23 +26,23 @@ Cette cloche, faite d'os et enveloppée d'une couche métallique, émit des sons
 
 Le regard du dragon de sang devint assoiffé de sang. À l'origine, il n'avait qu'une seule paire de pupilles, mais après avoir invoqué un sort inconnu, celles-ci se divisèrent en deux, puis encore une fois. En un instant, huit paires de pupilles apparurent dans ses yeux.
 
-Un sentiment de crise envahit immédiatement le cœur de Maître Yan Leizi et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants dont le niveau de culture dépassait la perfection du stade de la Rupture du Nirvana et qui se trouvaient déjà au cœur de leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
+Un sentiment de crise envahit immédiatement le cœur de Maître Yan Leizi et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants dont le niveau de culture dépassait la perfection du stade du Briseur du Nirvana et qui se trouvaient déjà au cœur de leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
 
-Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puissance atteint son apogée, c'est aussi son instant le plus vulnérable! C'était une leçon que les neuf avaient apprise au fil d'innombrables années. La main droite de Maître Yan Leizi toucha l'espace entre ses sourcils et quarante-cinq fragments s'envolèrent instantanément. Ces derniers grossirent rapidement pour se transformer en quarante-cinq Fragments du Royaume Céleste du Tonnerre qui recouvrirent le ciel!
+Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puissance atteint son apogée, c'est aussi son instant le plus vulnérable! C'était une leçon que les neuf avaient apprise au fil d'innombrables années. La main droite de Maître Yan Leizi toucha l'espace entre ses sourcils et quarante-cinq fragments s'envolèrent instantanément du sommet de son crâne. Ces derniers grossirent rapidement pour se transformer en quarante-cinq Fragments du Royaume Céleste du Tonnerre qui recouvrirent le ciel!
 
 « Pouvoir du Royaume du Tonnerre, deviens le sort divin qui déchire le ciel! » Maître Yan Leizi tendit les deux mains, et les quarante-cinq fragments continentaux se mirent à tourner dans un grondement assourdissant avant de s'abattre sur le dragon de sang!
 
 La pression de la descente des fragments semblait égaler la puissance des cieux. Elle fit trembler le vide de toutes parts et creusa d'innombrables petites dépressions dans le corps de sang du dragon.
 
-Les esprits des huit rois de la Secte des Cadavres étaient liés. Leurs mains formèrent promptement des sceaux et huit rayons de lumière convergèrent. Tandis que l'énergie glaciale s'accumulait, la Troisième Formation de Cadavres qui avait gelé le dragon plus tôt réapparut!
+Les esprits des huit rois de la Secte des Cadavres étaient liés. Leurs mains formèrent promptement des sceaux et huit rayons de lumière convergèrent. Tandis que l'énergie glaciale s'accumulait, la Troisième Formation de Cadavres qui avait blessé le dragon plus tôt réapparut!
 
 Une sphère de glace noire de mille pieds de large surgit, contenant les huit guerriers. En un clin d'œil, d'innombrables arêtes tranchantes apparurent sur la boule de glace, laquelle chargea le dragon de sang!
 
 Les pupilles du dragon de sang se rétractèrent, puis l'une des huit paires commença à s'élargir jusqu'à occuper la place de toutes les autres!
 
-À cet instant précis, une obscurité surgit soudainement. Cette ombre était si dense que même le Sens Divin ne pouvait percer son mystère. On n'entendait plus que des grondements assourdissants résonner en son sein.
+À cet instant précis, une obscurité surgit soudainement. Cette ombre était si dense que même le Sens Divin ne pouvait s'en échapper, et presque personne ne distinguait ce qui l'entourait. On n'entendait plus que des grondements assourdissants résonner en son sein.
 
-L'obscurité ne dura qu'un instant avant de se dissiper.
+L'obscurité ne dura qu'une respiration avant de se dissiper.
 
 Cependant, une fois la lumière revenue, quatre des quarante-cinq fragments de Maître Yan Leizi furent réduits en poussière et les quarante et un restants furent repoussés.
 
@@ -54,9 +54,9 @@ L'homme âgé qui méditait leva les yeux et fronça les sourcils, avant de pour
 
 « Serait-ce pour dérober le pouvoir de l'ancien dieu royal à 8 étoiles... Pourtant, à l'époque, même l'Empereur Céleste Qing Lin avait renoncé. Maître Wuji, quelle méthode possédez-vous? »
 
-Wang Lin observait la bataille depuis le lointain sans s'approcher. Cette obscurité soudaine lui avait inspiré un puissant sentiment de danger, le rendant d'autant plus réticent à s'avancer. Cependant, en revoyant le dragon de sang une seconde fois, Wang Lin eut une impression de familiarité. Ce sentiment se propagea dans son cœur et ses yeux s'illuminèrent soudainement.
+Wang Lin observait la bataille depuis le lointain sans s'approcher. Cette obscurité soudaine lui avait inspiré un puissant sentiment de danger, le rendant d'autant plus réticent à s'avancer. Cependant, en revoyant le dragon de sang une seconde fois, Wang Lin eut une impression de familiarité. Ce sentiment se propagea dans son cœur, le faisant tressaillir, et ses yeux s'illuminèrent soudainement.
 
-Il percevait naturellement Maître Yan Leizi et l'homme en noir. En voyant ce dernier, Wang Lin comprit que le dragon de sang ne pourrait pas faire grand-chose.
+Il percevait naturellement Maître Yan Leizi et l'homme en noir. En voyant ce dernier, Wang Lin comprit qu'aujourd'hui, sans même parler de Tuo Sen, le dragon de sang ne pourrait pas faire grand-chose.
 
 Pourtant, l'homme âgé fronçait les sourcils comme absorbé par ses pensées; il ne daignait même pas regarder le dragon.
 
@@ -100,7 +100,7 @@ Une fois ces quatre respirations écoulées, le vide retrouva son aspect normal.
 
 Wang Lin recula encore plus vite, mais ses yeux demeuraient graves alors qu'il scrutait le dragon.
 
-L'épée des huit rois de la Secte des Cadavres semblait avoir ralenti. Après quatre respirations, elle n'avait progressé que de deux cents pieds avant que des craquements ne retentissent et qu'une fissure n'apparaisse sur la lame.
+L'épée des huit rois de la Secte des Cadavres semblait avoir ralenti. Après quatre respirations, elle n'avait progressé que de plus de deux cents pieds avant que des craquements ne retentissent et qu'une fissure n'apparaisse sur la lame.
 
 Les veines de Maître Yan Leizi étaient saillantes, mais les fragments continuaient de converger vers le dragon.
 

@@ -22,7 +22,7 @@ Wang Lin sentit soudain la menace disparaître derrière lui; il arrêta donc la
 
 Cependant, cet homme possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme, ce qui obligea Wang Lin à redoubler de vigilance.
 
-Il réfléchit un instant, laissa échapper un reniflement et, au lieu de reculer, il contourna le vieil homme pour se placer sur son flanc.
+Il réfléchit un instant, laissa échapper un reniflement et, au lieu d'avancer, il recula et contourna le vieil homme pour se placer sur son flanc.
 
 Le vieil homme remarqua la manœuvre de Wang Lin. Son visage s'assombrit, mais il n'intervint pas.
 
@@ -60,7 +60,7 @@ Les yeux du vieil homme étaient sombres de rage. Il fixa le vide au loin et dis
 
 Lorsqu'il réapparut, il fixa avec férocité la lumière blanche libérée par la boussole stellaire lors de sa téléportation.
 
-Son expression changea brusquement et il tourna la tête vers la sortie. La direction vers laquelle Wang Lin s'était téléporté n'était pas seulement éloignée du vieil homme, elle menait également vers la sortie.
+Son expression changea brusquement et il tourna la tête vers la sortie. La direction vers laquelle Wang Lin s'était téléporté n'était pas une fuite : elle menait droit vers la sortie.
 
 « Senior, le junior va détruire la sortie pour que nous puissions rester ici pour toujours! Ne serait-ce pas amusant?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
 
@@ -70,9 +70,9 @@ Wang Lin n'avait effectivement plus beaucoup de pilules, mais il possédait enco
 
 Il agitait occasionnellement l'épée céleste pour agacer le vieil homme.
 
-Cette course était une bataille d'usure et un combat de volonté.
+Cette course était à la fois une guerre d'usure et une guerre psychologique.
 
-Le vieil homme ne pouvait deviner combien de pilules et de pierres spirituelles Wang Lin possédait encore. Ces quatre mois de traque l'avaient fait douter de lui-même; il avait l'impression que Wang Lin disposait d'une réserve infinie.
+Le vieil homme ne pouvait deviner combien de pilules et de pierres spirituelles Wang Lin possédait encore. Ces quatre mois de traque avaient éveillé ses doutes; il avait l'impression que Wang Lin disposait d'une réserve infinie.
 
 Ce sentiment était ténu au début, mais lorsque le vieil homme avait renoncé et que Wang Lin s'était retourné pour le poursuivre, cette impression était devenue accablante. Il était convaincu que Wang Lin possédait encore énormément de ressources et qu'il ne pourrait jamais le rattraper, à moins que le trésor de Wang Lin ne se brise soudainement.
 
@@ -90,7 +90,7 @@ Hélas, la vitesse de la boussole stellaire ne faisait qu'augmenter, Wang Lin s'
 
 Finalement, Wang Lin créa quatre fentes sur la boussole stellaire et y inséra quatre pierres spirituelles de qualité supérieure. Il alimentait désormais la boussole uniquement par ces pierres. Après avoir laissé une partie de son sens divin pour contrôler l'objet, il consacrait le reste de son énergie à attaquer le vieil homme.
 
-La lance de l'étendard de restriction, ses gravures du domaine temporel, le sceau noir et divers trésors anciens furent tous utilisés par Wang Lin. Bien qu'ils fussent inefficaces contre le vieil homme, la maîtrise que Wang Lin en acquérait devenait de plus en plus prodigieuse.
+La lance de l'étendard de restriction, la sculpture en bois du domaine temporel, le sceau noir et divers trésors anciens furent tous utilisés par Wang Lin. Bien qu'ils fussent inefficaces contre le vieil homme, la maîtrise que Wang Lin en acquérait devenait de plus en plus prodigieuse.
 
 Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
 
@@ -128,4 +128,4 @@ Cependant, les tatouages sur son corps étaient ternes. Après avoir couru un ce
 
 Lorsque les sept feuilles s'ouvrirent complètement, le vieil homme fut totalement enveloppé par la plante, ne laissant derrière lui qu'une unique plante poussant dans le vide.
 
-« J'espère pouvoir emprunter l'esprit du clan pour ouvrir un passage! » Le vieil homme, à l'intérieur de la plante, ferma lentement les yeux.
+« J'espère pouvoir compter sur l'esprit ancestral du clan pour ouvrir un passage! » Le vieil homme, à l'intérieur de la plante, ferma lentement les yeux.

@@ -32,7 +32,7 @@ Un Dragon Azure affaibli se dessina vaguement au-dessus de lui. Ce dragon était
 
 Après un temps indéterminé, les rugissements de l'Empereur Divin du Dragon Azure s'apaisèrent progressivement. La tumeur de sept pouces se rétracta jusqu'à disparaître. Les chaînes cessèrent de s'entrechoquer et l'Empereur Divin retrouva son calme. Il se rassit, la respiration lourde, et après un long moment, il afficha une expression amère.
 
-« J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa culture, sa tête se redressa brusquement. Un éclat de joie passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
+« J'ai encore gagné... » dit-il en reprenant son souffle. Alors qu'il s'apprêtait à reprendre sa culture, sa tête se redressa brusquement. Un éclair de stupeur passa dans ses yeux. Après un court instant de réflexion, il laissa éclater un rire de jubilation et deux traînées de larmes coulèrent sur ses joues.
 
 « Excellent! Excellent! Vraiment un Empereur Divin digne, choisi par le vieil Oiseau Vermillon. Il a été capable de renaître par le feu et a accompli le troisième éveil de l'Oiseau Vermillon. Je crois qu'il est le premier membre du clan à avoir achevé ce troisième éveil depuis les temps anciens! Bien! Pour que tu obtiennes une telle fortune, il n'a pas été vain que je subisse cette épreuve indicible! »
 

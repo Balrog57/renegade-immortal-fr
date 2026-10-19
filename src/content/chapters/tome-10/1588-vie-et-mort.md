@@ -24,7 +24,7 @@ Le ciel était drapé d'une lumière aux sept couleurs. La lance formée par cet
 
 « Père, mère... Tie Zhu est très fatigué. Je vais venir vous rejoindre, d'accord... » Le désespoir dans les yeux de Wang Lin s'effaça, remplacé par un sentiment de soulagement.
 
-Il était épuisé. Il voulait se reposer, il voulait fermer les yeux, il voulait vivre une vie mortelle. Il ne voulait plus affronter ces luttes entre la vie et la mort, il ne voulait plus lutter contre le destin; il ne voulait pas entraîner ses parents dans tout cela, ni devoir leur faire ses adieux et balayer devant leur tombe.
+Il était épuisé. Il voulait se reposer, il voulait fermer les yeux, il voulait vivre une vie mortelle. Il ne voulait plus affronter ces luttes entre la vie et la mort, il ne voulait plus lutter contre le destin; il ne voulait pas entraîner ses parents dans tout cela, ni devoir leur faire ses adieux et pleurer à genoux devant leur tombe.
 
 Il aurait préféré ne rien savoir du tout... Ne pas savoir qu'il existait des cultivateurs sur la planète Suzaku, qu'il existait, au-delà du pays de Zhao, d'autres pays de culture, et que l'Alliance de Culture se trouvait au-delà de la planète Suzaku...
 
@@ -40,7 +40,7 @@ Au fil de son existence, Wang Lin avait faiblement réalisé qu'il y avait encor
 
 Ce furent ses dernières pensées avant la mort, alors que la lance aux sept couleurs se refermait sur lui.
 
-Alors qu'il fermait les paupières, les vêtements sur sa poitrine s'effondrèrent, suivis par sa propre chair. La chair et le sang furent déchirés, et son visage subit le même sort...
+Alors qu'il fermait les paupières, les vêtements sur sa poitrine s'effondrèrent, suivis par sa propre chair. Sa poitrine s'enfonça profondément, la chair et le sang furent déchirés, et son visage subit le même sort...
 
 Poussière retourne à la poussière, terre retourne à la terre...
 

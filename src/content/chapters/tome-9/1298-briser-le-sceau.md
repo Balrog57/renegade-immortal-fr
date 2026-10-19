@@ -52,7 +52,7 @@ Il avait franchi le sommet du stade Purificateur du Nirvana pour entrer dans le 
 
 L'aura à l'intérieur de son corps se propagea soudainement, devenant plus forte et plus sauvage. Tout cela se produisit en un éclair: Wang Lin franchit le stade initial du Briseur du Nirvana pour entrer directement dans le stade intermédiaire!
 
-Si cette faille spatiale n'avait pas été si étrange qu'elle empêchait la descente de la rétribution divine, celle-ci serait apparue instantanément. Et elle aurait été des milliers de fois plus puissante qu'auparavant!
+Si cette faille spatiale n'avait pas été si étrange qu'elle empêchait la descente de la rétribution divine, celle-ci serait apparue instantanément. Et elle aurait été d'innombrables fois plus puissante qu'auparavant!
 
 Ce serait là la plus terrible rétribution divine qu'il ait jamais eu à affronter!
 

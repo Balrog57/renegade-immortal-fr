@@ -14,7 +14,7 @@ L'immensité du Champ de Bataille Extérieur était vertigineuse, presque sans l
 
 Une multitude d'entités fantomatiques perçaient ces corps... Au loin, des tempêtes semblaient faire rage en silence. Bien qu'inaudibles, elles paraissaient émettre des hurlements qui résonnaient directement dans l'âme. Ces tempêtes étaient formées par ces créatures spectrales.
 
-L'esprit de Wang Lin trembla et son sens divin se déploya. Il vit clairement qu'à cet instant, il se trouvait également à proximité d'un squelette colossal. Ce n'était pas celui d'un homme, mais celui d'une bête semblable à un dragon.
+L'esprit de Wang Lin trembla et son sens divin se déploya. Il vit clairement que l'endroit où il se trouvait était, lui aussi, un squelette colossal. Ce n'était pas celui d'un homme, mais celui d'une bête semblable à un dragon.
 
 Il se trouvait près du crâne de cette créature. Le mur qu'il avait brisé faisait partie du crâne de la bête! Il se tenait à l'intérieur même du crâne, regardant vers l'avant!
 
@@ -22,13 +22,13 @@ Si quelqu'un observait Wang Lin depuis l'intérieur du Champ de Bataille Extéri
 
 Les tempêtes lointaines se rapprochaient, mais à leur approche, d'innombrables âmes errantes s'éparpillaient dans la terreur. C'était comme si elles craignaient par-dessus tout l'existence de Wang Lin!
 
-Wang Lin avait été autrefois un Dévoreur d'Âmes!
+Wang Lin avait autrefois été un dévoreur d'âmes!
 
 Wang Lin fixa le Champ de Bataille Extérieur. Il avait parcouru trop de planètes et visité trop de lieux, mais il n'avait jamais vu une autre planète dotée d'un Champ de Bataille Extérieur semblable à celui de la planète Suzaku!
 
 C'était comme si ce champ de bataille n'appartenait qu'à la planète Suzaku, et exclusivement aux cultivateurs de cette planète!
 
-Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était retournée dans son corps. Il avait ensuite trouvé le cadavre de Ma Liang, marquant ainsi le début de sa nouvelle existence.
+Tout en réfléchissant silencieusement, Wang Lin fit un pas en avant. Après plus de 2 000 ans, il pénétrait dans le Champ de Bataille Extérieur qui lui avait offert une nouvelle vie! Il ne pouvait oublier le jour où il avait été tué par l'ancêtre de la famille Teng. Puis, grâce à la Perle Défiant le Ciel et à Situ Nan, son âme était parvenue jusqu'ici. Il avait trouvé le cadavre de Ma Liang et s'était emparé de son corps, marquant ainsi le début de sa nouvelle existence.
 
 Après un long moment, le sens divin de Wang Lin continua de s'étendre à travers le Champ de Bataille Extérieur. Il vit une profusion de cadavres et d'âmes errantes. Toutes ces âmes hurlaient et reculaient de peur. Pourtant, faute de pouvoir s'échapper, elles ne pouvaient que trembler devant son sens divin.
 

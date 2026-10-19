@@ -24,7 +24,7 @@ Un autre éclair de tonnerre jaillit du bâtiment des scorpions et se transforma
 
 Une voix vieille et rauque retentit, entremêlée de toux: « La dernière Perle de l'Empereur du Tonnerre. Même le Continent de l'Empereur du Tonnerre en possède moins de trois exemplaires. Si tu ne réussis toujours pas, alors toutes les promesses passées seront nulles! »
 
-Le maître de la Secte du Dao Démoniaque était extrêmement sombre. Il n'avait pas imaginé que ce serait si difficile. Il fixa la Perle de l'Empereur du Tonnerre, les veines de son visage saillantes sous l'effort. Puis, il ouvrit la bouche et aspira. Le tonnerre se précipita dans sa gorge.
+Le maître de la Secte du Dao Démoniaque était extrêmement sombre. Il n'avait pas imaginé que les choses prendraient une tournure aussi étrange. Il fixa la Perle de l'Empereur du Tonnerre, les veines de son visage saillantes sous l'effort. Puis, il ouvrit la bouche et aspira. Le tonnerre se précipita dans sa gorge.
 
 Dès l'instant où il dévora la perle, le maître de la Secte du Dao Démoniaque forma un sceau qu'il pressa contre ses sourcils, puis poussa un rugissement vers les cieux.
 
@@ -32,11 +32,11 @@ Dès l'instant où il dévora la perle, le maître de la Secte du Dao Démoniaqu
 
 L'essence de tonnerre contenait également la puissante poussée provenant de la seconde Perle de l'Empereur du Tonnerre. Elle propulsa la volonté du maître de la Secte du Dao Démoniaque vers Wang Lin avec rapidité.
 
-Alors que cette essence indescriptible fonçait en avant, le corps de Wang Lin, dans l'espace vert, trembla une fois de plus. Des arcs de tonnerre encore plus nombreux entourèrent son corps et s'étendirent soudainement sur un rayon de plus de mille pieds. La zone environnante devint un véritable enfer de tonnerre!
+Alors que cette essence indescriptible fonçait en avant, le corps de Wang Lin, dans l'espace vert, trembla une fois de plus. Des arcs de tonnerre, des dizaines de fois plus nombreux, entourèrent son corps et s'étendirent soudainement sur un rayon de mille pieds. La zone environnante devint un véritable enfer de tonnerre!
 
 Le tonnerre jaillissait et brillait intensément. La tête de Wang Lin se souleva, hors de tout contrôle, et la marque de tonnerre dans son œil droit clignota neuf fois avant de s'envoler.
 
-La marque de tonnerre s'élança et se transforma en une empreinte gigantesque mille pieds au-dessus de lui. Dès son apparition, elle commença à absorber le tonnerre environnant avec frénésie. À mesure que la foudre fusionnait avec la marque, un contour humanoïde apparut autour de celle-ci!
+La marque de tonnerre s'élança et se transforma en une empreinte gigantesque à plusieurs milliers de pieds au-dessus de lui. Dès son apparition, elle commença à absorber le tonnerre environnant avec frénésie. À mesure que la foudre fusionnait avec la marque, un contour humanoïde apparut autour de celle-ci!
 
 C'était l'ébauche d'un véritable corps d'essence. Bien qu'il ne fût pas encore totalement formé, à en juger par son état actuel, il ne tarderait pas à devenir un véritable corps d'essence!
 
@@ -44,7 +44,7 @@ En un éclair, tout le tonnerre alentour fut absorbé, puis une quantité encore
 
 C'était une quantité de tonnerre suffisante pour ébranler le monde. La foudre occupait chaque recoin de cet espace, remplaçant presque la lumière verte et transformant cette dimension en un domaine de tonnerre!
 
-Cette masse de foudre se précipita dans le contour humain de la marque. Le grondement était si puissant qu'il s'entendait clairement à l'extérieur du Temple du Scorpion du Démon Vert. La fusion de tout ce tonnerre fit trembler une partie du Continent du Démon Vert.
+Cette masse de foudre se précipita dans le contour humain de la marque. Le grondement, qui se répandit sur près d'un million de kilomètres à la ronde, était si puissant qu'il s'entendait clairement à l'extérieur du Temple du Scorpion du Démon Vert. La fusion de tout ce tonnerre fit trembler une partie du Continent du Démon Vert.
 
 Le contour humanoïde continua d'absorber les éclairs et grandit rapidement. À l'intérieur, des os faits de tonnerre commencèrent à se former. Chaque os était constitué d'innombrables filaments de foudre étroitement assemblés. En un instant, un squelette complet apparut.
 

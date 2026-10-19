@@ -66,7 +66,7 @@ Ces méthodes servaient à authentifier son identité. La pression se fixa ensui
 
 À ce moment précis, les deux Anciens furent totalement rassurés. Ils rendirent le jeton à Wang Lin et l'un d'eux rit: « Ancien Wang, excusez-nous pour ce désagrément. Vous pouvez franchir la restriction et regagner la secte. Nous sommes toujours de garde et devons retourner à notre poste, nous ne pouvons donc pas vous accompagner. Nous espérons que l'Ancien Wang comprendra. »
 
-Puisque les autres étaient polis envers lui, il l'était naturellement en retour. Ayant acquis une aura de grand érudit dans le monde des rêves, il dégageait un tempérament mystérieux. Il sourit et salua les deux hommes. Alors qu'il s'apprêtait à partir, il posa soudain une question:
+Puisque les autres étaient polis envers lui, il l'était naturellement en retour. Ayant acquis, dans le Dao des Rêves du Monde des Cavernes, une aura de grand érudit, il dégageait un tempérament mystérieux. Il sourit et salua les deux hommes. Alors qu'il s'apprêtait à partir, il posa soudain une question:
 
 « Quelque chose s'est-il passé récemment au sein de la secte...? »
 

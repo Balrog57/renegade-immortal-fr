@@ -8,9 +8,9 @@ slug: la-calamite-aux-sept-couleurs
 ---
 Le sable jaune tombait comme une pluie battante, formant un véritable rideau. Simultanément, des grondements sourds remontèrent des profondeurs du sol.
 
-Alors que le rugissement résonnait, la planète entière commença à trembler. Sous les pieds de Wang Lin, le sable jaune se mit à s'enfoncer et le fracas devint plus distinct. En un éclair, une bête serpentine jaillit des entrailles de la terre!
+Alors que le rugissement résonnait, la planète entière commença à trembler. Devant Wang Lin, sur une vaste étendue, le sable jaune se mit à s'enfoncer et le fracas devint plus distinct. En un éclair, une bête serpentine jaillit des entrailles de la terre!
 
-C'était une créature gigantesque recouverte de terre, haute de 10 000 pieds. Semblable à un ver géant, la seule partie émergée était sa gueule; de loin, on aurait dit que son ouverture couvrait la majeure partie de son visage. Elle ouvrit la bouche et chargea le Daoïste aux Sept Couleurs.
+C'était une créature gigantesque recouverte de terre, d'une épaisseur de 10 000 pieds. Semblable à un ver géant, la seule partie émergée était sa gueule; de loin, on aurait dit que son ouverture couvrait la majeure partie de son visage. Elle ouvrit la bouche et chargea le Daoïste aux Sept Couleurs.
 
 Les yeux de la bête restaient clos, comme s'ils avaient été scellés à jamais. Si elle avait possédé de nombreuses tentacules autour du corps, elle aurait ressemblé au Serpent aux yeux de lune, mais son apparence actuelle était bien différente.
 
@@ -82,7 +82,7 @@ Wang Lin recula, un filet de sang coulant du coin de sa bouche, mais il gardait 
 
 Les trois généraux, frappés par les ondes de choc de la flèche, crachèrent du sang et reculèrent en panique pour s'éloigner de la planète.
 
-Cependant, à ce moment précis, un rugissement colérique retentit. Les huit Poissons-Œil, couverts de sang pourpre, furent repoussés sur plus de 10 000 pieds. La lumière aux sept couleurs entourant le Daoïste se distordit et s'estompa immédiatement.
+Cependant, à ce moment précis, un rugissement colérique retentit. Les huit Poissons-Œil, couverts de sang pourpre, furent repoussés de 10 000 pieds. La lumière aux sept couleurs entourant le Daoïste se distordit et s'estompa immédiatement.
 
 Le Daoïste aux Sept Couleurs fut ainsi révélé. Sa poitrine était un véritable carnage. La flèche l'avait transpercé, mais il avait réussi à saisir l'extrémité arrière de la flèche, empêchant ainsi le projectile de traverser complètement son corps et de le détruire.
 

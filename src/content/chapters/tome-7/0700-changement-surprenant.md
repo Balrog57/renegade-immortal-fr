@@ -118,7 +118,7 @@ Wang Ping posa sa sculpture et vint se tenir devant Qing Yi. Il fixa l'homme d'�
 
 L'actuel Wang Ping n'avait plus rien d'un mortel. Le calme dans son regard était authentique; il était véritablement serein. Il se tenait devant Qing Yi comme un homme capable de soutenir le monde sur ses épaules.
 
-Tout cela était l'héritage de son père, Wang Lin. Dix-neuf ans de vie ordinaire, huit ans de voyage et plus de trente ans en tant que souverain suprême parmi les mortels lui avaient forgé un cœur qui ne craint pas les cieux. Il ne craignait pas l'effondrement des cieux, et encore moins ce cultivateur!
+Tout cela était l'héritage de son père, Wang Lin. Dix-neuf ans de vie ordinaire, huit ans de voyage et plus de trente ans en tant que souverain suprême parmi les mortels lui avaient forgé un cœur qui ne craint pas les cieux. Il ne craignait même pas le ciel, et encore moins ce cultivateur!
 
 Qing Yi fixa les yeux de Wang Ping. À cet instant, sa silhouette fut gravée à jamais dans son esprit, et la tendresse dans son regard s'intensifia. Elle dissipa sa culture sans hésiter et, derrière son mari, affronta calmement l'homme d'âge moyen.
 
@@ -130,6 +130,6 @@ Cependant, ce seul mortel ne s'était pas effondré, et il semblait même ne pas
 
 Il dit lentement: « Intéressant! Pas étonnant que tu ne sois pas tombé dans les pommes. C'était donc cela... »
 
-Au moment précis où l'homme d'âge moyen franchissait le seuil de la pièce, dans la lointaine Ville des Vastes Eaux, Wang Lin, qui était assis avec sa cruche de vin, se leva brusquement. La cruche dans sa main droite vola en éclats et le vin qu'elle contenait se désintégra totalement.
+Au moment précis où l'homme d'âge moyen franchissait le seuil de la pièce, dans la lointaine Ville des Vastes Eaux, Wang Lin, qui était assis avec sa cruche de vin, redressa brusquement la tête. La cruche dans sa main droite vola en éclats et le vin qu'elle contenait se désintégra totalement.
 
-Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient montré aucune émotion depuis plus de soixante-dix ans, affichèrent une froideur inédite. C'était une présence plus terrifiante encore que lors de l'incident au restaurant.[1. Fait référence à la menace subie par Wang Ping dans le restaurant, lors de leur arrivée dans la ville.] La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!
+Lorsque Wang Lin leva la tête, ses yeux, qui n'avaient jamais affiché une telle froideur en plus de soixante-dix ans, lancèrent un éclat glacial. C'était une présence plus terrifiante encore que lors de l'incident au restaurant.[1. Fait référence à la menace subie par Wang Ping dans le restaurant, lors de leur arrivée dans la ville.] La différence était celle entre le ciel et la terre; elle était tout simplement incomparable!

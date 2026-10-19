@@ -8,7 +8,7 @@ slug: le-fourreau-depee
 ---
 Le vieil homme fut saisi d'effroi par les paroles de Wang Lin. Alors qu'il s'apprêtait à reculer, il ne vit que des rangées d'éclairs rouges; ce fut la dernière image de sa vie, une image qui rappelle les âmes.
 
-Le Sens Divin du Royaume Ji, inutilisé depuis longtemps, était toujours aussi acéré et anéantit en un instant le Sens Divin du vieil homme. Alors que son Âme Naissante s'apprêtait à s'échapper, la paume de Wang Lin frappa sa poitrine. Une vague d'énergie spirituelle s'engouffra dans le corps du vieil homme, brisa son dantian et piégea l'Âme Naissante à l'intérieur. Ce dernier ne put que regarder, impuissant, Wang Lin saisir son Âme Naissante pour la dévorer.
+Le Sens Divin du Royaume Ji, inutilisé depuis longtemps, était toujours aussi acéré et anéantit en un instant le Sens Divin du vieil homme. Alors que son Âme Naissante s'apprêtait à s'échapper, la paume de Wang Lin frappa sa poitrine. Une vague d'énergie spirituelle s'engouffra dans le corps du vieil homme, brisa son Palais Pourpre et piégea l'Âme Naissante à l'intérieur. Ce dernier ne put que regarder, impuissant, Wang Lin saisir son Âme Naissante pour la dévorer.
 
 Aux yeux des quatre individus cachés dans la cuvette, Wang Lin était désormais un démon. Tuer quelqu'un pour son Âme Naissante puis la dévorer directement allait à l'encontre de toutes leurs convictions.
 
@@ -47,7 +47,7 @@ Avec son niveau de culture actuel, il pouvait aisément comprendre qu'une quanti
 
 Par conséquent, il était d'autant plus certain que ce fourreau n'était pas celui de jadis. Le précédent avait la capacité d'augmenter la puissance d'une épée volante, mais la différence de gain de puissance entre un enfoncement au cinquième et un enfoncement aux trois cinquièmes était abyssale.
 
-Après une longue réflexion, la curiosité de Wang Lin fut piquée. Il pressentait qu'il existait plus de deux exemplaires de ces fourreaux.
+Après un bref silence, la curiosité de Wang Lin fut piquée. Il pressentait qu'il existait plus de deux exemplaires de ces fourreaux.
 
 ***
 

@@ -14,7 +14,7 @@ Peu de temps après, Wang Lin déboucha dans une grotte dont les parois étaient
 
 Au centre de la cavité reposait un cercueil gigantesque. Ce dernier semblait tout à fait ordinaire et ne comportait aucune décoration; pourtant, une puissante aura Yin s'en échappait. Cette aura se manifestait sous forme d'un gaz blanc qui était aspiré par les orifices du mur.
 
-Le cercueil était totalement vide, à l'exception de l'immense ouverture qui le traversait. C'était de là que provenait l'aura Yin.
+Le cercueil était totalement vide, à l'exception d'une immense ouverture ronde au fond. C'était de là que provenait l'aura Yin.
 
 Wang Lin ne marqua pas de pause et plongea dans le cercueil. Ici, l'aura Yin était si dense qu'elle formait des vagues d'énergie tentant de l'empêcher de s'enfoncer davantage.
 

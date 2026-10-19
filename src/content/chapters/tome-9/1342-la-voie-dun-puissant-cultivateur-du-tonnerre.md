@@ -28,7 +28,7 @@ Au moment où les deux tonnerres fusionnèrent, des grondements tonitruants rés
 
 Cette masse de souvenirs balaya l'âme originelle de Wang Lin telle une tempête. Son corps se mit à trembler et le monde devant lui sembla se fendre sous l'impact des éclairs. Une vision limpide du monde apparut alors clairement devant lui!
 
-Il s'agissait de l'héritage des essences de tonnerre, existant depuis la naissance même de ce phénomène. Cette mémoire était contenue dans les essences de tonnerre et restait rarement accessible. Aujourd'hui, en absorbant un éclair de Tonnerre Spirituel complet, une brèche s'était ouverte, laissant filtrer ces souvenirs!
+Il s'agissait de l'héritage des essences de tonnerre, à savoir le souvenir du premier tonnerre, né à l'ouverture du ciel et de la terre. Cette mémoire était contenue dans les essences de tonnerre et restait rarement accessible. Aujourd'hui, en absorbant un éclair de Tonnerre Spirituel complet, une brèche s'était ouverte, laissant filtrer ces souvenirs!
 
 Dans l'image, un éclair de tonnerre infini surgissait du vide. Ce tonnerre possédait une puissante aura d'essence et était entouré de neuf types de tonnerre différents qui, ensemble, formaient un motif étrange!
 

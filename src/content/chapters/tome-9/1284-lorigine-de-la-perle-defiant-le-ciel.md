@@ -52,7 +52,7 @@ Les paroles de Wang Lin plongèrent l'arbre géant dans le silence. Après un lo
 
 « Tout fonctionnait harmonieusement, jusqu'à ce qu'un trésor provenant d'un système stellaire étranger provoque un bouleversement catastrophique!
 
-« Ce chaos divisa le Royaume Céleste Antique en deux et le dispersa. Le chemin de l'ascension fut rompu et tous les passages furent condamnés...
+« Ce chaos divisa le Royaume Céleste Antique en deux, le dispersa et le dissimula. Le chemin de l'ascension fut rompu et tous les passages furent condamnés...
 
 « En conséquence, le Système Stellaire Antique fut scindé en Royaumes Intérieur et Extérieur, et la Grande Formation du Cœur du Royaume fut créée. La partie du Royaume Céleste Antique située à l'extérieur devint le lieu sacré du Royaume Extérieur... Et dans le Royaume Intérieur se trouvait l'autre fragment du Royaume Céleste Antique. C'est de là que je viens... »
 
@@ -70,11 +70,11 @@ Le cœur de Wang Lin chancela, et il demanda promptement: « Qu'est-ce que la Pe
 
 « Cependant, je ne fus pas le premier maître de la Perle Défiant le Ciel. Au cours de mes innombrables années d'étude, j'ai découvert qu'il y eut deux autres possesseurs. Chacun d'eux était bien plus puissant que moi... Ils devaient être des cultivateurs d'un système stellaire étranger!
 
-« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole! Hélas, l'Empereur Céleste est en culture de porte close; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel: l'emplacement du Royaume des Dieux Anciens! »
+« De plus, j'en ai déduit que la Perle Défiant le Ciel était l'élément le plus crucial de la boussole! Hélas, l'Empereur Céleste est en culture de porte close; autrement, il aurait pu percer et découvrir le secret ultime de la Perle Défiant le Ciel: l'emplacement du Royaume Divin Immémorial! »
 
-« Le Royaume des Dieux Anciens! » Wang Lin accumulait des secrets de plus en plus vertigineux. Il venait d'apprendre l'origine du Royaume Céleste Antique et de la Perle Défiant le Ciel; voilà qu'on lui parlait maintenant du Royaume des Dieux Anciens!
+« Le Royaume Divin Immémorial! » Wang Lin accumulait des secrets de plus en plus vertigineux. Il venait d'apprendre l'origine du Royaume Céleste Antique et de la Perle Défiant le Ciel; voilà qu'on lui parlait maintenant du Royaume Divin Immémorial!
 
-« Le Royaume des Dieux Anciens doit exister... Je n'en sais pas grand-chose non plus... À l'heure actuelle, je devrais être mort, mais ma mission n'est pas achevée. L'Empereur Céleste est toujours en culture de porte close et le Royaume Céleste Antique demeure scellé. Nous ne devons pas laisser les gens du Royaume Extérieur entrer; sinon, les conséquences seront impensables!
+« Le Royaume Divin Immémorial doit exister... Je n'en sais pas grand-chose non plus... À l'heure actuelle, je devrais être mort, mais ma mission n'est pas achevée. L'Empereur Céleste est toujours en culture de porte close et le Royaume Céleste Antique demeure scellé. Nous ne devons pas laisser les gens du Royaume Extérieur entrer; sinon, les conséquences seront impensables!
 
 « Les deux autres personnes qui sont entrées ici ne sont pas devenues les maîtres de la Perle Défiant le Ciel; elles ne sont que mes pions. Mais toi, tu es différent. Tu as fait fusionner la Perle Défiant le Ciel avec ton âme originelle et tu en es devenu le maître, c'est pourquoi je veux t'aider. Je veux que tu deviennes le Seigneur du Royaume Scellé et que tu le protèges pour moi. Résiste à l'invasion du Royaume Extérieur jusqu'à ce que l'Empereur Céleste sorte de sa culture de porte close, jusqu'à ce que le sceau du Royaume Céleste Antique s'ouvre!
 
@@ -96,7 +96,7 @@ Wang Lin réfléchit un instant et demanda lentement: « Que pouvez-vous m'offri
 
 Le temps s'écoula et le disque des années fut soulevé. Sans que l'on s'en aperçoive, le printemps s'effaça devant l'automne. Le soleil et la lune alternèrent, et deux années supplémentaires s'écoulèrent. Sur le continent sauvage de la région de rang 2, Li Qianmei avait accompagné la statue de pierre de Wang Lin pendant six ans.
 
-Six ans passaient vite pour les mortels, mais il est vrai que « dix ans passent en un clin d'œil ». Six ans n'étaient pas une éternité, mais ce n'était pas peu non plus.
+Six ans semblaient longs pour les mortels, mais il existe aussi le dicton « dix ans passent en un clin d'œil ». Six ans n'étaient pas une éternité, mais ce n'était pas peu non plus.
 
 Pour un cultivateur, six ans ne sont qu'un battement de cils, un instant fugace. Pourtant, Li Qianmei avait passé ces six années à recouvrir la statue de pierre de sang. Ces six années lui semblaient peser six cents ans...
 

@@ -14,7 +14,7 @@ Au moment où il se retourna, un rugissement étouffé jaillit de la gueule de l
 
 La Bête des Limbes n'avait pas ouvert la bouche depuis des dizaines de milliers d'années!
 
-Pour elle, une simple fente représentait mille pieds de large. Dès qu'elle s'ouvrit, le rugissement qu'elle semblait contenir depuis des millénaires jaillit avec une fureur déchaînée!
+Pour elle, une simple fente représentait mille pieds de large. Dès qu'elle s'ouvrit, le rugissement qu'elle semblait contenir depuis des dizaines de milliers d'années jaillit avec une fureur déchaînée!
 
 ROAR!!!
 
@@ -68,7 +68,7 @@ La Bête des Limbes devint anxieuse. Elle voulait dévorer Wang Lin, et non ces 
 
 « Il existe un royaume à l'intérieur de la Bête des Limbes, mais ce n'est qu'un sortilège. Puisqu'il s'agit d'une bête, elle possède une vie, une âme, de la chair et du sang! Si je veux en faire ma bête d'essence vitale, je dois pénétrer dans son corps sans être aspiré dans ce royaume!
 
-« Je veux qu'elle ouvre la bouche, mais pas qu'elle le fasse de façon incontrôlée! De plus, le sortilège de cette bête n'est pas encore pleinement activé. D'après les informations que j'ai recueillies, lorsque cette créature libérera toute la puissance de son sort, son âme apparaîtra. Ce n'est qu'à ce moment-là que je pourrai sceller l'âme! Si l'âme ne se manifeste pas, je ne pourrai pas sceller ses entrailles et le sceau échouera! » Wang Lin vit l'anxiété dans les yeux de la Bête des Limbes et recula lentement.
+« Je veux qu'elle ouvre la bouche, mais pas qu'elle le fasse de son propre chef! De plus, le sortilège de cette bête n'est pas encore pleinement activé. D'après les informations que j'ai recueillies, lorsque cette créature libérera toute la puissance de son sort, son âme apparaîtra. Ce n'est qu'à ce moment-là que je pourrai sceller l'âme! Si l'âme ne se manifeste pas, je ne pourrai pas sceller ses entrailles et le sceau échouera! » Wang Lin vit l'anxiété dans les yeux de la Bête des Limbes et recula lentement.
 
 Cette force d'aspiration aurait pu être redoutable contre Maître Lu Fu, mais Wang Lin disposait de Ling Dong, Zhou Jin, de la Tête de l'Ordre Ancien et des Feuilles Anciennes. Il pouvait ainsi résister à cette attraction.
 

@@ -56,7 +56,7 @@ Grande Désolation, dévoré par la cupidité, se précipita lui aussi.
 
 Seule la femme en blanc recula, pensive. Elle semblait vouloir se retirer de cette lutte.
 
-Cependant, à cet instant précis, un changement stupéfiant survint! Un hurlement terrifiant retentit depuis le Tombe de l'Ordre Antique. Le son paraissait lointain, mais l'instant d'après, il semblait être juste à leurs oreilles!
+Cependant, à cet instant précis, un changement stupéfiant survint! Un hurlement terrifiant retentit depuis la Tombe de l'Ordre Antique. Le son paraissait lointain, mais l'instant d'après, il semblait être juste à leurs oreilles!
 
 Dans la neuvième carte, Tuo Sen rugissait en chargeant. Mais son expression changea soudainement et il esquiva prestement sur le côté.
 
@@ -70,7 +70,7 @@ Simultanément, dans la première carte, un autre bras gigantesque fendit la bru
 
 Leurs cris de mort furent étouffés par le fracas. Une fois le bras passé, aucun d'eux n'avait survécu. Même leurs plateformes s'étaient effondrées.
 
-Ce bras était dix fois plus rapide que celui de la neuvième carte. Tel une montagne volante, il se déplaçait à une vitesse rivalisant avec celle des cultivateurs du Vide Arcane.
+Ce bras était plus de dix fois plus rapide que celui de la neuvième carte. Tel une montagne qui touchait le ciel, il se déplaçait à une vitesse rivalisant avec celle d'un cultivateur du troisième pas du Vide Arcane.
 
 Il balaya la deuxième, la troisième, la quatrième... jusqu'à traverser la septième carte. Tous les cultivateurs sur son passage furent incapables de l'éviter et périrent tous.
 
@@ -86,11 +86,11 @@ Il était impossible de décrire le choc ressenti par tous en voyant ces deux me
 
 Les bras surgirent des deux côtés du vortex et se refermèrent instantanément. Le vortex s'effondra sur le champ, sans aucune possibilité de résistance!
 
-Alors que le vortex se désintégrait, les deux bras géants se rejoignirent. Ils balayèrent tout le monde et frappèrent pour clore l'espace vers la toute première plateforme de rang 9 apparue!
+Alors que le vortex se désintégrait, les deux bras géants se rejoignirent. Ils balayèrent tout le monde et s'abattirent sur la toute première plateforme de rang 9 apparue!
 
 La femme en blanc fut la première à battre en retraite, s'éloignant dans la terreur pour éviter les bras. Cependant, l'onde de choc la frappa, lui faisant cracher du sang et la projetant au loin.
 
-Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
+Grande Désolation ne fut pas aussi chanceux. Étant le dernier arrivé et le plus proche de l'un des bras, il ne put absolument rien esquiver avant que l'impact ne le percute. Son corps fut réduit en bouillie. Même l'avatar du Maître du Dao Miao Yin, un corps de cultivateur de la troisième étape, ne put survivre à un tel coup!
 
 Grande Désolation poussa un cri déchirant et son âme hurla. Il tenta de s'échapper, mais le souffle de l'impact éteignit purement et simplement son âme.
 
@@ -106,7 +106,7 @@ Des grondements tonitruants éclatèrent et il cracha du sang. Son visage change
 
 Le Maître Démon des Neuf Cieux, redevenu un jeune homme, disparut pour laisser le bras passer. Il réapparut ensuite, du sang coulant au coin de sa bouche, et recula précipitamment, les yeux emplis d'horreur.
 
-Quant à la femme en rose, son expression changea radicalement. Ses mains formèrent un sceau et elle cracha une bouffée de brume rose. Un ruban noir se trouvait à l'intérieur; elle s'en saisit et l'utilisa pour se projeter sur le côté, mais fut tout de même touchée par un doigt. Elle cracha du sang et battit en retraite rapidement.
+Quant à la femme en rose, son expression changea radicalement. Ses mains formèrent un sceau et elle cracha une bouffée de brume rose. Un ruban noir se trouvait à l'intérieur; elle s'en saisit et l'utilisa pour se projeter de dix mille pieds sur le côté, mais fut tout de même touchée par un doigt. Elle cracha du sang et battit en retraite rapidement.
 
 Dans la direction opposée, l'autre bras écrasa le vortex et balaya le cyclone chaotique dans lequel se trouvait le démon ancien. Le sceau fut brisé!
 
@@ -114,7 +114,7 @@ Au moment où le sceau se rompit, le démon ancien ouvrit les yeux. Huit étoile
 
 Dès que le bras géant balaya l'espace, le démon ancien ainsi éveillé poussa un rugissement strident. Au moment même de ce cri, son corps devint transparent, permettant au bras de passer à travers lui pour viser la plateforme de rang 9!
 
-Les deux bras gigantesques apparurent de chaque côté de la plateforme. En un éclair, ils s'abattirent sur la première plateforme de rang 9. Celle-ci trembla et commença à se désagréger.
+Les deux bras gigantesques apparurent de chaque côté de la plateforme. En un éclair, ils s'abattirent sur la première plateforme de rang 9. Celle-ci trembla, s'effondra couche après couche et se brisa en d'innombrables fragments de pierre.
 
 Les bras traversèrent tout sur leur passage et se refermèrent devant Wang Lin. Ils s'ouvrirent lentement comme s'ils venaient de saisir le vide lui-même. C'était comme si le vide était une simple feuille de papier et que les bras venaient d'y déchirer une faille gigantesque!
 

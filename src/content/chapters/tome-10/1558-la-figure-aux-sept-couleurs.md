@@ -16,7 +16,7 @@ Les battements devinrent si rapides qu'ils se transformèrent bientôt en une do
 
 Wang Lin s'arrêta net. Il n'avait remarqué la présence de personne auparavant; lorsqu'il entendit cette voix, ses pupilles se rétractèrent et il se retourna lentement.
 
-La montagne sur laquelle Qing Shui reposait flottait dans les airs, détachée du doigt aux sept couleurs. Lorsque l'âme de Qing Shui revint en lui, le doigt aux sept couleurs qui trônait devant lui avait disparu de ce Royaume aux Sept Couleurs.
+La montagne sur laquelle Qing Shui reposait flottait dans les airs, détachée du doigt aux sept couleurs. Alors que l'âme de Qing Shui se libérait de la Tortue Noire, le doigt aux sept couleurs qui trônait devant lui avait disparu de ce Royaume aux Sept Couleurs.
 
 Cependant, alors que Wang Lin regardait en arrière, le doigt aux sept couleurs qui s'était dissipé réapparut. La lumière émanant du doigt était très faible; pour Wang Lin, il semblait que la structure s'était effondrée, mais au lieu de se dissiper, elle se reforma en une vague silhouette aux sept couleurs.
 
@@ -48,7 +48,7 @@ La silhouette aux sept couleurs observa Wang Lin et dit lentement: « Le corps i
 
 Lorsque la douleur atteignit son paroxysme, les yeux de Wang Lin s'illuminèrent et sa main droite arracha impitoyablement la première épine! Qing Shui serra les dents et son corps trembla, mais il ne poussa aucun cri. Cependant, son visage, dissimulé sous ses cheveux ébouriffés, était tordu par la souffrance.
 
-Le sang recouvrit le corps de Qing Shui et, juste au moment où il allait jaillir, Wang Lin apposa rapidement un sceau sur la blessure. Le sceau brilla et le sang disparut lentement.
+Le sang se répandit sur la poitrine de Qing Shui et, juste au moment où il allait jaillir, Wang Lin apposa rapidement un sceau sur la blessure. Le sceau brilla et le sang disparut lentement.
 
 Wang Lin réfléchit en silence alors que les forces de rejet rugissaient à l'intérieur de son propre corps. L'interaction entre les pouvoirs célestes et ceux du Dieu Ancien provoquait d'innombrables grondements sourds. Les épines situées à l'extérieur du corps de Wang Lin s'effondrèrent sous l'effet de cette force de rejet.
 
@@ -94,7 +94,7 @@ Wang Lin essuya le sang au coin de sa bouche et sourit à Qing Shui. Cependant, 
 
 « Il ne peut pas me voir... Seul toi peux me percevoir ici. Tu es un cultivateur spirituel très intéressant, tout comme ce petit cultivateur qui croyait en la source de la guerre et qui m'avait surpris autrefois. Toutes les exceptions créées ici... Si je n'étais pas certain que tu n'as rien à voir avec moi, je ne pourrais croire qu'une telle création puisse être aussi merveilleuse. » La figure aux sept couleurs soupira.
 
-« Il dit que je n'ai rien à voir avec lui... Que signifie cela? Croire en la source de la guerre? Parle-t-il du défunt Zhan Kongli ou du... Vieux Fantôme Zhan? » Wang Lin ne regarda pas la silhouette. Ses yeux brillèrent et il demanda lentement: « Que voulez-vous dire par les 3 000 gouttes de sang de Ye Mo? »
+« Il dit que je n'ai rien à voir avec lui... Que signifie cela? Croire en la source de la guerre? Parle-t-il du défunt Zhan Konglie ou du... Vieux Fantôme Zhan? » Wang Lin ne regarda pas la silhouette. Ses yeux brillèrent et il demanda lentement: « Que voulez-vous dire par les 3 000 gouttes de sang de Ye Mo? »
 
 La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler avec une pointe de nostalgie.
 
@@ -102,7 +102,7 @@ La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler 
 
 « C'est là l'origine de vos trois Clans Anciens. »
 
-L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme du Démon Ancien dans le tambour avait affirmé dans la Terre des Esprits Démoniaques!
+L'esprit de Wang Lin vacilla. Il ne pouvait croire entièrement ces paroles, mais elles ressemblaient étrangement à ce que l'âme de l'Ancien Démon dans le tambour avait affirmé lors de son Ascendant dans la Terre des Esprits Démoniaques!
 
 L'Ancien Démon Bei Luo avait un jour déclaré que l'Ancien était la première génération de cultivateurs défiant le ciel. Il était mort en combattant le Dao Céleste, et c'est après cela que les Dieux Anciens, les Démons Anciens et les Bêtes Anciennes étaient apparus!
 

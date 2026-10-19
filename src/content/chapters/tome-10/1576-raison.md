@@ -72,7 +72,7 @@ Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, des d
 
 Les anneaux transpercèrent la terre et rétrécirent à mesure qu'ils s'enfonçaient sous le sol. Finalement, l'anneau ne devint plus que de la taille d'un poing, ce qui correspondait à ce que Wang Lin avait vu sur la porte de pierre.
 
-En se propageant, ces anneaux engendrèrent des tempêtes qui balayèrent toute la région. Toutes les montagnes s'effondrèrent et toutes les rivières s'asséchèrent. Les lits des cours d'eau disparurent, brisés net.
+En se propageant, ces anneaux engendrèrent des tempêtes qui balayèrent toute la région. Toutes les montagnes s'effondrèrent en cendres et toutes les rivières se vaporisèrent. Les lits des cours d'eau disparurent, brisés net.
 
 L'océan fut projeté dans les airs avant de se dissiper. Le bassin qui le contenait disparut, comme si une main géante l'avait aplati.
 
@@ -84,13 +84,13 @@ Il y eut aussi les cultivateurs qui auraient pu habiter ces lieux. Qu'il s'agiss
 
 La tempête bouleversa le monde et détruisit tout. C'est pourquoi ce monde était plat, mais imprégné d'une aura de mort.
 
-Ce monde était dissimulé au sein de l'espace. C'était l'énergie céleste émanant de la flèche qui le rendait indétectable. Ce n'est qu'après l'apparition de la Formation de Scellement du Royaume et les innombrables batailles entre les Royaumes Intérieur et Extérieur qu'un jour, un expert du Royaume Extérieur parvint à calculer sa position approximative.
+Ce monde était dissimulé au sein de l'espace. C'était l'énergie céleste émanant de la flèche qui le rendait indétectable. Ce n'est qu'après l'apparition de la Formation de Scellement du Royaume et plusieurs batailles sanglantes entre les Royaumes Intérieur et Extérieur qu'un jour, un expert du Royaume Extérieur parvint à calculer sa position approximative.
 
 C’est ainsi que le Clan du Tatouage y pénétra...
 
 Peut-être que l'objectif de la fille du Souverain était de comploter contre Qing Lin, ou peut-être son véritable but était-il de trouver cette flèche...
 
-Après d'innombrables péripéties, le Clan du Tatouage finit par trouver ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
+Après d'innombrables péripéties, le Clan du Tatouage finit par trouver, sans que personne ne le remarque, ce monde abritant la flèche. Cependant, ils découvrirent qu'ils ne pouvaient dissiper la force de rejet et qu'ils étaient incapables de la contrôler.
 
 Ils scellèrent donc l'endroit. Peut-être le Clan de l'Extermination des Sceaux les avait-il aidés. Finalement, ils laissèrent cette porte ici. Elle fut placée en un lieu ingénieux, utilisant le cercle pour former le premier sceau de la porte!
 
@@ -112,7 +112,7 @@ Wang Lin soupira. Il ne savait pas si ses déductions étaient exactes. Tout cel
 
 Tout en méditant silencieusement, Wang Lin fit un pas en avant. Il se retrouva ainsi aux côtés de la flèche qui dépassait du ciel. À côté d'elle, il paraissait minuscule; tel un homme au pied d'une montagne.
 
-Il prit une profonde inspiration et s'assit sur la gigantesque flèche. Puis, pointant le sang ancien séché, il ferma les yeux. Les étoiles divines anciennes entre ses sourcils tournèrent rapidement et il commença l'absorption.
+Il prit une profonde inspiration et s'assit sur la gigantesque flèche. Puis, posant la main sur le sang ancien séché, il ferma les yeux. Les étoiles divines anciennes entre ses sourcils tournèrent rapidement et il commença l'absorption.
 
 Il allait absorber le sang de l'œil gauche de Ye Mo!
 

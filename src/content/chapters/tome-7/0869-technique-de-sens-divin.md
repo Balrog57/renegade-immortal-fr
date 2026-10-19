@@ -28,7 +28,7 @@ Cette scène fit écarquiller les yeux de tous les spectateurs. Même les vieux 
 
 « Seigneur! » Shengong Hu observait le combat entre Wang Lin et Luo Su. Son esprit tremblait et son sang bouillonnait. Tout en fixant Wang Lin, le respect dans ses yeux se mua progressivement en révérence. Bien qu'il ne fût pas encore au stade du fanatisme, l'estime qu'il portait à Wang Lin était désormais immense.
 
-Zhan Konglie observait également la scène et prit une profonde inspiration. Il pouvait vaguement percevoir cette puissante intention de combat chez son Aîné. C'était exactement comme l'Aîné l'avait dit: cette intention de combat était la détermination pure de vaincre!
+Zhan Konglie observait également la scène et prit une profonde inspiration. Il pouvait vaguement percevoir cette puissante intention de combat chez son Senior. C'était exactement comme le Senior l'avait dit: cette intention de combat était la détermination pure de vaincre!
 
 Les cheveux noirs de Wang Lin flottaient dans les airs alors qu'il chargeait Luo Su. Toute la zone était oppressée par le sens divin de Luo Su, lui donnant l'impression de patauger dans l'eau. Les yeux de Wang Lin brillèrent et sa main gauche traça un sceau. Deux dragons noirs commencèrent à tournoyer autour de son corps, formant un vortex géant.
 
@@ -62,7 +62,7 @@ En revanche, le sort déployé par Luo Su était composé de pur sens divin, san
 
 « Tu as frappé le premier, je ne fais que me défendre, alors accepte ta mort! » Alors que Luo Su hurlait, ses yeux s'ouvrirent brusquement et d'innombrables aiguilles de sens divin furent projetées vers Wang Lin.
 
-Une lueur froide passa dans les yeux de Wang Lin; il forma un sceau de ses deux mains et poussa en avant. Les deux dragons noirs formés par *Invoquer le Vent* libérèrent un vent glacial qui intercepta les aiguilles du sens divin. Ces dernières semblèrent transparentes, se traversant mutuellement sans effet, tandis que l'assaut des dragons noirs fonçait droit sur Luo Su!
+Une lueur froide passa dans les yeux de Wang Lin; il forma un sceau de ses deux mains et poussa en avant. Les deux dragons noirs formés par *Invoquer le Vent* libérèrent un vent glacial. Les aiguilles du sens divin croisèrent les dragons, semblant transparentes l'une pour l'autre, tandis que l'assaut des dragons noirs fonçait droit sur Luo Su!
 
 Les aiguilles de sens divin se rapprochèrent rapidement de Wang Lin.
 
@@ -76,7 +76,7 @@ Elles se transformèrent en une force impétueuse et chargèrent l'âme originel
 
 Avec l'Armure de Cuir de l'Ancien Dieu, ce genre d'attaque de sens divin était dérisoire!
 
-À cet instant, les dragons noirs atteignirent Luo Su, dont le visage se crispa. Sa main traça un sceau et il pointa l'espace entre ses sourcils. Sans même regarder les dragons noirs, il fixa Wang Lin, et un rayon de lumière verte jaillit de son front. Cette lumière était éclatante et prit rapidement la forme d'un serpent vert!
+À cet instant, les dragons noirs approchaient de Luo Su, dont le visage se crispa. Sa main traça un sceau et il pointa l'espace entre ses sourcils. Sans même regarder les dragons noirs, il fixa Wang Lin, et un rayon de lumière verte jaillit de son front. Cette lumière était éclatante et prit rapidement la forme d'un serpent vert!
 
 Ce serpent ouvrit une gueule malveillante, dévoilant des crocs acérés. Il poussa un sifflement et chargea. Au moment où le Fouet du Karma frappa le reptile, celui-ci se divisa en deux. Après avoir esquivé le fouet, il contourna l'attaque par la droite et la gauche pour s'abattre sur le corps de Wang Lin.
 
@@ -124,7 +124,7 @@ Un fracas assourdissant retentit lorsque le Sceau Céleste frappa. Luo Su, l'exp
 
 « Je refuse de croire que tu puisses continuer à résister à tous mes sorts de sens divin! » Les yeux de Luo Su étaient rouges de rage alors qu'il chargeait Wang Lin. En s'élançant, son sens divin se déploya pour former une paire de mains. Ces mains se frappèrent l'une contre l'autre, projetant des ondes de sens divin vers Wang Lin.
 
-Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il subit un contrecoup. En mouvement, il frappa son sac de rangement pour en sortir une âme d'origine afin de restaurer son énergie. À ce moment précis, Luo Su ne recula pas; au contraire, il chargea tandis que les ondes se rapprochaient de Wang Lin.
+Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il subit un contrecoup. En mouvement, il frappa son sac de rangement puis tira de sa bannière une âme originelle, qu'il avala aussitôt pour restaurer son énergie. À ce moment précis, Luo Su ne recula pas; au contraire, il chargea tandis que les ondes se rapprochaient de Wang Lin.
 
 Le Fouet du Karma s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
 
@@ -136,4 +136,4 @@ Les explosions se succédèrent et le combat devint de plus en plus acharné!
 
 « Assez! » Alors que leur affrontement atteignait son apogée, Maître Yan Leizi laissa échapper un rugissement, les sourcils froncés. Accompagné de ce cri, une puissante énergie originelle comprima l'espace entre les deux combattants. Cela força le combat à s'interrompre et les deux adversaires à reculer!
 
-Un éclair d'intention meurtrière brilla dans les yeux de Qing Shui. Il laissa échapper un reniflement froid et un rayon du Royaume Ji jaillit!
+Un éclair d'intention meurtrière brilla dans les yeux de Qing Shui. Il laissa échapper un reniflement froid, son œil droit s'embrasa d'une lueur rouge intense, et un rayon du Royaume Ji jaillit!

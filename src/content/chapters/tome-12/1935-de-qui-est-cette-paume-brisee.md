@@ -14,9 +14,9 @@ Après un long moment, il dit calmement: « Je viens de la Secte des Sept Dao. �
 
 « Continent de l'Est, Secte des Sept Dao, une toute petite secte… » Wang Lin soupira. Le fait que quelqu'un l'interroge sur son origine lui avait rendu le mal du pays.
 
-L'Exalté Empyréen dit doucement: « Je n'ai pas de secte. J'ai suivi mon Maître depuis mon enfance. J'ai grandi sur la Montagne de l'Empereur. »
+L'Exalté Empyréen dit doucement: « Je n'ai pas de secte. J'ai suivi mon Maître depuis mon enfance. J'ai grandi sur le Mont de l'Empereur. »
 
-« La Montagne de l'Empereur est magnifique. En cette saison, elle est couverte de feuilles rouges, comme si elle était en flammes… Si tu en as l'occasion, tu devrais aller la voir. »
+« Le Mont de l'Empereur est magnifique. En cette saison, elle est couverte de feuilles rouges, comme si elle était en flammes… Si tu en as l'occasion, tu devrais aller la voir. »
 
 Alors qu'ils discutaient, une atmosphère particulière imprégna cette zone de mille pieds.
 
@@ -82,7 +82,7 @@ Il fut réduit de moitié, n'atteignant plus que 500 pieds! L'Exalté Empyréen 
 Le fracas dura près d'une demi-heure avant de s'estomper lentement; le rideau de lumière ne faisait plus que 500 pieds! Cette distance était extrêmement réduite pour Wang Lin et l'Exalté Empyréen. Les deux se regardèrent.
 
 « On dirait que ce rideau ne tiendra pas même cent ans… Je l'ai réduit pour résister à la paume brisée, mais malgré cela, après trois ans, il n'est plus qu'à 500 pieds...
-S'il avait encore fait 100 000 pieds comme avant, il aurait peut-être déjà été brisé. » L'apparence et le ton de l'Exalté Empyréen Hai Zi différaient de ce qu'ils étaient quelques années auparavant; elle semblait être redevenue normale.
+S'il faisait encore près de 100 000 pieds et que sa force était dispersée, il aurait peut-être déjà été brisé. » L'apparence et le ton de l'Exalté Empyréen Hai Zi différaient de ce qu'ils étaient quelques années auparavant; elle semblait être redevenue normale.
 
 « Je crains qu'il ne faille pas longtemps avant que cette zone de 500 pieds ne rétrécisse jusqu'à l'effondrement total du rideau… » L'Exalté Empyréen fronça les sourcils, affichant un air d'impuissance.
 
@@ -105,7 +105,7 @@ La magnifique silhouette de l'Exalté Empyréen s'immobilisa, contemplant le dos
 
 Wang Lin atteignit instantanément la bordure du rideau de lumière, à moins de trois pieds de celui-ci. Lorsqu'il s'en approcha, la silhouette floue à l'extérieur se déplaça vers lui.
 
-À l'extérieur du rideau, l'entité floue s'arrêta également, à trois pieds de la barrière de lumière. Elle se trouvait donc à six pieds de Wang Lin!
+À l'extérieur du rideau, l'entité floue s'arrêta également, à trois pieds de la barrière de lumière. Elle se trouvait donc à moins de six pieds de Wang Lin!
 
 C'était un visage sans peau, une masse sanglante et terrifiante. Pourtant, elle dégageait une majesté indicible. La silhouette globale restait floue; seule la main gauche paraissait solide, comme si elle était réelle, car elle possédait de la peau!
 

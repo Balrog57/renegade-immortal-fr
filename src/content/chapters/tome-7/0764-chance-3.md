@@ -68,7 +68,7 @@ C’est seulement à ce moment que Wang Lin acquit la majesté d'un Ancien Dieu!
 
 Ce n'est qu'en révélant sa forme d'Ancien Dieu qu'il pouvait être véritablement appelé ainsi et posséder leur puissance!
 
-« Ancêtre Sanguin... Tu as plongé mon avatar dans le coma, alors je vais détruire ta Planète Sanguine! » Ses yeux étaient empreints de cruauté. Lorsqu'il fit un pas, ce fut comme si le système stellaire tout entier tremblait.
+« Ancêtre Sanguin... Tu as plongé mon avatar dans le coma, alors je vais détruire ta Planète du Sang! » Ses yeux étaient empreints de cruauté. Lorsqu'il fit un pas, ce fut comme si le système stellaire tout entier tremblait.
 
 Il marchait dans l'espace comme s'il foulait le sol et se précipita vers l'horizon.
 
@@ -78,7 +78,7 @@ Cette empreinte n'était pas un outil que les cultivateurs pouvaient utiliser; c
 
 « Puisque le système stellaire de l'Alliance abrite le Clan des Démons Géants, personne ne pensera que mon corps de trois cents mètres est celui d'un Ancien Dieu! » Ses yeux devinrent glacials. Comparé à un Ancien Dieu adulte, son corps était insignifiant et faible; ainsi, nul ne soupçonnerait sa véritable nature en le voyant.
 
-Sans aucune expression, il se dirigea vers la Planète Sanguine. Ayant consulté la carte stellaire donnée par l'Omniscient par le passé, il savait naturellement où se trouvait la Planète Sanguine.
+Sans aucune expression, il se dirigea vers la Planète du Sang. Ayant consulté la carte stellaire donnée par l'Omniscient par le passé, il savait naturellement où se trouvait la Planète du Sang.
 
 Alors qu'il progressait dans l'espace, ses yeux se plissèrent. Il aperçut plusieurs fragments rocheux de tailles diverses flottant dans le vide.
 
@@ -92,6 +92,6 @@ Après son passage, deux cultivateurs sortirent d'un fragment rocheux légèreme
 
 Tout au long de son chemin, chaque fois que Wang Lin croisait ces rochers, il choisissait ceux qui mesuraient environ 330 mètres. Il les saisissait et utilisait son énergie spirituelle pour les traîner derrière lui. C'étaient ses armes. Dans ses souvenirs, les Anciens Dieux aux premiers stades de leur culture ne possédaient pas beaucoup de sorts et aimaient utiliser ces pierres comme armes. Cela semblait facile à manier, et plus il en aurait, mieux ce serait!
 
-Wang Lin se dirigea vers la Planète Sanguine, laissant derrière lui une traînée de rochers qui ressemblait à une rivière le suivant. Il portait en lui une intention meurtrière implacable à mesure qu'il approchait!
+Wang Lin se dirigea vers la Planète du Sang, laissant derrière lui une traînée de rochers qui ressemblait à une rivière le suivant. Il portait en lui une intention meurtrière implacable à mesure qu'il approchait!
 
 « Tuez! »

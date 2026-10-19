@@ -69,7 +69,7 @@ L'ancêtre de la famille Ran leva la tête et éclata d'un rire chargé de dése
 
 Tandis qu'il parlait, il leva sa main droite et frappa son front. Un craquement retentit alors que son âme originelle ardente s'effondrait instantanément, se propageant à son corps. Son être entier se dissipa lentement sous le regard calme de Liu Mei, avant de finir en poussière sur le sol.
 
-« Je suis né sur Ran Yun et je mourrai sur Ran Yun. Tout ce que moi, Ran Xuefeng, je puis faire, c'est donner le meilleur de moi-même pour protéger la planète Ran Yun. Quant à toi, Xu Mu, homme méprisable, je te maudis de mourir aux côtés de Huan Mei! »
+« Je suis né sur Ran Yun et je mourrai sur Ran Yun. Tout ce que moi, Ran Xuefeng, je puis faire, c'est donner le meilleur de moi-même pour protéger la planète Ran Yun. Quant à toi, Xu Mu, homme méprisable, je te maudis de périr avec Huan Mei! »
 
 Les yeux de Liu Mei ne montraient qu'une pointe d'indifférence, comme si rien au monde ne pouvait troubler son esprit. Elle regarda la terre en contrebas et, d'un pas, entama sa descente vers le sol.
 

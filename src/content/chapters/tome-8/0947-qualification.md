@@ -82,7 +82,7 @@ Wang Lin ne regarda plus Xu Ting mais fixa Lie Yunzi en disant calmement: « Je 
 
 C'était l'effet recherché par Wang Lin: secouer la montagne pour alerter le tigre! Avec son intelligence, comment Lie Yunzi pouvait-il ignorer les raisons de sa recherche? Autrefois, il n'avait pas les qualifications pour exiger quoi que ce soit, mais désormais, il les avait!
 
-« Lors de l'attribution céleste, je t'ai montré le Parchemin de Bataille, trésor de ma famille Zhan! Je t'avais promis alors de te laisser voir le second parchemin! Aujourd'hui, je vous ai appelés, toi et Xu Ting, pour l'observer! » Tandis qu'il parlait, Lie Yunzi leva la main gauche vers le vide. Un bruit de déchirure retentit, puis une fissure apparut.
+« Lors de la bénédiction céleste, je t'ai montré le Parchemin de Bataille, trésor de ma famille Zhan! Je t'avais promis alors de te laisser voir le second parchemin! Aujourd'hui, je vous ai appelés, toi et Xu Ting, pour l'observer! » Tandis qu'il parlait, Lie Yunzi leva la main gauche vers le vide. Un bruit de déchirure retentit, puis une fissure apparut.
 
 Un rayon de lumière noire jaillit de la brèche. Un parchemin noir, entouré d'une aura obscure, vola vers la main de Lie Yunzi et y resta en lévitation.
 

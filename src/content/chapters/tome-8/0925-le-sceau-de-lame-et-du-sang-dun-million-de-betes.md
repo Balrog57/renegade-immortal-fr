@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 925 - Million Beast Blood Soul Seal
 slug: le-sceau-de-lame-et-du-sang-dun-million-de-betes
 ---
-Les yeux de Wang Lin se rétrécirent lorsqu'il croisa le regard de la femme en robe bleue. Il ne l'avait jamais vue auparavant et elle ne lui était pas familière du tout. Cependant, son regard laissait planer une étrange perplexité.
+Les yeux de Wang Lin se rétrécirent lorsqu'il croisa le regard de la femme en robe bleue. Il ne l'avait jamais vue auparavant et elle ne lui était pas familière du tout. Cependant, le regard de cette femme le troublait.
 
 Ce n'était pas le moment de s'attarder sur ces réflexions. L'expression de Wang Lin resta neutre tandis qu'il continuait de reculer.
 
@@ -20,11 +20,11 @@ Quant aux cultivateurs de l'Alliance qui se trouvaient sur les tours, ils avaien
 
 Peu après, d'autres tours arrivèrent en sifflant. La plupart furent interceptées par les tentacules du serpent et explosèrent en une poussière noire.
 
-Tandis que la poudre noire se répandait, les tours restantes accélérèrent brusquement. Telles des lames fendant le nuage noir, elles esquivèrent les tentacules pour venir percer directement le corps du Serpent aux yeux de lune.
+Tandis que la poudre noire se répandait, les tours restantes accélérèrent brusquement. Telles des lames fendant la poudre noire, elles esquivèrent les tentacules pour venir percer directement le corps du Serpent aux yeux de lune.
 
 Bang!
 
-De violentes explosions retentirent lorsque les tours entrèrent en collision avec le serpent. Des fissures apparurent sur leurs pointes et se propagèrent avec rapidité. En un clin d'œil, les tours furent entièrement lacérées avant de s'effondrer en poussière.
+De violentes explosions retentirent lorsque les tours entrèrent en collision avec le serpent. Des fissures apparurent sur leurs pointes et se propagèrent avec rapidité. En un clin d'œil, les tours furent entièrement fissurées avant de s'effondrer en poussière.
 
 Bang, bang, bang, bang! Les déflagrations se succédèrent alors que les tours qui n'avaient pas été arrêtées par les tentacules percutaient le corps du Serpent aux yeux de lune pour finir en poudre.
 
@@ -40,17 +40,17 @@ Cette formation décrivait un cercle d'un rayon de 5 000 kilomètres. Les bêtes
 
 Une multitude de cultivateurs flottaient dans le ciel, à l'extérieur de la formation, comme s'ils attendaient un signal. Un Ancien aux cheveux roux se trouvait parmi eux, affichant un rang élevé. Les cultivateurs environnants gravitaient autour de lui, faisant de lui le centre de leurs mouvements. Lorsque la femme en robe bleue donna l'ordre, sa voix sembla percer le vide pour voyager à travers les étoiles grâce à un sort spécial destiné à transmettre ses commandements.
 
-Aussitôt, les yeux de l'Ancien aux cheveux roux s'illuminèrent et il agita sa main droite!
+Aussitôt, les yeux de l'Ancien aux cheveux roux s'illuminèrent et il abaissa vivement sa main droite!
 
 D'un geste ample, tous les cultivateurs alentour lancèrent une attaque coordonnée de sorts et de trésors magiques sur les dix mille et quelques bêtes démoniaques qui les subissaient en dessous.
 
-Des vagues de rugissements de douleur résonnèrent dans la formation, qui se mua en une véritable mer de sang. La formation s'activa et absorba intégralement le sang de ces dix mille et quelques créatures!
+Des vagues de rugissements de douleur résonnèrent dans la formation, qui se mua en une véritable mer de sang. La formation s'activa et absorba intégralement le sang et les âmes de ces dix mille et quelques créatures!
 
 Cette scène se répétait sur près de cent autres planètes!
 
 C'était l'une des dix grandes formations de l'Alliance: le Sceau de l'Âme et du Sang d'un Million de Bêtes!
 
-Ces quelque cent tours avaient été forgées avec un matériau spécial pour s'harmoniser avec cette formation. À cet instant, alors que des millions de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent aux yeux de lune dégagea une puissante odeur de sang!
+Ces quelque cent tours avaient été forgées avec un matériau spécial et renforcées par des sous-formations, pour s'harmoniser avec cette formation. À cet instant, alors que des millions de bêtes mouraient sur les cent planètes, la poudre noire entourant le Serpent aux yeux de lune dégagea une puissante odeur de sang!
 
 Cette effluve était si dense que quiconque la respirait en aurait eu le cœur tremblant!
 
@@ -60,7 +60,7 @@ La poudre noire se mua en une sphère gigantesque qui emprisonna le serpent à l
 
 À ce moment précis, les dix mille et quelques cultivateurs de l'Alliance qui avaient sauté des tours avant leur effondrement chargèrent vers les cultivateurs de Luotian!
 
-Cette scène stupéfia ces derniers. Lie Yunzi et l'ancêtre de la famille Shengong se regardèrent, puis sautèrent immédiatement du bois géant. La main droite de Lie Yunzi s'élança dans le vide pour rassembler l'énergie d'origine du monde, qu'il condensa en près de cent petits fanions!
+Cette scène stupéfia ces derniers. Lie Yunzi et l'ancêtre de la famille Shengong se regardèrent, puis sautèrent immédiatement du bois géant. La main droite de Lie Yunzi s'élança dans le vide pour rassembler l'énergie originelle du monde, qu'il condensa en plus d'une centaine de petits fanions!
 
 Hormis l'ancêtre de la famille Xiang et l'homme d'âge mûr de la famille Gongsun, lui et l'ancêtre de la famille Shengong étaient les deux plus hauts gradés présents. Avant leur départ, ils avaient temporairement confié le commandement à Lie Yunzi et à l'ancêtre de la famille Shengong.
 
@@ -68,7 +68,7 @@ Lie Yunzi portait une mission d'une importance capitale!
 
 Il saisit une partie des fanions et les lança sur le côté en criant: « 72 Célestes Terrestres, rassemblez vos équipes et exterminez tous les cultivateurs de l'Alliance! »
 
-« Ordre reçu! » Des dizaines de cultivateurs de Luotian s'envolèrent aussitôt. Ils faisaient partie des 108 Célestes, bien que tous ne fussent pas présents ici. Ils saisirent leurs fanions et menèrent leurs troupes dans une bataille chaotique contre les cultivateurs de l'Alliance descendus des tours.
+« Ordre reçu! » Des dizaines de cultivateurs de Luotian s'envolèrent aussitôt. Ils faisaient partie des 108 Célestes, au rang intermédiaire des Célestes Terrestres, bien que tous ne fussent pas présents ici. Ils saisirent leurs fanions et menèrent leurs troupes dans une bataille chaotique contre les cultivateurs de l'Alliance descendus des tours.
 
 L'instant d'après, des grondements et le fracas incessant des trésors magiques résonnèrent parmi les étoiles. Leurs éclats de lumière incessants dégageaient une intention de massacre monstrueuse.
 

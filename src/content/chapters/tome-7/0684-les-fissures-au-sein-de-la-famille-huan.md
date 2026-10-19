@@ -24,7 +24,7 @@ Liu Mei hocha légèrement la tête et resta silencieuse.
 
 « Comment quelqu'un venant du Système Stellaire de l'Alliance pourrait-il posséder une Bête du Tonnerre... » Même Huan Wuqing était extrêmement perplexe face à cette affaire.
 
-Il ignorait que le créateur du char de guerre divin tueur avait de nombreux amis. Afin d'affiner l'âme bestiale dudit char, celui-ci s'était rendu dans le Royaume Céleste du Tonnerre et avait utilisé une méthode inconnue pour obtenir plusieurs Bêtes du Tonnerre auprès du Seigneur Céleste de ce royaume.
+Il ignorait que le créateur du Char de Guerre Divin avait de nombreux amis. Afin d'affiner l'âme bestiale dudit char, celui-ci s'était rendu dans le Royaume Céleste du Tonnerre et avait utilisé une méthode inconnue pour obtenir plusieurs Bêtes du Tonnerre auprès du Seigneur Céleste de ce royaume.
 
 À cet instant, sous le regard de l'ancêtre de la famille Huan, un éclair jaillit de l'horizon lointain et une météorite fendit le ciel en direction de la famille Huan. C'était Wang Lin! Et à ses côtés se trouvait la Bête du Tonnerre. La bête poussa un grognement tandis que des éclairs parcouraient son corps, fixant la famille Huan de ses yeux féroces.
 
@@ -134,4 +134,4 @@ L'énergie tranchante de l'épée s'étendait sur trois pouces, telle un arc ten
 
 Le regard de Wang Lin était calme alors qu'il maniait l'épée céleste et se penchait en avant.
 
-« Coup du Ciel! »
+« Coup Céleste! »

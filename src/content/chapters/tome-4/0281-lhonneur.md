@@ -10,7 +10,7 @@ Un jeune homme d'une grande beauté, vêtu de noir et de cuir, se tenait debout 
 
 Les yeux de la disciple s'illuminèrent soudainement et elle s'écria: « Le frère aîné est de retour! »
 
-Quant au second disciple, son visage se voila d'une ombre soudaine, avant que cette expression ne soit instantanément remplacée par une joie manifeste.
+Quant au second disciple, relevé à plus de dix pieds de là, son visage se voila d'une ombre soudaine, avant que cette expression ne soit instantanément remplacée par une joie manifeste.
 
 Wang Lin pouvait deviner, à travers les souvenirs du cultivateur de Formation du Noyau, que celui-ci éprouvait une grande affection pour le disciple aîné. Ce dernier entretenait d'ailleurs des liens de parenté avec lui.
 
@@ -20,7 +20,7 @@ Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affec
 
 Après avoir parcouru cet aperçu de ses souvenirs, Wang Lin n'y prêta plus attention. L'épée approcha et s'arrêta devant la tour de glace. Le frère aîné s'agenouilla au sol et déclara d'une voix claire: « Ce disciple salue le Maître. Par chance, j'ai réussi à localiser la cachette des vestiges de l'Alliance des Quatre Sectes! »
 
-L'expression de Wang Lin resta calme, mais son cœur eut un tressaillement. Il se souvenait avoir vu dans les souvenirs du cultivateur de Formation du Noyau que ce dernier avait envoyé son frère aîné en patrouille parce qu'un mortel avait signalé la présence d'un individu ne semblant pas appartenir à Xue Yu.
+L'expression de Wang Lin resta calme, mais son cœur eut un tressaillement. Il se souvenait avoir vu dans les souvenirs du cultivateur de Formation du Noyau que ce dernier avait envoyé son frère aîné enquêter, parce qu'un mortel avait signalé la présence d'un individu ne semblant pas appartenir à Xue Yu.
 
 C'est ainsi que le cultivateur de Formation du Noyau avait chargé son disciple aîné de vérifier l'information.
 
@@ -36,7 +36,7 @@ Le frère aîné fut stupéfait. En pareilles circonstances, son maître ne s'im
 
 Les deux autres disciples échangèrent un regard avant de le suivre. Après tout, leur maître s'y rendait en personne; s'ils restaient en retrait, cela pourrait leur porter préjudice à l'avenir. Ils se forcèrent donc à accompagner Wang Lin.
 
-Tous les quatre formèrent un faisceau de lumière et s'élancèrent au loin. Au bout d'un moment, le frère aîné s'arrêta. Il désigna une montagne enneigée et dit: « En utilisant la sculpture de glace volante, j'ai pu constater qu'une personne avait disparu ici. Je suis convaincu qu'ils ont une cachette dans ces environs. »
+Tous les quatre formèrent un faisceau de lumière et s'élancèrent au loin. Au bout d'un moment, le frère aîné s'arrêta. Il désigna une montagne enneigée et dit: « En utilisant la sculpture de glace volante, j'ai pu constater qu'une personne avait disparu ici. Je suis convaincu qu'ils ont une cachette sous cette montagne. »
 
 Le Sens Divin de Wang Lin balaya la zone. Bien que son visage fût impassible, son regard se fit intense.
 
@@ -44,27 +44,27 @@ Le Sens Divin de Wang Lin balaya la zone. Bien que son visage fût impassible, s
 
 Son Sens Divin lui révéla qu'une restriction protégeait le sous-sol de la montagne et que deux âmes s'y trouvaient. L'une était seulement au stade de Formation du Noyau, mais l'autre était fort étrange: son niveau oscillait sans cesse entre la Formation du Noyau, l'Âme Naissante et même la Formation de l'Âme.
 
-Ce phénomène n'avait qu'une seule explication: l'Âme Naissante et la culture de cette personne étaient sur le point de se dissiper, signe d'une instabilité extrême.
+Ce phénomène n'avait qu'une seule explication: le Sens Divin de cette personne s'effondrait et sa culture était sur le point de se dissiper, signe d'une instabilité extrême.
 
 Le corps de Wang Lin atterrit au sommet de la montagne enneigée et s'enfonça dans la roche. Il se rapprochait de la restriction.
 
-Il atteignit bientôt la barrière. Puisqu'il s'agissait d'une restriction, il n'en avait nullement peur. Un seul coup d'œil lui suffit pour en comprendre la structure. Il projeta deux anneaux de restriction qui commencèrent rapidement à fusionner entre eux.
+Il atteignit bientôt la barrière. Puisqu'il s'agissait d'une restriction, il n'en avait nullement peur. Un seul coup d'œil lui suffit pour en comprendre la structure. Il projeta un anneau de restriction, et les deux restrictions commencèrent rapidement à fusionner.
 
 Wang Lin franchit la barrière et pénétra à l'intérieur.
 
-Dès son entrée, une épée s'anima et plus de dix ondes de Qi d'épée l'attaquèrent violemment.
+Dès son entrée, plus de dix épées volantes se transformèrent en ondes de Qi d'épée qui fondirent sur lui.
 
 Le regard de Wang Lin resta imperturbable. Sa main droite sembla pointer un point invisible dans les airs et il murmura: « Vie. »
 
-Le domaine de la vie et de la mort se concentra soudainement sur le bout du doigt de Wang Lin. Ce simple geste contenait la Voie des Cieux et regorgeait de mystères.
+Le domaine de la vie et de la mort se concentra soudainement sur le bout du doigt de Wang Lin. Ce simple geste, tel celui d'un immortel indiquant le chemin, contenait la Voie des Cieux et regorgeait de mystères.
 
-Un cri de surprise s'échappa des lueurs d'épées, qui commencèrent alors à graviter autour du doigt de Wang Lin. Elles émettaient une lueur tandis qu'elles subissaient une transformation; l'énergie spirituelle qu'elles dégageaient devint soudainement plusieurs fois plus puissante qu'auparavant.
+Un cri de surprise s'échappa des lueurs d'épées, qui, échappant à tout contrôle, se mirent alors à graviter autour du doigt de Wang Lin. Elles émettaient une lueur tandis qu'elles subissaient une transformation, comme si elles renaissaient; l'énergie spirituelle qu'elles dégageaient devint soudainement plusieurs fois plus puissante qu'auparavant.
 
 Cependant, le Sens Divin fut totalement annihilé par la puissance du domaine.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il observait le jeune homme terrifié, incapable de prononcer un mot.
 
-Derrière lui, un vieil homme était assis sur un lit de glace. Ses yeux étaient clos et son visage oscillait entre des teintes rouges et verdâtres.
+Derrière lui, un vieil homme aux cheveux blancs était assis en tailleur sur un lit de glace. Ses yeux étaient clos et son visage oscillait entre des teintes rouges et verdâtres.
 
 D'un mouvement du doigt, Wang Lin fit tomber toutes les épées au sol dans un tintement métallique.
 
@@ -80,7 +80,7 @@ Bien que le regard de Wang Lin fût calme, son cœur fut légèrement ému. Il f
 
 Le jeune homme resta silencieux un long moment avant de répondre avec amertume: « Maître aurait pu partir depuis longtemps s'il ne m'avait pas traîné avec lui. Tout cela est arrivé parce qu'il a tenté de me sauver... »
 
-« Huan Er, relève-toi vite. Cet homme n'est pas un cultivateur de Xue Yu. » Le vieillard sur le lit de glace ouvrit lentement les yeux.
+« Huan Er, relève-toi. Cet homme n'est pas un cultivateur de Xue Yu. » Le vieillard sur le lit de glace ouvrit lentement les yeux.
 
 Le jeune homme fut surpris, mais ses yeux s'illuminèrent d'espoir et d'excitation. Il courut aux côtés de son maître: « Maître, vous... vous êtes réveillé! »
 
@@ -94,7 +94,7 @@ Wang Lin soupira et répondit: « La cachette du Senior a été découverte par 
 
 « Les blessures du Senior sont trop graves pour que ce flacon puisse les guérir, mais il pourra au moins atténuer la douleur liée à la perte de sa culture. Cela devrait permettre au Senior de quitter ces lieux. Le monde est vaste, d'autres occasions de restaurer votre culture pourraient se présenter. »
 
-Le vieil homme esquissa un faible sourire. Sans même regarder les pilules, il dit: « Jeune ami, j'ignore de quel secteur tu viens, mais si j'avais voulu partir, je l'aurais fait depuis longtemps. Je pourrais partir dès maintenant, quitte à accélérer la perte de ma culture, mais sais-tu pourquoi je ne suis pas parti? »
+Le vieil homme esquissa un faible sourire. Sans même regarder les pilules, il dit: « Jeune ami, j'ignore de quelle secte tu viens, mais si j'avais voulu partir, je l'aurais fait depuis longtemps. Je pourrais partir dès maintenant, quitte à accélérer la perte de ma culture, mais sais-tu pourquoi je ne suis pas parti? »
 
 Wang Lin réfléchit et secoua doucement la tête.
 
@@ -108,7 +108,7 @@ Au moment où Wang Lin fit volte-face, le vieillard regarda le flacon de pilules
 
 « Jeune ami, je t'offre ce trésor en échange des pilules que tu m'as données. »
 
-En saisissant l'éventail, l'expression de Wang Lin changea. Il avait un souvenir profond de cet objet. C'était celui qu'une femme utilisait lorsqu'elle était encerclée par la formation meurtrière de l'Alliance des Quatre Sectes. Il se souvenait qu'après sa mort, cet éventail avait été emporté par un cultivateur de fin de stade de Formation de l'Âme.
+En saisissant l'éventail, l'expression de Wang Lin changea. Il avait un souvenir profond de cet objet. C'était celui qu'une femme vêtue de blanc utilisait lorsqu'elle était encerclée par la formation meurtrière de neuf cultivateurs de l'Alliance des Quatre Sectes. Il se souvenait qu'après sa mort, cet éventail avait été emporté par un cultivateur de fin de stade de Formation de l'Âme.
 
 Il se retourna et observa attentivement le vieillard. Cet homme était l'un des cultivateurs de fin de stade de Formation de l'Âme qui se trouvaient dans cette formation meurtrière autrefois.
 
@@ -122,7 +122,7 @@ Peu après le départ de Wang Lin, le vieillard et le jeune homme sortirent de l
 
 Les yeux du jeune homme se remplirent de tristesse, mais avant qu'il ne puisse réagir, le vieillard agita ses manches et le projeta à travers l'ouverture. La formation de protection reprit aussitôt son état normal.
 
-Le jeune homme fixa son maître de l'autre côté. Les yeux rougis par les larmes, la voix brisée, il hurla: « Maître! »
+Agenouillé, le jeune homme fixa son maître de l'autre côté. Les yeux rougis par les larmes, la voix brisée, il hurla: « Maître! »
 
 Le vieillard laissa échapper un rire et avala toutes les pilules du flacon. Son énergie spirituelle remonta brusquement à son apogée, bien que ce ne fût que temporaire.
 

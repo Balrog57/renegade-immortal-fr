@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 273 - Xue Yu Descends
 slug: la-descente-de-xue-yu
 ---
-Wang Lin resta immobile un long moment en regardant Da Niu et sa femme s'éloigner. Il y a plus de trente ans, Da Niu n'était qu'un jeune homme; mais en un clin d'œil, il était déjà un homme d'âge mûr.
+Wang Lin resta immobile un long moment en regardant Da Niu et sa femme s'éloigner. Il y a plus de trente ans, Da Niu n'était qu'un jeune homme; mais en un clin d'œil, il s'était marié, avait eu un fils et était déjà un homme d'âge mûr.
 
-Tout comme le domaine de la vie et de la mort, il est difficile pour les choses de ce monde d'échapper à leur destin.
+Tout comme le domaine de la vie et de la mort, il est difficile pour les choses de ce monde d'échapper à la vie et à la mort.
 
 Wang Lin esquissa un sourire et pointa de nouveau l'écran lumineux. Dans un éclair, le tunnel sur l'écran se referma. Wang Lin leva la tête et observa les environs. Il n'était pas pressé de quitter l'Alliance des Quatre Sectes, car il restait un objectif qu'il n'avait pas encore atteint.
 
@@ -30,7 +30,7 @@ Les autres éléments manquants nécessitaient également l'âme de leur bête d
 
 Wang Lin devait franchir la porte céleste pour obtenir le Qi céleste, il portait donc son dévolu sur le Chaudron de la Pluie.
 
-Il n'était manifestement pas encore temps de tenter de s'en emparer. Le moment opportun serait celui du début de l'invasion de Xue Yu.
+Il n'était manifestement pas encore temps de tenter de s'en emparer. Le moment opportun serait celui où la guerre opposerait Xue Yu à l'Alliance des Quatre Sectes.
 
 Envisageant cela, le regard de Wang Lin devint d'un calme profond alors qu'il choisissait une immense montagne enneigée pour s'y enfoncer.
 
@@ -44,7 +44,7 @@ L'ensemble de l'Alliance des Quatre Sectes était recouvert de blanc. Au cours d
 
 En réalité, l'Alliance des Quatre Sectes s'était scindée en deux factions: l'une souhaitait se terrer pour attendre que l'orage passe, tandis que l'autre voulait combattre jusqu'au bout. Après tout, les forces n'étaient pas inégales: Xue Yu n'était lui aussi qu'un pays de culture de rang 4.
 
-Un jour, une immense aura glaciale s'échappa des failles du ciel, et une jeune fille émergea de l'une d'elles, au centre de l'Alliance des Quatre Sectes.
+Un jour, une immense aura glaciale bleu foncé s'échappa des failles du ciel, et une jeune fille émergea de l'une d'elles, au centre de l'Alliance des Quatre Sectes.
 
 Elle portait une robe blanche, telle une reine des glaces. Elle n'était pas d'une beauté éclatante, mais la froideur qui émanait de son visage semblait plus glaciale que la neige elle-même.
 
@@ -56,7 +56,7 @@ Peu après, une multitude de cultivateurs vêtus de blanc sortirent des failles.
 
 Une vague d'intention meurtrière enveloppa le territoire.
 
-Pendant ce temps, aucun des innombrables cultivateurs de l'Alliance ne fit acte de présence, laissant les guerriers de Xue Yu sortir un à un.
+Pendant ce temps, aucun des innombrables cultivateurs de l'Alliance ne fit acte de présence, laissant les cultivateurs de Xue Yu sortir un à un.
 
 Peu à peu, les cultivateurs de Xue Yu se multiplièrent. Aucun ne prononça un mot. Leurs regards étaient tous braqués sur la jeune fille en blanc. Même ceux qui étaient loin ne quittaient pas la silhouette du regard.
 
@@ -80,9 +80,9 @@ Ses cheveux étaient ébouriffés alors qu'il fixait les cultivateurs de Xue Yu 
 
 Peu après, un rugissement monta de la Secte de l'Encre d'Eau, au sud. Un colossal chaudron de bronze s'éleva lentement vers le ciel depuis la montagne arrière de la secte. D'innombrables sorts étaient gravés sur sa paroi, et une aura primitive s'en dégageait. Un vieil homme vêtu d'une robe rouge était assis au sommet du chaudron, observant le ciel avec calme.
 
-La Secte du Bois Vert, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
+La Secte du Bois Vert, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire, dégageant une odeur de pourriture, s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
 
-L'instant suivant, un jeune homme à l'allure fragile de la Secte de l'Âme Noire apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il était d'une pâleur extrême, comme s'il sortait d'une longue maladie.
+L'instant suivant, un jeune homme à l'allure fragile de la Secte de l'Âme Noire apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il avait le teint légèrement pâle, comme s'il sortait à peine d'une grave maladie.
 
 Alors que son corps flottait dans les airs, il agita la main droite pour invoquer quelque chose. Soudain, une masse de gaz noir s'échappa de la Secte de l'Âme Noire. Ce gaz se tressa pour former un pinceau d'encre noire. Dès l'apparition du pinceau, les couleurs du ciel changèrent. Même le vieillard sur le chaudron et celui enchaîné au rocher furent frappés de stupeur.
 

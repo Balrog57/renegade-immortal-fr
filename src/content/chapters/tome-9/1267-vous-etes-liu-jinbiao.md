@@ -8,7 +8,7 @@ slug: vous-etes-liu-jinbiao
 ---
 Alors que Wang Lin calculait l'avenir à l'aide du sort des Défieurs, les disciples de la Secte de l'Origine avaient déjà fini de tout emballer. Ils attendaient Wang Lin sur la place principale.
 
-À l'origine, ils discutaient entre eux. Leurs paroles étaient empreintes de confusion et d'excitation; ils savaient déjà que la Secte de l'Origine ne serait pas dissoute, mais qu'elle allait être élevée au rang de secte de niveau 7.
+À l'origine, ils discutaient entre eux. Leurs paroles étaient empreintes de confusion et d'excitation; ils savaient déjà que la Secte de l'Origine ne serait pas dissoute, mais qu'elle allait déménager vers la région de rang 7.
 
 Cependant, à cet instant précis, le ciel clair s'obscurcit et un cri déchirant retentit. Un rayon de lumière dorée fondit sur la Secte de l'Origine.
 
@@ -22,7 +22,7 @@ Il ne s'agissait pas d'un simple cultivateur du stade Briseur du Nirvana, mais d
 
 La voix majestueuse émana du jade et enveloppa toute la Secte de l'Origine. Même le continent de Mo Luo trembla sous la puissance de cette voix.
 
-Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Ses yeux s'illuminèrent et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans ma Secte de l'Origine! »
+Lu Yanfei, qui avait beaucoup vu au sein de la puissante Secte Éternelle du rang 8, n'était pas une simple cultivatrice du stade Scruteur du Nirvana. Son regard eut un éclat et elle joignit les mains en signe de respect. « Je ne sais pas pourquoi le Senior Jin Biao est venu dans ma Secte de l'Origine! »
 
 « Un désastre vous menace et vous n'en avez même pas conscience, alors je vais vous l'apprendre. Il y a trois jours, quelqu'un a trouvé ce vieil homme. Cette personne voulait acheter la vie de toute votre Secte de l'Origine! »
 
@@ -38,7 +38,7 @@ Le regard de Lu Yanfei devint glacial alors qu'elle ricanait, mais les autres di
 
 « Ce vieil homme ne souhaite pas anéantir toute votre Secte. Si vous pouvez fournir suffisamment de cristaux d'origine ou une valeur équivalente, je mettrai fin à cette affaire! » La voix antique dégageait une aura indéniable doublée d'une intention menaçante. En raison de la puissance du stade Briseur du Nirvana, cette menace pouvait ébranler l'esprit de quiconque l'entendait.
 
-Lu Yanfei réfléchit, mais son expression devint encore plus froide.
+Lu Yanfei garda le silence, mais son expression devint encore plus froide.
 
 À ce moment précis, dans la chambre, Wang Lin ouvrit les yeux et fixa le mur comme si son regard pouvait le transpercer.
 

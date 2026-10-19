@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1405 - Dream like life
 slug: une-vie-semblable-a-un-reve
 ---
-« Allumez l'Encens Bleu! » L'ancien Oiseau Vermillon agita la main. Sa candeur de tout à l'heure s'était évanouie, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
+« Allumez l'Encens Bleu! » L'ancien Oiseau Vermillon agita la main. Son air désinvolte de tout à l'heure s'était évanoui, laissant place à une gravité solennelle. À cet instant, une puissance immense émana de son corps, empreinte d'une aura tyrannique.
 
 C'était comme si sa parole faisait loi!
 
@@ -14,7 +14,7 @@ Tandis qu'un grondement résonnait, trois bâtons d'encens gigantesques, épais 
 
 Ces trois bâtons d'encens, d'un bleu sombre, perçaient le ciel. La tortue géante semblait s'être métamorphosée en un autel; la vue de ces trois piliers sur son dos était absolument stupéfiante!
 
-« L'épreuve de mon Jeune Empereur des Terres Déchues est extrêmement simple. Vous devez pénétrer dans les trois mondes oniriques de l'Homme, de la Terre et du Ciel, et allumer ces trois bâtons d'encens! Cette épreuve comporte deux points cruciaux!
+« L'épreuve de mon Jeune Empereur des Terres Déchues est extrêmement simple. Vous devez pénétrer dans les trois mondes oniriques du Ciel, de la Terre et de l'Homme, et allumer ces trois bâtons d'encens! Cette épreuve comporte deux points cruciaux!
 
 Le premier est qu'allumer ces bâtons est une tâche ardue! Le second est qu'une fois un bâton d'encens allumé, bien qu'il mesure des dizaines de milliers de pieds, il brûle très rapidement. Vous devrez déployer tous vos efforts pour ralentir sa combustion, afin que votre âme puisse partir et revenir dans votre corps! »
 
@@ -50,7 +50,7 @@ Le Maître du Dao Rêve Bleu observa calmement Wang Lin et soupira intérieureme
 
 L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était comme si rien au monde n'avait d'importance, hormis le combat contre l'ancien Oiseau Vermillon.
 
-Le lézard géant sous lui expulsa deux jets d'air chaud et referma ses yeux froids.
+Le lézard géant sous lui expulsa deux volutes de vapeur blanche et referma ses yeux froids.
 
 Alors que les dizaines de milliers de cultivateurs entourant la tortue géante regardaient Wang Lin foncer vers le premier bâton d'encens, diverses pensées traversèrent leurs esprits.
 
@@ -62,13 +62,13 @@ Wang Lin arriva aux côtés du premier bâton d'encens sous le regard des dizain
 
 Ce bâton géant ressemblait à une montagne. Il dégageait un parfum subtil qui, pour quiconque le respirait, éveillait l'esprit.
 
-Wang Lin prit une profonde inspiration et posa sa main droite sur le gigantesque bâton d'encens. Dès qu'il le toucha, il ferma les yeux et son corps devint immobile. Son âme pénétra dans l'encens... La première épreuve: le Monde Fantôme de l'Humain!
+Wang Lin prit une profonde inspiration et posa sa main droite sur le gigantesque bâton d'encens. Dès qu'il le toucha, il ferma les yeux et son corps devint immobile. Son âme pénétra dans l'encens... La première épreuve: le Monde Onirique de l'Homme!
 
 Le bruit du courant de l'eau résonna à ses oreilles. Des rumeurs bourdonnantes provenant du lointain devinrent de plus en plus nettes, jusqu'à étouffer le clapotis de l'eau.
 
 Le ciel était d'un bleu pur, magnifique comme une peinture, parsemé de nuages blancs. Pourtant, tout semblait un peu artificiel.
 
-Wang Lin se tenait sur un pont surplombant une rivière. Plusieurs embarcations descendaient le courant. De chaque côté du pont, des rues bruyantes grouillaient de piétons, mais il était impossible de distinguer leurs visages.
+Wang Lin se tenait sur un pont surplombant une rivière. Plusieurs embarcations descendaient le courant, et une musique lointaine flottait jusqu'à lui. De chaque côté du pont, des rues bruyantes grouillaient de piétons, mais il était impossible de distinguer leurs visages.
 
 Wang Lin détourna son regard du ciel. Il avait l'impression d'être entré dans un monde de rêve. Tout semblait factice, dépourvu de toute sensation de réalité.
 
@@ -78,9 +78,9 @@ C'était une cité mortelle. La ville n'était pas vaste, mais elle abritait une
 
 Pourtant, tout cela restait trouble et semblait étrangement déconnecté de lui... « Est-ce là la première épreuve... » songea Wang Lin, puis il se détourna pour quitter le pont lorsqu'il tourna soudainement les yeux vers la rivière!
 
-Un grand navire dérivait lentement sur l'eau, et un jeune homme y tenait une coupe de vin. Quelques chanteuses dansaient sur le pont tandis que des serviteurs se tenaient derrière lui.
+Un grand navire dérivait lentement sur l'eau, et un jeune homme y tenait une coupe de vin. Quelques chanteuses dansaient devant lui tandis que des serviteurs se tenaient derrière lui.
 
-Parmi les éclats de rire, s'élevèrent ces paroles douces mais arrogantes: « Le ciel et la terre sont l'auberge de tous les êtres; le temps est le voyageur de passage de cent générations. Et la vie flottante est comme un rêve: combien de joies en reste-t-il... et pour combien de joies vit-on! »
+Parmi les éclats de rire, s'élevèrent ces paroles faibles en apparence mais débridées: « Le ciel et la terre sont l'auberge de tous les êtres; le temps est le voyageur de passage de cent générations. Et la vie flottante est comme un rêve: combien de joies en reste-t-il... et pour combien de joies vit-on! »
 
 Le jeune homme leva sa coupe et la vida d'un trait! Depuis que Wang Lin était arrivé ici, tout ce qui l'entourait était flou. Cependant, à cet instant précis, l'apparence du jeune homme devint limpide, créant un contraste saisissant avec son environnement!
 

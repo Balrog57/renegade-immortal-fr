@@ -20,7 +20,7 @@ Puis, il ajouta: « Envoyez les hommes; ne faites pas attendre l'Ancêtre! »
 
 Le jeune homme esquissa un léger sourire et frappa doucement la table. À ce signal, l'un des hommes en robes noires assis au premier étage se leva. C'était un homme d'âge moyen aux yeux étincelants comme des étoiles. Il sortit du restaurant et s'élança vers Wang Lin, porté par un rayon d'énergie d'épée.
 
-Wang Lin était assis au bord de la rivière. Le bateau se trouvait à mi-chemin de la traversée, mais les accords de la cithare parvenaient encore à ses oreilles. Il y était totalement immergé, son visage empreint d'une profonde sérénité.
+Wang Lin était assis au bord de la rivière. Le bateau se trouvait à mi-chemin de la traversée, mais les accords tristes de la cithare parvenaient encore à ses oreilles. Il y était totalement immergé, son visage empreint d'une profonde sérénité.
 
 L'énergie de l'épée, chargée d'une puissante intention meurtrière, fonçait vers lui. À cet instant, il n'y avait pas une âme dans un rayon de plusieurs kilomètres; la zone semblait totalement déserte.
 
@@ -130,6 +130,6 @@ Une aura destructrice enveloppa le restaurant en plein effondrement, provoquant 
 
 Après la violente explosion, un silence de mort régna dans un rayon de 330 mètres.
 
-Wang Lin apparut à 330 mètres de là. Bien que son expression fût normale, une pointe de mélancolie subsistait dans ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
+Wang Lin apparut à 330 mètres de là. Bien que son expression fût normale, une lueur sombre traversa ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
 
 Sur la rivière, le corps du jeune homme chutait lentement tandis que des traînées de gaz gris s'échappaient de lui pour poursuivre Wang Lin...

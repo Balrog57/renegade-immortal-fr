@@ -24,7 +24,7 @@ Wang Lin en déduisit qu'il y a eu, il y a des éternités, avant l'effondrement
 
 En voyant l'empreinte de main sur la porte, il ne put s'empêcher de se demander quelle puissance divine avait dû être nécessaire pour laisser une telle marque sur la Porte Céleste.
 
-L'once de fierté que Wang Lin venait d'acquérir s'évapora face à cet édifice. Comparé à ces présences mystérieuses, il n'était encore qu'un éternel lutteur au bas de l'échelle.
+L'once de fierté que Wang Lin venait d'acquérir s'évapora face à cet édifice. Comparé à ces présences mystérieuses, il était encore en pleine lutte.
 
 Après un moment, plusieurs autres personnes apparurent et se posèrent sur diverses plateformes. Les niveaux de culture parmi les cultivateurs étaient extrêmement variés; même des cultivateurs de l'Âme Naissante firent leur apparition. Cela déconcerta profondément Wang Lin.
 
@@ -36,31 +36,31 @@ Mais dès que le jeune homme eut atterri, les yeux de la vieille femme s'illumin
 
 Le visage du jeune homme se glaça. Il était sur le point de répliquer quand la vieille femme fronça les sourcils et tendit la main pour l'agripper. Soudain, le jeune homme poussa un cri. Il recula brusquement et esquiva de justesse l'attaque. L'expression de son visage devint très disgracieuse alors qu'il lançait un regard noir à la vieille femme avant de se retourner pour se poser sur une autre plateforme à proximité.
 
-Sur cette plateforme siégeait un homme d'âge moyen. C'était l'un des compagnons de Wang Lin. Il était simplement assis là, buvant seul, et semblait se moquer de la présence d'un occupant supplémentaire.
+Sur cette plateforme siégeait un homme d'âge moyen. C'était l'un des compagnons de Wang Lin. Il était simplement assis là, buvant seul, et ne semblait nullement se soucier de la présence d'un occupant supplémentaire.
 
 Le jeune homme en noir réfléchit un instant avant de s'asseoir au bord de la plateforme. Ses yeux brillaient et il jetait parfois des regards furtifs vers la vieille femme.
 
 Peu de temps après, une autre personne arriva. Son visage était sombre; il se trouvait au début du stade de la Formation de l'Âme. En constatant que toutes les plateformes étaient occupées, il s'envola immédiatement sur le côté. Nul ne sut si c'était intentionnel, mais par un concours de circonstances, il vola vers l'endroit où se trouvaient les six membres du Suzaku.
 
-Son corps apparut sur la plateforme occupée par l'homme du Clan du Démon Géant et il déclara froidement: « Écarte-toi! »
+Son corps apparut sur la plateforme occupée par l'homme du Clan des Démons Géants et il déclara froidement: « Écarte-toi! »
 
-L'homme du Clan du Démon Géant le regarda avec dédain, puis son corps gonfla soudainement pour devenir gigantesque. Il se redressa, surplomba la personne terrifiée et dit: « Il n'y a pas de place! »
+L'homme du Clan des Démons Géants le regarda avec dédain, puis son corps gonfla soudainement pour devenir gigantesque. Il se redressa, surplomba la personne terrifiée et dit: « Il n'y a pas de place! »
 
 Tandis qu'il parlait, l'empreinte de hache sur son front brilla rapidement.
 
-L'individu regarda l'homme du Clan du Démon Géant avec effroi en murmurant: « Le Clan du Démon Géant... » Son corps s'éloigna lentement de la plateforme.
+L'individu regarda l'homme du Clan des Démons Géants avec effroi en murmurant: « Le Clan des Démons Géants... » Son corps s'éloigna lentement de la plateforme.
 
-L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Papillon Rouge. L'homme du Clan du Démon Géant l'observa avec intérêt.
+L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Papillon Rouge. L'homme du Clan des Démons Géants l'observa avec intérêt.
 
 Cette personne atterrit sur la plateforme de Papillon Rouge, la regarda, joignit les mains en signe de respect, puis repartit.
 
-Il avait remarqué que cette Papillon Rouge se trouvait au stade avancé de la Formation de l'Âme. Ce n'était pas une adversaire qu'il pouvait provoquer. Il flotta donc dans les airs, son regard balayant la foule. Il renonça d'emblée à l'homme aux cheveux blancs et, quant à l'homme d'âge moyen, il passa son chemin car la plateforme était déjà occupée.
+Il avait remarqué que cette Papillon Rouge se trouvait au stade avancé de la Formation de l'Âme. Ce n'était pas un adversaire qu'il pouvait provoquer. Il flotta donc dans les airs, son regard balayant la foule. Il renonça d'emblée à l'homme aux cheveux blancs et, quant à l'homme d'âge moyen, il passa son chemin car la plateforme était déjà occupée.
 
 Finalement, il choisit les deux plateformes où se trouvaient Wang Lin et le jeune homme dont le regard était empreint de soif de sang. Il renonça au second, car celui-ci ne semblait pas être du genre à céder facilement; cela aurait pu déclencher un combat majeur, ce qu'il voulait éviter.
 
 Quant à Wang Lin, il ressemblait à un érudit fragile, une proie facile. Les yeux de l'inconnu s'illuminèrent et il se dirigea vers la plateforme de Wang Lin.
 
-À cet instant, même l'homme d'âge moyen qui buvait leva la tête pour observer la scène. L'homme du Clan du Démon Géant fit de même, l'intérêt brillant dans ses yeux.
+À cet instant, même l'homme d'âge moyen qui buvait leva la tête pour observer la scène. L'homme du Clan des Démons Géants fit de même, l'intérêt brillant dans ses yeux.
 
 Papillon Rouge avait l'impression de connaître ce visage d'érudit, mais elle ne parvenait pas à s'en souvenir. Elle scruta également l'inconnu pour tenter de déceler la nature de ses techniques. Le jeune homme assoiffé de sang et le vieil homme aux cheveux blancs regardèrent aussi; après tout, Wang Lin venait du Suzaku, tout comme eux.
 
@@ -70,7 +70,7 @@ Le regard de Wang Lin resta calme; il ne dit mot. Il fit un geste de la main et 
 
 À l'instant où le crapaud apparut, l'expression de l'inconnu changea radicalement et il s'exclama: « Le Crapaud du Tonnerre! »
 
-Ce crapaud n'était qu'un des trésors de Wang Lin, il n'avait donc aucune crainte à le dévoiler. Ses véritables atouts se trouvaient dans sa sacoche de rangement; utiliser ce crapaud pour intimider était une stratégie sans risque. Si ses futurs adversaires se préparaient à affronter le Crapaud du Tonnerre, ils ne seraient pas prêts pour ses véritables techniques mortelles.
+Ce crapaud n'était qu'un des trésors de Wang Lin, il n'avait donc aucune crainte à le dévoiler. Ses véritables atouts se trouvaient dans sa sacoche de rangement; utiliser ce crapaud pour brouiller les pistes était une stratégie sans risque. Si ses futurs adversaires se préparaient à affronter le Crapaud du Tonnerre, ils ne seraient pas prêts pour ses véritables techniques mortelles.
 
 De plus, il était évident que la force brute régnait ici. S'il ne montrait pas de puissance dès maintenant, il s'exposerait à d'innombrables ennuis par la suite. C'est ce qui poussa Wang Lin à sortir cette créature.
 
@@ -86,7 +86,7 @@ L'homme fut projeté loin de là. Il regarda le crapaud avec effroi et ne put s'
 
 Wang Lin fut surpris par la facilité avec laquelle l'homme abandonnait, mais il ignorait si cela était sincère ou un simple stratagème.
 
-Le génie de Xue Yu fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan du Démon Géant, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
+Le génie de Xue Yu fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan des Démons Géants, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
 
 Seul le jeune homme aux yeux assoiffés de sang observa le crapaud avec une pointe d'appréhension. Sa méthode de culture reposant entièrement sur les insectes, il se méfiait grandement d'une créature capable de cracher la foudre, d'autant plus qu'il s'agissait d'un crapaud.
 

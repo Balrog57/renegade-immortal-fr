@@ -96,7 +96,7 @@ Devant lui, l'Omniscient affichait une lueur mystérieuse dans les yeux. Il fixa
 
 Wang Lin ne dit rien, mais fronça lentement les sourcils.
 
-L'Omniscient regarda Wang Lin et rit: « Ne réfléchis pas trop. Cette personne est la seconde âme originelle de ton maître. Je l'ai cultivée lorsque j'étais jeune. Cependant, à l'époque où j'étais au stade du Yin et du Yang, en raison de certains événements, j'ai dû me séparer de lui. L'Art du Massacre Céleste correspond à cette volonté de survie que tu recherches! »
+L'Omniscient regarda Wang Lin et rit: « Ne réfléchis pas trop. Cette personne est la seconde âme originelle de ton maître. Je l'ai cultivée lorsque j'étais jeune. Cependant, à l'époque où mes intentions du Yin-Yang et du Vide-Réel se différenciaient, en raison de certains événements, j'ai dû me séparer de lui. L'Art du Massacre Céleste correspond à cette volonté de survie que tu recherches! »
 
 Wang Lin réfléchit un instant avant de ranger la pierre de jade. Il ne croyait pas tout ce que disait l'Omniscient, mais étant très rusé, il ne laissa rien paraître sur son visage et se contenta de hocher la tête.
 

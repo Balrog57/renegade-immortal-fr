@@ -26,7 +26,7 @@ Zhang Jingyun et ses compagnons adoptèrent une formation de siège pour préven
 
 « Une fois que nous aurons rassemblé les traces de Tonnerre Spirituel provenant de ces individus, nous pourrons enfin former un Tonnerre Spirituel complet. Nous irons ensuite au Temple du Cristal de Tonnerre pour l'échanger contre ces quatre épées volantes de rang céleste! »
 
-Il ne fallut pas longtemps avant que la formation entourant les centaines de cultivateurs ne scintille et ne montre des signes d'activation. Certains devinrent impatients, d'autres furent transportés par l'excitation. Ils appréciaient manifestement l'idée de devenir le Dao Céleste. Même le cultivateur au stade Yin Illusoire du groupe de Zhang Jingyun était dans le même état, ses lèvres se recourbant en un sourire.
+Il ne fallut pas longtemps avant que la formation entourant les centaines de cultivateurs ne scintille et ne montre des signes d'activation. Certains devinrent impatients, d'autres furent transportés par l'excitation. Ils appréciaient manifestement l'idée de devenir le Dao Céleste. Même le cultivateur au stade Yin Illusoire du groupe de Zhang Jingyun était dans le même état, se léchant les lèvres.
 
 Un instant plus tard, la formation gronda et Wang Lin ouvrit les yeux.
 
@@ -42,7 +42,7 @@ Au sol, une cité mortelle s'étendait sous la nuit pluvieuse. Peu de gens circu
 
 Cependant, au sommet d'une montagne lointaine se tenait un homme!
 
-Cet homme avait les cheveux blancs et des yeux semblables à des éclairs. Il était comme un soleil dans cette nuit venteuse et pluvieuse. Il se tenait droit, son corps dégageant une culture de pointe au stade de la Formation de l'Âme. Ses cheveux blancs flottaient au vent tandis que ses vêtements claquaient bruyamment.
+Cet homme avait les cheveux blancs et des yeux semblables à des éclairs. Il était comme un soleil dans cette nuit venteuse et pluvieuse. Il se tenait droit, son corps dégageant une culture de pointe au stade de la Formation de l'Âme. Ses cheveux blancs flottaient au vent tandis que ses vêtements verts claquaient bruyamment.
 
 « Moi, Lu Bei, j'ai commencé la culture à l'âge de sept ans. J'ai été éclairé par les changements du monde et j'ai observé le mouvement des vents et des nuages. J'ai atteint le stade de la Formation de l'Âme à 372 ans, et maintenant, après plus de 500 ans, j'ai atteint le sommet de ce stade. Aujourd'hui, je vais briser ce monde pour accueillir la rétribution divine et entrer dans le Royaume Céleste! » La voix du vieil homme était douce, comme s'il se parlait à lui-même, mais sa tête était levée vers les cieux comme s'il rugissait face au firmament!
 

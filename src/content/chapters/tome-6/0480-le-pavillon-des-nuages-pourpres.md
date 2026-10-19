@@ -18,7 +18,7 @@ Cette personne possédait une chevelure rouge dont les mèches s'agitaient sans 
 
 Une voix froide émana de la bouche de la silhouette de feu. « Je suis le dixième gardien de l'épreuve terrestre. Vainquez-moi et vous pourrez poursuivre. »
 
-Wang Lin regarda calmement la silhouette, puis sans un mot, il chargea. Ses mains formèrent un sceau avant qu'il ne projette sa paume en avant.
+Wang Lin regarda calmement la silhouette, puis sans un mot, il chargea. Ses mains formèrent un sceau, l'une devant, l'autre derrière, en un taiji du retour à l'origine, avant qu'il ne projette sa paume en avant.
 
 Une puissance immense surgit soudain de Wang Lin et se rassembla devant lui.
 
@@ -94,7 +94,7 @@ Wang Lin se retrouva debout là où il se tenait précédemment. Devant lui se t
 
 Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Frère Aîné. »
 
-Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, jeune frère apprenti Wang Lin. Maître a déjà organisé ton installation au Pavillon des Nuages Pourpres. »
+Zhao Xingsha sourit légèrement, fit un geste de la main et dit: « Suis-moi, jeune frère apprenti Wang Lin. Maître a déjà organisé ton séjour provisoire au Pavillon des Nuages Pourpres. »
 
 Sur ce, Zhao Xingsha prit la tête du guidage et Wang Lin le suivit.
 
@@ -106,19 +106,19 @@ Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait t
 
 Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Omniscient possède-t-il? »
 
-Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté au total sept disciples. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la division pourpre. »
+Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté des disciples dans sept divisions. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la division pourpre. »
 
 « La division pourpre... » Les yeux de Wang Lin s'illuminèrent.
 
-Zhao Xingsha soupira: « Parmi les sept divisions, notre division pourpre est la plus faible. Enfin, une fois que tu seras installé, tu le découvriras par toi-même, je ne t'en dirai pas davantage. »
+Zhao Xingsha soupira: « Parmi les sept divisions, notre division pourpre est la plus faible. Avec le temps, tu le découvriras par toi-même, je ne t'en dirai pas davantage. »
 
 Après avoir survolé les montagnes pendant un certain temps, un sommet perçant les nuages apparut devant eux. Une tour extrêmement luxueuse trônait sur la cime. Cette tour émettait une lueur pourpre qui illuminait toute la zone environnante.
 
-La tour semblait être la source de tout le pourpre du monde; sa simple vue faisait trembler le cœur.
+Ce lieu semblait être la source même du « souffle pourpre venu de l'Est »; sa simple vue faisait trembler le cœur.
 
 « Jeune frère apprenti Wang Lin, suis-moi! » Zhao Xingsha fondit droit vers le sommet et Wang Lin le suivit de près.
 
-D'innombrables disciples de la Secte Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
+D'innombrables disciples de la Secte du Destin Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
 
 À l'arrière de la montagne, d'innombrables demeures couvraient l'ensemble du relief. Des disciples y étudiaient le Dao, pratiquaient des techniques ou s'adonnaient à la culture.
 
@@ -142,4 +142,4 @@ Juste au moment où il s'apprêtait à faire un pas en avant, il fronça les sou
 
 Il vit une personne sortir du pavillon. C'était une femme vêtue d'une robe pourpre parsemée de fleurs dorées. Elle possédait un visage charmant et gracieux, mais à cet instant, son regard était chargé d'une intention meurtrière alors qu'elle fixait Wang Lin.
 
-« Tu ne peux pas entrer ici! »
+« Tu ne peux pas habiter ici! »

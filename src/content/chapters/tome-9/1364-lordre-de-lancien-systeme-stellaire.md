@@ -42,7 +42,7 @@ La femme regarda l'homme avec douceur et murmura: « Je t'écouterai. Je me dema
 
 L'homme affichait un visage sérieux. Il partageait les mêmes doutes et s'apprêtait à parler lorsqu'il tourna soudainement le regard vers l'horizon. Son bras barra la route à la femme, et ils s'immobilisèrent en plein vol.
 
-Un rayon de lumière noire fendit les nuages sombres. Ce vent noir se dirigeait initialement dans la même direction qu'eux, mais dès qu'il les détecta, il bifurqua vers eux.
+Un souffle noir fendit les nuages sombres. Ce vent noir se dirigeait initialement dans la même direction qu'eux, mais dès qu'il les détecta, il bifurqua vers eux.
 
 Il ne fallut qu'un instant pour que le souffle noir se rapproche et qu'un jeune homme vêtu de noir apparaisse. Son regard était indifférent alors qu'il fixait silencieusement la femme nommée Yue Xuan.
 
@@ -86,7 +86,7 @@ Dès que cet éclair prit sa forme définitive, les nuages grondèrent et une pl
 
 L'ensemble de la planète de culture pouvait entendre le fracas assourdissant émanant des nuages!
 
-Dans la cité impériale, plusieurs vieillards se trouvaient dans un pavillon imposant. Presque tous étaient au stade de Purificateur du Nirvana, et l'un d'eux atteignait le stade de Briseur du Nirvana!
+Dans la cité impériale, plusieurs vieillards se trouvaient dans un pavillon imposant. Tous étaient au stade de Purificateur du Nirvana, et l'un d'eux atteignait le stade de Briseur du Nirvana!
 
 Alors qu'ils se tenaient debout dans le pavillon, ils observaient les nuages tourbillonnants et écoutaient le grondement du tonnerre. Leurs regards étaient empreints d'étrangeté.
 

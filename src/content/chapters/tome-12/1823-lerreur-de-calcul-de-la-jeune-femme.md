@@ -104,7 +104,7 @@ De loin, le véritable corps d'essence de Wang Lin avait complètement changé d
 
 « Une erreur de calcul!! Cette personne possède un avatar encore plus profond. Il a utilisé son corps original pour attirer mon attention, et pendant que je le poursuivais, j'ai ignoré son avatar sans le savoir! »
 
-« Les tremblements de la veine principale du feu terrestre auraient dû cesser pendant ma poursuite, mais ils sont devenus encore plus intenses! »
+« Les tremblements de la veine principale du feu terrestre auraient dû diminuer pendant ma poursuite, mais ils sont devenus encore plus intenses! »
 
 « Maudit soit-il!! » La jeune femme réagit et son intention meurtrière devint encore plus féroce. Elle abandonna la poursuite du corps original de Wang Lin pour plonger dans les profondeurs de la veine principale du feu terrestre, vers le véritable corps d'essence de celui-ci.
 

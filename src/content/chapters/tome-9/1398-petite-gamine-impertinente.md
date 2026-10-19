@@ -18,7 +18,7 @@ Le Jeune Empereur était bien réel! Cette nouvelle avait été annoncée par le
 
 Il y avait aussi le 13e Ancien Déchu. Son expression changea radicalement et il recula inconsciemment de quelques pas. Son esprit tremblait et ses yeux étaient pétris de peur. Il n'aurait jamais imaginé que ses soupçons soient fondés!
 
-« Dès que j'ai vu le Clan du Dragon Blindé, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai essayé de l'utiliser pour étaler ma puissance... »
+« Dès que j'ai vu le Clan du Dragon Blindé, j'aurais dû m'en douter. Le neuvième Ancien Déchu a été dépouillé de son titre pour avoir offensé cette personne!! Je... J'ai osé m'en servir pour asseoir mon autorité... »
 
 Le Patriarche des Cours d'Eau tremblait, léchant ses lèvres desséchées. Une panique sourde envahissait son cœur.
 
@@ -66,7 +66,7 @@ L'attention de Wang Lin se détourna de lui pour se poser sur le Patriarche des 
 
 Le cœur de ce dernier rata un battement et son visage devint livide.
 
-Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchouez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan des Scorpions Noirs pendant cent ans! »
+Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « Déchoyez-le de son rang d'Ancien Déchu, et forcez-le à s'agenouiller sur la planète du Clan du Scorpion Noir pendant cent ans! »
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
@@ -80,7 +80,7 @@ Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lor
 
 Wang Lin se détourna et entra calmement dans le passage.
 
-L'atmosphère devint encore plus pesante. Les dizaines de milliers de cultivateurs rassemblés fixaient Wang Lin, l'esprit bouleversé. Cependant, certains éprouvaient du mépris envers son attitude, estimant qu'il n'était rien sans son ascendance.
+L'atmosphère devint encore plus pesante. Les dizaines de milliers de cultivateurs rassemblés fixaient Wang Lin, l'esprit bouleversé. Cependant, certains éprouvaient du mépris envers son attitude, estimant qu'il ne se prévalait que de son titre, à la manière du renard qui se pare de la force du tigre.
 
 « Si cet homme n'était pas le Jeune Empereur, il ne serait pas si arrogant! »
 
@@ -88,7 +88,7 @@ L'atmosphère devint encore plus pesante. Les dizaines de milliers de cultivateu
 
 « C'est vrai, l'épreuve est extrêmement difficile. Au fil des ans, aucun participant qualifié n'a réussi, même s'ils n'avaient pas été nommés personnellement par le Grand Empereur. Même avec une nomination directe, la tâche lui sera ardue! »
 
-« Les devoirs du Jeune Empereur sont cruciaux. Ils peuvent même suppléer le Grand Empereur pour régner sur toute la Terre Déchue. Même le Conseil Souverain doit leur témoigner un immense respect. »
+« Les devoirs du Jeune Empereur sont cruciaux. Ils peuvent même suppléer le Grand Empereur pour régner sur toute la Terre Déchue. Même le Conseil Souverain doit leur témoigner une grande courtoisie. »
 
 Le messager suivit Wang Lin et s'enfonça progressivement dans le passage. Dès que Wang Lin y pénétra, il ressentit une force de déchirure provenant des parois, accompagnée d'une succion magnétique. Son énergie originelle se dispersa légèrement, comme prête à être aspirée hors de son corps. Cependant, la succion à l'intérieur du passage n'était pas si violente; à l'extérieur, au sein des déchirures magnétiques, elle aurait été terrifiante. Wang Lin déploya son Sens Divin, observa brièvement les lieux, puis avança.
 
@@ -102,7 +102,7 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 « Les Flammes de Joss! Un cultivateur du troisième pas!!! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
 
-« Cette jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
+« Cette jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la cérémonie de sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
 
 « Maître Simo salue le Grand Empereur! » L'homme aux côtés de la femme regarda la Planète du Grand Empereur d'un air indifférent. Cependant, son expression changea brusquement pour se charger d'une intention meurtrière! Il avait repéré Wang Lin à l'intérieur du passage menant à la Planète du Grand Empereur.
 
@@ -110,7 +110,7 @@ Wang Lin vit également Maître Simo! Leurs regards se croisèrent et entrèrent
 
 « Petit bâtard!! » La voix de Maître Simo sortit entre ses dents, chargée d'une intention meurtrière puissante.
 
-L'expression de Wang Lin resta calme alors qu'il disait lentement: « Perdant! Tu ne sais que parler. Quel genre de cultivateur du troisième pas es-tu donc? »
+L'expression de Wang Lin resta calme alors qu'il disait lentement: « Perdant! Tu ne sais que parler. Tu oses te prétendre grand maître du troisième pas? »
 
 « Toi! Osas-tu me défier?! » La chose que Maître Simo détestait le plus était la destruction de son avatar. Maintenant que Wang Lin l'avait mentionné, sa soif de sang devint monstrueuse.
 
@@ -118,6 +118,6 @@ Wang Lin sourit, une pointe de moquerie dans les yeux: « Oserez-vous entrer dan
 
 À ces mots, l'atmosphère explosa en un tumulte général! Maître Simo fut stupéfait et resta muet, le visage extrêmement sombre. Il n'osait pas!
 
-« Ce cher cultivateur est très perspicace. Je ne connais simplement pas votre nom. Pourriez-vous l'apprendre à Yun Luo? » La femme aux longs cheveux sourit, son regard lunaire posé sur Wang Lin. Pourtant, pour lui, ce sourire était d'une prétention extrême et lui inspirait le dégoût.
+« Ce cher cultivateur a la langue bien acérée. Je ne connais simplement pas votre nom. Pourriez-vous l'apprendre à Yun Luo? » La femme aux longs cheveux sourit, son regard lunaire posé sur Wang Lin. Pourtant, pour lui, ce sourire était d'une prétention extrême et lui inspirait le dégoût.
 
 « Le poste de Grand Maître du Conseil Souverain ne repose pas sur le niveau de culture, mais est un titre transmis de génération en génération. Tu n'es qu'une petite gamine ayant cultivé depuis moins de mille ans, et tu oses m'appeler "Cher cultivateur"? Quel manque de respect envers tes aînés! Est-ce ainsi que ton maître t'a appris à demander le nom d'un aîné? » L'expression de Wang Lin était glaciale, et ses paroles l'étaient plus encore.

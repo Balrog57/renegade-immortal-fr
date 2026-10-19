@@ -106,7 +106,7 @@ D'un geste de la main, les âmes sans fin dans le Royaume des Flammes de Joss se
 
 La puissance de cette unique inclinaison généra un vent violet qui fondit sur Wang Lin! Il sentit une force inconnue presser de toutes parts, écrasant son corps dans une douleur intense!
 
-Une force de déchirement s'exerçait sur lui, comme si on voulait le briser en morceaux! L'expression de Wang Lin changea. Il n'avait aucune issue, car cette puissance émanait du monde lui-même!
+Une force de déchirement jaillit de son propre corps, comme si on voulait le briser en morceaux! L'expression de Wang Lin changea. Il n'avait aucune issue, car cette puissance émanait du monde lui-même!
 
 « Je veux voir comment tu supporteras l'adoration de mes disciples. Oser me défier avant d'atteindre le troisième niveau... arrogant! » Les yeux de Maître Simo étaient totalement violets et projetaient des éclats de lumière pourpre.
 

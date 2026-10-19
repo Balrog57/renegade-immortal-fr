@@ -28,7 +28,7 @@ L'âme originelle de Luo Su fut incapable de résister à cet éclair rouge. Ell
 
 Son souffle cessa: il était mort.
 
-Un éclat de lumière rouge émana du corps de Luo Su. L'éclair écarlate s'était nourri de l'énergie de l'âme originelle de Luo Su pour retourner vers Qing Shui, dont le visage devint légèrement rubicond.
+Un éclat de lumière rouge émana du corps de Luo Su. L'éclair écarlate avait emporté l'énergie de l'âme originelle brisée de Luo Su pour retourner vers Qing Shui, dont le visage devint légèrement rubicond.
 
 Le silence tomba, absolu. Ce développement soudain laissa tous les cultivateurs sans voix. Ils perdaient toute capacité de réflexion, hantés par l'événement inimaginable qui venait de se produire.
 
@@ -68,13 +68,13 @@ Quant à Nangong Han, il esquissa un sourire amer et pensa: « Ce Xu Mu a le mê
 
 Non seulement lui, mais les yeux de certains vieux monstres sur les tapis de prière s'illuminèrent également. Seul le Dieu de Sang ricana intérieurement.
 
-Les murmures de la foule parvinrent aux oreilles du Maître Yan Leizi. Il regarda Qing Shui et, après une courte réflexion, sourit: « Puisque le Seigneur Céleste l'a tué accidentellement, nous discuterons de cette affaire plus tard. Cependant, Seigneur Céleste, veuillez considérer qu'il n'est pas aisé pour nous, cultivateurs, de progresser; soyez donc plus prudent la prochaine fois. »
+Les murmures de la foule parvinrent aux oreilles du Maître Yan Leizi. Il regarda Qing Shui et, après une courte réflexion, sourit: « Puisque le Seigneur Céleste l'a tué accidentellement, cette affaire en reste là. Cependant, Seigneur Céleste, veuillez considérer qu'il n'est pas aisé pour nous, cultivateurs, de progresser; soyez donc plus prudent la prochaine fois. »
 
 Qing Shui ferma les yeux et ne répondit pas.
 
 Le Maître Yan Leizi soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la culture de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Royaume Ji, mais elle lui inspirait tout de même une crainte profonde; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
 
-Plus important encore, l'éminent aîné qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour rallier Qing Shui à sa cause, plutôt que d'utiliser la force pour le soumettre.
+Plus important encore, l'éminent aîné qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour apaiser Qing Shui, plutôt que d'utiliser la force pour le soumettre.
 
 « Luo Su était trop arrogant! Puisqu'il est mort, il est mort, mais il est vraiment regrettable de perdre sa compréhension des sorts de sens divin... » Les yeux du Maître Yan Leizi se posèrent sur Wang Lin et il songea: « Ce Xu Mu doit posséder un trésor puissant protégeant son âme originelle. C'est peut-être un présent de Qing Shui. »
 

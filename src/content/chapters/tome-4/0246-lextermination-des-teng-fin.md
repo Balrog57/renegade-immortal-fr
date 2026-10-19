@@ -10,7 +10,7 @@ Teng Huayuan frappa son sac de rangement, et une épée gigantesque d'environ di
 
 Les yeux de Wang Lin s'illuminèrent. À l'instant où l'épée géante apparut, son Royaume Ji entra en action. Une série d'éclairs rouges jaillit et encercla l'arme instantanément. Après une succession de craquements sinistres, la grande épée se brisa lentement. Finalement, le Royaume Ji fut épuisé et l'épée ne fut plus que poussière.
 
-Wang Lin plongea la main dans son sac de rangement et en sortit plusieurs Âmes Naissantes qu'il avait récupérées sur les membres de la famille Teng. Il les consomma pour restaurer rapidement l'énergie dépensée.
+Wang Lin plongea la main dans son sac de rangement et en sortit plusieurs Âmes Naissantes qu'il avait récupérées sur les membres de la famille Teng. Il les consomma pour restaurer rapidement l'essence de son Âme Naissante.
 
 Teng Huayuan fixa, abasourdi, l'endroit où l'épée avait disparu. Son apparence sembla soudainement vieillir.
 

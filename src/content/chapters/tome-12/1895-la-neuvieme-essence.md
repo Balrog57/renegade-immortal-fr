@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1895 - The Ninth Essence
 slug: la-neuvieme-essence
 ---
-Il décida d'attendre. Il lui restait encore près de soixante ans à vivre. Il ne voulait pas que tous les tributs préparés par sa famille au fil des générations servent de dot à quelqu'un d'autre.
+Il décida d'attendre. Il lui restait encore près de soixante ans à vivre. Il ne voulait pas que, durant ces cinquante dernières années, tous les tributs préparés par sa famille au fil des générations servent de dot à quelqu'un d'autre.
 
 Quatre-vingts ans étaient suffisants pour une vie entière. Wang Lin passa ces quatre-vingts années dans le Temple du Scorpion Vert.
 
@@ -74,7 +74,7 @@ Alors que cette lumière se propageait, les scorpions environnants sifflèrent e
 
 Une fois enseveli sous la terre, Wang Lin devint une statue de boue et resta immobile.
 
-Le temps passa. Le vieil homme à la robe verte ne partit pas; il s'assit et observa Wang Lin avec une expression solennelle. Le rêve de sa famille, poursuivi durant d'innombrables années, était sur le point de se réaliser, ce qui était crucial pour lui.
+Le temps passa. Le vieil homme à la robe verte ne partit pas; il s'assit et observa Wang Lin avec une expression solennelle. Le rêve de sa famille, poursuivi durant des dizaines de milliers d'années, était sur le point de se réaliser, ce qui était crucial pour lui.
 
 Trois jours plus tard, la fine couche de terre recouvrant le corps de Wang Lin n'avait pas bougé. Une pointe de surprise apparut dans les yeux du vieil homme.
 
@@ -104,8 +104,8 @@ Son essence terrestre s'étendit aussitôt pour absorber toute la puissance du t
 
 Toutefois, sans la volonté de Wang Lin, ce corps véritable ne pouvait se former totalement. Si l'âme originelle de Wang Lin sortait de la protection de la Perle Défiant le Ciel, il pourrait prendre possession des corps véritables d'essence terrestre et de tonnerre. Il deviendrait alors un cultivateur possédant trois corps véritables d'essence!
 
-Avec trois corps véritable d'essence, même s'il restait au sommet du stade du Vide Spirituel, sa force serait décuplée!
+Avec trois corps véritable d'essence, même s'il restait au sommet du stade du Vide Spirituel, sa force serait multipliée plusieurs fois!
 
 De surcroît, Wang Lin possédait désormais neuf essences. Dès que son âme originelle apparaîtrait, il pourrait utiliser ces neuf essences pour percer le stade du Vide Arcanique!
 
-« Le corps de cet homme possède également trois essences éthérées et deux essences spéciales. Les quatre autres sont corporelles... Je n'ai aucune méthode pour former des corps véritables d'essence pour les essences éthérées ou spéciales, mais je possède un moyen pour la quatrième essence corporelle! » Le vieil homme était transporté par l'excitation.
+« Le corps de cet homme possède également trois essences éthérées et deux essences spéciales. Les quatre autres sont corporelles... Je n'ai aucune méthode pour former des corps véritables d'essence pour les essences éthérées ou spéciales, mais je possède un moyen pour ces quatre essences corporelles! » Le vieil homme était transporté par l'excitation.

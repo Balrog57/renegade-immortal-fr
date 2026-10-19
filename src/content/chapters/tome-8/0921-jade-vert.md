@@ -10,9 +10,9 @@ Le tremblement provenant de son corps originel fit briller les yeux de Wang Lin.
 
 Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscillantes, Wang Lin était profondément choqué.
 
-« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour échapper à la traque de la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Luotian savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
+« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour échapper à la traque de la famille Yao et je me suis caché à l'intérieur de son corps. J'avais déjà senti qu'un membre de Luotian convoitait cette créature. Quel genre d'individu pourrait faire sortir de force le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme un trésor magique?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
 
-La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, lors des 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
+La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, après les 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
 À cet instant, le sifflement produit par l'immense morceau de bois s'approchant du Serpent aux yeux de lune devint de plus en plus assourdissant. Alors que les ondulations se rapprochaient, les cultivateurs derrière Wang Lin commencèrent à acclamer.
 
@@ -28,13 +28,13 @@ Ils se tenaient à la proue du bois colossal. Leurs vêtements ondulaient sans q
 
 Derrière eux se pressait le reste des cultivateurs. La plupart étaient les 108 célestes, mais Wang Lin remarqua aussi quelques visages inconnus. Toutefois, à l'examen des fluctuations de leurs âmes originelles, il comprit que ces individus n'étaient pas faibles: ils se situaient au sommet du stade Corporel Yang.
 
-On dénombrait dix personnes au stade Scruteur du Nirvana. Outre ces dix-là, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
+On dénombrait plus d'une dizaine de personnes au stade Scruteur du Nirvana. Outre ces dernières, trois autres attirèrent l'attention de Wang Lin. L'un d'eux était assis sur le côté droit du bois géant; vêtu d'une robe noire, il avait les cheveux blancs et un visage marqué par des cicatrices extrêmement étranges. Celles-ci n'étaient pas statiques, elles semblaient s'animer subtilement. Un seul regard sur elles suffisait à provoquer un frisson de terreur.
 
 Dès que le regard de Wang Lin se posa sur le vieil homme, celui-ci ouvrit les yeux et le fixa, affichant un sourire empreint d'une froide intention.
 
-Une autre personne retint l'attention de Wang Lin: une femme. Elle était gracieuse, aussi belle qu'une pêche printanière et aussi pure qu'un chrysanthème d'automne. Âgée d'environ trente ans, son regard était vif et son nez parfaitement droit. Une légère fossette ornait sa joue, sa peau était d'une blancheur immaculée et ses yeux reflétaient l'azur de l'océan.
+Une autre personne retint l'attention de Wang Lin: une femme. Elle était gracieuse, aussi belle qu'une pêche printanière et aussi pure qu'un chrysanthème d'automne. Âgée d'environ trente ans, son regard était vif et son nez, plus haut que la moyenne, parfaitement droit. Une légère fossette ornait sa joue, sa peau était d'une blancheur immaculée et ses yeux reflétaient l'azur de l'océan.
 
-Elle se tenait sur le bois géant, vêtue d'une robe de palais vert clair rehaussée de fines soies dorées. Ses larges vêtements étaient parés de motifs violets, et ses trois mille mèches de cheveux noirs retombaient simplement derrière sa tête, certaines caressant son cou. Une petite gemme rouge au centre de son front embellissait son visage avec justesse.
+Elle se tenait sur le bois géant, vêtue d'une robe de palais vert clair, ornée de fleurs et recouverte d'un voile doré. Ses larges vêtements étaient parés de motifs violets, et ses trois mille mèches de cheveux noirs retombaient simplement derrière sa tête, certaines caressant son cou. Une petite gemme rouge au centre de son front embellissait son visage avec justesse.
 
 Sa beauté était saisissante. Sans aucun artifice, sa peau rayonnait d'une blancheur de neige, évoquant la texture d'une fleur délicate. Peut-être à cause de la vitesse du bois géant, mais le vent faisait flotter sa fine soie, lui donnant l'allure d'une fée.
 
@@ -48,7 +48,7 @@ Si ces trois individus avaient capté l'attention de Wang Lin, c'est parce qu'il
 
 Tandis que Wang Lin les observait, les cultivateurs sur le bois dirigèrent également leurs regards vers lui. Compte tenu de sa réputation dans le système stellaire Luotian, il ne fallut pas longtemps pour qu'ils le reconnaissent, d'autant plus que le rugissement du Tigre Volant retentissait derrière lui.
 
-En suivant le bois géant, ils croisèrent quelques cultivateurs de Luotian, mais ils n'étaient qu'une poignée et semblaient dans un état lamentable.
+En suivant le bois géant, ils croisèrent quelques cultivateurs de Luotian, mais il ne s'agissait que de groupes de quelques dizaines de personnes, dispersés et dans un état lamentable.
 
 À cet instant, l'équipe que Wang Lin avait rassemblée comptait des centaines de personnes, ce qui attira les regards de tous les cultivateurs aux alentours du bois géant. Il était évident que c'était la présence de Xu Mu qui avait attiré une telle foule!
 
@@ -70,13 +70,13 @@ Ce changement libéra une impulsion fulgurante de son corps, provoquant un grond
 
 Boum!
 
-Alors que ce son violent résonnait, l'espace devant Wang Lin se tordit soudainement. Tout ce qui se trouvait sur son chemin s'effondra tandis qu'il avançait d'un pas calme.
+Alors que ce son violent résonnait, l'espace autour de Wang Lin se tordit soudainement. Tous les regards posés sur lui volèrent en éclats, et il avança d'un pas calme.
 
 Wang Lin atteignit le bois rugissant et y monta sans aucune résistance.
 
-À cet instant précis, les yeux de tous les cultivateurs alentour se contractèrent. Bien qu'ils connussent la férocité de Wang Lin, le voir agir ainsi de ses propres yeux les laissa stupéfaits!
+À cet instant précis, les yeux de tous les cultivateurs alentour se contractèrent. Bien qu'ils connussent la puissance de Wang Lin, le voir agir ainsi de ses propres yeux les laissa stupéfaits!
 
-Wang Lin ignorait que monter sur ce bois représentait un statut extrêmement élevé. Quiconque se sentait digne pouvait tenter l'ascension. Cependant, très peu y parvenaient. Même ceux qui s'y trouvaient avaient souvent dû utiliser des trésors magiques et des sorts pour y parvenir au prix d'efforts acharnés.
+Wang Lin ignorait que monter sur ce bois représentait un statut extrêmement élevé. Quiconque se sentait digne pouvait tenter l'ascension. Cependant, très peu y parvenaient. Même ceux qui s'y trouvaient avaient, pour la plupart, dû utiliser des trésors magiques et des sorts pour y parvenir au prix d'efforts acharnés.
 
 Pourtant, aucun des spectateurs n'osait sous-estimer ces gens: quiconque pouvait fouler ce bois était un être puissant!
 

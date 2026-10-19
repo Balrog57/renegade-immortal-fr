@@ -16,13 +16,13 @@ Soudain, ses yeux s'illuminèrent et son corps vacilla. Un vent noir enveloppa l
 
 Wang Lin fit un pas et se fondit dans le vide. Lorsqu'il réapparut, il se tenait aux côtés d'une autre momie. Ses doigts de la main droite formèrent une épée et ses yeux révélèrent une intention de tonnerre. La momie se retourna en crachant une aura de mort, et une rune vola vers Wang Lin.
 
-Wang Lin fronça légèrement les sourcils; il recula et fusionna avec le monde pour éviter l'attaque. Il réapparut à côté d'une autre momie et lança une attaque fulgurante du bout des doigts.
+Wang Lin fronça légèrement les sourcils; il recula et fusionna avec le monde pour éviter l'attaque. Il réapparut derrière une autre momie et lança une attaque fulgurante du bout des doigts.
 
 Au moment même où la momie se retournait, l'attaque de Wang Lin l'atteignit. La créature explosa, libérant une immense quantité d'énergie d'origine céleste qui s'engouffra dans le corps de Wang Lin.
 
 Après avoir tué l'une d'elles, une multitude de momies se précipita vers lui.
 
-Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa culture au stade initial du Scruteur du Nirvana!
+Un éclat étrange passa dans les yeux de Wang Lin alors qu'il fixait ces créatures. Il pouvait ressentir une puissante énergie d'origine céleste émanant d'elles. Bien que ces êtres aient été puissants de leur vivant, leurs mouvements étaient devenus léthargiques et leurs pouvoirs avaient entièrement disparu après la mort. Par conséquent, il n'était pas difficile pour Wang Lin de les massacrer avec sa culture au stade initial du Scruteur du Nirvana!
 
 Cependant, à cet instant, Wang Lin réfléchissait à la manière d'en tirer le profit maximal! Les tuer pour leur énergie d'origine céleste n'était qu'un de ses objectifs; il avait une idée encore plus audacieuse en tête.
 
@@ -58,7 +58,7 @@ Instantanément, une force mystérieuse sembla surgir au monde et s'élancer. La
 
 Cette rivière s'enroula autour de lui et bougea à ses côtés. Il fit un pas en avant et étendit son bras. Ses yeux étaient emplis d'une intention de tonnerre tandis qu'un tourbillon apparaissait entre ses sourcils. Son âme d'origine du Dragon de Tonnerre antique jaillit en poussant un rugissement!
 
-*ROAR!*
+*RUGISSEMENT!*
 
 Il exerçait son contrôle absolu sur le tonnerre!
 
@@ -80,17 +80,17 @@ C'était comme si la foudre partait en pèlerinage pour vénérer l'ancêtre de 
 
 C'était comme la fin du monde. Les expressions de tous les cultivateurs de la planète Suzaku changèrent radicalement. Le choc qui ébranlait leurs âmes les faisait trembler; ils étaient comme des fourmis face à la puissance des cieux. Quant aux mortels, ils se prosternèrent tous au sol.
 
-Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de plusieurs centaines de cultivateurs voyageait dans l'espace, mené par le cultivateur aux six doigts.
+Le phénomène ne toucha pas que la planète Suzaku. À cet instant, un groupe de plusieurs centaines de cultivateurs du Système Stellaire Luotian voyageait dans l'espace, mené par le cultivateur aux six doigts.
 
 En mouvement, son expression changea brusquement et il fixa l'horizon. Grâce à sa culture, il pouvait vaguement sentir que la densité du tonnerre devant lui dépassait l'entendement.
 
-Il en eut le cuir chevelu engourdi. Son esprit ne put s'empêcher de se remémorer le moment où Xu Mu avait utilisé le « tonnerre en une ligne vers les cieux » pour tuer le garçon à la grosse tête.
+Il en eut le cuir chevelu engourdi. Son esprit ne put s'empêcher de se remémorer le moment où Xu Mu avait déployé sa foudre dans le « royaume d'une ligne vers le ciel » pour tuer le garçon à la grosse tête.
 
-« Serait-ce Xu Mu qui est en avance? Peu importe, changeons de direction. Mieux vaut ne pas croiser cet homme. » Le cultivateur aux six doigts esquissa un sourire amer avant de dévier sa trajectoire.
+« Serait-ce Xu Mu qui est devant? Peu importe, changeons de direction. Mieux vaut ne pas croiser cet homme. » Le cultivateur aux six doigts esquissa un sourire amer avant de dévier sa trajectoire.
 
 Cette puissance de tonnerre était colossale et s'engouffra dans le gouffre profond. Un grondement retentit, voyageant de la 1ère couche jusqu'à atteindre la 17e couche où se trouvait Wang Lin!
 
-En un instant, la 17e couche fut saturée de tonnerre. Le rugidelement des éclairs atteignit un degré inimaginable et les grondements continuèrent de résonner dans toute la zone.
+En un instant, la 17e couche fut saturée de tonnerre. Le rugissement des éclairs atteignit un degré inimaginable et les grondements continuèrent de résonner dans toute la zone.
 
 Presque chaque momie fut encerclée par d'innombrables éclairs. À chaque impact, l'endroit entier tremblait.
 

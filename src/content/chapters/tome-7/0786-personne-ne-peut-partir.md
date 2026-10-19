@@ -26,7 +26,7 @@ L'expression de Wang Lin devint sombre alors qu'il continuait sa retraite. À ce
 
 La soif de sang émanant du bras sectionné commença à se propager, semblant contenir un poison redoutable. Wang Lin sentit immédiatement son corps envahi par cette aura, ressentant une sensation de brûlure intense.
 
-Il recula une fois de plus, profondément choqué. Ce bras apparu de nulle part était bien trop étrange. C'était la bataille la plus périlleuse que Wang Lin ait jamais livrée depuis qu'il avait atteint le stade du Yang Corporel.
+Il recula une fois de plus, profondément choqué. Ce bras apparu de nulle part était bien trop étrange. C'était la bataille la plus périlleuse que Wang Lin ait jamais livrée depuis qu'il avait atteint le stade Corporel Yang.
 
 Les cinq fissures spatiales libérèrent un vent glacial qui figea l'âme originelle de Wang Lin lorsqu'il fut balayé par le souffle. Voyant les déchirures spatiales approcher à grands pas, Wang Lin ouvrit son troisième œil sans la moindre hésitation.
 
@@ -74,11 +74,11 @@ Ils ne s'arrêtèrent pas et traversèrent le vide à toute allure. Il ne fallut
 
 Les membres sectionnés s'assemblèrent pour former un corps complet. Cet homme avait une chevelure blanche, un visage balafré de cicatrices hideuses et un corps mutilé par endroits. Son œil droit manquait, ne laissant que l'œil gauche, qui affichait un regard glacial.
 
-« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur de la formation de scellement?! Cependant, je dois vous remercier: sans cette formation, je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
+« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur du vortex de scellement?! Cependant, je dois vous remercier: sans cette formation, je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
 
 « Qing Shui, puisque je ne suis pas mort, tu ne l'es naturellement pas non plus. À moins que tu ne trouves un autre vortex de scellement laissé par l'ancien Royaume Céleste, tu ne pourras plus jamais me sceller! » L'homme aux cheveux blancs arborait une expression féroce alors qu'il riait sauvagement avant de s'élancer dans le vide.
 
-Il était d'une rapidité fulgurante et, connaissant parfaitement le Royaume Céleste du Tonnerre, il apparut immédiatement au-dessus d'un fragment. Ce fragment était celui par lequel Wang Lin et Li Yuan étaient passés après avoir ouvert le sceau pour entrer dans le passage de l'orifice sombre.
+Il était d'une rapidité fulgurante et, connaissant parfaitement le Royaume Céleste du Tonnerre, il apparut immédiatement au-dessus d'un fragment. Ce fragment était celui par lequel Wang Lin et Li Yuan étaient passés après avoir ouvert le sceau pour entrer dans le passage du gouffre sombre.
 
 Survolant le fragment, l'homme pressa sa main vers le bas, provoquant l'effondrement immédiat de la structure. C'était là que se trouvait le neuvième sceau.
 
@@ -86,7 +86,7 @@ Alors que le fragment s'écroulait, une flamme monstrueuse jaillit de l'intérie
 
 « Le Royaume Ji a été scellé dans l'œil droit, mais une trop grande partie a été consommée lors de la Guerre Céleste. Il sera très difficile de le reconstituer, mais ce n'est pas impossible! Cependant, je viens à peine de m'échapper, ma culture n'est donc qu'à 10 %. Je dois restaurer mon énergie céleste originelle au plus vite. » Un éclat rouge traversa les yeux de l'homme tandis qu'il affichait un sourire sinistre.
 
-« Il semble que de nombreux cultivateurs juniors se soient développés au fil des ans. Très bien. Bien que les dévorer tous ne restaure pas entièrement ma culture, cela me permettra de récupérer suffisamment. Cependant, avant de commencer le festin, je dois fermer la porte céleste pour m'assurer qu'ils ne puissent pas s'échapper! » En ricanant, son corps disparut dans le vide.
+« Il semble que de nombreux cultivateurs juniors se soient développés au fil des ans. Très bien. Bien que les dévorer tous ne restaure pas entièrement ma culture, cela me permettra de récupérer une partie de mes forces. Cependant, avant de commencer le festin, je dois fermer la porte céleste pour m'assurer qu'ils ne puissent pas s'échapper! » En ricanant, son corps disparut dans le vide.
 
 Wang Lin saisit Li Yuan et se dirigea droit vers la porte située sur le flanc ouest du Royaume Céleste. Ils restèrent silencieux tout au long du trajet. Wang Lin regardait devant lui, l'âme lourde; il avait le pressentiment que le Royaume Céleste du Tonnerre allait sombrer dans un chaos indescriptible!
 

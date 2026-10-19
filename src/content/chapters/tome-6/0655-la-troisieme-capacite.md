@@ -58,7 +58,7 @@ Simultanément, la formation des sept épées tourna frénétiquement autour de 
 
 Wang Lin, toujours protégé par la formation, fit un pas vers le grand rocher. Il était totalement concentré, refusant toute distraction. La moindre erreur et il serait aspiré dans l'abîme.
 
-L'atmosphère environnante était saturée d'une aura froide et dense, et la force de succion était prodigieuse. C'était comme si une main gigantesque pressait depuis le haut tandis qu'une autre tirait impitoyablement depuis le bas. Le sifflement ressemblait au rugissement du maître des lieux.
+L'atmosphère environnante était saturée d'une aura froide et dense, et la force de succion était prodigieuse. C'était comme si une main gigantesque pressait depuis le haut tandis qu'une autre tirait impitoyablement depuis le bas. Le sifflement ressemblait au rugissement du maître de ces mains.
 
 La vitesse de la formation des Sept Étoiles atteignit ses limites, mais la force produite ne suffisait pas à contrer l'aspiration. Le corps de Wang Lin fut entraîné vers le bas avec la formation d'épées.
 

@@ -24,7 +24,7 @@ Soudain, comme si un vent s'engouffrait depuis l'extérieur, les flammes furent 
 
 Finalement, les vingt-trois bougies s'éteignirent une à une. L'obscurité s'abattit sur la salle. La fumée s'échappant des mèches semblait former une ombre maléfique qui riait silencieusement.
 
-La fumée se dissipa. Au moment précis où les vingt-trois bougies s'éteignirent, une silhouette assise sur un trône imposant dans une salle identique à celle-ci fut secouée de tremblements et cracha du sang noir.
+La fumée se dissipa. Au moment précis où les vingt-trois bougies s'éteignirent, une silhouette assise sur un trône imposant dans une salle souterraine identique à celle-ci fut secouée de tremblements et cracha du sang noir.
 
 Le sang jaillissait également de ses orifices; c'était un spectacle terrifiant.
 
@@ -48,7 +48,7 @@ L'homme mystérieux était celui qui lui avait offert le cristal jaune!
 
 « Tu es devenue ma Concubine du Tatouage et tu as forcé la Concubine Impériale Fleur à devenir une âme florale, pour qu'elle ne puisse exister que comme un Être Céleste Fleur, tout cela parce qu'elle avait découvert ton secret. J'en ai été le témoin personnel dès que mes soupçons sont apparus. Tu as échoué, mais loin de te repentir, tu voulais que j'aille dans le royaume extérieur avec toi pour devenir le disciple de ton père, le Suprême. Je suis l'Empereur Céleste, souverain et natif du royaume scellé: comment aurais-je pu trahir ma patrie?!
 
-« Tes yeux contenaient la force primordiale, mais c'est parce que tu as profité de notre intimité pour l'activer. Cette force était la puissance ultime par laquelle ton père voulait détruire notre royaume. Si elle s'était propagée, tous les habitants du royaume scellé auraient été anéantis avec d'innombrables mortels. Tout cela pour transformer le royaume scellé en un champ de ruines, afin de faciliter votre recherche de la soi-disant Porte Céleste.
+« Tes yeux contenaient la force primordiale, mais c'est parce que tu as profité de notre intimité pour l'activer. Cette force était la puissance ultime par laquelle ton père voulait détruire notre royaume. Si elle s'était propagée, il ne serait plus resté aucun habitant du Royaume Céleste, et d'innombrables mortels auraient été anéantis. Tout cela pour transformer le royaume scellé en un champ de ruines, afin de faciliter votre recherche de la soi-disant Porte Céleste.
 
 « J'ai arraché tes yeux, mais la douleur que tu as ressentie peut-elle seulement égaler le dix-millième de celle que je ressens?!
 

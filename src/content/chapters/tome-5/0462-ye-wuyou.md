@@ -8,7 +8,7 @@ slug: ye-wuyou
 ---
 Wang Lin laissa échapper un ricanement. Au moment où elle s'apprêtait à se téléporter, il toucha son sac de rangement et plusieurs sculptures en bois du domaine temporel s'envolèrent.
 
-« Temps! » rugit Wang Lin. Les gravures explosèrent toutes et un puissant domaine temporel jaillit. Bien que le domaine de Liu Mei ait atteint la perfection, ce domaine temporel avait été soigneusement préparé par Wang Lin. Il était trop faible pour blesser Liu Mei ou même la ralentir plus qu'un bref instant, mais dans une situation aussi critique, cela serait fatal!
+« Temps! » rugit Wang Lin. Les sculptures explosèrent toutes et un puissant domaine temporel jaillit. Bien que le domaine de Liu Mei ait atteint la perfection, ce domaine temporel avait été soigneusement préparé par Wang Lin. Il était trop faible pour blesser Liu Mei ou même la ralentir plus qu'un bref instant, mais dans une situation aussi critique, cela serait fatal!
 
 Le corps de Liu Mei ralentit, permettant à Wang Lin de se glisser sous elle.
 
@@ -44,7 +44,7 @@ Dès qu'il eut passé le seuil, l'énergie d'épée trembla puis disparut.
 
 Du sang suintait de la bouche de Wang Lin alors qu'il rangeait la hache et la pagode. Puis, s'asseyant en position du lotus, il sortit une grande quantité de pilules qu'il dévora aussitôt, avant de ressentir un aiguillon douloureux parcourir tout son corps. Il sortit un morceau de jade céleste, le contempla un instant, puis l'avala. Il sentit alors l'énergie spirituelle céleste emplir ses veines.
 
-Grâce à cet afflux d'énergie spirituelle céleste, Wang Lin sentit son corps s'alléger. Cette énergie supprima instantanément toutes ses blessures. Peu de temps après, il se leva et, d'un pas assuré, s'enfonça dans les profondeurs du palais.
+Grâce à cet afflux d'énergie spirituelle céleste, Wang Lin sentit son corps s'alléger. Cette énergie refoula instantanément toutes ses blessures. Peu de temps après, il se leva et, d'un pas assuré, s'enfonça dans les profondeurs du palais.
 
 Au-dessus de la mer, l'énergie d'épée convergeait vers Liu Mei. Juste au moment où elle allait esquiver, la restriction se referma derrière elle. Son beau visage se crispa; elle serra les dents et cracha une brume blanche. Un ruban blanc dansa au sein de cette brume et, d'un mouvement de fouet, il détruisit la restriction. Ce ruban s'enroula rapidement autour d'elle et la projeta à 3,3 kilomètres de l'énergie d'épée. Cette dernière manqua sa cible avant de se dissiper.
 
@@ -124,7 +124,7 @@ L'expression de Yun Quezi se durcit: « J'ai utilisé une formation pour le pié
 
 « Oh? » Wang Lin regarda calmement Yun Quezi et demanda: « Tu veux que j'aille chercher le Cristal de la Planète de Culture? »
 
-Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de la Planète de Culture, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise sans précédent. »
+Yun Quezi prit une profonde inspiration et soupira: « Je sais que tu es très prudent. Tu peux vérifier mon état avec ton Sens Divin; tu verras que je suis presque totalement épuisé. Ce vieil homme n'est pas originaire de la planète Suzaku. Ses techniques sont très étranges et je ne pourrai pas le maintenir piégé longtemps. Une fois libéré, il volera le Cristal de la Planète de Culture, et à ce moment-là, tous les habitants de la planète Suzaku feront face à une crise. »
 
 Les yeux de Wang Lin brillèrent. Il leva la tête vers la sphère de lumière violette devant le premier Suzaku. Sans hésiter, il recula.
 

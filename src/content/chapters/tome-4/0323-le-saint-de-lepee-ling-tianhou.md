@@ -8,7 +8,7 @@ slug: le-saint-de-lepee-ling-tianhou
 ---
 Les épées célestes filaient comme des éclairs de lumière. Wang Lin suivit de près les lames à travers le vide et, en un clin d'œil, pénétra dans le fragment céleste.
 
-« C'est elle! » La première chose que Wang Lin vit fut une femme vêtue de blanc, dont les longs cheveux flottaient dans l'air. Devant elle trôyaient deux dragons dorés.
+« C'est elle! » La première chose que Wang Lin vit fut une femme vêtue de blanc, dont les longs cheveux flottaient dans l'air. Devant elle trônaient deux dragons dorés.
 
 Chi Hu remarqua également la femme en robe blanche. Choqué, il resta plongé dans une réflexion silencieuse.
 

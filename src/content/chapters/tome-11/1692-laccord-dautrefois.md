@@ -58,9 +58,9 @@ La première concubine du Souverain Céleste, et également la sœur cadette de 
 
 ***
 
-Dans la Mer des Nuages se trouvait une gigantesque fissure spatiale où siégeait autrefois la Secte Démon. Peu de gens savaient où menait cette brèche, mais de nombreuses bêtes féroces en surgissaient fréquemment.
+Dans la Mer des Nuages se trouvait une gigantesque fissure spatiale au-delà de l'ancienne Secte Démon. Peu de gens savaient où menait cette brèche, mais de nombreuses bêtes féroces en surgissaient fréquemment.
 
-À cet instant, au plus profond de la fissure, dans cet espace sombre et étrange, une bête gigantesque de plus de 10 000 pieds de long se trouvait là. Elle ressemblait à un lion, mais possédait une corne unique sur le front.
+À cet instant, au plus profond de la fissure, dans cet espace sombre et étrange, une bête gigantesque de plusieurs dizaines de milliers de pieds de long se trouvait là. Elle ressemblait à un lion, mais possédait une corne unique sur le front.
 
 Une femme était assise devant cette corne sur la tête du puissant lion. C'était une beauté absolue, bien que son visage fût actuellement livide. Elle enchaînait les sceaux et agitait ses mains devant elle sans relâche.
 
@@ -106,7 +106,7 @@ Après un moment de réflexion, elle ajouta soudainement: « Ma sœur aînée n'
 
 Les yeux de Wang Lin se plissèrent, mais il garda le silence.
 
-« Elle n'est pas ici, elle est dans le Continent Astral Immortel! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte des Sept Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte des Sept Dao, mais des disciples de cœur de la Secte de la Grande Âme, l'une des neuf sectes et treize portes de l'est du Continent Astral Immortel. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
+« Elle n'est pas ici, elle est dans le Continent Astral Immortel! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte des Sept Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte des Sept Dao, mais des disciples centraux de la Secte de la Grande Âme, l'une des neuf sectes et treize portes de l'est du Continent Astral Immortel. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
 
 « Même après avoir pris possession de la Secte des Sept Dao, si vous souhaitez poursuivre votre culture, nous pourrons vous introduire dans la Secte de la Grande Âme! Quant à la sentence liée à votre entrée sur le Continent Astral Immortel, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Astral Immortel, la sentence sera atténuée. »
 

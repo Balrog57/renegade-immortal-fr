@@ -30,7 +30,7 @@ Le dragon de tonnerre antique fut stupéfait; pour la première fois, la peur ap
 
 Dans l'héritage de sa mémoire ancienne, il avait déjà vu quelque chose de similaire. Il poussa un rugissement féroce et des éclairs recouvrirent son corps. Réussissant à résister partiellement à l'aspiration, il parvint à s'élever d'environ dix mètres.
 
-« Tu crois pouvoir t'enfuir? » Les yeux de Wang Lin devinrent glacials. Si ce n'était pour le dragon de tonnerre, comment aurait-il été forcé d'entrer ici? Et si ce dragon ne l'avait pas poursuivi avec autant de naïveté, il serait déjà loin. Mais à cette distance, il était désormais impossible pour Wang Lin de s'échapper.
+« Tu crois pouvoir t'enfuir? » Les yeux de Wang Lin devinrent glacials. Si ce n'était pour le dragon de tonnerre, comment aurait-il été forcé d'entrer ici? Et si ce dragon ne l'avait pas poursuivi avec une telle obstination, il serait déjà loin. Mais à cette distance, il était désormais impossible pour Wang Lin de s'échapper.
 
 « Arrête-toi! » rugit Wang Lin alors que l'énergie spirituelle céleste dans son corps déferlait pour activer le sort céleste « Arrêt »!
 
@@ -92,7 +92,7 @@ Après avoir absorbé l'âme du dragon de tonnerre antique, l'âme originelle de
 
 Même réduite à la moitié de son corps spirituel, la puissance du dragon de tonnerre antique demeurait inimaginable. Une fois la dévoration accomplie, Wang Lin activa le sort du dévoreur d'âmes pour l'absorber rapidement.
 
-Des éclairs jaillirent à l'intérieur et à l'extérieur de son âme originelle, manifestant la fureur du tonnerre. La puissance pénétra jusque dans sa chair et ses os.
+Des éclairs jaillirent à l'intérieur et à l'extérieur de son âme originelle, manifestant la fureur du tonnerre. La puissance pénétra jusque dans sa chair et ses veines.
 
 La force d'aspiration n'ayant que peu d'effet à l'intérieur de la fissure, Wang Lin concentra toute son attention sur l'absorption de la créature.
 
@@ -104,7 +104,7 @@ Même des êtres comme l'Omniscient n'oseraient dévorer un dragon de tonnerre a
 
 Dévorer ce dragon revenait à dévorer un ciel en pleine tempête orageuse. Comment l'âme originelle d'un cultivateur pouvait-elle supporter un tel tonnerre?
 
-Cependant, l'autre côté du péril était une opportunité infinie!
+Richesse et honneur se cherchent au cœur du danger, et les liens avec le Dao se saisissent au sein du péril! L'autre côté du péril était une opportunité infinie!
 
 L'âme originelle de Wang Lin, enveloppée par la foudre du dragon, vit une quantité massive de tonnerre se rassembler dans son corps. Alors que les grondements persistaient, une trace de tonnerre apparut au cœur même de son âme originelle!
 

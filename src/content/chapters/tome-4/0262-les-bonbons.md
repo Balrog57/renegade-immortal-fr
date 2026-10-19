@@ -10,7 +10,7 @@ slug: les-bonbons
 
 Cependant, il y avait bien moins de monde dans les rues. La raison en était Xu Tao, qui avait craché du sang avant de s'évanouir.
 
-L'ancienne demeure de Xu Tao ayant été déplacée de cette rue il y a huit ans, personne ne le reconnut plus.
+L'ancienne demeure de Xu Tao ayant été déplacée de cette rue il y a huit ans, presque personne ne le reconnut.
 
 Wang Lin laissa échapper un soupir. Les mains derrière le dos, il entra dans une épicerie. Dès son entrée, le commerçant accourut pour l'accueillir.
 
@@ -26,7 +26,7 @@ Le commerçant regarda le dos de Wang Lin s'éloigner. Il soupira et murmura: «
 
 Au moment où Wang Lin regagnait sa boutique, deux jeunes ouvriers transportèrent Xu Tao et, suivant les instructions de Wang Lin, le déposèrent sur le sol de l'échoppe.
 
-Wang Lin leur remit nonchalamment quelques pièces d'argent et les renvoya. Puis, il s'assit près du foyer et commença à méditer en silence.
+Wang Lin leur remit nonchalamment quelques pièces d'argent et les renvoya. Puis, il referma la porte de la boutique, s'assit près du foyer et commença à méditer en silence.
 
 S'il ne lui portait pas secours, Xu Tao ne survivrait pas. Wang Lin soupira. Considérant la déférence dont Xu Tao avait fait preuve durant ces dix dernières années, Wang Lin sortit de son sac de rangement la pilule la plus médiocre et la poussa dans la bouche de l'homme.
 
@@ -36,7 +36,7 @@ Quant au jeune cultivateur, il s'était enfui en panique. Ne se souciant guère 
 
 À la périphérie est de la ville se trouvait un temple. Ce lieu était empreint d'une grande quiétude; devant lui s'étalait un étang parsemé de fleurs de lotus roses. Les feuilles de nénuphars, d'un vert éclatant, flottaient à la surface tandis que les poissons les effleuraient doucement, créant des ondulations apaisantes.
 
-Un chemin pavé descendait du temple, bordé de saules pleureurs. Lorsque le vent soufflait, le bruissement des feuilles créait un spectacle d'une grande beauté.
+Un chemin pavé de galets descendait du temple, bordé de saules pleureurs. Lorsque le vent soufflait, le bruissement des feuilles créait un spectacle d'une grande beauté.
 
 À cet instant, bien qu'une brise soufflât, le frémissement du feuillage fut couvert par le sifflement du vol. Le jeune cultivateur se posa soudainement devant la porte du temple et cracha un jet de sang. Le visage livide, il ouvrit les portes et s'engouffra à l'intérieur.
 
@@ -44,7 +44,7 @@ Les quelques cultivateurs assis en tailleur dans le temple ouvrirent les yeux. L
 
 Le jeune cultivateur repoussa l'homme et s'écria: « Je dois voir le Maître! Maître! »
 
-« Quel est ce tumulte? » Un homme d'âge mûr émergea du temple. Il avait un visage large et des yeux étroits. Ses grandes oreilles étaient très marquées, mais à y regarder de plus près, il dégageait une grande dignité.
+« Quel est ce tumulte? » Un homme d'âge mûr émergea du temple. Il avait un visage large et des yeux étroits. Ses grandes oreilles étaient très marquées, mais au premier regard, il paraissait assez digne.
 
 À son apparition, tous les cultivateurs en pleine méditation se levèrent et se tinrent respectueusement sur les côtés.
 
@@ -52,7 +52,7 @@ Lorsque le jeune cultivateur vit l'homme, il se jeta à genoux et s'exclama: « 
 
 Le cultivateur aux grandes oreilles observa le jeune homme. Puis, d'un mouvement de manches, il tendit la main. Soudain, des volutes de gaz noir s'agglutinèrent dans l'air pour former un crâne gigantesque.
 
-Le cultivateur pointa alors le crâne du doigt, le saisit et, sans un mot, l'enfonça dans le front du jeune apprenti. Le visage de ce dernier se crispa de douleur tandis que les vapeurs noires l'envahissaient. Il cracha alors une bouchée de sang noir, et le gaz finit par se dissiper lentement. Son teint retrouva sa couleur naturelle; les séquelles de la destruction de son esprit gardien étaient guéries.
+Le cultivateur pointa alors le crâne du doigt, le saisit et, sans un mot, l'enfonça au sommet du crâne du jeune apprenti. Le visage de ce dernier se crispa de douleur tandis que les vapeurs noires l'envahissaient. Il cracha alors une bouchée de sang noir, et le gaz finit par se dissiper lentement. Son teint retrouva sa couleur naturelle; les séquelles de la destruction de son esprit gardien étaient guéries.
 
 Le cultivateur aux grandes oreilles agita sa main droite et dit d'une voix lente: « Raconte-moi ce qui s'est passé. »
 

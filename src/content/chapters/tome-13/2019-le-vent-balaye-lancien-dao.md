@@ -18,7 +18,7 @@ Un instant plus tard, Wang Lin retira son doigt et ne tenta plus l'expérience. 
 
 Wang Lin leva la tête et fixa les fragments de jade tout en fermant les yeux.
 
-Son corps abritait de nombreuses âmes d'origine chaotiques, récupérées lors du massacre dans la cité ancestrale céleste. Il les affinait lentement, et il en possédait désormais suffisamment pour créer une nouvelle Veine de Sort.
+Son corps abritait de nombreuses âmes originelles chaotiques, récupérées lors du massacre dans la cité ancestrale céleste. Il les affinait lentement, et il en possédait désormais suffisamment pour créer une nouvelle Veine de Sort.
 
 « J'ai cinq Veines de Sort dans mon corps; avec un seul mouvement, je peux ainsi créer 99 images rémanentes. Je me demande ce qu'il adviendra lorsque j'en condenserai la sixième. » Wang Lin activa promptement l'Art Rapide du Sort pour condenser sa sixième Veine de Sort. Bientôt, sept jours s'écoulèrent.
 
@@ -36,7 +36,7 @@ L'afflux massif de visiteurs rendait la cité impériale extrêmement animée. L
 
 C'était un événement majeur pour le clan Ancien. L'un des trois anciens empereurs allait proclamer une impératrice. Dans ce clan où le pouvoir impérial était suprême, l'affaire était connue de tous; même la Montagne Gu Dao avait envoyé un présent. L'Empereur de l'Ancien Dao captivait l'attention du monde entier durant cette période.
 
-Ces derniers jours, face à l'affluence, l'Ancien Dao avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
+Ces derniers jours, face à l'affluence, l'Ancien Dao avait déployé ses trésors les plus puissants pour créer 99 immenses plateformes, un peu moins grandes que la cité impériale, disposées autour de la cité volante. Les puissants venus de loin y avaient rapidement érigé diverses structures d'habitation, seul moyen d'accueillir une telle foule.
 
 Wang Lin, plongé dans sa culture, ignorait tout de ce tumulte. La nuit, à trois jours de la cérémonie, la cité impériale brillait de mille feux, vibrante de vie et de bruit, tout comme les 99 plateformes environnantes. En raison de la présence des membres des trois clans, de nombreuses enchères avaient vu le jour, permettant aux peuples de commercer entre eux en attendant l'événement.
 

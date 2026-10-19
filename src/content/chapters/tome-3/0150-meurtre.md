@@ -82,7 +82,7 @@ Wang Lin les regarda froidement. Il passa devant eux sans même ralentir, mais c
 
 Qian Kun avait volé à pleine puissance depuis si longtemps que son énergie spirituelle touchait à sa fin. Il sortit précipitamment quelques pilules, mais cette infime pause permit à Wang Lin de se rapprocher encore davantage.
 
-Voyant l'inévitable, il laissa échapper un sourire pitoyable avant de se retourner pour lancer un regard venimeux à Wang Lin. Serrant les dents, il sortit un jeton rouge de son sac de rangement. Sur ce jeton était inscrit le mot « Mise à mort » en rouge sombre.
+Voyant l'inévitable, il laissa échapper un sourire pitoyable avant de se retourner pour lancer un regard venimeux à Wang Lin. Serrant les dents, il sortit un jeton rouge de son sac de rangement. Sur ce jeton était inscrit le caractère « Punir » en rouge sombre.
 
 Ce jeton était le célèbre Ordre de mise à mort des Dix Mille Démons: Cent jours, une relique légendaire de la Mer des Démons. Transmis depuis l'Antiquité, sa méthode de fabrication était perdue depuis longtemps. Même dans toute la Mer des Démons, il en restait moins de dix. Qian Kun l'avait obtenu par hasard et l'avait immédiatement raffiné, le tenant pour un trésor suprême. Craignant que d'autres ne l'apprennent, il l'avait toujours profondément caché comme son ultime atout, comptant s'en servir plus tard, au moment de tenter l'Âme Naissante, pour accroître ses pouvoirs.
 
@@ -90,7 +90,7 @@ Les conditions d'activation de ce jeton étaient extrêmement strictes: il exige
 
 En raison de cette propriété unique, dès qu'un cultivateur démoniaque croisait une personne marquée, il l'attaquait sans relâche. C'est précisément à cause de ce prix exorbitant que les propriétaires de ces jetons les utilisaient rarement eux-mêmes; ils préféraient trouver un cultivateur de la Formation du Noyau pour le forcer à l'activer, puis choisissaient une cible au hasard pour s'emparer facilement d'une pilule de culture.
 
-Par conséquent, le nombre de jetons avait drastiquement diminué; affirmer qu'il en restait dix était peut-être encore un peu exagéré. Qian Kun avait initialement prévu de contraindre quelqu'un d'autre à l'utiliser, mais face à la mort imminente, il devint impitoyable et attendit que Wang Lin le rattrape.
+Par conséquent, le nombre de jetons avait drastiquement diminué; affirmer qu'il en restait dix était peut-être encore un peu exagéré. Qian Kun avait initialement prévu de s'en servir lors de sa tentative pour l'Âme Naissante, mais face à la mort imminente, il devint impitoyable et attendit que Wang Lin le rattrape.
 
 Quiconque est marqué par ce jeton survit rarement plus de cent jours au sein de la Mer des Démons. Toutefois, s'ils parviennent à tenir au-delà de ce délai, ils peuvent alors dévorer la pilule eux-mêmes.
 

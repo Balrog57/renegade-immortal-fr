@@ -8,7 +8,7 @@ slug: retrouvailles-avec-les-betes-moustiques
 ---
 Li Qianmei finit par partir avec son père, Rêve Bleu. La cinquième concubine fut emmenée par ce dernier.
 
-Ils retourneraient au clan Soie Bleue pour y ramener toute leur lignée. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
+Ils retourneraient au clan Soie Bleue pour y ramener tout le clan. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
 
 Avec le Maître du Dao Rêve Bleu présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître du Dao Rêve Bleu maintenant que son cœur de Dao n'était plus imparfait et qu'il se tenait au sommet du Vide Arcanique.
 
@@ -16,7 +16,7 @@ En effet, le Maître du Dao Rêve Bleu pouvait entrer dans la Tribulation Arcane
 
 Li Qianmei disparut dans le Royaume Extérieur avec son père. Après leur départ, la lumière bleue à l'extérieur de la formation se dissipa lentement et le système stellaire redevint sombre.
 
-Lorsqu'elle partit, Li Qianmei était très heureuse. Son sourire était identique à celui d'autrefois. Elle lança un regard tendre à Wang Lin. C'était l'homme qu'elle avait choisi. Elle ne l'avait pas regretté auparavant et elle ne le regretterait pas maintenant. Même si elle devait mourir pour cela, elle n'aurait aucun regret.
+Lorsqu'elle partit, Li Qianmei était très heureuse. Son sourire était identique à celui d'autrefois. Elle se retournait parfois vers Wang Lin, le regard infiniment tendre. C'était l'homme qu'elle avait choisi. Elle ne l'avait pas regretté auparavant et elle ne le regretterait pas maintenant. Même si elle devait mourir pour cela, elle n'aurait aucun regret.
 
 Telle était la personnalité de Li Qianmei.
 
@@ -40,7 +40,7 @@ C'était comme si elle avait accompagné Wang Lin pendant onze mois uniquement p
 
 Mu Bingmei se souviendrait de ce mois et le garderait précieusement en mémoire. Sa silhouette solitaire traversant les étoiles paraissait extrêmement seule et mélancolique. Elle semblait fragile, et quiconque la voyait aurait le cœur serré. Elle n'avait plus rien. Elle enviait Li Muwan, elle enviait aussi Li Qianmei.
 
-Li Qianmei avait encore son père, et Li Muwan avait Wang Lin, mais elle, elle n'avait personne. Sa maison était perdue, son maître était parti, et toutes les personnes qu'elle avait connues, celles qui l'avaient accompagnée durant sa croissance, étaient toutes mortes... S'il restait quelqu'un, ce serait Wang Lin. C'était un fait immuable, puisqu'elle était la mère de Wang Ping.
+Li Qianmei avait encore son père, et Li Muwan avait Wang Lin, mais elle, elle n'avait personne. Sa maison était perdue, son maître était parti, et toutes les personnes qu'elle avait connues, celles qui l'avaient accompagnée durant sa croissance, étaient toutes mortes... S'il restait quelqu'un, ce serait Wang Ping. C'était un fait immuable, puisqu'elle était la mère de Wang Ping.
 
 « Même si je meurs, personne ne le saura... Ping Er me déteste aussi... » L'expression de Mu Bingmei s'assombrit tandis qu'elle s'éloignait de plus en plus.
 
@@ -72,7 +72,7 @@ Lui, désormais, était un pur cultivateur. Il serait incapable de terrasser ses
 
 « Tous les cultivateurs nés à partir de maintenant pourront cultiver pour devenir des Célestes. Une fois qu'ils auront atteint le stade de la Formation de l'Âme, ils pourront se rendre dans le Royaume Céleste pour leur culture! » L'expression de Wang Lin était solennelle tandis qu'il traversait le Royaume Intérieur.
 
-À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes de Joss. Cependant, à sa mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
+À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes de Joss. Cependant, alors qu'il était grièvement blessé et au seuil de la mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
 
 Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Formation de Scellement du Royaume et l'aura de l'Ancien Système Stellaire s'était engouffrée partout. La limitation des Flammes de Joss dans le Royaume Intérieur avait disparu; c'était le moment idéal pour réformer le Royaume Céleste!
 
@@ -90,13 +90,13 @@ Le gémissement du vent était le seul son qui régnait ici. Un vent désolé ba
 
 Après un balayage de son Sens Divin, Wang Lin chargea sans hésitation, ses cheveux blancs flottant derrière lui. Le vent ne pouvait l'arrêter; non seulement il restait imperturbable, mais le vent lui-même semblait s'effondrer devant lui.
 
-Au cœur du Royaume Céleste du Vent se trouvait un continent où les vents étaient plus violents qu'ailleurs. Deux groupes de bêtes moustiques s'y trouvaient, s'entretuant dans une lutte acharnée.
+Au cœur du Royaume Céleste du Vent se trouvait un continent fragmentaire où les vents étaient plus violents qu'ailleurs. Deux groupes de bêtes moustiques s'y trouvaient, s'entretuant dans une lutte acharnée.
 
 Chacun de ces deux groupes comptait plus de dix mille individus et, au fil du combat, les pertes s'accumulaient massivement. Cependant, tous ceux qui mouraient appartenaient au même groupe. L'autre groupe affichait des expressions sanguinaires, leurs gueules perçant les corps de leurs adversaires.
 
 Ce groupe de bêtes moustiques était, en réalité, indemne!
 
-En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante d'environ mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
+En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante et dorée d'environ mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
 
 Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plusieurs centaines de pieds de long. Sa présence marquait l'arrivée d'un roi.
 

@@ -48,7 +48,7 @@ L'esprit de Wang Lin trembla et ses yeux brillèrent. Il activa sa culture pour 
 
 Sa vitesse n'était pas rapide, mais il ne s'arrêtait jamais. Il avançait sans changer de direction.
 
-« Dix ans se sont déjà écoulés… Je me demande où se trouve la fin… Je n'aurais pas dû m'égarer dans la mauvaise direction… » Wang Lin serra les dents et disparut rapidement dans le vide.
+« Dix ans se sont déjà écoulés… Je me demande où se trouve la fin… Je ne crois pas m'être trompé de direction… » Wang Lin serra les dents et disparut rapidement dans le vide.
 
 « Cette force est très étrange. Si je peux en rencontrer davantage, je ne mourrai pas d'épuisement! » Le Sens Divin de Wang Lin se déploya, cherchant la lumière.
 
@@ -90,9 +90,9 @@ Plusieurs années passèrent encore. Certains êtres se réincarnaient sur le Co
 
 Même Xuan Luo ne comprenait pas pourquoi un tel écart existait.
 
-Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Ouest… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer roi dès qu'il jouait avec ses compagnons...
+Cette année-là, un enfant naquit dans une ville mortelle du Continent de l'Ouest… Cet enfant était très singulier. À l'âge de six ou sept ans, il aimait se proclamer prince dès qu'il jouait avec ses compagnons...
 
-Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer selon ses règles de roi.
+Si un autre enfant refusait de le suivre, il le frappait ou lui donnait des coups de pied. Il était extrêmement féroce, et ses camarades finirent par avoir peur de lui. Ils commencèrent peu à peu à jouer au jeu du prince selon ses règles.
 
 Sur le Continent Sud du Continent Astral Immortel, un enfant naquit également cette année-là. Lui aussi était remarquable. Bien que sa famille ait été brisée dès son plus jeune âge, à dix ans, il était déjà un menteur célèbre dans sa ville.
 
@@ -104,7 +104,7 @@ Xuan Luo était depuis longtemps retourné au clan du Dao Antique avec une expre
 
 Il semblait que beaucoup de gens ne pensaient plus à cet homme nommé Wang Lin. Le Continent Astral Immortel était ainsi, et le monde des grottes en était de même. Pourtant, quelques âmes ne pouvaient oublier ce nom dès qu'elles se remémoraient le passé.
 
-Mu Bingmei était de celles-là. Tang Shan du Continent Astral Immortel l'était aussi, tout comme le nouveau génie de la génération, Yun Yifeng, qui songeait également à Wang Lin.
+Mu Bingmei était de celles-là. Tang Shan du Continent Astral Immortel l'était aussi, tout comme le nouveau génie de la génération, Yun Yifeng, qui montait en puissance au sein de la Secte Gui Yi, songeait également à Wang Lin.
 
 Le Roi Moustique n'avait pas non plus oublié Wang Lin. Autrefois, la bête avait été stoppée par lui, puis elle sembla devenir folle en absorbant les lois du Continent Astral Immortel avec ses compagnons.
 

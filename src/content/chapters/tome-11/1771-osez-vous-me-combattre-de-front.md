@@ -54,7 +54,7 @@ Wang Lin dit lentement: « Les paroles ne prouvent rien! »
 
 Les yeux de Yun Yifeng s'illuminèrent et il frappa son front de la main droite. Une goutte de pacte de sang vola vers Wang Lin.
 
-Wang Lin réceptionna le sang et l'examina attentivement. Le regard de Yun Yifeng devint glacial alors qu'il levait sa main droite. Une lame géante apparut et, en s'avançant, il frappa Wang Lin!
+Wang Lin réceptionna le sang et l'examina attentivement. Le regard de Yun Yifeng devint glacial alors qu'il levait sa main droite. Une longue lame apparut et, en s'avançant, il frappa Wang Lin!
 
 Des grondements tonitruants éclatèrent. Cette lame semblait fendre les cieux, formant un rayon d'énergie tranchante. La puissance du monde entier semblait converger vers elle alors qu'elle fondait sur Wang Lin.
 
@@ -76,7 +76,7 @@ Le monde devint sombre et distordu, comme si le sortilège le plus puissant de Y
 
 Alors que les huit lames approchaient, l'expression de Wang Lin resta imperturbable. Il leva les mains et déchira le ciel!
 
-Une paire de mains gigantesques apparut devant lui. Ces mains étaient rugueuses et couvertes d'innombrables cicatrices. C'étaient les bras de Ye Mo!
+Une paire de mains gigantesques apparut devant lui. Ces mains étaient rugueuses et couvertes d'innombrables marques runiques, qui luisaient. C'étaient les bras de Ye Mo!
 
 Dans un mouvement brusque, ces deux bras saisirent le vide et déchirèrent sans pitié la voûte céleste. Des grondements tonitruants résonnèrent alors qu'une immense faille s'ouvrait, reliant la terre au ciel.
 
@@ -102,7 +102,7 @@ S'il avait tenté quoi que ce soit, Wang Lin l'aurait tué sans hésiter, même 
 
 « Ils arrivent juste à temps... Peut-être pourrai-je emprunter sa puissance pour sonder cette personne... »
 
-Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une tête imposante. Un rugissement tonitruant retentit.
+Alors que ce combat touchait à sa fin, le brouillard autour de la montagne commença à bouger pour former une immense tête chauve. Un rugissement tonitruant retentit.
 
 Le corps de Wang Lin fut enveloppé par son aura de Dao Antique et il recula de mille pieds pour y résister. Tang Shan, témoin de la bataille, se retira rapidement aux côtés de Wang Lin.
 

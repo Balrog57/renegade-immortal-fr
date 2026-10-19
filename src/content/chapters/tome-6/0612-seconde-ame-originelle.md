@@ -22,7 +22,7 @@ L'homme imposant qui ressemblait à Ling Tianhou se trouvait devant lui. Complè
 
 Des filaments de lumière démoniaque s'échappaient de la statue pour pénétrer le corps de Wang Lin. À chaque fois que cette lumière pénétrait en lui, il en était secoué par des tremblements.
 
-Le démon tapi au fond de son âme originelle avait déjà été maîtrisé grâce à l'aide de l'Ancien Démon. Ce dernier était actuellement dans un état de coma, mais le but de Wang Lin n'était pas de le maîtriser, il voulait le dévorer!
+Le démon tapi au fond de son âme originelle avait déjà été maîtrisé grâce à l'aide de l'Ancien Démon. Il était actuellement dans un état de coma, mais le but de Wang Lin n'était pas de le maîtriser, il voulait le dévorer!
 
 Il comptait dévorer ce démon dispersé pour accroître sa propre culture!
 
@@ -44,9 +44,9 @@ De plus, la création d'une seconde âme originelle inflige des pertes considér
 
 Wang Lin songea: « C'est l'un des démons dispersés sous les ordres de l'Ancien Diable. Il n'existe pratiquement aucun autre embryon plus apte à la création d'une seconde âme originelle. Je suis absolument certain de pouvoir réussir avec lui! »
 
-« À présent, mon âme originelle et mon corps ont fusionné, consolidant ma culture Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder! Je dois récupérer les fragments restants de l'énergie d'épée que Ling Tianhou a forgés. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples médiocres! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
+« À présent, mon âme originelle et mon corps ont fusionné, consolidant ma culture Ascendant. Le danger étant écarté, certaines choses doivent être faites sans tarder! Je dois récupérer les fragments restants de l'énergie d'épée de Ling Tianhou. C'est un pur gaspillage qu'ils soient entre les mains de ses disciples inutiles! » Les yeux de Wang Lin s'illuminèrent et il se redressa dans l'étang.
 
-Son armure lui donnait l'allure d'un général démon, et ses longs cheveux noirs flottants accentuaient son aura sinistre.
+Son armure lui donnait l'allure d'un seigneur démon, et ses longs cheveux noirs flottants accentuaient son aura sinistre.
 
 En effleurant l'armure, une pointe d'excitation passa dans le regard de Wang Lin. Cette panoplie était incroyablement puissante! Une épaisse couche d'énergie démoniaque s'en dégageait, mais il était regrettable que Wang Lin ne puisse pas encore l'absorber.
 
@@ -80,7 +80,7 @@ Wang Lin esquissa un léger sourire. « Très bien, mais il me sera difficile d'
 
 Wang Lin joignit les mains et s'approcha de l'homme prisonnier du cristal. Il fit un pas et quitta le Lac du Dragon. En un instant, il disparut sans laisser de trace.
 
-S'il avait demandé à l'Ancien Démon de chercher Zhou Yi et de lui permettre d'accéder à l'héritage, c'était parce que ce dernier lui avait déjà énormément rendu. S'il s'était comporté comme s'il n'avait plus aucune requête, l'Ancien Démon aurait pu douter de sa sincérité.
+S'il avait demandé à l'Ancien Démon de chercher Zhou Yi et de lui permettre d'accéder à l'héritage, c'était parce que l'Ancien Démon avait déjà énormément fait pour lui. S'il s'était comporté comme s'il n'avait plus aucune requête, l'Ancien Démon aurait pu douter de sa sincérité.
 
 Ces deux demandes étaient réellement des choses qu'il souhaitait obtenir, et non de simples prétextes pour gagner du temps. De cette manière, l'Ancien Démon conserverait sa patience!
 

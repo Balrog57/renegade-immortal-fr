@@ -58,7 +58,7 @@ Bien que ces étoiles soient des illusions, elles tournaient selon la même traj
 
 À cet instant, l'esprit de Wang Lin trembla et le temps sembla refluer. Il commença peu à peu à tout oublier, tandis que son corps dégageait une majesté infinie. Cette aura était tyrannique; elle appartenait à quelqu'un qui regarderait avec froideur une calamité capable d'effondrer le monde!
 
-Il regarda devant lui et devint progressivement plus calme, mais ce sentiment de majesté ne fit que s'intensifier. À cet instant, l'aura que dégageait Wang Lin aurait suffi à étouffer même des cultivateurs du troisième pas!
+Il regarda devant lui et devint progressivement plus calme, mais ce sentiment de majesté ne fit que s'intensifier. À cet instant, l'aura que dégageait Wang Lin aurait suffi à faire trembler même des cultivateurs du troisième pas!
 
 Le premier à ressentir cette aura fut l'Estimé Ling Dong, à l'intérieur du Fourneau Impérial de Wang Lin. Il était pleinement concentré sur la suppression de Zhou Jin et s'employait, avec le Fourneau, à le raffiner. Cependant, dès que l'aura tyrannique se manifesta, le visage de l'Estimé Ling Dong pâlit et son expression changea radicalement. Envahi par la peur, il cessa immédiatement toute action. Il fut contraint de sortir du Fourneau Impérial, de l'étoile et du corps de Wang Lin.
 
@@ -99,7 +99,7 @@ Tout en luttant, le rugissement de Zhou Jin résonna dans le palais silencieux. 
 
 Pourtant, alors qu'il déployait toute sa volonté pour résister, l'aura à l'intérieur de Wang Lin sembla avoir fini de s'accumuler. Les 18 étoiles qui tournaient rapidement s'arrêtèrent soudainement!
 
-Au moment où elles cessèrent de pivoter, la pression et l'aura accumulées dans le corps de Wang Lin explosèrent. Elles furent dix, cent fois plus puissantes qu'auparavant en balayant le palais!
+Au moment où elles cessèrent de pivoter, la pression et l'aura accumulées dans le corps de Wang Lin explosèrent. Elles furent plusieurs fois, dix, voire cent fois plus puissantes qu'auparavant en balayant le palais!
 
 Zhou Jin cracha du sang et son esprit sembla se déchirer. Son cœur de Dao vola en éclats et toute sa résistance s'effondra. À cet instant, Wang Lin était tel un empereur invincible possédant une aura capable de faire trembler le monde entier!
 

@@ -44,7 +44,7 @@ Le tonnerre grondait dans le ciel et la pluie tombait à verse. Un massacre comm
 
 Xu Decai était un cultivateur errant du Continent du Démon Vert ayant atteint le stade initial de la Tribulation du Vide. C'était là sa limite; il ne pourrait progresser qu'en rencontrant une fortune extraordinaire.
 
-Il avait été invité par la Secte de la Voie Démoniaque pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint à l'armée de cultivateurs qui avait fait voler en éclats le troisième méridien.
+Il avait été invité par la Secte du Dao Démoniaque pour participer à la guerre contre le Continent du Taureau Céleste. On lui avait promis de nombreux bénéfices, alors il s'était joint à l'armée de cultivateurs qui avait fait voler en éclats le troisième méridien.
 
 À cet instant, il menait plus d'une douzaine de cultivateurs. Parmi eux se trouvaient trois personnes au troisième stade, mais la plus forte n'était qu'au stade intermédiaire du Vide Arcane.
 
@@ -58,7 +58,7 @@ Cette excitation provenait de la promesse faite par le vieil homme nommé Zhang 
 
 « Si quelqu'un tue Wang Lin, ce vieux vous promet que je ferai en sorte que le Maître de Secte vous autorise à entrer dans la Fosse Céleste pendant mille ans! » Cette perspective exaltait Xu Decai.
 
-La rumeur disait que lors de l'extraction du noyau du Scorpion Démoniaque par l'Ancêtre Céleste, un accident s'était produit. Le noyau s'était brisé en morceaux, créant cinq fosses à travers le Continent du Démon Vert. Ces fosses étaient saturées d'énergie démoniaque, et y cultiver offrait des bénéfices inestimables.
+La rumeur disait que lors de l'extraction du noyau du Scorpion Démoniaque par l'Ancêtre Céleste, un accident s'était produit. Le noyau s'était brisé et une petite partie en était tombée au sol, créant cinq fosses dans le Continent du Démon Vert. Ces fosses étaient saturées d'énergie démoniaque, et y cultiver offrait des bénéfices inestimables.
 
 Pour Xu Decai, dont la culture stagnait depuis longtemps, c'était une chance unique. Qu'il puisse augmenter son niveau de culture ou non, il devait tenter sa chance.
 
@@ -92,11 +92,11 @@ Un autre cultivateur de la Tribulation du Vide, ayant quitté son groupe, charge
 
 Xu Decai ricana, indifférent au sort des autres. Alors que Wang Lin approchait, il leva brusquement sa main droite avant de la laisser retomber.
 
-En tombant, sa main traça des sceaux à une vitesse prodigieuse. En un laps de temps infime, il exécuta près d'un million de sceaux, matérialisant un lion colossal. Ce lion, haut de mille pieds, poussa un rugissement et bondit sur Wang Lin.
+En tombant, sa main traça des sceaux à une vitesse prodigieuse. En un laps de temps infime, il exécuta près d'un million de sceaux, matérialisant un lion colossal. Ce lion, haut de plusieurs milliers de pieds, poussa un rugissement et bondit sur Wang Lin.
 
 Wang Lin n'avait jamais vu une telle rapidité dans l'exécution de sceaux. Le sort étrange de Xu Decai était d'une célérité inouïe.
 
-Le lion rugit en se rapprochant. Une lueur rouge jaillit et un grondement tonnerre retentit, provoquant une onde de choc massive à travers la terre. La pluie s'interrompit brusquement dans une vaste zone, créant un monde étrange où l'eau ne tombait plus.
+Le lion rugit en se rapprochant. Une lueur rouge jaillit et un grondement tonnerre retentit, provoquant une onde de choc massive à travers la terre, qui arracha une grande quantité d'herbes du sol. La pluie s'interrompit brusquement dans une vaste zone, créant un monde étrange où l'eau ne tombait plus.
 
 Xu Decai venait d'utiliser un sort, mais il ne marqua aucune pause; il recula de trois pas. Puis, sa main droite frappa soudainement le sol. Durant ce mouvement bref, ses mains avaient créé près de quatre millions de sceaux à une vitesse terrifiante avant de toucher la terre.
 

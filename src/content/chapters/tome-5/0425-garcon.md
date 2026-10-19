@@ -52,7 +52,7 @@ La réponse de Situ Nan fut: « Parce que je suis Situ Nan! »
 
 « Tout à l'heure, tu as failli ruiner mon plan en réclamant cette quatrième âme, petit morveux. Si ce petit moineau avait réussi à me percer à jour, ce vieil homme aurait dû retourner dormir juste après son réveil! Quant à cette quatrième âme, une fois que j'aurai trouvé un corps et récupéré ma culture, je me frayerai un chemin jusqu'au Mont Suzaku pour la reprendre de force! » Situ Nan lança un regard noir à Du Tian.
 
-Cela faisait des milliers d'années que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Aîné…? »
+Cela faisait plus de mille ans que Du Tian n'avait pas été traité de « petit morveux ». Il ne put que sourire avec prudence et demander: « Quel est votre nom, Aîné…? »
 
 Situ Nan leva la tête et déclara avec arrogance: « Wang Lin, dis à ce petit morveux qui je suis! »
 
@@ -76,7 +76,7 @@ L'arrivée de Zhu Quezi avait plongé Du Tian dans le désespoir; pourtant, les 
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Grand frère apprenti, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, toi, Maître, ainsi que tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte de l'Affinement de l'Âme. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte de l'Affinement de l'Âme… »
+« Grand frère, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, ainsi que notre Maître et tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte de l'Affinement de l'Âme. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte de l'Affinement de l'Âme… »
 
 « Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau des âmes pour l'éternité! »
 
@@ -100,7 +100,7 @@ Un rayon de lumière pourpre et dorée jaillit de son front. Le drapeau des âme
 
 Bien que le drapeau des âmes d'un milliard ait perdu un tiers de ses fragments d'âme, dix âmes primaires et la quatrième âme, il restait le drapeau des âmes d'un milliard!
 
-Ce drapeau de près de dix mètres représentait les racines de la Secte de l'Affinement de l'Âme. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
+Ce drapeau de près de dix mètres représentait la lignée du Dao de la Secte de l'Affinement de l'Âme. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
 
 Wang Lin leva la main droite et saisit le drapeau, puis il regarda Du Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna trois fois devant lui.
 

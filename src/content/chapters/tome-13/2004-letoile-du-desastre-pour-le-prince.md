@@ -36,7 +36,7 @@ Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusi
 
 Seul le jeune homme en noir fixa Wang Lin en gardant le silence.
 
-Wang Lin sourit et rendit leur salut. « Je m'appelle Wang Lin. Par hasard, j'ai entendu dire que le prince et les ambassadeurs de l'Ancien Dao passaient par ici. J'aimerais les rencontrer si cela est possible, mais si c'est inconvenant, je m'en irai. »
+Wang Lin sourit et rendit leur salut. « Je m'appelle Wang Lin. Par hasard, j'ai entendu dire que le prince et les ambassadeurs de l'Ancien Dao approchaient. J'aimerais rester les observer, si cela est possible, mais si c'est inconvenant, je m'en irai. »
 
 Il ne faisait preuve d'aucune arrogance malgré son niveau de culture et son rang élevé. La personnalité de Wang Lin avait toujours été ainsi: si les autres lui témoignaient du respect, il leur en rendait naturellement.
 
@@ -98,7 +98,7 @@ Derrière lui se tenait une femme en bleu. Elle paraissait assez jeune et, lorsq
 
 Le jeune homme royal vit également Wang Lin, l'unique personne debout. Le ciel gronda une fois de plus. Le jeune homme leva la tête et détourna son regard de Wang Lin pour contempler à nouveau le firmament.
 
-Une autre ombre gigantesque émergea de la faille béante. Cette silhouette était légèrement plus petite; en sortant, elle révéla deux cornes sur sa tête et un corps noir. C'était un diable ancien!
+Une autre ombre gigantesque émergea de la faille béante. Cette silhouette était légèrement plus petite, haute d'environ cent mille pieds; en sortant, elle révéla deux cornes sur sa tête et un corps noir. C'était un diable ancien!
 
 Les yeux de ce démon étaient également rouges, habités par la folie et la violence, comme s'il était sur le point de perdre tout contrôle. Il poussa un hurlement. Sept personnes se tenaient debout sur sa tête.
 
@@ -114,4 +114,4 @@ Parmi elles figuraient cinq hommes et deux femmes. Ils saluèrent le jeune homme
 
 « Tuo Luo, tue-le! » Dès que le prince eut parlé, le démon ancien de centaines de milliers de pieds de haut poussa un rugissement. Il leva sa griffe droite et tendit la main vers Wang Lin.
 
-Il semblait vouloir saisir Wang Lin pour l'écraser! Ses griffes acérées paraissaient capables de fendre le ciel même. Chargées d'une aura démoniaque monstrueuse, elles foncèrent sur Wang Lin.
+Il semblait vouloir saisir Wang Lin pour l'écraser! Ses griffes acérées paraissaient capables de fendre le vide même. Elles se changèrent en plusieurs lignes noires, chargées d'une aura démoniaque monstrueuse, qui foncèrent sur Wang Lin.

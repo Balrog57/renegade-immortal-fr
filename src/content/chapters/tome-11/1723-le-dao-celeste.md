@@ -48,7 +48,7 @@ Au moment où la porte géante se fendit, Wang Lin vit une boule de brouillard p
 
 À travers la brume, Wang Lin entrevit un instant la silhouette d'un être. Il ne put distinguer son apparence, mais il entendit son rugissement tonitruant!
 
-« Le Dao Céleste!! Tu as réellement obtenu un Dao Céleste!! Maudit soit, ce roi ne l'approuve pas! » Le rugissement finit en un sifflement. Un grondement terrifiant émana du brouillard.
+« Le Dao Céleste!! Tu as réellement obtenu un Dao Céleste!! Maudit soit, ce roi ne l'accepte pas! » Le rugissement finit en un sifflement. Un grondement terrifiant émana du brouillard.
 
 Tandis que le fracas résonnait, l'incessante brume commença à bouger. Une force puissante semblait déchirer le brouillard, le scindant en deux.
 

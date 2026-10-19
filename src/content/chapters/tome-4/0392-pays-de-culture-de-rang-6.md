@@ -114,7 +114,7 @@ Petit Blanc poussa un grognement de tristesse, ses espoirs étant une fois de pl
 
 La main droite de Wang Lin traça un sceau. La pagode rétrécit rapidement et il la rangea avec soin.
 
-Une fois cela terminé, Wang Lin prit une profonde inspiration et fit un pas en avant. Une énergie puissante jaillit du sol et, simultanément, son corps original ouvrit les yeux. Un instant plus tard, il était déjà apparu à la surface.
+Une fois cela terminé, Wang Lin prit une profonde inspiration et frappa le sol du pied droit. Une énergie puissante jaillit du sol et, simultanément, son corps original ouvrit les yeux. Un instant plus tard, il était déjà apparu à la surface.
 
 Sur son front, trois étoiles violettes tourbillonnaient en dégageant une lueur démoniaque.
 

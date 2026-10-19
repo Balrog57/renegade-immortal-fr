@@ -8,7 +8,7 @@ slug: retribution-de-la-realite-fantastique
 ---
 Sa paume ouverte représentait la cause karmique, et sa paume fermée l'effet karmique. L'Empreinte du Karma jaillit, faisant trembler l'autel. Les deux pans surgissant de la faille libérèrent un fracas de tonnerre.
 
-De nombreuses fissures apparurent sur ces deux sections avant qu'elles ne s'effondrent soudainement. D'innombrables fragments se dispersèrent et furent réduits en cendres par les flammes.
+De nombreuses fissures apparurent sur ces deux sections avant qu'elles ne s'effondrent soudainement. D'innombrables fragments se dispersèrent et furent consumés par les flammes, se changeant en une fumée noire.
 
 Si seuls deux pans s'étaient effondrés, cela n'aurait été surprenant que peu. Cependant, sous l'assaut de l'Empreinte du Karma, non seulement ces deux pans s'écroulèrent, mais même les quatre épées gravitant autour de la silhouette vague tremblèrent en émettant des bourdonnements plaintifs.
 
@@ -46,7 +46,7 @@ Le messager des cieux qui avait tant fait souffrir Wang Lin était désormais si
 
 Cette unique phrase suffit à faire bouillir le sang des cultivateurs du Royaume Intérieur. Elle était d'une arrogance extrême, mais personne n'osa la remettre en question!
 
-Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis sa première confrontation avec la rétribution divine dans la Terre des Esprits Démoniaques, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
+Wang Lin avait enduré plus de mille ans pour prononcer ces mots. Depuis la première rétribution divine qui s'abattit sur lui lorsqu'il atteignit l'Ascendant dans la Terre des Esprits Démoniaques, il avait persévéré jusqu'à ce jour. Désormais, il avait la légitimité pour pointer le ciel et lui demander quel droit il avait de le punir!
 
 Demander aux cieux quel droit ils avaient d'emporter Li Muwan!
 Demander aux cieux qui leur avait donné le pouvoir de punir les êtres!
@@ -70,11 +70,11 @@ Il vit Liu Mei, tenant un nourrisson entouré d'un gaz noir. Les cris du bébé 
 
 Il voyait tout, il voyait énormément.
 
-Cette scène était d'un réalisme absolu; forgée par la rétribution divine, il était presque impossible de distinguer le vrai du faux. Elle créait l'illusion qu'un instant suffisait pour basculer de l'un à l'autre. Si vous croyiez que tout était faux et que vous détruisiez tout, vous pourriez découvrir que tout était réel: vous auriez alors anéanti les dernières âmes de vos êtres chers en ce monde!
+Cette scène était d'un réalisme absolu; forgée par la rétribution divine, il était presque impossible de distinguer le vrai du faux, car les apparences naissent du cœur. Elle créait l'illusion qu'un instant suffisait pour basculer de l'un à l'autre. Si vous croyiez que tout était faux et que vous détruisiez tout, vous pourriez découvrir que tout était réel: vous auriez alors anéanti les dernières âmes de vos êtres chers en ce monde!
 
 Tandis qu'il réfléchissait, d'autres silhouettes l'encerclèrent. Wang Lin laissa échapper un soupir, observa profondément ces apparitions et ferma les yeux.
 
-Ayant compris l'essence du Vrai et du Faux, cela n'avait aucune prise sur lui. En fermant les yeux, tout devenait faux; en les ouvrant, tout redevenait réel.
+Ayant compris l'essence du Vrai et du Faux, cela lui inspirait une certaine émotion, sans avoir de prise sur lui. En fermant les yeux, tout devenait faux; en les ouvrant, tout redevenait réel.
 
 Dans un soupir, Wang Lin referma de nouveau les paupières et agita la main droite. Tout comme il avait réduit la Porte du Vide en poussière, il balaya ces silhouettes, qu'elles fussent réelles ou non. De la poussière à la poussière, de la terre à la terre, elles retournaient à leur origine.
 
@@ -84,9 +84,9 @@ Dans son cri, son Dao du Vrai et du Faux surgit soudainement!
 
 Au cœur des nuages grondants, alors que Wang Lin rugissait, de multiples figures illusoires apparurent. Ces formes étaient façonnées par son propre Dao. Si l'on disait qu'elles étaient réelles, elles l'étaient; si on les disait fausses, elles ne l'étaient pas.
 
-Parmi ces figures se trouvait Zhou Yi, tenant le cadavre de la femme et rugissant lamentablement vers le ciel...
+Parmi ces figures se trouvait Zhou Yi, tenant le cadavre de la femme et rugissant lamentablement vers le ciel, les larmes aux yeux...
 Parmi elles, Bai Fan, pointant les cieux en riant comme un fou...
-Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, rugissant contre l'éther...
+Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, fixant le ciel et explosant en silence...
 Parmi elles, Tuo Sen, maudissant les cieux avec arrogance...
 Et bien d'autres encore...
 

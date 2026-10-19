@@ -12,7 +12,7 @@ Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leur
 
 Maître Yan Leizi regarda Wang Lin et dit calmement: « Xu Mu, expose ta requête. »
 
-« La requête de Junior est de reformer la chair d'une Âme Naissante brisée et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
+« La requête de Junior est de reformer la chair d'une Âme Naissante brisée, endormie et mourante, et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
 
 « Oh? » Les yeux de Maître Yan Leizi se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort censé être très puissant. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
 
@@ -32,9 +32,9 @@ Une couche de lumière enveloppait son corps, lui conférant un aspect sacré. E
 
 Bien qu'elle fût endormie et ne s'éveillât jamais, on pouvait encore ressentir sa douceur et sa bonté.
 
-Sa beauté était éblouissante. Même si elle n'était pas aussi saisissante que Liu Mei ou aussi éclatante que Papillon Rouge, que valaient ces femmes dans le cœur de Wang Lin?
+Son visage était délicat. Même si elle n'était pas aussi saisissante que Liu Mei ou aussi éclatante que Papillon Rouge, que valaient ces femmes dans le cœur de Wang Lin?
 
-Autrefois, Li Muwan avait vieilli si rapidement entre ses bras.
+Autrefois, dans ses bras, Li Muwan était passée de sa jeunesse aux cheveux blancs, et les champs de mûriers s'étaient changés en mers d'azur.
 
 En un instant, tout s'était transformé en cendres et avait disparu. Une seule pensée résonnait encore dans le cœur de Wang Lin:
 

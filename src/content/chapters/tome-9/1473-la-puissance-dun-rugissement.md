@@ -56,7 +56,7 @@ Elle avait le pressentiment funeste que si elle ne partait pas immédiatement...
 
 Alors qu'elle se précipitait, le Sens Divin passa sur elle. Juste après son passage, l'onde s'arrêta. La femme en blanc trembla et de la sueur perla sur son front. Elle s'immobilisa, n'osant plus faire le moindre mouvement.
 
-Son cœur battait à tout rompre alors que le Sens Divin enveloppait son corps. C'était comme si chaque parcelle de son être était scrutée. Outre la peur, elle ressentit un sentiment d'exaspération qu'elle réprima aussitôt.
+Son cœur battait à tout rompre alors que le Sens Divin enveloppait son corps. C'était comme si chaque parcelle de son être était scrutée. Outre la peur, elle ressentit un sentiment de honte mêlé de colère qu'elle réprima aussitôt.
 
 Après un long moment, le Sens Divin quitta lentement son corps pour continuer sa course.
 
@@ -100,7 +100,7 @@ Wang Lin étant fusionné avec la volonté du tombeau antique, il ne faisait qu'
 
 Une fois refermée, Wang Lin pourrait sceller le tombeau antique pour qu'il reste clos pendant des dizaines de milliers d'années!
 
-Cela condamnerait ceux qui s'y étaient introduits à ne plus pouvoir s'échapper! Cela détruirait 30 % de la puissance du Système Stellaire Antique!
+Cela condamnerait ceux qui s'y étaient introduits à ne plus pouvoir s'échapper! Cela amputerait de 30 % la puissance du Système Stellaire Antique!
 
 L'homme en robe noire poussa un rugissement et se précipita vers la faille en pleine contraction. Il leva sa main desséchée qui fusionna avec l'empreinte descendante.
 
@@ -134,7 +134,7 @@ Le rugissement sortit de la bouche de Wang Lin et fit trembler tout le tombeau a
 
 La soie se déchira! La femme charmante poussa un cri déchirant alors que son corps s'effondrait et que son Âme Originelle s'envolait. Elle utilisa une méthode inconnue pour survivre de justesse, après que son Âme Originelle eut subi plusieurs effondrements.
 
-Grande Désolation, l'Âme Originelle de Maître Démon des Neuf Cieux et Miao Yin crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
+Grande Désolation, Maître Démon des Neuf Cieux et Miao Yin crachèrent tous du sang tandis que leurs corps s'effondraient. Même les cultivateurs du Vide Arcanique n'étaient pas de taille pour résister à un tel rugissement!
 
 Cependant, en tant que cultivateurs du Vide Arcanique, ils possédaient tous des sorts de survie. Après avoir survécu à cette onde de choc, ils sortirent tous des corps physiques de rechange qu'ils avaient raffinés. Leurs yeux étaient empreints d'une terreur monstrueuse et ils n'osaient plus avancer. Sans hésiter, ils entreprirent de fuir ce tombeau antique!
 

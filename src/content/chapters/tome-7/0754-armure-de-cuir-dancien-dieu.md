@@ -18,7 +18,7 @@ Dans une zone jonchée de débris, Li Yuan s'accroupit, toucha la terre et dit: 
 
 À ses côtés, Wang Lin observa attentivement et hocha la tête. « Le frère Li veut dire que la restriction ici est principalement constituée de cette terre? »
 
-Le fragment sur lequel ils se trouvaient n'était pas très vaste. Vu de loin, la terre était noire et le ciel ténébreux. Aucun tonnerre ne grondait ici, pourtant on pouvait entendre des échos sourds de foudre.
+Le fragment sur lequel ils se trouvaient n'était pas très vaste. Vu de loin, la terre était noire et le ciel ténébreux. Aucun éclair ne zébrait le ciel, mais on pouvait entendre le grondement sourd du tonnerre.
 
 Personne ne se trouvait dans un rayon de cinq mille kilomètres autour d'eux. Leurs deux silhouettes paraissaient bien solitaires en ce lieu.
 
@@ -54,7 +54,7 @@ Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li es
 
 « Chacune des quatre anciennes restrictions devient un sortilège surpuissant lorsqu'elle est cultivée à son apogée. Qu'il s'agisse des êtres célestes, des démons qui trônent en haut ou des bêtes mortelles en bas, tous peuvent être scellés! »
 
-« La Restriction des Dix-huit Pruniers est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
+« La Restriction des 18 Pruniers est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
 
 Wang Lin regarda Li Yuan et dit: « Avec la puissance de la Restriction d'Annihilation, il doit y avoir énormément de personnes qui la recherchent dans le Système Stellaire de Luotian... »
 

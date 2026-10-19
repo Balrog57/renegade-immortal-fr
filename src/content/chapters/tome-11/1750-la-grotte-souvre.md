@@ -48,7 +48,7 @@ Malheureusement, le monde de la grotte était plongé dans le chaos; même en d�
 
 Alors que le Vieux Fantôme Zhan progressait, on vit clairement, à l'extérieur de l'arc-en-ciel que formait son corps, apparaître une ombre gigantesque. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres. Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure se tenait hors du corps du Vieux Fantôme Zhan. Lui-même était l'une des trois âmes du Souverain Céleste aux Sept Couleurs, celle qui portait la compréhension!
 
-C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
+C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé à l'aide de l'arc de Li Guang. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
 
 Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière Invoquée. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
 
@@ -70,7 +70,7 @@ Les nuages de brume et les fragments de dalles affluèrent de toutes les directi
 
 À ce moment précis, Wang Lin se tenait dans la vallée sur la planète de Luotian. Ses yeux étaient empreints de tristesse et de colère alors qu'il regardait son disciple Xie Qing l'appeler « Maître » une dernière fois avant de mourir avec un sourire! Il était furieux que les cieux s'acharnent ainsi contre lui!
 
-« Si les cieux ne me respectent pas, alors je détruirai les cieux! » Wang Lin leva les yeux vers le ciel sombre, la troisième âme à la main! Dès l'apparition de cette âme, il établit une connexion avec elle. Il comprit que le cœur de la grotte s'était ouvert!
+« Si les cieux ne me respectent pas, alors je détruirai les cieux et anéantirai le vide, qu'importe! » Wang Lin leva les yeux vers le ciel sombre, la troisième âme à la main! Dès l'apparition de cette âme, il établit une connexion avec elle. Il comprit que le cœur de la grotte s'était ouvert!
 
 Il savait aussi que tout le monde convergeait vers lui. Leur objectif était la troisième âme qu'il tenait! Pourtant, pour Wang Lin, cette âme était différente. Elle n'était plus le Souverain Céleste aux Sept Couleurs, elle était son disciple Xie Qing!
 

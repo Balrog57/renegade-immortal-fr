@@ -12,11 +12,11 @@ Wang Lin n'ouvrit même pas les yeux. Au moment où le noyau du Maître Céleste
 
 Sur ce geste, une lumière dorée infinie jaillit et une goutte de sang doré perla entre les sourcils de Wang Lin. Il la saisit de la main droite.
 
-Dès qu'il attrapa cette goutte de sang, un arc se matérialisa instantanément dans le corps de Wang Lin. À l'instant même où l'arc apparut, une intention meurtrière satura les étoiles. Wang Lin pointa l'arme vers l'avant.
+Dès qu'il attrapa cette goutte de sang, un arc se matérialisa instantanément dans le corps de Wang Lin. À l'instant même où l'arc apparut, une intention meurtrière satura les étoiles. Wang Lin la saisit aussitôt.
 
 L'arc Li Guang ne pouvait être utilisé que si Wang Lin possédait ce sang doré. En réalité, lorsque sa lignée céleste avait été forcée de sortir, l'arc avait fusionné avec cette goutte de sang. La flèche se trouvait également à l'intérieur de cette goutte.
 
-Pourtant, ce sang appartenait toujours à Wang Lin. Tant qu'il détenait ce sang, il pouvait invoquer l'arc Li Guang et décocher cette flèche capable de briser les cieux!
+Pourtant, ce sang appartenait toujours à Wang Lin. Tant qu'il détenait ce sang, il pouvait, par un lien mystérieux, invoquer l'arc Li Guang et décocher cette flèche capable de briser les cieux!
 
 Avec cet arc et son niveau de culture actuel, Wang Lin ne craignait ni le monde, ni aucun autre cultivateur! Cet arc représentait l'attaque la plus puissante de Wang Lin!
 
@@ -28,9 +28,9 @@ Le Maître Céleste Dieu du Vide laissa échapper un cri silencieux tandis qu'un
 
 Il y avait aussi le jeune homme en robe verte. S'échappant avec précipitation dans la terreur, il déchira une faille spatiale pour s'y engouffrer.
 
-Il y avait également les dizaines de milliers de cultivateurs qui fuyaient autour de la planète Suzaku. Ils étaient partis plus tôt et n'avaient pas été témoins de ce qui se passait près de la planète, mais à cet instant précis, ils ressentirent l'appel de la mort au plus profond de leurs âmes.
+Il y avait également les dizaines de milliers de cultivateurs qui fuyaient à travers le Vide Brillant. Ils étaient partis plus tôt et n'avaient pas été témoins de ce qui se passait près de la planète, mais à cet instant précis, ils ressentirent l'appel de la mort au plus profond de leurs âmes.
 
-« Je vais reprendre le Vide Brillant avec sa flèche! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire dont la pointe formait un anneau commença à prendre forme. Bientôt, elle devint une véritable flèche.
+« Avec cette flèche, je reprendrai le Vide Brillant! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire dont la pointe formait un anneau commença à prendre forme. Bientôt, elle devint une véritable flèche.
 
 Dès que la flèche apparut, la main droite de Wang Lin se détendit. Au moment où il lâcha prise, un vrombissement retentit. L'espace lui-même sembla trembler et s'effondrer lorsque la corde frappa la flèche. Toute la force fut transférée et la flèche jaillit!
 
@@ -40,13 +40,13 @@ Personne ne pouvait arrêter cette flèche!
 
 Tandis que la flèche fendait l'air, une onde de choc se propagea à travers l'espace. Le jeune homme en robe verte fut expulsé de sa faille. Lorsqu'il regarda en arrière, terrorisé, son visage devint livide et ses yeux se remplirent de désespoir. Contrairement à la dernière fois où il n'était qu'une projection, il était cette fois présent dans son corps originel!
 
-S'il mourait, la mort serait définitive!
+S'il mourait cette fois, son Dao s'éteindrait pour de bon!
 
 Sans avoir le temps de réfléchir, la flèche se rapprocha instantanément. Le jeune homme en robe verte poussa un rugissement de détresse. Ses mains formèrent un sceau et il cracha une quantité massive de sang, faisant fi de l'état de son corps. Il rassembla toute l'essence dont il disposait, conscient qu'il faisait face à la fin de sa vie.
 
 Il ouvrit son Royaume de la Flamme Joss et en extraya toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des centaines de milliers, des millions de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
 
-C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il avait sacrifié sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
+C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il frappa son front et sacrifia sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
 
 Cependant, la flèche finit par percer la glace dans un grondement qui résonna à travers tout le Vide Brillant. Elle transperça le jeune homme en robe verte. Son corps trembla et il cracha du sang avant d'exploser. Son âme originelle tenta de s'échapper, mais elle finit par chanceler et s'éteindre.
 
@@ -64,13 +64,13 @@ Dans la partie sud du Vide Brillant, deux cultivateurs du Royaume Extérieur aya
 
 Soudain, l'onde résonna. Les deux cultivateurs extérieurs, qui souriaient encore, tremblèrent et s'effondrèrent, laissant le jeune homme dans la stupeur.
 
-À l'ouest du Vide Brillant se trouvait une planète de culture. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités.
+À l'ouest du Vide Brillant se trouvait une planète de culture. La plupart des sectes y avaient été détruites et étaient désormais occupées par des cultivateurs du Royaume Extérieur. Certains d'entre eux, rendus fous par les massacres, s'en prenaient même aux mortels. Des cris résonnaient dans les cités, mêlés à leurs rires.
 
 Certains envahisseurs avaient capturé de magnifiques cultivatrices de diverses sectes pour les transformer en fourneaux de culture et les revendre dans le Royaume Extérieur.
 
 Cependant, l'onde balaya la planète de culture. Après son passage, tous les cultivateurs du Royaume Extérieur présents sur la planète tremblèrent et s'effondrèrent en amas de chair et de sang.
 
-Dans la partie nord du Vide Brillant, mille rayons de lumière représentant mille cultivateurs du Royaume Extérieur convergeaient pour secourir d'autres systèmes stellaires. Ils furent percutés par l'onde, et pas une seule âme ne survécut.
+Dans la partie nord du Vide Brillant, plusieurs milliers de rayons de lumière, figurant autant de cultivateurs du Royaume Extérieur, se précipitaient vers les bords du Vide Brillant pour prêter main-forte à d'autres systèmes stellaires. Ils furent percutés par l'onde, et pas une seule âme ne survécut.
 
 Il en fut de même partout dans le Vide Brillant. À mesure que les ondulations se propageaient, un nombre terrifiant de cultivateurs du Royaume Extérieur succombait!
 
@@ -92,7 +92,7 @@ Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda
 
 Dans le Vide Brillant, aux abords de la planète Suzaku, Wang Lin ouvrit les yeux. L'arc disparut de sa main et la flèche retourna du vide pour se loger à nouveau dans la goutte de sang doré qu'il tenait dans sa main droite.
 
-Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Il avait encore besoin d'un peu de temps pour solidifier sa culture de la troisième étape.
+Il pressa la goutte de sang contre son front et s'élança vers le vortex formé par l'effondrement de la Porte du Vide. Sa troisième étape était presque condensée : il ne lui manquait plus qu'un dernier fil.
 
 Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à avoir survécu aux ondes. Son corps tremblait et il n'osait plus bouger. Il regarda Wang Lin entrer dans le vortex et absorber la puissance de la Porte du Vide avec une intensité folle.
 
@@ -100,7 +100,7 @@ Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à av
 
 Et pas seulement lui; les milliers de cultivateurs du Royaume Intérieur étaient tous stupéfaits. Ce qu'ils venaient d'observer était tout simplement incroyable!
 
-« Le Seigneur du Royaume Scellé... C'est le Seigneur du Royaume Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il savait qu'un tel phénomène ne devrait pas être possible, mais que ce soit la Porte des Dix Mille Os du Vide ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
+« Le Seigneur du Royaume Scellé... C'est le Seigneur du Royaume Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il n'aurait pas dû se laisser ébranler ainsi, mais que ce soit la Porte des Dix Mille Os du Vide ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
 
 Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux brillants d'exaltation.
 

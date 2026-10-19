@@ -10,7 +10,7 @@ Lorsque l'essence d'eau de Wang Lin fut complète, de nombreuses ombres apparure
 
 Wang Lin avait depuis longtemps perçu les ombres qui venaient soudainement d'apparaître. Il resta calme et sa main droite agrippa l'espace au-dessus de la mer. Tout le liquide noir de l'océan se rassembla en un éclair pour former une unique goutte de liquide sombre.
 
-Ce liquide était la Corruption Liquide Raffinée Dix Mille Fois!
+Ce liquide était le Liquide de Corruption des Dix Mille Raffinements!
 
 Les ombres apparurent une à une, portées par les auras de leur puissante culture. Alors qu'elles chargeaient toutes vers Wang Lin, celui-ci pressa impitoyablement la goutte de liquide noir.
 
@@ -34,7 +34,7 @@ Le corps de la femme tremblait et ses yeux étaient emplis de terreur. Tous les 
 
 « Qui est cette personne?! Pourquoi n'est-elle pas apparue lorsque nous avons enquêté sur les puissants cultivateurs d'ici?! » songea silencieusement la femme en serrant les dents.
 
-« Tous les Soldats du Démon Vert de la Mer des Pilules, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé la Corruption Liquide Raffinée Dix Mille Fois. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
+« Tous les Soldats du Démon Vert de la Mer des Pilules, écoutez mon ordre! Poursuivez cette personne et ne le laissez pas s'échapper. Il a dérobé le Liquide de Corruption des Dix Mille Raffinements. Vous devez le tuer pour la récupérer! » ordonna la femme avant de cracher une bouchée de sang. Son sang se fusionna avec ses paroles et se transforma en un gaz qui pénétra dans la boussole.
 
 Une fois le sang dissipé, tous les cultivateurs en robes vertes aux côtés de la femme marchèrent rapidement vers l'avant.
 
@@ -54,13 +54,13 @@ Ses yeux se rétrécirent et son expression devint plus grave encore.
 
 « Quelqu'un interfère... Pas contre moi, mais contre tous les sorts de divination de cet endroit... » Wang Lin referma sa paume et la petite personne disparut à l'intérieur.
 
-« Je crains qu'il n'y ait un grand chaos ici... » songea Wang Lin en faisant un pas en avant, tandis que des ondulations résonnaient sous ses pieds. Il disparut sans laisser de trace en utilisant la Déviation Spatiale.
+« Je crains qu'il n'y ait un grand chaos ici... » songea Wang Lin en faisant un pas en avant, tandis que des ondulations résonnaient sous ses pieds. Il disparut sans laisser de trace en utilisant la Distorsion Spatiale.
 
-Moins de dix respirations après son départ, près de mille silhouettes apparurent sur les lieux. Ces figures portaient toutes des robes vertes et, après avoir inspecté les environs, elles disparurent à nouveau.
+Moins de dix respirations après son départ, plusieurs milliers de silhouettes apparurent sur les lieux. Ces figures portaient toutes des robes vertes et, après avoir inspecté les environs, elles disparurent à nouveau.
 
 Quant à Wang Lin, lorsqu'il approcha du Continent du Taureau Céleste, il émergea des ondulations et fronça les sourcils. Il ne quitta pas la mer mais leva les yeux. Son regard semblait transpercer l'océan pour atteindre le ciel sombre au-dessus.
 
-« La restriction ici fait que la Déviation Spatiale ne peut se déplacer qu'à l'intérieur de la Mer des Pilules et non en sortir... Cette restriction est assez mystérieuse... » Les yeux de Wang Lin brillèrent. Il n'avait pas peur des restrictions. Il était difficile pour une restriction d'échapper à son essence de restriction. Plus il rencontrait de restrictions, plus cela serait bénéfique pour son essence.
+« La restriction ici fait que la Distorsion Spatiale ne peut se déplacer qu'à l'intérieur de la Mer des Pilules et non en sortir... Cette restriction est assez mystérieuse... » Les yeux de Wang Lin brillèrent. Il n'avait pas peur des restrictions. Il était difficile pour une restriction d'échapper à son essence de restriction. Plus il rencontrait de restrictions, plus cela serait bénéfique pour son essence.
 
 S'il parvenait à absorber et raffiner une restriction puissante et ancienne, son essence de restriction augmenterait considérablement.
 
@@ -68,9 +68,9 @@ S'il parvenait à absorber et raffiner une restriction puissante et ancienne, so
 
 Tout en réfléchissant, Wang Lin resta très calme et agita sa main droite. Des dizaines de flammes commencèrent à brûler dans la mer, sur la droite de Wang Lin.
 
-Dès l'apparition du feu, des cris déchirants retentirent et plus d'une douzaine de cultivateurs en vert apparurent. Leurs corps étaient consumés par un feu noir que même l'eau de mer ne pouvait éteindre. Ce feu était le Feu Éthéré, allumé par leur propre intention meurtrière!
+Dès l'apparition du feu, des cris déchirants retentirent et plus d'une dizaine de cultivateurs en vert apparurent. Leurs corps étaient consumés par un feu noir que même l'eau de mer ne pouvait éteindre. Ce feu était le Feu Éthéré, allumé par leur propre intention meurtrière!
 
-Wang Lin utilisait rarement le Feu Éthéré, et c'était la première fois qu'il s'en servait sur le Continent Astral Immortel! Mais il restait extrêmement puissant lorsqu'il était utilisé de manière inattendue. Ces douze cultivateurs n'étaient même pas au troisième stade. Ils n'étaient que des éclaireurs envoyés pour trouver Wang Lin, et ils n'avaient aucune chance de résister.
+Wang Lin utilisait rarement le Feu Éthéré, et c'était la première fois qu'il s'en servait sur le Continent Astral Immortel! Mais il restait extrêmement puissant lorsqu'il était utilisé de manière inattendue. Ces cultivateurs n'étaient même pas au troisième stade. Ils n'étaient que des éclaireurs envoyés pour trouver Wang Lin, et ils n'avaient aucune chance de résister.
 
 Wang Lin s'apprêtait à jaillir de l'eau pour observer la restriction couvrant la Mer des Pilules. Cependant, son expression changea; il se retourna et regarda au loin.
 
@@ -90,9 +90,9 @@ Un filet de gaz vert s'échappa de l'éventail et se transforma en un céleste d
 
 Au moment où l'épée dorée descendit, le Tigre Blanc se retourna. Dans un rugissement, une ombre de tigre blanc apparut et se détacha de son corps pour bondir sur le céleste à l'armure dorée.
 
-Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc laissa également échapper un cri déchirant avant de s'écrouler à son tour. Le Tigre Blanc trembla, toussa à nouveau du sang et recula de mille pieds.
+Un fracas de tonnerre retentit et le céleste s'effondra, mais le tigre blanc laissa également échapper un cri déchirant avant de s'écrouler à son tour. Le Tigre Blanc trembla, toussa à nouveau du sang et recula de plusieurs milliers de pieds.
 
-« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte des Sept Dao. Je ne changerai ni mon nom, ni ma secte. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
+« Ce vieil homme est le Général Tigre Blanc, l'un des quatre grands généraux de la Secte des Sept Dao. Je ne changerai ni de nom, ni de famille. Petit enfant, souviens-toi bien de cela! » Le Tigre Blanc n'était pas en état de combattre et cessa de fuir. Il comprenait qu'il était peu probable d'échapper à la mort dans cette situation.
 
 Puisqu'il allait mourir, il allait partir avec éclat!
 

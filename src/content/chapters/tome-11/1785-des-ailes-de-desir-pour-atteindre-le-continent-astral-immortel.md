@@ -22,7 +22,7 @@ Le sentiment de danger dans le cœur de Vieux Fantôme Zhan s'intensifia. Sans c
 
 Wang Lin ne répondit rien. Il ne pouvait pas remettre la troisième âme. Pour lui, cette âme n'était pas celle du Souverain Céleste aux Sept Couleurs, Su Dao, mais celle de son disciple, Xie Qing.
 
-Tout en réfléchissant silencieusement, Wang Lin leva la main droite et deux lueurs spectrales jaillirent. Ces deux sphères de lumière émettaient un éclat fantomatique où palpitaient des lignées sanguines. Il s'agissait du sang vital de Xie Qing!
+Tout en réfléchissant silencieusement, Wang Lin leva la main droite et deux lueurs spectrales jaillirent. Ces deux sphères de lumière émettaient un éclat fantomatique où serpentaient des filaments de sang. Il s'agissait du sang vital de Xie Qing!
 
 Xie Qing était la réincarnation de la troisième âme et, au prix de sa vie, il avait formé trois sceaux. L'un était destiné à sa propre âme, tandis que les deux autres avaient été confiés à Wang Lin. C'était l'ultime geste qu'il avait accompli pour son maître avant de mourir.
 
@@ -38,7 +38,7 @@ Lorsque Vieux Fantôme Zhan ressentit la force de scellement, ses pupilles se r�
 
 Un éclat de froideur traversa le regard de Vieux Fantôme Zhan et il chargea Wang Lin sans hésiter. Il savait qu'il ne pouvait plus reculer, malgré l'intensité du danger; sinon, les conséquences seraient inimaginables!
 
-Sa vitesse était fulgurante et il atteignit instantanément un rayon de mille pieds autour de Wang Lin. Vieux Fantôme Zhan leva la main et un caractère doré signifiant « Combat » fut projeté vers lui. Simultanément, une ombre superposée apparut au-dessus de l'ombre de l'âme aux Sept Couleurs entourant Vieux Fantôme Zhan. L'âme du Daoïste aux Sept Couleurs se manifesta soudainement, son corps exhalant un éclat septicolore tandis qu'il fonçait sur Wang Lin.
+Sa vitesse était fulgurante et il fut instantanément à moins de cent pieds de Wang Lin. Vieux Fantôme Zhan leva la main et un caractère doré signifiant « Combat » fut projeté vers lui. Simultanément, une ombre superposée apparut au-dessus de l'ombre de l'âme aux Sept Couleurs entourant Vieux Fantôme Zhan. L'âme du Daoïste aux Sept Couleurs se manifesta soudainement, son corps exhalant un éclat septicolore tandis qu'il fonçait sur Wang Lin.
 
 Peu après, l'âme à la cape ouvrit les bras. Le manteau de son corps s'étendit telle une vague et vola vers Wang Lin.
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main 
 
 À cet instant, les huit corps véritables de son Essence apparurent tous et projetèrent leurs mains en avant.
 
-Des grondements tonitruants résonnèrent, et la cinquième fleur en plein effondrement se dissipa largement, révélant le ciel étoilé ainsi que le Maître du Dao Rêve Bleu, le vieil homme nommé Ma de la Planète des Cinq Éléments, Yun Yifeng, Tang Shan et d'autres.
+Des grondements tonitruants résonnèrent, et la cinquième fleur en plein effondrement se dissipa largement, révélant le ciel étoilé ainsi que le Maître du Dao Rêve Bleu, le vieil homme nommé Ma de la Planète des Cinq Éléments, Yun Yifeng, la troisième concubine Tang Shan et d'autres.
 
 Se trouvaient également le Général Tortue Noire et le Général Oiseau Vermillon, tous deux gravement blessés.
 
@@ -94,7 +94,7 @@ Au loin, le Maître du Dao Rêve Bleu et ses compagnons étaient frappés de stu
 
 Ils avaient initialement pensé que Xuan Luo interviendrait finalement pour régler le sort du monde des grottes. Mais Xuan Luo n'était jamais apparu, et tout reposait désormais sur les épaules de Wang Lin.
 
-L'âme à la cape qui habitait Vieux Fantôme Zhan fut saisie par le cou et se rétracta jusqu'à la taille d'un poing, rompant toute connexion avec lui.
+L'âme à la cape qui habitait Vieux Fantôme Zhan fut enveloppée par le filet et se rétracta jusqu'à la taille d'un poing, rompant toute connexion avec lui.
 
 Dès que le lien fut coupé, les yeux de Vieux Fantôme Zhan devinrent instantanément ternes et du sang noir s'écoula de sa bouche. Bien que son regard n'ait plus de lumière, il devint limpide.
 
@@ -104,7 +104,7 @@ Il regarda autour de lui et finit par poser ses yeux sur Wang Lin, puis sur la p
 
 « Je devrais être mort depuis bien longtemps... Tu as accompli mon rêve et tu m'as libéré... Wang Lin, merci... » Sa voix était très faible, la moitié de son corps ayant déjà disparu.
 
-Pourtant, le reste de son corps se transforma en un rayon de lumière rouge. Ses yeux brillèrent comme s'il venait d'épuiser ses dernières forces vitales pour charger vers la porte entrouverte.
+Pourtant, le reste de son corps se transforma en un rayon de lumière. Ses yeux brillèrent comme s'il venait d'épuiser ses dernières forces vitales pour charger vers la porte entrouverte.
 
 Même en mourant, il devait voir ce Continent Astral Immortel qu'il avait tant désiré toute sa vie...
 

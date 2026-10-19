@@ -60,4 +60,4 @@ Wang Lin médita un instant, puis eut un petit rire. Il n'avait qu'à lui fourni
 
 Excité par cette perspective, il fit ses bagages et laissa une bonne réserve de patates douces pour Zhang Hu, avant de se diriger vers la cour de l'Ancien Sun.
 
-Cette fois, il n'annonça pas sa venue et pénétra directement dans la cour. Le jeune homme vêtu de blanc, perché en haut d'un arbre, ne l'arrêta pas. Il avait déjà appris que l'Ancien Sun avait accepté Wang Lin comme disciple. Le jeune homme rit pour lui-même: « Un maître médiocre qui accepte un disciple médiocre... C'est fort approprié. »
+Cette fois, il n'annonça pas sa venue et pénétra directement dans la cour. Le jeune homme vêtu de blanc, perché en haut d'un arbre, ne l'arrêta pas. Il avait déjà appris que l'Ancien Sun avait accepté Wang Lin comme disciple. Le jeune homme rit pour lui-même: « Un maître bon à rien qui accepte un disciple bon à rien... C'est fort approprié. »

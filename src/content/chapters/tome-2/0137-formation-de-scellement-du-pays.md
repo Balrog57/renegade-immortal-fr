@@ -52,7 +52,7 @@ Après une heure, l'anneau recouvrait tout le pays de Huo Fen tel un bol renvers
 
 Une fois la formation déployée, seuls les mortels pouvaient circuler librement. Cultivateurs comme bêtes spirituelles, tout être doté de pouvoirs et de niveau inférieur au stade de la Formation de l'Âme ne pouvait plus franchir la barrière.
 
-À l'instant où la formation s'ouvrit, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes se retirèrent; plusieurs d'entre eux saisirent les corps des cultivateurs indépendants à l'Âme Naissante pour les ramener dans leurs familles respectives, et ceux qui n'avaient pas de famille furent tous déposés à la Secte Luo He.
+À l'instant où la formation fut activée, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes se retirèrent; plusieurs d'entre eux saisirent les corps des cultivateurs indépendants à l'Âme Naissante pour les ramener dans leurs familles respectives, et ceux qui n'avaient pas de famille furent tous déposés à la Secte Luo He.
 
 Plusieurs cultivateurs de la Secte Luo He se tenaient à l'extérieur de la formation. Ils s'inclinèrent et crièrent: « Chers compagnons, soyez tranquilles pendant que vous maintenez la formation. Nous promettons de protéger vos corps. Ce sceau ne peut tenir que trois mois. Je suis convaincu qu'à ce moment-là, nous aurons pris solidement pied à Xuan Wu. Je crois aussi que le pays de culture supérieur viendra alors éliminer les bêtes. Nous viendrons personnellement saluer votre retour. »
 
@@ -84,7 +84,7 @@ Les pupilles de la vieille femme se contractèrent. Elle fit volte-face et s'enf
 
 Au moment même où son Âme Naissante apparut, son corps fut désintégré par une force destructrice.
 
-La vieille femme était terrifiée. Elle n'était qu'au début du stade de l'Âme Naissante, tandis que son adversaire se situait clairement au sommet du milieu du stade de l'Âme Naissante. Il n'existait que trois personnes de ce niveau à Xuan Wu. Elle n'avait même pas l'idée de résister; elle ne cherchait qu'à survivre à cette épreuve.
+La vieille femme était terrifiée. Elle n'était qu'au début du stade de l'Âme Naissante, tandis que son adversaire se situait clairement au sommet du milieu du stade de l'Âme Naissante. Il n'existait pas plus de trois personnes de ce niveau à Xuan Wu. Elle n'avait même pas l'idée de résister; elle ne cherchait qu'à survivre à cette épreuve.
 
 Yang Sen laissa échapper un reniflement et tonna: « Tu ne pourras pas t'échapper! »
 

@@ -58,7 +58,7 @@ En voyant Wang Lin dévorer les neuf éclairs, une sueur froide perla sur leurs 
 
 Les quelque cent cultivateurs au loin n'étaient pas en première ligne, mais ils avaient tout vu et étaient tous sous le choc. Au cri de l'ancien, ils haletèrent et accélérèrent leurs mouvements pour achever la formation.
 
-Les anciens en pourpre se précipitèrent également en arrière. Délaissant leur statut, ils se mirent à aider activement à la construction de la formation.
+Les anciens en pourpre revinrent également en hâte. Délaissant leur statut, ils se mirent à aider activement à la construction de la formation.
 
 « Vite, nous devons quitter ce maudit système stellaire de l'Alliance! Comment le système de l'Alliance peut-il abriter quelqu'un capable de... capable d'absorber la rétribution divine?! »
 
@@ -92,7 +92,7 @@ Personne ne s'y opposa. Les quelque cent cultivateurs rejoignirent leurs positio
 
 Une foudre infinie s'abattit sur l'écran, faisant instantanément faiblir la lumière verte. Les deux anciens en pourpre crachèrent immédiatement du sang, leurs yeux remplis d'effroi. Le corps de l'un d'eux explosa; son âme originelle se précipita vers la formation en cours d'activation dans un hurlement déchirant.
 
-D'innombrables éclairs pénétrèrent l'écran et s'y déplaçaient comme des dragons. Plus d'une douzaine de cultivateurs présents furent frappés par ces dragons de foudre. Leurs corps furent instantanément carbonisés, et même leurs âmes originelles ne purent échapper à une mort immédiate.
+D'innombrables éclairs pénétrèrent l'écran et s'y déplaçaient comme des dragons. Plus d'une dizaine de cultivateurs présents furent frappés par ces dragons de foudre. Leurs corps furent instantanément carbonisés, et même leurs âmes originelles ne purent échapper à une mort immédiate.
 
 Sous l'assaut de la sphère d'éclairs, l'écran de lumière verte finit par céder et vola en mille morceaux. L'impact inimaginable généra une onde de choc dévastatrice qui se propagea partout.
 
@@ -114,4 +114,4 @@ Ses yeux s'illuminèrent et une onde monstrueuse secoua l'espace. Une puissance 
 
 À cet instant, d'innombrables illusions de volcans apparurent de toutes pièces. Une vague de chaleur se propagea, accompagnée des rugissements sourds de montagnes en éruption.
 
-L'intention meurtrière brûla dans les yeux de Wang Lin alors qu'il murmura doucement: « L'effondrement des montagnes! »
+L'intention meurtrière brûla dans les yeux de Wang Lin alors qu'il murmura doucement: « L'Effondrement des Montagnes! »

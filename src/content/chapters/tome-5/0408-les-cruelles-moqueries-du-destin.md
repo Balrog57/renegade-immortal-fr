@@ -134,7 +134,7 @@ Un fou apparut sur la lune. Ses cheveux étaient en bataille et il ne cessait de
 
 « Volonté céleste... Moi, Wang Lin, j'ai vaincu la loi céleste, mais j'ai été joué par la volonté céleste! »
 
-Un an plus tard, lors d'une nuit pluvieuse dans la partie orientale de la lune, un fou se tenait au sommet d'une haute montagne.
+Un an plus tard, lors d'une nuit pluvieuse et orageuse dans la partie orientale de la lune, un fou se tenait au sommet d'une haute montagne.
 
 La pluie tombait avec fracas sur le sol. Elle s'écrasait sur son corps et coulait le long de ses joues avant de rejoindre la terre.
 
@@ -144,7 +144,7 @@ La pluie tombait avec fracas sur le sol. Elle s'écrasait sur son corps et coula
 
 « Grâce à l'obsession de Senior Zhou Yi, la dépouille céleste s'est éveillée. Les émotions entre les deux — comment, si l'un vit, l'autre meurt, et si l'un meurt, l'autre vit — tout cela m'a permis de comprendre le sens de voir la vie non plus comme la vie, et la mort non plus comme la mort... »
 
-« Survivre à une catastrophe m'a permis de percevoir les mutations de l'existence. Zhou Ru oscillant entre la vie et la mort; la mort de Wan Er au cœur de la vie, et la vie au cœur de la mort. C'est la volonté céleste qui a finalement permis à moi, Wang Lin, de voir la vie toujours comme la vie et la mort toujours comme la mort! »
+« Renaître au milieu d'une catastrophe m'a permis de percevoir les mutations de l'existence. Zhou Ru oscillant entre la vie et la mort; la mort de Wan Er au cœur de la vie, et la vie au cœur de la mort. C'est la volonté céleste qui a finalement permis à moi, Wang Lin, de voir la vie toujours comme la vie et la mort toujours comme la mort! »
 
 « Après 19 ans... Wan Er, merci de m'avoir permis de comprendre... Je dois laisser ce qui est perdu dans ce monde rester perdu, et ce qui existe encore continuer d'exister. »
 

@@ -18,7 +18,7 @@ Le Continent du Taureau Céleste, le lieu où il était apparu pour la première
 
 Ces paysages familiers éveillèrent ses souvenirs. Au centre du Continent du Taureau Céleste, là où les chaînes de montagnes s'étendaient à l'infini, Wang Lin contempla silencieusement la terre en contrebas.
 
-Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
+Fixant l'horizon, Wang Lin dit lentement: « Taureau Céleste, autrefois, ton armure d'âme m'a aidé à surmonter plusieurs crises... Moi, Wang Lin, je distingue toujours clairement bienfaits et rancunes, et je n'oublie jamais ceux qui m'ont aidé. Aujourd'hui, je vais lever le sceau laissé par l'Ancêtre Céleste et te permettre de retrouver ta liberté! »
 
 « Mais ton corps est déjà devenu la terre et ne peut être restauré. Je vais libérer l'âme de ton sceau pour qu'elle forme une âme originelle, afin que tu puisses quitter le Continent Astral Immortel. En es-tu d'accord? »
 

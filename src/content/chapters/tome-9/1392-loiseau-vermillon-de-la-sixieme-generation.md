@@ -94,11 +94,11 @@ Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure v
 
 Wang Lin avait fouillé la mémoire de Cupidité et appris que ses paroles étaient pour l'essentiel vraies. Il en avait également tiré deux points clés!
 
-Le premier concernait l'endroit où le vortex était apparu dans Luotian.
+Le premier concernait l'endroit, près de la barrière du Royaume Céleste de la Foudre, où le vortex était apparu dans Luotian.
 
 Le second indiquait l'endroit où Cupidité était apparu après être sorti de cette tombe antique!
 
-« Ces deux informations devraient m'être utiles. Je devrais explorer ce secteur dans le Système Stellaire Antique, je pourrais y trouver des gains! Quant à la tombe, elle ressemble fort à la rumeur de la Tombe de l'Ordre Ancien! » Le regard de Wang Lin balaya la statue tandis qu'il méditait.
+« Ces deux informations devraient m'être utiles. Je devrais explorer ce secteur dans le Système Stellaire Antique, je pourrais y trouver des gains! Quant à la tombe, elle ressemble fort à la rumeur de la Tombe de l'Ordre Antique! » Le regard de Wang Lin balaya la statue tandis qu'il méditait.
 
 « Qui diable est cette statue... Pourquoi apparaîtrait-elle dans une telle tombe... » Wang Lin réfléchit longuement avant d'étendre son Sens Divin vers la statue.
 

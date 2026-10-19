@@ -10,7 +10,7 @@ L'épée géante balaya le ciel et toutes les sphères de foudre la suivirent; d
 
 Situ Nan n'attendit pas que Wang Lin lui donne ses instructions; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau, à environ trois kilomètres de là.
 
-Teng Li fronça les sourcils. Il laissa échapper un grognement et agita sa main droite. L'épée volante fit aussitôt demi-tour et se posa sous ses pieds, l'emportant à la poursuite de Wang Lin.
+Teng Li fronça les sourcils. Il laissa échapper un grognement et pointa l'index de sa main droite. L'épée volante fit aussitôt demi-tour et se posa sous ses pieds, l'emportant à la poursuite de Wang Lin.
 
 Deux rayons arc-en-ciel se succédèrent dans le ciel. Les disciples de la famille Teng tentèrent de les suivre un moment avant d'abandonner, incapables de maintenir la cadence.
 
@@ -34,7 +34,7 @@ Pensant cela, il accéléra sa course pour rattraper Wang Lin.
 
 Wang Lin prit une grande gorgée de liquide spirituel. Il ouvrit ensuite la bouche et cracha un rayon de lumière verte. Dès l'apparition de cette lueur, une odeur de sang emplit l'air.
 
-Bientôt, le rayon vert fulgura en direction opposée alors que Wang Lin continuait sa charge vers l'avant.
+Bientôt, le rayon vert fulgura en direction opposée alors que Wang Lin continuait sa fuite vers l'avant.
 
 Teng Li voyait parfaitement ce qui se passait. La lumière verte ne l'effrayait pas et il laissa échapper un ricanement méprisant. Il pointa du doigt le rayon et une sphère de foudre apparut, fonçant sur la lueur verdâtre.
 
@@ -62,7 +62,7 @@ Après avoir lancé l'épée volante, Wang Lin déploya son Sens Divin et repér
 
 Après un court instant de réflexion, sans dire un mot, Wang Lin vola vers l'ouest. En un clin d'œil, il atteignit la forêt et descendit au sol.
 
-Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter; s'il restait en l'air, il serait capturé à coup sûr.
+Wang Lin savait qu'il manquait de liquide spirituel et que Situ Nan ne pouvait plus se téléporter; s'il restait en l'air, il finirait tôt ou tard par être rattrapé.
 
 Il valait mieux renoncer au vol et voyager à pied dans la forêt. Bien qu'il ignorât pourquoi ce bois était enveloppé de brume, il constata que lorsqu'il déployait son Sens Divin, ses perceptions devenaient troubles et ne lui permettaient de ressentir que les environs immédiats, dans un rayon d'une centaine à deux centaines de mètres.
 
@@ -78,9 +78,9 @@ Il avait remarqué que Wang Lin sortait constamment une gourde et que, chaque fo
 
 L'envie de tuer Wang Lin devint plus pressante que jamais.
 
-Teng Li se tenait à l'extérieur de la forêt. Ses yeux étaient glacials, mais il éprouvait une certaine appréhension face à cet endroit. Il songea: « Cette jungle sauvage est très mystérieuse. Elle est perpétuellement enveloppée de brouillard et mon arrière-grand-père lui-même m'a dit de m'en tenir éloigné. Dois-je continuer la poursuite ou non? »
+Teng Li se tenait à l'extérieur de la forêt. Son regard hésitait, mais il éprouvait une certaine appréhension face à cet endroit. Il songea: « Cette jungle sauvage est très mystérieuse. Elle est perpétuellement enveloppée de brouillard et mon arrière-grand-père lui-même m'a dit de m'en tenir éloigné. Dois-je continuer la poursuite ou non? »
 
-Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens.
+Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens. Sans hésiter, il s'enfonça dans la forêt.
 
 De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs et de plantes rares couvraient le sol et d'innombrables bêtes étranges et oiseaux de proie s'entre-déchiraient chaque fois qu'ils se croisaient. L'odeur de la décomposition des feuilles et des carcasses, s'accumulant au fil du temps, s'était changée en miasmes capables de tuer sans laisser de trace.
 

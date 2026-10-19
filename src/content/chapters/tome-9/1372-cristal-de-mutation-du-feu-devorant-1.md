@@ -10,7 +10,7 @@ Zhong Grand Rouge fixa férocement l'homme d'âge moyen et hocha la tête. Il pr
 
 Le visage de l'homme d'âge moyen pâlit instantanément et il n'hésita pas à battre en retraite. Ses mains formèrent un sceau et le scorpion situé entre ses sourcils se mit à s'agiter comme s'il était vivant, émettant une lueur démoniaque.
 
-Cependant, à cet instant précis, Wang Lin leva calmement la main et pointa du doigt. D'un simple geste, les couleurs du monde changèrent, les nuages se dispersèrent et des grondements incessants résonnèrent. Une masse de nuages sombres apparut soudainement dans le ciel.
+Cependant, à cet instant précis, Wang Lin leva calmement la main et pointa du doigt. D'un simple geste, les couleurs du monde changèrent, les nuages se mirent à tourbillonner et des grondements incessants résonnèrent. Une masse de nuages sombres apparut soudainement dans le ciel.
 
 Au moment où le doigt de Wang Lin désigna sa cible, le tonnerre gronda. Un éclair aussi épais qu'un pouce descendit à une vitesse inimaginable. L'homme d'âge moyen trembla, mais l'éclair frappa de plein fouet sa tête.
 
@@ -22,7 +22,7 @@ Le silence qui suivit fut mortel. Les cultivateurs qui avaient réussi à fuir l
 
 D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages et la descente du tonnerre pour éliminer instantanément un cultivateur Yin Illusoire. Ce sort était suffisant pour ébranler l'esprit de tous les présents!
 
-Le vieil homme nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
+Le vieil homme maigre nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
 
 Même Zhong Grand Rouge fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan du Tonnerre Dispersé, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
 
@@ -46,7 +46,7 @@ Ils virent Wang Lin descendre vers le deuxième étage alors que le plancher vol
 
 L'expression de Wang Lin resta impassible. Alors que la lumière fantomatique se refermait sur lui, sa main droite s'étira avec nonchalance. Une main gigantesque apparut et saisit la lueur. Malgré ses efforts désespérés, celle-ci ne put se libérer.
 
-La lumière fantomatique scintilla violemment dans cette main surgie de nulle part, révélant une perle pourpre qui irradiait une intensité croissante.
+La lumière fantomatique scintilla violemment dans cette main surgie de nulle part, révélant une perle pourpre à l'aura meurtrière saisissante, qui irradiait une intensité croissante.
 
 « Perle du Scorpion Noir, effondre-toi! » Un rugissement résonna et une aura destructrice émana de la perle en rotation. Juste avant qu'elle n'explose, la main droite de Wang Lin l'écrasa impitoyablement.
 
@@ -64,7 +64,7 @@ Sans même accorder un regard au jeune homme, Wang Lin frappa à nouveau le sol 
 
 « Ils sont vraiment comme des scorpions qui aiment se tapir dans l'obscurité souterraine, refusant toujours de paraître malgré tout cela... » murmura calmement Wang Lin en progressant vers l'étage suivant.
 
-Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan du Scorpion Noir étaient scellés et projetés dans les airs. Ils étaient désormais des dizaines.
+Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan du Scorpion Noir étaient scellés et projetés dans les airs. Ils étaient désormais bien plus que quelques dizaines.
 
 « Votre Excellence est allée trop loin!!! » Alors que Wang Lin poursuivait sa descente, un rugissement soudain jaillit des profondeurs de la tour.
 
@@ -90,9 +90,9 @@ Les cultivateurs aux alentours reculèrent tous avec anxiété. Ils étaient tot
 
 Au centre de la tour effondrée, les vêtements de Wang Lin flottaient sous l'effet du vent. Ses cheveux volaient au gré des courants, mais son corps demeurait immobile. Il retira sa main droite et regarda calmement vers le bas avant de dire froidement: « Vous avez blessé mon serviteur et maintenant vous prétendez que je vais trop loin? Vous êtes tous bien trop faibles. »
 
-Un crâne gigantesque de plus de dix mille pieds de large se dressait là. Il était initialement dissimulé par la tour, mais avec sa chute, tout ce qui se trouvait en dessous était désormais révélé.
+Un immense trou d'environ dix mille pieds de large s'ouvrait là. Il était initialement dissimulé par la tour, mais avec sa chute, tout ce qui se trouvait en dessous était désormais révélé.
 
-Au fond du crâne, un vieil homme était assis sur des pierres brisées. Il portait une robe noire ornée d'une broderie de scorpion. Ce motif était singulier: il possédait neuf queues!
+Au fond du trou, un vieil homme était assis sur des pierres brisées. Il portait une robe noire ornée d'une broderie de scorpion. Ce motif était singulier: il possédait neuf queues!
 
 Il portait également une marque de scorpion entre les sourcils, mais comparée à celle de sa robe, elle paraissait médiocre. Sa marque tribale n'avait que quatre queues!
 

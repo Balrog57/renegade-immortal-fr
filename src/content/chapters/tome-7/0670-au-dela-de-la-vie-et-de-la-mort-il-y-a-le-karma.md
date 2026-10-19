@@ -14,7 +14,7 @@ Bien que le Wang Lin de l'époque fût féroce, il manquait encore de finesse, e
 
 Le Wang Lin devant lui était calme, mais un seul de ses regards suffisait à faire trembler son âme originelle. Cette immense divergence était une réalité que Sun Tai ne pouvait accepter.
 
-Le Wang Lin d'autrefois n'avait qu'un statut inférieur et n'était considéré que comme un pion. Aucun des cultivateurs Ascendants ne le percevait comme une menace.
+Le Wang Lin d'autrefois n'avait qu'un statut inférieur et n'était considéré que comme un pion. Aucun des cultivateurs Ascendants ne le remarquait.
 
 Pourtant, dès l'apparition de Wang Lin, il avait immédiatement attiré l'attention de l'ancêtre de la famille Ran, au point de recevoir une pilule de rang 8. Quant à lui, il n'était qu'un simple invité de la famille Ran et avait perdu toute la gloire dont il jouissait autrefois.
 
@@ -110,7 +110,7 @@ Sun Tai sortit tout en contemplant le coucher du soleil. La lueur orangée l'acc
 
 Il avait retrouvé un vieil ami et ne savait vraiment pas quel sentiment l'habitait. Tandis que Wang Lin regardait la silhouette de Sun Tai, l'image du puissant Grand Ancien de la Secte des Cadavres qui avait combattu Zhou Yi et dérobé le cadavre féminin se superposa lentement à cette silhouette.
 
-Même après son départ, il n'avait pas demandé ce qu'était devenu l'enfant qu'il avait libéré autrefois. Peut-être avait-il vraiment tout abandonné pour simplement vivre ses vingt dernières années dans la tranquillité.
+Même après son départ, il n'avait pas demandé ce qu'était devenu l'enfant démon qu'il avait libéré autrefois. Peut-être avait-il vraiment tout abandonné pour simplement vivre ses vingt dernières années dans la tranquillité.
 
 Donner sa sacoche de rangement était pour lui une manière de dénouer un nœud dans son cœur. Cela signifiait qu'il avait renoncé à se rétablir, qu'il avait renoncé à tout, y compris au regret qui l'habitait depuis des centaines d'années passées ici.
 

@@ -10,7 +10,7 @@ Les paroles de Mu Bingmei étaient douces, comme si elle se remémorait le pass�
 
 La femme nommée Wang Shanshan cligna des yeux et sourit. « Petite sœur veut vraiment rencontrer quelqu'un que Grande Sœur Mu admire à ce point. »
 
-Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Tout a changé depuis notre séparation. Les chances qu'il vienne dans la Mer des Nuages sont minimes. »
+Mu Bingmei secoua la tête et dit doucement: « J'ai bien peur qu'il n'en soit rien. Après son départ, j'ignore où il est allé. Depuis notre séparation, il s'est éloigné jusqu'aux confins du ciel. Les chances qu'il vienne dans la Mer des Nuages sont minimes. »
 
 L'homme d'âge moyen de la Secte Éternelle était manifestement un haut dignitaire, sans quoi il ne siégerait pas aux côtés du Maître de la Secte. Après l'avoir entendue, il déclara calmement: « En écoutant la cultivatrice Mu, ma curiosité est également piquée. Cet homme est-il vraiment aussi talentueux qu'elle le prétend? Je me demande quel est son nom. J'espère que la cultivatrice Mu pourra me le révéler afin que, si l'occasion se présente un jour, je ne la laisse pas passer. »
 
@@ -18,7 +18,7 @@ Cette remarque était quelque peu impolie. Mu Bingmei fronça les sourcils et, l
 
 L'homme d'âge moyen rit, nullement offensé, et secoua la tête. « Un simple cultivateur du début du stade Purificateur du Nirvana... J'espérais seulement connaître son nom afin que, si je le croise, je puisse lui offrir une opportunité grandiose. Cependant, puisque la cultivatrice Mu refuse de le dire, passons! »
 
-Le Maître de la Secte Éternelle, le vieil homme vêtu de blanc, paraissait serein, mais son cœur n'était pas à la fête. Il jeta un regard à l'homme d'âge moyen, mais finit par garder le silence.
+Le Maître de la Secte Éternelle, le vieil homme vêtu de blanc, paraissait serein, mais il était intérieurement mécontent. Il jeta un regard à l'homme d'âge moyen, mais finit par garder le silence.
 
 Wang Shanshan, faisant preuve de finesse, sourit pour détourner l'attention. « Maître de la Secte, j'ai entendu dire que Grande Sœur Li est également présente. Je me demande où elle se trouve. »
 
@@ -32,7 +32,7 @@ Même l'expression de Mu Bingmei changea légèrement en entendant cela, et elle
 
 « Ancien Feng, vous l'avez vu de vos propres yeux, expliquez donc cela à tout le monde », dit l'Ancien vêtu de blanc en regardant Feng Hai.
 
-L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang Shanshan et Mu Bingmei en joignant les mains. Il parcourut la salle du regard et vit de nombreux vieux monstres l'observer. Il semblait que beaucoup ignoraient les détails et n'en avaient entendu que les rumeurs.
+L'expression de Feng Hai devint étrange alors qu'il se levait pour saluer Wang Shanshan et Mu Bingmei en joignant les mains. Il parcourut la salle du regard et vit de nombreux vieux cultivateurs l'observer. Il semblait que beaucoup ignoraient les détails et n'en avaient entendu que les rumeurs.
 
 À vrai dire, il n'était pas étonnant qu'ils soient perplexes. Li Qianmei était célèbre, et il était inattendu qu'elle soit proche d'une secte de rang 5. Et ce n'étaient pas de simples connaissances, puisqu'elle était prête à tuer un cultivateur d'une secte de rang 7 pour eux.
 
@@ -50,7 +50,7 @@ Feng Hai hocha la tête et répondit: « Cet individu nommé Lu est effectivemen
 
 « Lu Yuncong a affirmé que si Lu Zihao participait à la compétition, oubliez la première place parmi les sectes de rang 5; il pourrait être le numéro un parmi les sectes de rang 6 à lui seul. Il a également déclaré que Lu Zihao pourrait tuer Lu Yingjie aussi facilement qu'on écrase une fourmi! »
 
-« La raison pour laquelle la cultivatrice Li n'a pas achevé Lu Yingjie est qu'elle ne croyait pas ces paroles et voulait affronter Lu Zihao. Ainsi, la cultivatrice Li lui a laissé cette chance. »
+« La raison pour laquelle la cultivatrice Li n'a pas achevé Lu Yingjie est qu'il ne croyait pas ces paroles et voulait affronter Lu Zihao. Ainsi, la cultivatrice Li lui a laissé cette chance. »
 
 Après son récit, un silence immédiat s'installa. Les personnes présentes étaient toutes de très haut rang au sein de la secte. Ils appréciaient Lu Yuncong et souhaitaient le former. Cependant, en entendant par Feng Hai à quel point Lu Yuncong admirait Lu Zihao, leur attention se détourna vers ce mystérieux Lu Zihao.
 

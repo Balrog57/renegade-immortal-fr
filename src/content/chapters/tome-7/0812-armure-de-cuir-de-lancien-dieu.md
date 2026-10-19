@@ -10,11 +10,11 @@ Au moment où l'homme en robe bleue mourut, la porte de l'autel se referma. Bien
 
 Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de lueurs multicolores qui se dissipèrent lentement. Un instant plus tard, elles reprirent leur forme initiale: celle du Char de Guerre Anti-Dieu.
 
-Le cœur de Wang Lin se détendit, mais une fine couche de sueur perla sur son front. Cette sensation de transpiration froide était rare pour lui. Cependant, la vision d'un cultivateur au sommet du stade Corporel Yang dont le corps et l'âme originelle s'effondraient totalement suite à un simple battement d'aile du papillon l'avait profondément choqué.
+Le cœur de Wang Lin se détendit, mais une fine couche de sueur perla sur son front. Cette sensation de transpiration froide était rare pour lui. Cependant, la vision d'un cultivateur au sommet du stade Yang Corporel dont le corps et l'âme originelle s'effondraient totalement suite à un simple battement d'aile du papillon l'avait profondément choqué.
 
-« Avec ce Char de Guerre Anti-Dieu et la Paire Dao de la Décadence, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan des Immortels Élus retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
+« Avec ce Char de Guerre Anti-Dieu et la Paire de Dao Fanée, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan des Immortels Élus retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
 
-Au loin, Ta Shan revint blessé, tenant une grande marmite à la main. Il avait réussi à capturer la bête de brouillard qui s'en prenait aux enfants. Toutefois, ses blessures étaient si graves qu'à son retour, il sombra dans le coma.
+Au loin, Ta Shan revint blessé, tenant une grande marmite à la main. Il avait réussi à absorber la bête de brouillard qui s'en prenait aux enfants. Toutefois, ses blessures étaient si graves qu'à son retour, il perdit connaissance.
 
 Le temps passa et dix jours s'écoulèrent. Durant cette période, Wang Lin vécut avec le Clan des Immortels Élus. L'ancêtre lui avait préparé un endroit calme pour séjourner.
 
@@ -26,7 +26,7 @@ Outre le ciel, Wang Lin avait exploré tout le continent, mais sans trouver de s
 
 « Outre l'esprit du Fourneau Yin Mystérieux, il y avait aussi cet homme en robe bleue. Tout cela rend cet endroit extrêmement étrange. Cet homme prétendait être un immortel et le pouvoir qu'il maniait ressemblait à l'énergie spirituelle céleste, mais elle contenait également une aura d'énergie originelle.
 
-« C'était très similaire au Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. En tenant compte de la réaction des membres du Clan des Immortels Élus, il est fort probable que cet homme fût un véritable immortel! »
+« C'était très similaire au Seigneur Céleste Qing Shui du Royaume Céleste du Tonnerre. En tenant compte de la réaction des membres du Clan des Immortels Élus, il est possible que cet homme fût un véritable immortel! »
 
 Tandis qu'il réfléchissait, Wang Lin sortit de sa chambre et disparut. Il réapparut dans une plaine sur le flanc oriental du continent.
 
@@ -42,7 +42,7 @@ Wang Lin avança dans les hautes herbes et, un instant plus tard, atteignit une 
 
 Sans même examiner les sillons au sol, Wang Lin s'avança et s'assit au centre de la formation.
 
-Depuis qu'il avait relâché le crapaud tonnerre et le moustique, il ne les avait pas rappelés, les laissant errer librement. Quant à Xu Liguo, Wang Lin n'avait guère de souci à se faire.
+Depuis qu'il avait relâché le crapaud tonnerre et le moustique, il ne les avait pas rappelés, les laissant errer librement. Quant à Xu Liguo, Wang Lin ne se donnait même pas la peine de s'en occuper.
 
 C'était un lieu qu'il avait choisi pour sa culture. Après avoir nettoyé le terrain, il y avait disposé une formation de restriction. Avec la bête moustique et le crapaud tonnerre pour assurer la garde, il pouvait cultiver en relative sécurité.
 
@@ -74,7 +74,7 @@ Plusieurs jours passèrent en un éclair. Ce jour-là, une brume bleue émergea 
 
 Des filaments reliaient encore la brume bleue à l'armure. À cet instant, Wang Lin ouvrit les yeux, le regard sombre. Il leva la main et frappa impitoyablement!
 
-Les Coupures Célestes jaillirent. Ce qu'il tranchait, c'était la Loi elle-même! Il tranchait les derniers liens entre l'esprit de trésor et l'Armure de Cuir de l'Ancien Dieu!
+Les Coups Célestes jaillirent. Ce qu'il tranchait, c'était la Loi elle-même! Il tranchait les derniers liens entre l'esprit de trésor et l'Armure de Cuir de l'Ancien Dieu!
 
 Les filaments se rompirent dans un crépitement et la brume bleue s'élança vers le ciel. Wang Lin sortit alors le Drapeau d'Âmes au Milliard d'Âmes. Celui-ci se mua en une brume noire qui dévora la brume bleue.
 
@@ -98,6 +98,6 @@ L'âme originelle de ce messager résidait toujours dans le drapeau d'âmes. Ce 
 
 En observant le cadenas, Wang Lin projeta son sens divin sur l'objet. Après tout le temps passé à affiner ses nouveaux trésors, il parvint aisément à effacer l'empreinte laissée par l'ancien propriétaire. Le cadenas devint instantanément terne et tomba du ciel, que Wang Lin rattrapa de volée.
 
-Le regard de Wang Lin s'illumina alors qu'il fixait l'objet dans sa main en murmurant: « Cet objet n'est pas mal, mais comparé à la Paire Dao de la Décadence, il est encore bien insuffisant. Cependant, un sort capable de sceller les sorts d'autrui est très intéressant! »
+Le regard de Wang Lin s'illumina alors qu'il fixait l'objet dans sa main en murmurant: « Cet objet n'est pas mal, mais comparé à la Paire de Dao Fanée, il est encore bien insuffisant. Cependant, un sort capable de sceller les sorts d'autrui est très intéressant! »
 
 L'énergie originelle emplit la main droite de Wang Lin et il écrasa impitoyablement le cadenas doré.

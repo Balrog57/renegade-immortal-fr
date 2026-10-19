@@ -30,7 +30,7 @@ Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
 Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrait de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
 
-Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien, combinée au point stellaire entre ses sourcils, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
+Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien, combinée au point stellaire entre ses sourcils, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures dans tout l'est, qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
 
 « Tu es trop faible! »
 
@@ -60,11 +60,11 @@ Seul un rugissement qui fit trembler le système stellaire tout entier résonna 
 
 « Wang Lin, où diable es-tu?! »
 
-Des paroles au sens similaire furent également prononcées par Lu Yanfei sur le continent de Mo Luo, dans le Système Stellaire de la Mer des Nuages.
+Des paroles au sens similaire furent également prononcées par Lu Yanfei à la Secte de l'Origine, sur le continent de Mo Luo, dans le Système Stellaire de la Mer des Nuages.
 
 « Senior, où êtes-vous... Il ne reste qu'un an avant la compétition de la secte principale... Reviendrez-vous... »
 
-Dans le Système Stellaire de la Mer des Nuages, la Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces centaines d'années, le maître de la Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
+Dans le Système Stellaire de la Mer des Nuages, la Secte du Dao Pourpre s'était rapidement développé, s'approchant du rang des six plus grandes sectes de la région de niveau 5. Pourtant, durant ces cent ans, le maître de la Secte du Dao Pourpre, Lu Yuncong, avait toujours contemplé les étoiles comme s'il cherchait à se remémorer quelque chose. Seul le vieil homme qui l'accompagnait entendait parfois ses doux murmures:
 
 « Frère Lu, j'ai énormément bénéficié de notre débat sur le Dao il y a tant d'années. Pourtant, cent ans ont passé et je n'ai toujours aucune nouvelle de vous... Ma culture s'est améliorée. Si nous pouvions nous revoir, je voudrais débattre du Dao avec vous à nouveau... »
 

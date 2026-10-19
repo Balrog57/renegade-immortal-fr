@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 485 - Celestial Spell
 slug: sortilege-celeste
 ---
-L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein de l'étendard de l'âme. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
+L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau des âmes. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
 
 Dès son apparition, elle poussa un rugissement furieux et se jeta sur Wang Lin.
 
@@ -40,7 +40,7 @@ Cependant, les sceaux nécessitaient une transmission, tandis que les sorts cél
 
 Après l'effondrement du Royaume Céleste, une grande quantité de sorts célestes avait disparu, et leur nombre diminuait avec le temps. Les sorts célestes étaient classés par qualité: inférieure, moyenne et supérieure. Il existait également une qualité suprême, mais elle était si rare que Situ Nan n'en avait entendu parler que par des rumeurs, et n'en avait donc que peu parlé.
 
-Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les avait dérivés d'un sort céleste incomplet de qualité inférieure appartenant à Ye Wuyou.
+Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les avait dérivés, il y a bien des années, d'un sort céleste incomplet de qualité inférieure qu'il avait obtenu de Ye Wuyou, l'ancien Suzaku.
 
 Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après d'innombrables années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
 
@@ -94,7 +94,7 @@ C'était une branche fraîchement coupée, sur laquelle poussaient encore de jeu
 
 Bai Wei observa la branche avec un air pensif.
 
-« La culture de ce Wang Lin est étrange! Lorsque je l'ai rencontré sur la planète commerciale, j'avais senti qu'il possédait la même force que celle qu'il vient de manifester, et à l'époque, il n'utilisait même pas tous ces trésors et ces sorts. Ce Septième Frère cache bien des secrets... mais plus ses secrets sont nombreux, plus il est fascinant... » marmonna Bai Wei, le regard indéchiffrable.
+« La culture de ce Wang Lin est étrange! Lorsque je l'ai rencontré sur la planète commerciale, j'avais le sentiment qu'il aurait dû être plus fort qu'aujourd'hui, sans avoir besoin de tous ces trésors et sorts pour obtenir les mêmes effets. Ce Septième Frère cache bien des secrets... mais plus ses secrets sont nombreux, plus il est fascinant... » marmonna Bai Wei, le regard indéchiffrable.
 
 Il posa délicatement son index droit sur le coin de sa bouche...
 

@@ -34,7 +34,7 @@ Les dieux anciens osaient défier les cieux et le Dao. S'il devait s'incliner de
 
 Pourtant, c'était précisément ce que l'héritage du dieu ancien en lui exigeait!
 
-Reculer de dix pas, de cent pas, ou même rester immobile en luttant sans faiblir, restait faire preuve d'une volonté trop faible. Une telle attitude signifiait que le Dao que l'on suivait ne pouvait que se soumettre à la volonté des cieux!
+Reculer de dix pas, de cent pas, ou même rester immobile en luttant sans faiblir, restait un entre-deux trop médiocre. Une telle attitude signifiait que le Dao que l'on suivait ne pouvait que se soumettre à la volonté des cieux!
 
 Mais faire un seul pas était très différent. Cela signifiait la rébellion; cela signifiait le défi!
 
@@ -136,7 +136,7 @@ C'était comme si la grotte entière résidait dans son esprit. Par une simple p
 
 Il vit Situ Nan, Maître Fu Fengzi et leur compagnie, qui avaient disparu sous la mer de fleurs.
 
-D'une pensée, Maître Fu Fengzi, les trois frères Chen, Da Tou et Lei Ji disparurent. Situ Nan resta là, le sourcil froncé. Depuis la disparition de Wang Lin, il était sur ses gardes, et une lueur froide traversa ses yeux.
+D'une pensée, Maître Fu Fengzi, les trois frères Chen, Da Tou et Lei Ji disparurent. Situ Nan resta là, le sourcil froncé. Depuis que Wang Lin était entré dans le palais, il était sur ses gardes, et une lueur froide traversa ses yeux.
 
 À cet instant précis, l'expression de Situ Nan changea lorsqu'il sentit un Sens Divin passer près de lui. Ce Sens Divin lui était très familier.
 

@@ -24,13 +24,13 @@ Le jeune homme aux cheveux blancs était devenu, pour lui, la créature la plus 
 
 « Je suis le jeune maître de la Secte Dao Pourpre! Si vous me tuez, mon père, Lu Yuncong, massacrera tout le continent de Mo Luo! » Il était terrifié; il n'avait jamais éprouvé une telle peur auparavant. L'ombre du jeune homme aux cheveux blancs se rapprochait et envahissait tout son champ de vision.
 
-La bête spirituelle noire tremblait sous lui et continuait de reculer. Cette créature avait déjà éveillé son intelligence, et sa crainte envers Wang Lin n'était en rien moindre que celle qu'elle éprouvait pour son maître.
+La bête spirituelle noire tremblait sous lui et continuait de reculer. Cette créature avait déjà éveillé son intelligence, et sa crainte envers Wang Lin était presque aussi grande que celle de son jeune maître.
 
 Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins du monde, ma Secte Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
 
 Le lotus était d'un noir absolu et fleurissait d'une manière démoniaque. Il émettait une lumière étrange qui enveloppait le visage tordu du jeune homme. Juste au moment où il allait utiliser ce trésor que son père lui avait offert, un doigt apparut devant lui. Ce doigt semblait empreint de douceur, mais il s'abattit instantanément entre ses sourcils.
 
-Dans un fracas assourdissant, le jeune homme cracha du sang et sa vision se troubla. Deux filets de sang jaillirent de ses yeux. Son corps fut projeté en arrière comme un cerf-volant à la dérive, tandis que des bruits d'éclatement résonnaient dans sa chair. Une immense brume de sang jaillit de lui, teintant le ciel de rouge. C'était une scène atroce.
+Dans un fracas assourdissant, le jeune homme cracha du sang et sa vision se troubla. Deux filets de sang jaillirent de ses yeux. Son corps fut projeté en arrière comme un cerf-volant à la dérive, tandis que des bruits d'éclatement résonnaient dans sa chair. Une immense brume de sang jaillit de lui, teintant tout le trajet de rouge. C'était une scène atroce.
 
 Son âme originelle s'effondra. À cet instant, il sentit son cœur cogner violemment, comme si son corps flottait dans les airs. Ses battements devinrent de plus en plus faibles, comme si lui et son cœur appartenaient à deux mondes différents. Le son s'estompa progressivement jusqu'à ce qu'il ne puisse plus l'entendre.
 

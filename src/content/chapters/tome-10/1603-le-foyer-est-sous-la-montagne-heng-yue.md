@@ -24,7 +24,7 @@ Il fit un pas en avant et posa ses mains sur le dos de son compagnon de secte. I
 
 « J'ai compris le monde, alors qu'importe si je vois les immortels comme des fourmis? Oubliez ces deux-là; même si tous les immortels de la planète Suzaku venaient ici, qu'adviendrait-il? » Wang Lin leva les yeux, et des éclairs semblaient briller dans son regard. Ses longs cheveux flottaient au vent tandis qu'il buvait une gorgée de vin.
 
-Terrifié, le jeune homme sentit son cuir chevelu s'engourdir. Une telle chose dépassait son imagination. Bien que Wang Lin paraisse fragile, il percevait en lui une aura puissante et droite qui ne craignait ni les cieux ni la terre. Elle était comparable à un sortilège capable de les blesser, et elle lui imposait un profond respect.
+Terrifié, le jeune homme sentit son cuir chevelu s'engourdir. Une telle chose dépassait son imagination. Bien que Wang Lin paraisse fragile, il percevait en lui une aura puissante et droite qui ne craignait ni les cieux ni la terre. Elle était comparable à un sortilège capable de les blesser, et elle lui inspirait une terreur qui faisait trembler son âme, mêlée d'un profond respect.
 
 « Comment est-ce possible? Il n'est qu'un mortel, un simple mortel! Comment peut-il dégager une telle aura... cet homme... on ne peut pas l'offenser! »
 
@@ -34,7 +34,7 @@ Il n'osa pas partir ainsi, mais resta en suspens dans les airs, l'expression res
 
 Les environs devinrent soudainement silencieux.
 
-Wang Lin resta là et but une gorgée de vin. Une rafale de vent souffla, faisant flotter ses vêtements devant l'assemblée.
+Wang Lin resta là et but une gorgée de vin. Une rafale de vent souffla, faisant flotter avec grâce ses vêtements blancs devant l'assemblée.
 
 « Qu'y a-t-il d'impossible? » Wang Lin posa la cruche et son regard se posa sur la foule. Il vit Su Yi, au visage pâle, celui qui avait posé la question.
 
@@ -44,7 +44,7 @@ Su Yi baissa la tête et son corps se mit à trembler. Il lui fallut un long mom
 
 « Nous saluons le Grand Érudit de Zhao! » Tous les érudits joignirent les mains. Leurs yeux tremblants révélaient une révérence indescriptible. Ce qui s'était produit aujourd'hui resterait gravé en eux à jamais.
 
-Les nombreux vieillards dans les calèches à l'extérieur baissèrent la tête. Ils se résignaient à leur défaite!
+Les nombreux vieillards dans les calèches à l'extérieur baissèrent la tête. Ils étaient pleinement convaincus!
 
 Ils n'auraient jamais pu imaginer de leur vivant qu'un mortel puisse effrayer un immortel, mais ils en étaient désormais témoins. Un sentiment complexe de fierté naquit dans leurs cœurs.
 
@@ -62,9 +62,9 @@ Le temps passa. Le cycle de dix ans de cours de Wang Lin se poursuivit, mais per
 
 En un clin d'œil, huit années s'écoulèrent.
 
-Durant ces huit ans, Wang Lin passa de la quarantaine à un âge approchant la cinquantaine. Ses cheveux commençaient à blanchir.
+Durant ces huit ans, Wang Lin passa de la quarantaine à un âge approchant la cinquantaine. Près de la moitié de ses cheveux avaient blanchi.
 
-Pendant ces huit années, Wang Lin passait quelques jours chaque mois assis sur le bateau avec Grande Fortune, buvant du vin d'osmanthus. Il attendait toujours cette personne qui n'était pas venue, conformément à l'accord.
+Pendant ces huit années, Wang Lin passait quelques jours chaque mois assis sur le bateau avec Grande Fortune, buvant du vin d'osmanthus. Il attendait toujours cette personne qui ne s'était pas présentée comme convenu.
 
 Non seulement durant ces huit ans, mais il avait fait de même pendant les vingt années précédentes.
 
@@ -72,7 +72,7 @@ Au total, vingt-huit ans, vingt-huit changements entre le printemps et l'automne
 
 « Maître, qu'attendez-vous donc... » Grande Fortune était toujours en bonne santé, mais sa pingrerie s'était encore aggravée. Il regardait souvent son poignet droit d'un air absent, tentant de se souvenir de quelque chose qu'il ne parvenait toujours pas à saisir.
 
-Le visage de Wang Lin s'était marqué par l'âge et il leva les yeux vers le ciel. D'une voix rauque, il parla lentement: « J'attends moi-même... J'attends de me rencontrer. »
+Le visage de Wang Lin s'était marqué par l'âge et il leva les yeux vers le ciel. D'une voix rauque, il parla lentement: « J'attends moi-même... J'attends un rendez-vous avec moi-même. »
 
 Un oiseau blanc tournait toujours dans les airs. Il accompagnait Wang Lin depuis vingt-huit ans sans que rien ne change.
 
@@ -100,7 +100,7 @@ Ces deux femmes étaient très jeunes et d'une grande beauté. Elles se tenaient
 
 « Ce sont... elles... » Wang Lin fixa le bateau jusqu'à ce qu'il disparaisse. Dans son esprit, l'image de ce bateau par une nuit pluvieuse, il y a de cela plus de vingt ans, resurgit.
 
-Il afficha un sourire empreint de douceur. Il ne pouvait oublier la vue des nuages sombres comme de l'encre sous la pluie; comment il avait contemplé le monde majestueux en récitant un poème. Il se souvenait encore de son bonheur.
+Il afficha un sourire empreint de douceur. Il ne pouvait oublier, sous un arbre et sous la pluie, la vue des nuages sombres comme de l'encre; comment il avait contemplé le monde majestueux en récitant un poème. Il se souvenait encore de son bonheur.
 
 La réprimande de la jeune fille nommée Xu Fei résonnait encore à ses oreilles.
 

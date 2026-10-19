@@ -12,7 +12,7 @@ C'était comme si tout dans le monde avait disparu, et que cette hache géante �
 
 De nombreux cultivateurs devant le Grand Maître Yun Luo n'avaient pas encore reculé. Ils regardèrent avec stupeur la hache géante se précipiter vers eux!
 
-Le cultivateur du Royaume Extérieur en tête était un homme d'âge moyen vêtu de noir. Il n'eut que le temps de lever la main pour former un sceau, tentant inconsciemment de résister. Cependant, la hache passa simplement à travers lui.
+Le cultivateur du Royaume Extérieur en tête était un homme d'âge moyen vêtu de noir. Il n'eut que le temps de lever les bras devant lui pour former un sceau, tentant inconsciemment de résister. Cependant, la hache passa simplement à travers lui.
 
 Une ligne de sang apparut entre ses sourcils et s'étira rapidement sur tout son corps. Ses vêtements se déchirèrent dans un bruit sinistre. Son visage restait figé par l'horreur alors que des quantités massives de sang jaillissaient de son corps, le fendant en deux!
 
@@ -22,7 +22,7 @@ Il était impossible de décrire la vitesse de l'arme. Avant même que le hurlem
 
 Leurs corps s'effondrèrent tandis que l'écho du passage de la hache résonnait encore!
 
-Les cultivateurs qui les suivaient restèrent immobiles, tels des statues, jusqu'à ce que la hache les traverse comme une météorite. Une ligne de sang apparut entre leurs sourcils et ils moururent un à un.
+Les milliers de cultivateurs qui les suivaient restèrent immobiles, tels des statues, jusqu'à ce que la hache les traverse comme une météorite. Une ligne de sang apparut entre leurs sourcils et ils moururent un à un.
 
 Il semblait qu'aucune force ne puisse empêcher cette hache de transpercer tous les cultivateurs. L'arme se referma sur le Grand Maître Yun Luo, dont le visage était d'une pâleur mortelle.
 
@@ -52,7 +52,7 @@ Dans leur chute, deux filaments furent extraits par le sort de Wang Lin. Ils s'e
 
 « Que l'âme montre la voie, ouvre-toi! » Dans un rugissement, le vortex se mua en un trou noir. Cette obscurité était totale et nul ne savait vers où elle menait!
 
-Cependant, juste au moment où le trou noir apparut, le tatouage de tonnerre dans l'œil droit de Wang Lin étincela. Le Royaume Ji, scellé sous la forme d'un tonnerre accompagnateur, jaillit sans hésitation de son œil droit pour s'engouffrer dans le trou noir!
+Cependant, juste au moment où le trou noir apparut, le tatouage de tonnerre dans l'œil droit de Wang Lin étincela. Le Royaume Ji, scellé sous la forme de l'un des neuf tonnerres accompagnateurs, jaillit sans hésitation de son œil droit pour s'engouffrer dans le trou noir!
 
 Simultanément, l'essence du feu se précipita dans le vortex, suivant le tonnerre du Royaume Ji. Le tonnerre et le feu fusionnèrent dans leur course!
 
@@ -66,7 +66,7 @@ Elle ouvrit les yeux, révélant une terreur profonde. Cependant, son expression
 
 Dès l'apparition du vortex, des grondements de tonnerre commencèrent à retentir!
 
-Le tonnerre était rouge et, dès son apparition, il teignit le ciel d'un rouge sanglant. Un éclair de tonnerre pourpre descendit sur l'île où se trouvait le Grand Maître Yun Luo!
+Le tonnerre était rouge et, dès son apparition, il teignit le ciel d'un rouge sanglant. Un éclair de tonnerre rouge descendit sur l'île où se trouvait le Grand Maître Yun Luo!
 
 En descendant, l'éclair rouge grandissait sans cesse jusqu'à atteindre plus de mille pieds de long. C'était comme un coup de foudre céleste destiné à tout anéantir sur l'île!
 
@@ -86,9 +86,9 @@ Le tonnerre et le feu se mêlèrent. L'île tremblait violemment, comme si un ma
 
 Cet éclair rouge en forme de serpent se condensa rapidement sur la douce lumière protégeant le Grand Maître Yun Luo. Un instant plus tard, il percuta cette protection.
 
-La douce lumière commença à se distordre et à se contracter pour envelopper étroitement le corps du Grand Maître Yun Luo. Elle vacillait violemment dans une tentative désespérée de résister au tonnerre du Royaume Ji.
+La douce lumière commença à se distordre et à se contracter pour se maintenir à quelques dizaines de pieds du corps du Grand Maître Yun Luo. Elle vacillait violemment dans une tentative désespérée de résister au tonnerre du Royaume Ji.
 
-Cependant, la douce lumière était manifestement dépassée. Après avoir résisté quelques instants, elle s'effondra. L'infini éclair rouge se précipita alors vers le corps originel du Grand Maître Yun Luo!
+Cependant, la douce lumière était manifestement dépassée. Après avoir résisté quelques instants, elle s'effondra. Les éclairs rouges, sans fin, se précipitèrent alors vers le corps originel du Grand Maître Yun Luo!
 
 Face à l'arrivée de l'éclair, le Grand Maître Yun Luo agita amèrement sa main de jade. Un squelette noir apparut devant elle.
 
@@ -104,7 +104,7 @@ Sur le champ de bataille de la Mer des Nuages, Wang Lin se tenait là, brandissa
 
 L'océan de poison rugissait à travers les étoiles et des dizaines de milliers de bêtes-moustiques hurlaient en déferlant avec lui, chargeant vers les plus de cent mille cultivateurs du Royaume Extérieur!
 
-Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... plus de neuf cents planètes de culture jaillirent brusquement!
+Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... près de neuf cents planètes de culture jaillirent brusquement!
 
 Les renforts de Luotian étaient arrivés!
 

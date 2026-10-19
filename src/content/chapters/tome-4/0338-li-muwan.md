@@ -26,11 +26,11 @@ Le cœur de Wang Lin se serra davantage.
 
 La nuit venue, Wang Lin se tenait devant la pièce de pierre, le regard tourné vers Zhao. Son cœur l'appelait.
 
-À Zhao, dans les profondeurs de la montagne Heng Yue, un jeune homme aux cheveux roux et au visage aussi glacial qu'une glace éternelle ouvrit soudainement les yeux.
+À Zhao, dans les profondeurs de la montagne Heng Yue, un homme aux cheveux roux et au visage aussi glacial qu'une glace éternelle ouvrit soudainement les yeux.
 
 Lorsqu'il ouvrit les yeux, le tonnerre gronda soudain sur tout le pays de Zhao. C'était comme si une sorte de monstre venait de naître, et tous les cultivateurs furent secoués.
 
-Les yeux de son corps originel étaient empreints de froideur et de cruauté. Sur son front tourbillonnaient deux étoiles pourpres, et des éclairs violets enveloppaient son corps.
+Les yeux de son corps originel étaient empreints de froideur et d'indifférence. Sur son front tourbillonnaient deux étoiles violettes, et des éclairs violets enveloppaient son corps.
 
 Il tourna légèrement la tête. Son regard semblait pouvoir percer la terre alors qu'il fixait Chu au loin. Il se leva lentement, déchira le sol d'une main et, depuis les profondeurs de la terre, se dirigea à grands pas vers Chu.
 
@@ -92,7 +92,7 @@ Lui seul comprenait ce que c'était!
 
 Ce voile gris était la loi des cieux, c'était le cycle de la vie et de la mort, le signe imminent du trépas.
 
-Les yeux de Li Muwan témoignaient d'une profonde reluctance. Elle lança un regard nostalgique à Wang Lin, puis observa les environs avant de fermer lentement les paupières. Une larme glissa du coin de son œil.
+Les yeux de Li Muwan témoignaient d'une profonde réticence. Elle lança un regard nostalgique à Wang Lin, puis observa les environs avant de fermer lentement les paupières. Une larme glissa du coin de son œil.
 
 La larme tomba lentement, produisant un faible bruit lorsqu'elle toucha le sol.
 
@@ -122,7 +122,7 @@ Le corps de Li Muwan se changea très vite en ossements desséchés qui, tombant
 
 Cependant, alors que le parchemin de la vie et de la mort de Wang Lin couvrait le ciel, la vitesse de dissipation de son Âme Naissante ralentit.
 
-Wang Lin chargea alors et apparut dans les airs. Il tendit la main vers le parchemin et le tira vers lui. Le parchemin enveloppa promptement l'Âme Naissante de Li Muwan.
+Wang Lin chargea alors et apparut dans les airs. Il tendit la main vers le parchemin et le tira vers lui. Les deux parchemins, le principal et l'auxiliaire, enveloppèrent promptement l'Âme Naissante de Li Muwan.
 
 Une fois le parchemin déployé, une scène étrange se produisit. Des nuages rouges recouvraient le ciel, et deux lueurs terrifiantes apparurent au sein des volutes pourpres. Elles semblaient observer Wang Lin.
 

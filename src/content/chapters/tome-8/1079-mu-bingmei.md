@@ -64,7 +64,7 @@ Avec un sourire misérable, Wang Lin leva à nouveau son épée. Le vingt-sixiè
 
 À cet instant, l'expression de l'Omniscient changea. Il fixa Wang Lin et réfléchit:
 
-« Ce que tu fais est inutile... Avec ma culture du Premier Fléau Céleste, il te faudrait au moins trente coups avec ce trésor du Pseudo-Nirvana du Vide pour m'empêcher d'avancer. »
+« Ce que tu fais est inutile... Avec ma culture du Premier Fléau Céleste, il te faudrait au moins trente coups avec ce trésor du Pseudo-Vide du Nirvana pour m'empêcher d'avancer. »
 
 « Est-ce donc vrai... » La vision de Wang Lin était encore floue, mais sa main droite ne s'arrêta pas et fendit à nouveau l'air. Les éclats d'épée sifflèrent autour de l'Omniscient et le vingt-septième coup apparut!
 
@@ -78,7 +78,7 @@ Et cela ne s'arrêta pas. Après le trentième, les trente et unième et trente-
 
 « Trente-trois coups!! » Wang Lin poussa un rugissement terrifiant, et une quantité colossale de sang jaillit de son corps pour former l'ultime assaut: le trente-troisième coup!
 
-Ces trente-trois frappes encerclèrent l'Omniscient et, d'un ultime geste de Wang Lin, libérèrent une énergie d'épée capable de transpercer le Domaine de l'Esprit Démon. Elle charriait une puissance monstrueuse et une intention meurtrière sans pareille en chargeant l'Omniscient.
+Ces trente-trois frappes encerclèrent l'Omniscient et, d'un ultime geste de Wang Lin, libérèrent une énergie d'épée capable de transpercer la Terre des Esprits Démoniaques. Elle charriait une puissance monstrueuse et une intention meurtrière sans pareille en chargeant l'Omniscient.
 
 La rouille de l'épée de fer fusionna avec la lumière de la lame.
 
@@ -94,11 +94,11 @@ Même le Démon Ancien Ta Jia afficha un regard étrange.
 
 « Petit Lin! » Situ Nan, qui combattait l'avatar de l'Omniscient, était couvert de sang. À cet instant, il fixait la position de Wang Lin, les yeux injectés de sang!
 
-Une tempête d'épées surgit là où se trouvaient Wang Lin et l'Omniscient, une tempête qui s'élançait jusqu'aux cieux. Le Domaine de l'Esprit Démon entier trembla violemment, la terre s'effondra et le ciel changea de couleur.
+Une tempête d'épées surgit là où se trouvaient Wang Lin et l'Omniscient, une tempête qui s'élançait jusqu'aux cieux. La Terre des Esprits Démoniaques entière trembla violemment, la terre s'effondra et le ciel changea de couleur.
 
 Tandis que des grondements tonnants résonnaient, le firmament fut déchiré, révélant l'espace infini au-delà!
 
-Lorsque la tempête d'épées balaya tout sur son passage, le Domaine de l'Esprit Démon s'effondra. Alors que le ciel s'écroulait, les forces infinies du ciel et de la terre se déversèrent.
+Lorsque la tempête d'épées balaya tout sur son passage, la Terre des Esprits Démoniaques s'effondra. Alors que le ciel s'écroulait, les forces infinies du ciel et de la terre se déversèrent.
 
 Cet impact féroce provoqua une onde de choc titanesque. Une fois l'impact dissipé, l'Omniscient se tenait là, calme. Dans sa main, il tenait un trident exhalant une aura antique!
 
@@ -114,7 +114,7 @@ Ces sourires n'existaient que dans les profondeurs de son cœur; c'était son so
 
 « Vous... m'attendiez... » Les yeux de Wang Lin étaient emplis de confusion. Il murmura cela pour lui-même dans sa chute.
 
-« C'est juste que pour Situ... Zhou Yi... je n'ai pu tenir ma promesse... Je suis désolé... » Wang Lin ferma les yeux, et au moment même où il le fit, deux silhouettes apparurent dans le ciel surplombant le Domaine de l'Esprit Démon.
+« C'est juste que pour Situ... Zhou Yi... je n'ai pu tenir ma promesse... Je suis désolé... » Wang Lin ferma les yeux, et au moment même où il le fit, deux silhouettes apparurent dans le ciel surplombant la Terre des Esprits Démoniaques.
 
 Il s'agissait d'un homme et d'une femme. L'homme était le vieillard du Royaume du Vide Brillant et la femme était... Mu Bingmei!
 
@@ -122,7 +122,7 @@ La beauté absolue et la froideur infinie de Mu Bingmei s'effondrèrent lorsqu'e
 
 Un sentiment complexe et inconnu envahit son esprit. À cet instant, elle perdit le contrôle d'elle-même, fit un pas et se précipita vers lui.
 
-Le vieil homme à ses côtés fronça les sourcils et soupira. Il ne l'arrêta pas, mais tourna son regard vers tous les habitants du Domaine de l'Esprit Démon.
+Le vieil homme à ses côtés fronça les sourcils et soupira. Il ne l'arrêta pas, mais tourna son regard vers tous les habitants de la Terre des Esprits Démoniaques.
 
 Mu Bingmei fut comme un papillon gracieux lorsqu'elle atteignit Wang Lin et le prit dans ses bras. En contemplant cet homme si proche d'elle, la complexité de ses émotions ne put s'atténuer.
 

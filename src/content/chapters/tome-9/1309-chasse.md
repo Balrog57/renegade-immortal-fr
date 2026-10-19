@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1309 - Hunt ! !"
 slug: chasse
 ---
-« Tuo Sen! » À l'instant où Wang Lin fusionna avec le monde, une lueur de froideur traversa son regard alors qu'il contemplait la silhouette gigantesque derrière lui. Bien qu'il fût encore à distance, le corps de Tuo Sen était d'une démesure extrême. Son simple rugissement était capable de faire vaciller l'énergie originelle du monde.
+« Tuo Sen! » À l'instant où Wang Lin fusionna avec le monde, une lueur de froideur traversa son regard alors qu'il contemplait la silhouette gigantesque derrière lui. Bien qu'il fût encore à distance, le corps de Tuo Sen était d'une démesure extrême. Son simple rugissement était capable de faire presque s'effondrer l'énergie originelle du monde.
 
 « Il est donc bel et bien dans le Royaume Extérieur! » Wang Lin disparut.
 
@@ -14,7 +14,7 @@ Peu après sa disparition, un grondement tonitruant retentit et un corps colossa
 
 S'il n'y avait eu qu'un ou deux cultivateurs du troisième niveau, il ne s'en serait pas inquiété; il est probable qu'il les aurait même éliminés. Cependant, ce n'était pas un ou deux, mais bien trois cultivateurs du troisième niveau qui le poursuivaient!
 
-L'un d'eux se trouvait au stade du Vide Spirituel. Bien qu'il n'ait pas encore subi sa rétribution, il pouvait déjà manier des sorts capables de déchirer les cieux! Cela suffisait à lui seul à donner des maux de tête à Tuo Sen.
+L'un d'eux se trouvait au stade du Vide Spirituel. Bien qu'il ne fût encore qu'au stade intermédiaire, il pouvait déjà manier des sorts capables de déchirer les cieux! Cela suffisait à lui seul à donner des maux de tête à Tuo Sen.
 
 Tuo Sen était déjà blessé lorsqu'il avait brisé la Formation du Royaume Scellé, et ayant dû faire exploser les cultivateurs du troisième niveau qu'il avait capturés dans ses étoiles, il se trouvait à son point le plus vulnérable. Toutefois, sa constitution physique était une chose que Wang Lin ne pouvait égaler!
 
@@ -36,7 +36,7 @@ Tuo Sen parvint près de la Formation du Royaume Scellé dans un fracas de tonne
 
 Chasser!!
 
-Quoi qu'il en coûte, il devait capturer Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur!
+Quoi qu'il en coûte, il devait rattraper Wang Lin et le dévorer. Puis, il se retournerait pour dévorer les trois cultivateurs du troisième niveau qui le traquaient, afin d'apaiser la rage de son cœur!
 
 Wang Lin fusionna avec le monde et utilisa la Déformation Spatiale sans aucune cible précise. Il déploya toute sa puissance pour s'éloigner le plus possible.
 
@@ -100,7 +100,7 @@ Alors qu'il approchait, un cri strident retentit sur la planète et la formation
 
 Toutefois, la vitesse d'activation de la formation était bien trop lente pour lui! En un éclair, il chargea à travers la formation alors qu'elle s'ouvrait. Le brouillard noir se fragmenta en des centaines, des milliers, des dizaines de milliers de particules qui se répandirent sur la planète et commencèrent un festin dévorant!
 
-Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité et leur sang étaient aspirés par l'obscurité.
+Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de ressentiment. Tous les cultivateurs furent encerclés par le brouillard noir. Leur chair se flétrissait, tandis que toute leur vitalité, leur sang et leur âme originelle étaient aspirés par l'obscurité.
 
 Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel démon ose venir dévorer sur ma planète Mo Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
 

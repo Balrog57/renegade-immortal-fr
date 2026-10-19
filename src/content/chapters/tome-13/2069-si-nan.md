@@ -36,7 +36,7 @@ Cet homme portait également une armure. Après avoir atterri, il se mit à geno
 
 Au sein du groupe, un vieil homme dégageait une aura de puissance sans même avoir besoin de manifester sa colère. Il se trouvait au centre de l'escorte et ordonna promptement: « Continuez les reconnaissances! L'avant-garde doit aller accueillir le groupe du Roi Nan! »
 
-Dès qu'il eut fini de parler, un homme d'âge mûr s'avança prestement. Après avoir salué le vieil homme, il partit avec dix mille soldats du camp, soulevant un immense nuage de poussière dans son sillage.
+Dès qu'il eut fini de parler, un homme d'âge mûr s'avança prestement. Après avoir salué le vieil homme, il partit avec plus de dix mille soldats du camp, soulevant un immense nuage de poussière dans son sillage.
 
 Aux côtés du vieux général, un fonctionnaire s'approcha et murmura: « Grand Général, ce Roi Nan semble arriver... avec de mauvaises intentions. »
 
@@ -46,7 +46,7 @@ Aux côtés du vieux général, un fonctionnaire s'approcha et murmura: « Grand
 
 Le vieux général restait silencieux, comme s'il n'avait rien entendu. Il demeurait immobile, mais une lueur de froideur traversa son regard. Cette froideur s'intensifia tandis qu'une aura puissante l'enveloppait.
 
-En tant que Grand Général de la frontière, contrôlant près d'un demi-million d'hommes sans être issu de la noblesse, il suscitait naturellement l'envie et le mécontentement. Si le pays de Wu Xuan n'avait pas absolument besoin d'un général invincible comme lui, il aurait été contraint à la retraite depuis longtemps.
+En tant que Grand Général de la frontière, contrôlant près d'un demi-million d'hommes sans appartenir à la famille royale, il suscitait naturellement l'envie et le mécontentement. Si le pays de Wu Xuan n'avait pas absolument besoin d'un général invincible comme lui, il aurait été contraint à la retraite depuis longtemps.
 
 « On raconte que le Roi Nan est extrêmement arrogant et attache une importance démesurée aux apparences. Si la cérémonie d'accueil n'est pas assez grandiose, il risque de s'offusquer... Grand Général, ne devrions-nous pas envoyer plus d'hommes? »
 
@@ -62,7 +62,7 @@ Après son allocution, l'expression des subordonnés devint grave et ils joignir
 
 « Roi Nan... » Le vieux général regardait au loin et ricana intérieurement. Il détestait ce titre de « Roi Nan »; à ses yeux, celui qui s'apprêtait à venir ne méritait pas qu'on l'appelle ainsi.
 
-À cinquante kilomètres de là, une luxueuse calèche d'une centaine de pieds de long progressait sur la route impériale, précédant un convoi s'étendant sur près d'un kilomètre. Des guerriers vêtus de simples habits accompagnaient les véhicules.
+À cinquante kilomètres de là, une luxueuse calèche d'une centaine de pieds de long progressait sur la route impériale, précédant un convoi s'étendant sur près d'un demi-kilomètre. Des guerriers vêtus de simples habits accompagnaient les véhicules.
 
 Des sons de musique s'échappaient de la grande calèche, mêlés aux rires des femmes. L'intérieur semblait particulièrement animé.
 

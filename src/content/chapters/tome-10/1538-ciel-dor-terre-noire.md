@@ -10,7 +10,7 @@ slug: ciel-dor-terre-noire
 
 L'apparition de ce sceau fit instantanément bouillir le nouveau sang qui coulait dans ses veines.
 
-À l'origine, la puissance de son lignage et celle de l'Ordre Antique étaient parvenues à un équilibre. Bien que le sang possédât l'avantage, il ne parvenait pas à détruire la puissance de l'Ordre Antique.
+À l'origine, la puissance de son lignage et celle de l'Ordre Antique étaient parvenues à un équilibre. Bien que la puissance de l'Ordre Antique fût réprimée, elle ne pouvait être détruite.
 
 Cependant, l'apparition de cette marque agit comme un signal de guerre. La puissance de son lignage monta soudainement en flèche, tentant de briser la puissance de l'Ordre Antique.
 
@@ -96,9 +96,9 @@ Le fou, allongé là, ouvrit soudainement les yeux et fixa la perle. Il murmura:
 
 Un fracas tonitruant retentit. La puissance du ciel d'or et de la terre noire entra en collision avec la Perle Défiant le Ciel!
 
-La Perle tourna lentement. Après une rotation, le ciel d'or fut instantanément absorbé par la perle. Puis, un corps doré apparut soudainement à l'extérieur de celle-ci!
+La Perle tourna lentement. Après une rotation, le ciel d'or, y compris la silhouette de Wang Lin, fut instantanément absorbé par la perle. Puis, un corps doré apparut soudainement à l'extérieur de celle-ci!
 
-La Perle tourna à nouveau. Lors de la deuxième rotation, le Dieu Ancien fut absorbé au même titre que le ciel d'or. La puissance du Dieu Ancien imprégna l'origine céleste dorée pour former le corps d'un Dieu Ancien!
+La Perle tourna à nouveau. Lors de la deuxième rotation, le Dieu Ancien fut absorbé au même titre que le ciel d'or. La puissance du Dieu Ancien enveloppa l'origine céleste dorée pour former le corps d'un Dieu Ancien!
 
 Cependant, ce corps de Dieu Ancien émettait une faible lueur dorée! C'était Wang Lin!
 

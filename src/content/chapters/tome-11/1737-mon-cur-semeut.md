@@ -6,17 +6,17 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1737 - My Heart Happens to Stir!"
 slug: mon-cur-semeut
 ---
-Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, l'expression sombre sur le visage du vieil homme en robe dorée disparut pour laisser place à un sourire.
+Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, l'expression sombre sur le visage du vieil homme en robe dorée disparut pour laisser place à un sourire sinistre.
 
 « La Roue du Cœur aux Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »
 
 « Vous avez dit que cet homme était très rusé et très intelligent dès la planète Suzaku. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de culture a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon! »
 
-« Plus une personne est intelligente, plus il lui est difficile de s’en libérer! Ce n'est que le premier cycle; plus on avance, plus son potentiel destructeur est grand. Une fois qu'il atteindra les neuf cycles, il sera piégé là pour la vie, jusqu'à ce que son énergie mentale soit épuisée et qu'il meure! »
+« Plus une personne est intelligente, plus il lui est difficile de s’en libérer! Ce n'est que le premier cycle; plus on avance, plus la menace mortelle qu'elle représente est grande. Une fois qu'il atteindra les neuf cycles, il sera piégé là pour la vie, jusqu'à ce que son énergie mentale soit épuisée et qu'il meure! »
 
 En entendant cela, Na Duo sourit. Il joignit les mains en signe de respect envers le vieil homme et dit: « Avec l'Ancêtre ici, cet homme ne pourra pas s'échapper. »
 
-Le vieil homme en robe dorée rit et regarda son bras droit. Une pointe de cruauté perçait son regard. Même à présent, son bras droit ressentait encore une douleur lancinante. Même lorsqu'il utilisait son énergie céleste, celle-ci ne parvenait pas à apaiser toute la souffrance.
+Le vieil homme en robe dorée rit et regarda son bras droit. Une pointe de rancune perçait son regard. Même à présent, son bras droit ressentait encore une douleur lancinante. Même lorsqu'il utilisait son énergie céleste, celle-ci ne parvenait guère à l'apaiser.
 
 À l'extérieur de la planète, le Grand Empyréen Xuan Luo, qui observait la scène depuis le début, plissa les yeux.
 
@@ -46,7 +46,7 @@ Une lueur de froideur traversa le regard de Wang Lin. Sans l'ombre d'une hésita
 
 Il réalisa qu'il avait marché sur place au lieu de progresser vers la planète. La distance entre eux était restée inchangée et la planète tournait toujours!
 
-C'était comme si la planète elle-même s'était déplacée!
+C'était comme si, à chaque mouvement de Wang Lin, la planète bougeait aussi!
 
 Wang Lin réfléchit silencieusement. À cet instant, la deuxième série de neuf respirations passa et le troisième cycle commença. La planète tournoyait encore plus vite, devenant un flou indistinct aux yeux de Wang Lin.
 
@@ -56,7 +56,7 @@ Cette augmentation de vitesse rendit la planète bien plus floue. Désormais, el
 
 Le visage de Wang Lin pâlit légèrement et il ne put réprimer l'irritation qui montait en lui. Celle-ci devint de plus en plus forte, tout comme la rotation de la planète!
 
-« Quelque chose ne va pas! » Wang Lin recula rapidement. Cependant, peu importe sa vitesse de retraite, la distance entre lui et la planète des Cinq Éléments n'augmentait absolument pas!
+« Quelque chose ne va pas! » Wang Lin recula rapidement. Cependant, peu importe sa vitesse de retraite, la distance entre lui et la planète des Cinq Éléments ne diminuait absolument pas!
 
 Ce changement aberrant choqua le cœur de Wang Lin, et l'irritation devint plus intense encore. À ce moment, la quatrième série de neuf respirations s'écoula et la planète entra dans son cinquième cycle.
 
@@ -112,4 +112,4 @@ De même, à l'extérieur de la planète, le Grand Empyréen Xuan Luo secouait l
 
 À l'intérieur de la formation, lorsque la première respiration du neuvième cycle arriva, Wang Lin ferma soudainement les yeux.
 
-« Mon cœur s’émeut... Mon cœur s'est ému! Mon cœur a été agité, et par conséquent, mon corps, mon âme et tout le reste, y compris la planète, sont en mouvement... Tout cela arrive parce que mon cœur n'est pas calme! » Les filaments de sang dans les yeux de Wang Lin disparurent et la folie s'évanouit. Toute irritation s'effaça et son cœur devint aussi calme que l'eau d'un lac.
+« Mon cœur s’émeut... Mon cœur s'est ému! Mon cœur a été agité, et par conséquent, mon corps, mon âme et tout le reste, y compris la planète, sont en mouvement... Tout cela arrive parce que mon cœur n'est pas calme! » Les filaments de sang dans les yeux de Wang Lin disparurent et la folie s'évanouit. Toute irritation s'effaça et son cœur devint aussi immobile que l'eau d'un vieux puits.

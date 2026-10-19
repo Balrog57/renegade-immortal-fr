@@ -72,7 +72,7 @@ L'intention meurtrière dans les yeux du cultivateur du Clan de l'Hirondelle de 
 
 Le visage du cultivateur du Clan du Loup Céleste changea radicalement. Les poils verts sur son bras s'allongèrent jusqu'à recouvrir la majeure partie de son torse. Son bras droit se métamorphosa soudainement en une tête de loup gigantesque!
 
-« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan du Loup Céleste lança un coup de poing. Un hurlement de loup terrifiant résonna et son bras droit vola en éclats, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
+« Va retrouver ton Seigneur du Royaume Scellé dans les enfers! » Dans un rugissement, le cultivateur du Clan du Loup Céleste lança un coup de poing. Un hurlement de loup terrifiant résonna et son bras droit se détacha de son corps, se transformant en un loup géant qui fonça sur Maître Yan Leizi!
 
 Simultanément, le cultivateur du Clan de l'Hirondelle de Feu poussa un rugissement. L'oiseau de feu noir laissa échapper un sifflement tandis qu'une mer monstrueuse de flammes noires l'enveloppait. Il chargea vers Maître Yan Leizi à une vitesse fulgurante, aux côtés du loup géant.
 

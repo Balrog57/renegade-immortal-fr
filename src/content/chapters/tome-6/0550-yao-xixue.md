@@ -42,13 +42,13 @@ Tout en parlant, il joignit les mains en signe de respect avant de s'éloigner. 
 
 Une fois les deux hommes partis, Sima Yan resta pensif un long moment avant de dire respectueusement à Wang Lin: « J'ai fait preuve d'imprudence dans cette affaire. J'espère que le Commandant ne m'en tiendra pas rigueur! »
 
-À ces mots, une lueur mystérieuse passa dans les yeux de plusieurs chefs de régiment. L'un d'eux s'avança immédiatement et dit avec respect: « Ce subordonné a également été imprudent dans cette affaire. »
+À ces mots, une lueur mystérieuse passa dans les yeux de plusieurs chefs de régiment. L'un d'eux hésita un instant, puis s'avança et dit avec respect: « Ce subordonné a également été imprudent dans cette affaire. »
 
 Peu après, tous les autres chefs de régiment firent la même déclaration.
 
 L'issue de ce conflit était décidée d'avance. Les personnes présentes n'étaient pas stupides et avaient déjà percé à jour les méthodes de Wang Lin.
 
-Tout aurait été simple si ce nouveau commandant s'était contenté de ne rien faire, mais lorsqu'il agissait, il frappait avec la rapidité de l'éclair. Si ces luttes intestines persistaient, le sort du chef de régiment Sun risquait de se répéter!
+Lorsque ce nouveau commandant décidait d'agir, il frappait comme la foudre. Si ces luttes intestines persistaient, le sort du chef de régiment Sun risquait de se répéter!
 
 De plus, à en juger par le niveau de culture du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
 
@@ -60,7 +60,7 @@ Une poussière épaisse envahit l'air, comme si elle recouvrait le monde entier.
 
 En un instant, une pagode de terre apparut au milieu du camp militaire.
 
-C'était une construction à deux étages qui, bien que rudimentaire, dégageait une aura de majesté.
+C'était une construction à deux étages qui, bien que d'une couleur uniforme, dégageait une aura de majesté.
 
 D'un simple mouvement de la main, Wang Lin avait été capable de prélever une couche de terre de 3,3 centimètres sur tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
 
@@ -128,7 +128,7 @@ Il montrait rarement son visage, mais sa prestance grandissait de jour en jour, 
 
 Au cours des mois passés, Hu Pao s'était senti comme un poisson dans l'eau au sein du camp militaire. Sa personnalité extravertie avait fait que, malgré quelques frictions initiales, les tensions s'étaient dissipées avec le temps. Ses interactions avec les différentes unités de l'armée s'étaient intensifiées.
 
-Cela était particulièrement vrai pour une chef de régiment nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur; depuis lors, il était éperdument amoureux d'elle.
+Cela était particulièrement vrai pour une chef de régiment nommée Xu You. Dès qu'il l'eut aperçue, Hu Pao fut frappé de stupeur; depuis lors, il se montrait très empressé auprès d'elle.
 
 De son côté, Treize restait assis dans la pagode, cultivant toute la journée tel un gardien immuable. Il manifestait une indifférence totale envers quiconque, hormis Wang Lin.
 

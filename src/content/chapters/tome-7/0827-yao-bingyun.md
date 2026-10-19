@@ -12,7 +12,7 @@ Des ondulations apparurent dans une zone étoilée et lumineuse du Système Stel
 
 « Pour l'instant, je dois trouver un endroit pour me rétablir. Une fois guéri, j'irai causer encore plus de problèmes à la famille Yao! »
 
-Au moment où la silhouette de Wang Lin disparut, des ondulations se formèrent et une beauté glaciale en sortit. Après être apparue, elle fronça les sourcils, fixa l'endroit où Wang Lin s'était volatilisé et murmura: « Utiliser la Distorsion Spatiale deux fois de suite... la maîtrise de l'énergie d'origine du monde par ce Xu Mu est prodigieuse! »
+Au moment où la silhouette de Wang Lin disparut, des ondulations se formèrent et une beauté glaciale en sortit. Après être apparue, elle fronça les sourcils, fixa l'endroit où Wang Lin s'était volatilisé et murmura: « Utiliser la Distorsion Spatiale deux fois de suite... la maîtrise des forces naturelles par ce Xu Mu est prodigieuse! »
 
 Si quelqu'un connaissant bien la famille Yao se trouvait là, il l'aurait reconnue. Elle s'appelait Yao Bingyun et, dans le Domaine Oriental, elle était considérée comme l'un des trois phénix!
 
@@ -76,7 +76,7 @@ Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût p
 
 Yao Bingyun gardait un visage impassible. Sa main effleura une sacoche d'où surgit immédiatement un petit miroir. Sa main gauche traça un sceau, comme pour effectuer une déduction. Après s'être reposée un court instant, elle se fusionna à son tour avec le monde.
 
-La silhouette de Wang Lin apparut près d'une planète de culture abandonnée, à la frontière des Domaines Occidental et Nordique. Lorsqu'il émergea, son visage était livide. Après tout, il avait été gravement blessé et contraint à une fuite effrénée. De plus, la fusion prolongée avec le monde avait aggravé ses blessures. À cet instant, ses yeux s'illuminèrent; après avoir constaté que sa poursuivante avait été totalement distancée, il poussa un soupir de soulagement.
+La silhouette de Wang Lin apparut près d'une planète de culture abandonnée, à la frontière des Domaines Occidental et Nordique. Lorsqu'il émergea, son visage était livide. Après tout, il avait été gravement blessé, avait vu plus de dix adversaires s'enfuir et était contraint à une fuite effrénée. De plus, la fusion prolongée avec le monde avait aggravé ses blessures. À cet instant, ses yeux s'illuminèrent; après avoir constaté que sa poursuivante avait été totalement distancée, il poussa un soupir de soulagement.
 
 « La famille Yao a sans doute déjà lancé son plan. Désormais, chaque pas sera un combat! » Le corps de Wang Lin vacilla alors qu'il se précipitait vers la planète déserte.
 
@@ -100,7 +100,7 @@ Deux jours passèrent, et les os de Ta Shan furent consolidés. Bien qu'encore a
 
 Une intention meurtrière traversa le regard de Wang Lin alors qu'il s'élançait dans les airs. Ta Shan le suivit promptement en se fondant dans l'ombre de son maître.
 
-Alors que Wang Lin s'élevait, sa main droite fit un geste: la brume noire se rassembla pour former un immense drapeau qu'il rangea aussitôt dans sa sacoche.
+Alors que Wang Lin s'élevait, sa main droite fit un geste: la brume noire se rassembla pour former un immense drapeau de cent pieds qu'il rangea aussitôt dans sa sacoche.
 
 C'est à ce moment précis que la silhouette gracieuse de Yao Bingyun apparut à l'orée de la planète où Wang Lin s'était soigné. Le visage froid, elle sortit un miroir et l'interrogea. L'image reflétée montrait Wang Lin s'envolant vers le ciel.
 

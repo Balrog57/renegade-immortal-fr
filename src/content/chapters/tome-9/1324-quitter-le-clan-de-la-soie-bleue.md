@@ -16,7 +16,7 @@ Ce n'est que grâce à leur aide que le Clan de la Lune trouva la confiance et l
 
 Cependant, même aujourd'hui, le Clan de la Lune n'a pas été en mesure de deviner l'identité de ce groupe mystérieux de cultivateurs. Même l'ancêtre de la troisième étape du Clan de la Lune n'en savait pas grand-chose.
 
-La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaient avoir conclu des accords avec de nombreux clans, tout en n'ayant que peu de liens avec les concubines impériales antiques...
+La rumeur disait que les cultivateurs mystérieux apparus soudainement semblaient avoir eu des contacts avec de nombreux clans, tout en n'ayant que peu de liens avec les concubines impériales antiques...
 
 Le caractère « dévorer » du nom du clan avait été inspiré par ces gens, qui avaient aussi transmis au Clan de la Lune un sort étrange et insondable qui leur permettait d'absorber le pouvoir des dieux anciens!
 
@@ -42,13 +42,13 @@ Wang Lin était parti.
 
 Au moment de son départ, sur le Mont Bleu, le Maître du Dao Rêve Bleu jouait encore de la cithare sans lever la tête. Li Qianmei cultivait silencieusement, comme si elle n'avait rien remarqué...
 
-Wang Lin utilisa la courbure spatiale pour fusionner avec le monde et, après quelques respirations, des ondulations apparurent quelque part dans le Système Stellaire Antique. Une distorsion émanait de ces ondulations, comme si une silhouette était sur le point de s'y manifester.
+Wang Lin utilisa la Déformation Spatiale pour fusionner avec le monde et, après quelques respirations, des ondulations apparurent quelque part dans le Système Stellaire Antique. Une distorsion émanait de ces ondulations, comme si une silhouette était sur le point de s'y manifester.
 
 Une femme en blanc flottait étrangement dans le vide, à l'extérieur des ondulations. On ignorait quand elle était apparue; c'était comme si elle se trouvait aux abords du Clan de la Soie Bleue l'instant d'avant, et qu'au souffle suivant, elle était déjà là.
 
 Elle contemplait calmement les ondulations, attendant la figure qui devait en sortir.
 
-Cependant, à cet instant précis, les ondulations changèrent soudainement et la silhouette qui allait émerger sembla faire un pas de côté. Instantanément, les ondulations s'intensifièrent puis s'affaiblirent jusqu'à disparaître totalement.
+Cependant, à cet instant précis, les ondulations changèrent soudainement et la silhouette qui allait émerger sembla faire encore un pas. Instantanément, les ondulations s'intensifièrent puis s'affaiblirent jusqu'à disparaître totalement.
 
 C'était la deuxième fois que les yeux de la femme révélaient une lueur étrange. Elle fixa silencieusement l'endroit où les ondulations avaient disparu, puis son corps se dissipa progressivement.
 
@@ -56,7 +56,7 @@ Dans une autre partie du Système Stellaire Antique, la femme en blanc apparut. 
 
 Mais comme auparavant, au moment même où elles surgirent, elles tremblèrent violemment. Cette fois, elle leva la main droite et fit un geste. Les ondulations furent tranchées net en leur milieu, puis éclatèrent!
 
-Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de dizaines de milliers de pieds de large. Toute l'énergie d'origine fut aspirée; aucun sort de téléportation ne pouvait espérer vaincre un tel vortex!
+Au moment de leur rupture, l'énergie d'origine contenue dans cette aura jaillit comme une tempête, formant un vortex géant de dizaines de milliers de pieds de large. Toute l'énergie d'origine fut aspirée; aucun sort de téléportation ne pouvait plus fonctionner à l'intérieur de ce vortex!
 
 Dès que les ondulations se brisèrent et que le vortex apparut, la silhouette de Wang Lin surgit du vide. Ses cinq essences étaient dissimulées dans ses yeux, lui permettant de percevoir la femme en blanc à l'intérieur du vortex!
 
@@ -82,7 +82,7 @@ La femme en blanc regarda Wang Lin et parla pour la première fois: « La Concub
 
 « L'une des huit Concubines Impériales Antiques! » Les yeux de Wang Lin se rétrécirent.
 
-La femme en blanc hocha la tête et s'avança jusqu'à n'être plus qu'à quelques centimètres de lui. Un léger parfum semblait émaner de son corps et atteindre les narines de Wang Lin, pourtant il ne sentait rien...
+La femme en blanc hocha la tête et s'avança jusqu'à se trouver à moins de sept pieds de lui. Un léger parfum semblait émaner de son corps et atteindre les narines de Wang Lin, pourtant il ne sentait rien...
 
 « Je n'avais pas l'intention d'absorber votre divinité, mais puisque vous pouvez me voir... je ne peux plus attendre... » La femme en blanc ouvrit la bouche à moins de sept pouces de lui. Ils étaient presque face à face; elle n'était plus floue et son apparence se dessinait clairement sous les yeux de Wang Lin.
 
@@ -102,7 +102,7 @@ La femme en blanc était trop proche. Tandis que la lueur fantomatique scintilla
 
 Simultanément, la fumée dorée se contracta dès l'expansion du Monde du Vent et de la Pluie. La femme n'en absorba aucune particule; tout retourna dans les étoiles du dieu ancien de Wang Lin!
 
-Une lueur sanguine monstrueuse jaillit alors que l'épée de sang tournait autour de Wang Lin. Elle perça la main de jade qui le retenait. La main se brisa et Wang Lin se libéra.
+Une lueur sanguine monstrueuse jaillit alors que l'Épée de Sang tournait autour de Wang Lin. Elle perça la main de jade qui le retenait. La main se brisa et Wang Lin se libéra.
 
 Tout ce qui venait de se produire faisait partie du plan de Wang Lin. Il voulait connaître l'identité de cette femme et ses intentions! Ce n'est qu'en sachant tout cela qu'il pourrait l'affronter avec calme! Plus important encore, il avait pris ce risque pour confirmer la conjecture qu'il avait formulée dès le premier regard!
 

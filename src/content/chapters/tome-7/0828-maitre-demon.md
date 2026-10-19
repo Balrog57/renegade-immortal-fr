@@ -8,9 +8,9 @@ slug: maitre-demon
 ---
 Boum, boum, boum... Une série de sons assourdissants résonna dans la région. Toutes les sphères de tonnerre de Wang Lin s'effondrèrent et l'avancée de la glace ralentit légèrement.
 
-À ce moment précis, une lueur jaillit de l'ombre de Wang Lin alors que Ta Shan en sortait. Il leva son poing gauche et n'hésita pas à frapper la glace.
+À ce moment précis, une lueur jaillit de l'ombre de Wang Lin alors que Ta Shan en sortait. Il leva son poing gauche, intact, et n'hésita pas à frapper la glace.
 
-Simultanément, Wang Lin leva sa main droite et invoqua rapidement le Vent Noir. Le vent noir se forma et s'élança vers Yao Bingyun.
+Simultanément, Wang Lin leva sa main droite et invoqua rapidement l'Appel du Vent. Un vent noir se forma et s'élança vers Yao Bingyun, à si courte distance.
 
 Wang Lin était toujours impitoyable envers ses ennemis, qu'il s'agisse d'hommes ou de femmes!
 

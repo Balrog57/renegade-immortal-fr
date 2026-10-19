@@ -8,7 +8,7 @@ slug: le-passe-est-comme-de-la-fumee
 ---
 Wang Lin semblait ne pas remarquer l'arrivée du vieil homme. Il toucha la pierre tombale et s'agenouilla devant elle. La pierre était glaciale, et des vagues de froid émanaient de ses mains; pourtant, cette froideur se mua en une chaleur dans son esprit.
 
-Des larmes coulèrent sur ses joues et tombèrent sur la tombe. Elles s'infiltrèrent lentement dans le monument, comme si elles venaient caresser les parents de Wang Lin.
+Des larmes coulèrent sur ses joues et tombèrent sur la tombe. Elles s'infiltrèrent lentement dans le monument, comme si elles coulaient jusqu'aux restes des parents de Wang Lin.
 
 Le froid de ses mains, la chaleur de son cœur et les larmes versées sur la sépulture semblaient fusionner Wang Lin avec la tombe de ses parents en un seul tout. Cette union dégageait une atmosphère indicible.
 
@@ -97,10 +97,10 @@ Wang Lin ne répondit pas et vida la cruche. Zhou Wutai en sortit alors d'autres
 Le ciel s'obscurcit progressivement et le clair de lune enveloppa la terre, une lumière douce mais teintée de froideur argentée. Les deux hommes restèrent assis sous la lune, buvant du vin dans l'ancienne demeure de Wang Lin, évoquant le passé.
 
 — La vie de Yun Quezi, du Clan du Tatouage, est arrivée à son terme. Je l'ai enterré... Avant de mourir, il ne cessait de prononcer ton nom...
-— Le Nuage Céleste est désormais l'une des neuf grandes sectes, mais tous les anciens visages ont disparu. La planète Suzaku d'aujourd'hui... oublie-la, même moi j'ai le sentiment qu'elle est devenue méconnaissable...
+— Le Nuage Céleste est désormais l'une des neuf grandes sectes, mais tous les anciens visages ont disparu. La planète Suzaku d'aujourd'hui... ne parlons même pas de toi, même moi j'ai le sentiment qu'elle est devenue méconnaissable...
 — Très peu de personnes du passé subsistent encore... dit Zhou Wutai en buvant, ses yeux plongés dans ses souvenirs.
 
-— Te souviens-tu encore de Zhou Zihong, du pays Hou Feng? Je n'ai appris que bien plus tard que tu la connaissais. Elle est partie avec sa mère, Feng Luan, il y a bien des années. J'ai entendu dire qu'elles avaient rejoint une secte sur la Rivière Invoquée...
+— Te souviens-tu encore de Zhou Zihong, du pays de Huo Fen? Je n'ai appris que bien plus tard que tu la connaissais. Elle est partie avec sa mère, Feng Luan, il y a bien des années. J'ai entendu dire qu'elles avaient rejoint une secte sur la Rivière Invoquée...
 — Le partenaire taoïste de Zhou Zihong est mort lors d'une grande bataille il y a quelques années...
 
 Wang Lin écoutait les récits de Zhou Wutai en buvant silencieusement, cruche après cruche.
@@ -110,7 +110,7 @@ Wang Lin écoutait les récits de Zhou Wutai en buvant silencieusement, cruche a
 — Cela fait plus de mille ans que je veille ici... Je n'oublierai jamais ta silhouette au moment où tu as quitté la planète après m'avoir nommé son seigneur. À l'époque, je t'enviais, mais pas autant qu'aujourd'hui...
 
 Il prit une grande gorgée et la tristesse perça son regard.
-— Souviens-toi de mon disciple... Il est mort il y a de nombreuses années. Il était la source de mon état d'esprit pour la Formation de l'Âme... Je lui avais promis de l'accompagner jusqu'à sa fin... Je l'ai enterré sur la planète Suzaku. Chaque fois que je voulais partir, j'allais le rejoindre pour boire silencieusement devant sa tombe.
+— Te souviens-tu de mon disciple? Il est mort il y a de nombreuses années. Il était la source de mon état d'esprit pour la Formation de l'Âme... Je lui avais promis de l'accompagner jusqu'à sa fin... Je l'ai enterré sur la planète Suzaku. Chaque fois que je voulais partir, j'allais le rejoindre pour boire silencieusement devant sa tombe.
 
 Il baissa la tête.
 — Mon disciple aimait profondément son foyer, il ne voulait pas quitter sa terre natale...

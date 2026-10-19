@@ -42,11 +42,11 @@ Il semblait que l'origine de cet objet remontait à une époque très reculée..
 
 Après réflexion, Wang Lin rangea la couronne et son regard se posa sur l'os du Serpent aux yeux de lune, non loin de là.
 
-L'élément métallique contenu dans l'os du Serpent aux yeux de lune diminuait progressivement après des jours d'absorption par la perle défiant le ciel...
+Le métal à flamme contenu dans l'os du Serpent aux yeux de lune diminuait progressivement après des jours d'absorption par la perle défiant le ciel...
 
 Le temps passa lentement. Wang Lin était resté vigilant durant toute cette période, refusant que quiconque ne vienne perturber ce processus. Bien que cet endroit fût reculé, il devait rester prudent.
 
-Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de temps. À cet instant, tout l'élément métallique avait disparu de l'os du Serpent aux yeux de lune.
+Trois mois passèrent en un éclair. Personne n'était venu durant ce laps de temps. À cet instant, tout le métal à flamme avait disparu de l'os du Serpent aux yeux de lune.
 
 Wang Lin craignait initialement que la moitié de l'os ne suffise pas à achever la perle défiant le ciel, mais désormais, l'image représentant l'élément métallique était complète.
 
@@ -70,19 +70,19 @@ Ce trésor l'avait accompagné durant une très longue période, mais en fin de 
 
 Ce symbole était extrêmement complexe, et chaque trait dégageait une aura ancienne. Sous le regard attentif de Wang Lin, ce symbole prit progressivement forme.
 
-L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon dispersé dégageait lorsqu'il avait pris possession du corps de Wang Lin ne pouvait en aucun cas lui être comparée.
+L'aura ancienne devint extrêmement dense à cet instant. L'aura que le démon dispersé dégageait lorsqu'il avait pris possession du corps de Wang Lin pour extraire l'âme de la planète Mille Illusions ne pouvait en aucun cas lui être comparée.
 
 À mesure que l'aura ancienne se propageait, la planète entière en fut affectée. Toute la vitalité de la planète fut progressivement réprimée et des fissures apparurent partout.
 
 Wang Lin prit une profonde inspiration. Au moment où le symbole fut achevé, il frappa du plat de la main. Le symbole flotta alors lentement vers la perle défiant le ciel qui levitait dans les airs.
 
-Un rayon de lumière violette jaillit de la perle. Cette lueur était si intense que Wang Lin peinait à garder les yeux ouverts. Tout le corps de la marionnette céleste dégagea une odeur de décomposition; son corps commença même à se désintégrer à vue d'œil.
+Un rayon de lumière violette jaillit de la perle. Cette lueur était si intense que Wang Lin peinait à garder les yeux ouverts. Tout le corps de la garde céleste dégagea une odeur de décomposition; son corps commença même à se désintégrer à vue d'œil.
 
 Wang Lin fut extrêmement choqué. D'une simple pensée, il fit retourner la garde céleste dans son ombre et la décomposition cessa enfin. Cependant, l'odeur de putréfaction persistait.
 
 Ce n'était pas seulement le cas pour la garde céleste; les trois âmes primaires subissaient le même sort. Si Wang Lin n'avait pas réagi promptement, elles se seraient totalement désintégrées en quelques respirations.
 
-La lumière violette s'étendit et grandit lentement, finissant par recouvrir la planète entière. C'était comme si la planète était drapée d'un voile pourpre. À cet instant, la lueur violette atteignit son apogée.
+La lumière violette s'étendit et grandit lentement, finissant par recouvrir la planète entière. C'était comme si la planète était drapée d'un voile violet. À cet instant, la lueur violette atteignit son apogée.
 
 La planète entière commença à se désintégrer, comme si un sortilège avait été lancé sur elle.
 
@@ -92,7 +92,7 @@ C'était comme si Wang Lin et la perle étaient les seules choses subsistant au 
 
 Cette scène étrange fit violemment trembler le cœur de Wang Lin. Bien qu'il eût eu de nombreuses spéculations sur la perle défiant le ciel, il n'aurait jamais imaginé qu'elle changerait ainsi une fois achevée.
 
-La diffusion de la lumière violette cessa alors que Wang Lin était encore sous le choc. La majorité des forces élémentaires qui s'étaient rassemblées se dissipèrent à cet instant. Presque toute l'énergie accumulée au cours des mille dernières années fut libérée d'un coup.
+La diffusion de la lumière violette cessa alors que Wang Lin était encore sous le choc. La majorité des forces élémentaires qui s'étaient rassemblées se dissipèrent à cet instant. Plus de la moitié de l'énergie accumulée au cours des mille dernières années fut libérée d'un coup.
 
 La lumière violette restait dense autour de la perle défiant le ciel, et une immense porte apparut lentement dans un fracas assourdissant!
 

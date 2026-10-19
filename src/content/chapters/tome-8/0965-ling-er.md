@@ -34,7 +34,7 @@ Une fois tout le monde installé, Maître Yi Chen appela la jeune fille. Il sour
 
 Tout en parlant, il tourna un regard sérieux vers la jeune fille: « Ling Er, voici Senior Wang, un puissant cultivateur. Même ce vieil homme doit lui témoigner le plus grand respect. C'est une chance inouïe pour toi de le rencontrer. »
 
-La jeune fille cligna des yeux et s'inclina devant Wang Lin: « Ling Er salue Senior. » Sa voix était ravissante, semblable au chant d'un oiseau, capable de pénétrer jusqu'au plus profond de l'âme.
+La jeune fille cligna des yeux et s'inclina devant Wang Lin: « Ling Er salue Senior. » Sa voix était ravissante, semblable au chant d'un oiseau, capable de pénétrer jusqu'aux os.
 
 Wang Lin l'observa attentivement et fut surpris.
 
@@ -66,7 +66,7 @@ En regardant la jeune fille, le regard de Wang Lin se fit légèrement plus doux
 
 La joie brilla dans les yeux de la jeune fille alors qu'elle saisissait les clochettes. En entendant leur tintement cristallin, elle éclata de rire. Plus elle les contemplait, plus elle les aimait. Elle se tourna vers Wang Lin: « Ling Er remercie Senior. »
 
-Sa voix était encore plus mélodieuse qu'auparavant, mais cela n'eut aucun effet sur Wang Lin.
+Sa voix était encore plus charmeuse qu'auparavant, mais cela n'eut aucun effet sur Wang Lin.
 
 Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Cher cultivateur Wang, ce vieil homme vous remercie infiniment. »
 
@@ -80,7 +80,7 @@ Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas
 
 Ce dernier se leva, joignit les mains devant Wang Lin et rit: « Le nom de Maître Yi Long n'est rien face au Frère Wang. Vous pouvez simplement m'appeler par mon nom. »
 
-« Et voici mon troisième frère, Wei Xinghan, surnommé Maître Yi Xing. »
+« Et voici mon troisième frère, Zhen Xinghan, surnommé Maître Yi Xing. »
 
 L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement: « Le Frère Wang peut simplement m'appeler par mon nom. »
 

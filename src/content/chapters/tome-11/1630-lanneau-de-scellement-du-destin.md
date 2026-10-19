@@ -6,15 +6,15 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1630 - Fate Sealing Ring
 slug: lanneau-de-scellement-du-destin
 ---
-La tête d'un Être Ancien apparut derrière Wang Lin. Elle n'était pas floue, mais presque tangible. Flottant derrière lui, elle laissa échapper un rugissement qui fit trembler les cieux.
+La tête du Dao Ancien apparut derrière Wang Lin. Elle n'était pas floue, mais presque tangible. Flottant derrière lui, elle laissa échapper un rugissement qui fit trembler les cieux.
 
 Ce rugissement secoua les environs, comme si Wang Lin était investi d'une puissance infinie. Atteignant le sommet de la pagode, Wang Lin lança un coup de poing.
 
-L'impact fit rugir la tête de l'Être Ancien avec encore plus de violence, et l'espace se déforma. Ce rugissement fusionna avec le coup de poing de Wang Lin, créant une frappe surpuissante imprégnée d'énergie antique.
+L'impact fit rugir la tête du Dao Ancien avec encore plus de violence, et l'espace se déforma. Ce rugissement fusionna avec le coup de poing de Wang Lin, créant un coup de poing du Dao Ancien qui ébranle ciel et terre.
 
 Le grondement s'intensifia. En un instant, le poing de Wang Lin percuta le sommet de la pagode. Des fracas tonitruants résonnèrent et l'édifice trembla.
 
-Wang Lin recula d'un pas, une lueur froide dans le regard. Puis, poussant un rugissement, il lança son second coup de poing.
+Wang Lin recula d'un pas, une lueur froide dans le regard. Puis, poussant un rugissement, il s'avança à nouveau et lança son second coup de poing.
 
 Les détonations qu'il produisit étaient assourdissantes. À mesure que ces sons résonnaient, de fines fissures commencèrent à apparaître.
 
@@ -28,7 +28,7 @@ Bien que la rétribution divine fût puissante, Wang Lin n'en avait cure. À ses
 
 Alors qu'il émergeait, un autre rugissement étouffé provint de la faille située plus haut. Une lumière dorée brilla et un troisième trésor s'échappa de l'interstice.
 
-Ce trésor était un anneau doré. Dès son apparition, la clarté de la faille s'intensifia et une pression bien plus écrasante que la précédente se fit sentir, s'étendant au-delà des nuages.
+Ce trésor était un anneau doré. Dès son apparition, la clarté de la faille s'intensifia et une pression bien plus écrasante que celle des deux trésors précédents se fit sentir, s'étendant au-delà des nuages.
 
 À l'extérieur, Situ Nan et ses compagnons ressentirent cette pression et leurs cœurs tremblèrent. Ils eurent l'impression de faire face à la puissance infinie du firmament.
 
@@ -40,7 +40,7 @@ Certains furent trop lents et furent frappés par la pression. Ils crachèrent d
 
 La seule personne à l'extérieur des nuages qui n'était pas écrasée par la pression était le Vieux Fantôme Zhan, de l'autre côté. Ses cheveux ondulaient sans vent et ses yeux brillaient d'une lueur étrange alors qu'il fixait les nuages. Pour la première fois, son regard quitta Wang Lin pour se porter sur l'anneau doré.
 
-« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la rétribution divine dans ses souvenirs... Ce trésor était même célèbre sur le Continent Astral Immortel. Malheureusement, il est devenu une rétribution divine, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
+« L'Anneau de Scellement du Destin! C'est l'objet qu'il avait désigné comme troisième trésor pour devenir la rétribution divine dans ses souvenirs... Ce trésor avait même une certaine renommée sur le Continent Astral Immortel. Malheureusement, il est devenu une rétribution divine, et malheureusement, mon corps... » Le Vieux Fantôme Zhan secoua la tête en soupirant, mais ses yeux s'illuminèrent soudainement.
 
 « Si Wang Lin peut obtenir ce trésor, ses chances d'être le troisième augmenteront considérablement... Cependant, il sera ardu de s'en emparer... »
 
@@ -90,9 +90,9 @@ Le Dieu Ancien jaillit de la faille dans un rugissement fracassant et se rua sur
 
 Après lui, d'autres rugissements déchirèrent l'air. Trois autres Dieux Anciens de dix mille pieds de haut émergèrent. Leur peau rugueuse était couverte d'innombrables cicatrices, et ils chargèrent également vers Wang Lin.
 
-Moins d'un souffle plus tard, une énergie démoniaque monstrueuse, noire comme l'encre, jaillit. Cette énergie prit la forme de quatre Grands Diables dotés de huit étoiles démoniaques anciennes. Ils affichaient des sourires cruels et assoiffés de sang en fonçant sur Wang Lin.
+Moins d'un souffle plus tard, une énergie démoniaque monstrueuse, noire comme l'encre, jaillit. Cette énergie prit la forme de quatre Diables Anciens dotés de huit étoiles démoniaques anciennes. Ils affichaient des sourires cruels et assoiffés de sang en fonçant sur Wang Lin.
 
-Mais cela ne s'arrêta pas là. Après les quatre Diables, une énergie démoniaque colossale surgit pour dissiper la précédente. Quatre Grands Démons à 8 étoiles apparurent telle une fumée épaisse, d'une apparence terrifiante. Leurs griffes acérées et leur peau verdâtre étaient saisissantes alors qu'ils s'avançaient.
+Mais cela ne s'arrêta pas là. Après les quatre Diables, une énergie démoniaque colossale surgit pour dissiper la précédente. Quatre Démons Anciens à 8 étoiles apparurent telle une fumée épaisse, d'une apparence terrifiante. Leurs griffes acérées et leur peau verdâtre étaient saisissantes alors qu'ils s'avançaient.
 
 Quatre Dieux Anciens, quatre Grands Diables, quatre Grands Démons. Les douze membres des Êtres Anciens rugirent tous en se précipitant sur Wang Lin.
 
@@ -100,6 +100,6 @@ L'assaut devenait imminent!
 
 Wang Lin gardait toujours les yeux fermés, continuant de déduire la structure et les failles de l'anneau doré. Tandis que des milliards de runes défilaient dans son esprit, chaque compréhension lui permettait d'atténuer la lumière dorée de l'anneau.
 
-En ce laps de temps infime, Wang Lin avait déjà pris le contrôle de plus de 30 % des milliards de runes. En conséquence, l'éclat de l'anneau doré s'affaiblissait.
+En ce laps de temps infime, Wang Lin avait déjà pris le contrôle de 30 % des milliards de runes. En conséquence, l'éclat de l'anneau doré s'affaiblissait.
 
 Wang Lin ne semblait nullement se soucier du fait que douze intentions de tuer ancestrales convergeaient vers lui. Le premier à frapper fut le Dieu Ancien!

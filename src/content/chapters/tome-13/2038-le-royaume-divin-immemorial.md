@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: "Chapter 2038 - Immemorial God Realm!"
 slug: le-royaume-divin-immemorial
 ---
-Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actions frénétiques. Il avait fait fusionner l'âme de l'Empereur Céleste avec la tête de l'Ancêtre Céleste pour un court instant. Il les avait combinées à son soleil d'Empyrée pour en extraire une force puissante.
+Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actions frénétiques. Il avait fait fusionner l'âme de l'Empereur Céleste avec la tête de l'Ancêtre Céleste pour un court instant. Il les avait combinées à son soleil de Grand Empyréen pour en extraire une force puissante.
 
-À cet instant, alors que le soleil d'Empyrée brûlait, l'astre gigantesque se rétracta rapidement. En un clin d'œil, il passa de sa taille immense à une dimension minuscule jusqu'à disparaître. Simultanément, cette force colossale pénétra le corps de Wang Lin par un chemin étrange; alors, il leva le pied droit et avança d'un pas.
+À cet instant, alors que le soleil de Grand Empyréen brûlait, l'astre gigantesque se rétracta rapidement. En un clin d'œil, il passa de sa taille immense à une dimension minuscule jusqu'à disparaître. Simultanément, cette force colossale pénétra le corps de Wang Lin par un chemin étrange; alors, il leva le pied droit et avança d'un pas.
 
 Lorsqu'il l'abattit, Wang Lin laissa échapper un rugissement et un fracas tonitruant résonna tout autour de lui!
 
@@ -18,7 +18,7 @@ La formation était située ici afin d'absorber l'aura de mort provenant du pala
 
 Wang Lin avait déjà vu ce genre de sortilège par le passé. Dans le Palais Céleste, il avait rencontré quelque chose de similaire.
 
-En cet instant, il brûlait son soleil d'Empyrée en échange du pouvoir nécessaire pour briser le vide. Il comptait utiliser la puissance de son corps et sa culture pour forcer la barrière et pénétrer dans cet espace.
+En cet instant, il brûlait son soleil de Grand Empyréen en échange du pouvoir nécessaire pour briser le vide. Il comptait utiliser la puissance de son corps et sa culture pour forcer la barrière et pénétrer dans cet espace.
 
 Ce sortilège ressemblait à celui permettant de sortir du monde caverneux pour entrer directement sur le Continent Astral Immortel. C'était comme franchir la frontière entre deux mondes, une prouesse difficile même pour les Grands Empyréens, à moins qu'une entrée n'ait été préalablement créée, comme au Palais Céleste. Cependant, Wang Lin tentait ici de forcer le passage, ce qui s'avérait extrêmement ardu.
 
@@ -36,7 +36,7 @@ Après avoir renforcé le filet, l'Ancien Maître Impérial Dao mordit le bout d
 
 Mais à ce moment précis, l'activation de la formation s'accéléra de plusieurs fois. Un murmure s'intensifia, comme si d'innombrables personnes parlaient simultanément, sans qu'on puisse distinguer un seul mot.
 
-« Que mon sang guide l'âme des cieux, activez! » rugit le vieil homme. D'innombrables âmes apparurent alors à l'intérieur de la formation. En les voyant, Wang Lin fut parcouru d'un frisson.
+« Que mon sang guide l'âme des cieux, ouvre! » rugit le vieil homme. D'innombrables âmes apparurent alors à l'intérieur de la formation. En les voyant, Wang Lin fut parcouru d'un frisson.
 
 Ces âmes appartenaient aux êtres qui étaient morts sous les coups de Wang Lin dans le monde caverneux!
 
@@ -64,7 +64,7 @@ Wu Feng, observant la scène de loin, vit ce pilier dégager une aura antique, c
 
 Wang Lin percevait tout cela à travers le vortex céleste. Voyant que l'Ancien Maître Impérial Dao s'apprêtait à cracher sa cinquième bouffée de sang, Wang Lin n'hésita pas à invoquer son avatar le plus puissant dans le vide. Un brouillard brumeux l'enveloppa et sa puissance explosa soudainement. Son pied droit concentra toute sa force pour frapper le filet.
 
-Lors de l'impact, une ombre superposée apparut au-dessus de son corps original, comme si un second être était présent. C'était son avatar dans le vide!
+Lors de l'impact, une ombre superposée apparut sur son pied droit, comme si un second être était présent. C'était son avatar dans le vide!
 
 D'un seul coup, une partie du filet s'effondra, créant une brèche. Lorsque le pied de Wang Lin atteignit sa cible, il pénétra dans l'espace de la formation!
 

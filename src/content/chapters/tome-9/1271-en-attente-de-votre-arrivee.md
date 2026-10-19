@@ -66,7 +66,7 @@ Plus effrayant encore, ce doigt contenait également les lois du tonnerre, du fe
 
 « Même un cultivateur du Fléau Céleste devrait esquiver ce doigt! » Les yeux de Wang Lin s'illuminèrent alors qu'il laissait échapper un souffle sur son index droit. Les deux tatouages se cachèrent et son doigt retrouva son aspect normal. Personne ne pouvait remarquer quoi que ce soit de spécial.
 
-« Si je peux prendre cette personne au dépourvu, alors ces dix millions d'ombres d'épées pourront certainement le mettre dans un état lamentable! » Wang Lin leva les yeux vers le ciel avec un sourire, mais son regard restait sombre.
+« Si je peux prendre cette personne au dépourvu, alors ces dix millions d'ombres d'épées pourront certainement lui faire commettre une faute! » Wang Lin leva les yeux vers le ciel avec un sourire, mais son regard restait sombre.
 
 « Il y a trop de mortels sur le continent de Mo Luo pour que la bataille s'y déroule. C'est la responsabilité des cultivateurs que nous sommes! » Wang Lin se leva silencieusement et se transforma en un rayon de lumière qui s'éloigna rapidement du continent de Mo Luo.
 
@@ -100,9 +100,9 @@ En fixant la restriction, Wang Lin afficha un rictus.
 
 Ses mains bougeaient avec la rapidité du vent et ne s'arrêtaient pas. Les restrictions continuèrent de se propager, imprégnant le continent sauvage. Elles s'étendirent jusqu'à couvrir tous les continents sauvages, avant de se lier en un seul!
 
-La création d'autant de restrictions avait consommé une quantité colossale d'énergie originelle, mais Wang Lin était à mi-chemin du stade de Briseur du Nirvana et pouvait donc absorber une énergie originelle infinie. Il disposait également de vastes réserves de cristaux originels qu'il n'hésita pas à utiliser.
+La création d'autant de restrictions avait consommé une quantité colossale d'énergie originelle, mais Wang Lin n'était qu'à peine entré dans le stade de Briseur du Nirvana et pouvait donc absorber une énergie originelle infinie. Il disposait également de vastes réserves de cristaux d'origine qu'il n'hésita pas à utiliser.
 
-Il invoqua également la femme en argent et lui ordonna d'utiliser la restriction de vie et de mort. La femme en argent l'exécuta sans hésiter et, grâce aux nombreux cristaux originels, sa restriction de vie et de mort couvrit aussi le continent, se synchronisant avec les restrictions de Wang Lin.
+Il invoqua également la femme en argent et lui ordonna d'utiliser la restriction de vie et de mort. La femme en argent l'exécuta sans hésiter et, grâce aux nombreux cristaux d'origine, sa restriction de vie et de mort couvrit aussi le continent, se synchronisant avec les restrictions de Wang Lin.
 
 Si cela s'arrêtait là, la méthode de Wang Lin ne serait pas totalement révélée. Après avoir quitté le Royaume aux Sept Couleurs, il avait commencé à étudier la Restriction du Temps. Bien qu'il ne l'eût pas pleinement maîtrisée, en tant qu'héritier de la Restriction d'Annihilation et grâce à sa compréhension des restrictions, il en avait saisi les principes fondamentaux.
 

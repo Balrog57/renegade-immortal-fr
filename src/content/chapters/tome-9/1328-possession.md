@@ -28,7 +28,7 @@ Cependant, depuis des temps immémoriaux, très peu d'individus avaient atteint 
 
 Même sans la présence d'un cultivateur du troisième pas, s'infiltrer dans le Clan du Tonnerre Dispersé était plus difficile que de gravir les cieux!
 
-Wang Lin se tenait calmement devant le domaine stellaire du Clan du Tonnerre Dispersé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
+Wang Lin se tenait calmement à cinquante kilomètres du domaine stellaire du Clan du Tonnerre Dispersé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
 
 D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était d'innombrables fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Luotian.
 
@@ -40,7 +40,7 @@ Cependant, après avoir absorbé la puissance du tonnerre de la statue du clan, 
 
 Le Clan du Tonnerre Dispersé n'avait personne pour garder le périmètre, car le tonnerre éternel constituait la meilleure des protections! Wang Lin avança lentement. Son arrivée ne suscita aucune attention de la part du clan!
 
-Wang Lin parcourut lentement cinquante kilomètres en environ sept minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
+Wang Lin parcourut lentement cinquante kilomètres en environ quinze minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
 
 Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'éclair éternel!
 
@@ -56,7 +56,7 @@ Même son espace de stockage aurait été pulvérisé par cette foudre, et tous 
 
 Wang Lin ferma les yeux et son corps fut recouvert d'électricité. Le lac de tonnerre était comme une gueule béante dévorant Wang Lin. Cela le plongea dans un tourbillon de foudre sans fin!
 
-Les grondements continuaient de résonner tandis que le corps de Wang Lin demeurait immobile, la moitié de son pied immergé dans le lac. Le temps passa lentement. En un clin d'œil, quinze minutes s'écoulèrent.
+Les grondements continuaient de résonner tandis que le corps de Wang Lin demeurait immobile, la moitié de son pied immergé dans le lac. Le temps passa lentement. En un clin d'œil, trente minutes s'écoulèrent.
 
 C’est à cet instant qu'une vague colossale se propagea dans l'immense lac et qu'un rugissement retentit. Les yeux de Wang Lin s'ouvrirent soudainement, révélant une marque de tonnerre clignotant frénétiquement dans l'un d'eux. En un instant, elle pulsa des milliers de fois!
 

@@ -12,7 +12,7 @@ Le dragon de mer rugit et se rapprocha rapidement de Wang Lin. À l'intérieur d
 
 « Ce dragon de mer a été laissé par l'Ancien Ancêtre. Si je voulais le tuer, cela demanderait un effort colossal et je pourrais même échouer. Bien que Wang Lin ait tué l'Ancien Feng, celui-ci n'avait sacrifié sa vie que pour atteindre brièvement le rang d'Exalté Doré. Il restait un gouffre immense entre lui et un véritable Exalté Doré! »
 
-« Il peut tuer l'Ancien Feng, mais il ne pourra pas sceller rapidement le dragon de mer laissé par l'Ancien Ancêtre! Avec le retard causé par ce dragon, l'Ancien Ancêtre recevra certainement la nouvelle! » Le maître de la Secte du Dao Démoniaque n'osait pas sortir, mais sa haine envers Wang Lin était monstrueuse. Il aurait voulu dévorer la chair et le sang de ce dernier.
+« Il peut tuer l'Ancien Feng, mais il ne pourra pas venir à bout rapidement du dragon de mer laissé par l'Ancien Ancêtre! Avec le retard causé par ce dragon, l'Ancien Ancêtre recevra certainement la nouvelle! » Le maître de la Secte du Dao Démoniaque n'osait pas sortir, mais sa haine envers Wang Lin était monstrueuse. Il aurait voulu dévorer la chair et le sang de ce dernier.
 
 Tout en serrant les dents et en murmurant, sa main droite trembla. Le maître de la Secte regarda sa main, où un gaz vert venait d'apparaître. Ce gaz se divisa en sept filaments qui pénétrèrent dans ses orifices.
 
@@ -26,7 +26,7 @@ Le maître de la Secte frémit et ferma les yeux. Cependant, lorsqu'il les rouvr
 
 À l'extérieur de la barrière jaune terreuse, le dragon de mer chargeait vers Wang Lin. Son corps colossal dégageait une pression écrasante, capable de faire trembler le monde entier. Tout être inférieur au rang d'Exalté Doré tremblerait de terreur et n'oserait l'affronter!
 
-Alors que son rugissement redoublait d'intensité, un son capable de briser l'âme retentit. Ce cri semblait contenir une force primordiale capable de faire chanceler les fondations mêmes de l'existence!
+Alors que son rugissement redoublait d'intensité, un son capable de secouer l'esprit retentit. Ce cri semblait contenir une force immense, capable de faire trembler quiconque!
 
 L'expression de Wang Lin resta froide tandis qu'il fixait le dragon de mer qui fonçait sur lui. Il n'avait jamais vu une telle créature et ressentait l'aura terrifiante qui émanait d'elle.
 
@@ -62,7 +62,7 @@ Le sentiment de mort enveloppa tout le corps du dragon, qui rugit de douleur. Un
 
 Cette douleur était telle que même son corps physique puissant et sa culture d'Exalté Doré ne pouvaient la supporter. Tandis qu'il rugissait, il fut envahi par la peur et le désespoir, comme piégé dans un cauchemar dont on ne peut s'éveiller.
 
-« Soumets-toi ou meurs! » Alors que son corps était sur le point de s'effondrer sous une douleur infinie qui le poussait aux portes du néant, une voix puissante, empreinte de foi et de majesté, résonna dans l'univers.
+« Soumets-toi, ou sombre dans le néant! » Alors que son corps était sur le point de s'effondrer sous une douleur infinie qui le poussait aux portes du néant, une voix puissante, empreinte de foi et de majesté, résonna dans l'univers.
 
 Au son de cette voix, le dragon de mer lutta pour ouvrir les yeux, aveuglé par le soleil levant. Il vit Wang Lin émerger de la lumière, puis sombra soudainement dans une transe.
 

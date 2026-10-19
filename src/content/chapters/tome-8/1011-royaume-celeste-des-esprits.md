@@ -23,7 +23,7 @@ Toutefois, l'énergie démoniaque locale était si puissante qu'un seul pilier n
 
 Dans cet espace de 50 kilomètres, tout était saturé d'énergie spirituelle céleste, tandis qu'au-delà, l'énergie démoniaque régnait en maître. Un équilibre fut instauré: l'énergie céleste ne pouvait s'étendre, et l'énergie démoniaque ne pouvait l'envahir.
 
-À ce moment précis, Ling Tianhou, l'homme d'âge moyen vêtu de pourpre, et le célèbre Maître du Vide étaient assis au centre de la formation dans la troisième grotte. Les yeux de Ling Tianhou s'ouvrirent, brillant d'un éclat vif. Sans hésiter, il tendit sa main droite et une fissure apparut. Une épaisse fumée verte s'en échappa, laissant apparaître lentement la clé de la grotte.
+À ce moment précis, Ling Tianhou, un homme vêtu de pourpre, et le célèbre Maître du Vide étaient assis au centre de la formation dans la troisième grotte. Les yeux de Ling Tianhou s'ouvrirent, brillant d'un éclat vif. Sans hésiter, il tendit sa main droite et une fissure apparut. Une épaisse fumée verte s'en échappa, laissant apparaître lentement la clé de la grotte.
 
 « Il lui a fallu moins de sept jours pour ouvrir la quatrième grotte. J'avais déjà surestimé Wang Lin, mais il semble que je l'ai encore sous-estimé... J'ai passé près d'un mois pour ouvrir la troisième... » songea Ling Tianhou tout en pointant la pierre noire située au centre de la formation sous ses pieds.
 
@@ -58,7 +58,7 @@ La tempête céleste traversa la jungle dense. Les arbres monstrueux de la forê
 
 Alors que le tigre s'apprêtait à bondir, la tempête d'énergie spirituelle céleste l'enveloppa. Ce fut comme si un souffle pur avait balayé toute la corruption. Sans l'énergie démoniaque, l'herbe rouge du sol redevint verte. Les cerfs qui s'entre-mordaient s'affalèrent au sol en tremblant; leur couleur pourpre s'estompa pour laisser place à leurs teintes naturelles, imprégnées d'une aura céleste.
 
-Le tigre noir, prêt à l'attaque, trembla et poussa un rugissement. Sa corne se brisa et sa fourrure noire devint blanche. Imprégné d'énergie spirituelle céleste, il perdit sa férocité pour retrouver une intelligence pure. À mesure que la tempête progressait, la jungle démoniaque se transformait totalement; de loin, elle ressemblait désormais au Royaume Céleste des Esprits.
+Le tigre noir, prêt à l'attaque, trembla et poussa un rugissement. Sa corne se brisa et sa fourrure noire devint blanche. Imprégné d'énergie spirituelle céleste, il perdit sa férocité pour gagner en vivacité. À mesure que la tempête progressait, la jungle démoniaque se transformait totalement; de loin, elle ressemblait désormais à une terre d'immortels.
 
 Si la rivière à l'extérieur de la jungle semblait claire, elle était en réalité saturée d'énergie démoniaque qui, si on la consommait, finissait par altérer le physique des êtres. Même les poissons y étaient devenus des créatures étranges; un poisson de la taille d'une paume possédait des dents acérées capables de déchiqueter un mortel. Mais dès que l'énergie céleste passa, comme si un brouillard se dissipait, la rivière devint limpide et rafraîchissante, l'eau elle-même devenant douce et sucrée. Les poissons, autrefois hideux, changèrent pour arborer des couleurs éclatantes et se mirent à jouer dans le courant.
 

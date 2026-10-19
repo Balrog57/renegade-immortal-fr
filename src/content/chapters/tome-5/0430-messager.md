@@ -16,7 +16,7 @@ Yun Quezi poussa un soupir avant d'agiter la main; un morceau de bois noir appar
 
 Une silhouette illusoire émergea de la lumière dorée. Elle apparut instantanément devant Chu Yunfei et lui adressa une légère tape.
 
-L'expression de Chu Yunfei changea immédiatement et il recula brusquement. Il agita la main, rassemblant rapidement son énergie spirituelle céleste devant lui.
+L'expression de Chu Yunfei changea immédiatement et il recula brusquement. Il forma un sceau de la main gauche, rassemblant rapidement son énergie spirituelle céleste devant lui.
 
 Cependant, la paume traversa l'énergie spirituelle pour venir s'écraser sur la poitrine de Chu Yunfei à une vitesse inimaginable.
 
@@ -48,11 +48,11 @@ Yun Quezi regarda l'entité et dit: « Au sein du Clan des Immortels Délaissés
 
 La figure réfléchit un instant et dit: « Tu es parmi les cultivateurs depuis trop longtemps et tu en as oublié tes origines. Te souviens-tu encore du nombre de membres de ton clan qui furent sacrifiés pour t'envoyer dans le pays de Suzaku... »
 
-Les yeux de Yun Quezi s'illuminèrent et il ricana: « Premier Ancêtre, je vais vous le dire une fois de plus: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture? »
+Les yeux de Yun Quezi s'illuminèrent et il ricana: « Premier Ancêtre, je vais vous le dire pour la dernière fois: ne sous-estimez pas Zhu Quezi. Il possède le Cristal de la Planète de Culture. Bien qu'il ait été scellé par la deuxième génération de Suzaku, chaque Suzaku au cours des dizaines de milliers d'années passées a cherché un moyen de briser ce sceau. Le précédent Suzaku avait même trouvé une faille. D'après ce que je sais du Suzaku actuel, si nous le tuons, il détruira certainement le Cristal de la Planète de Culture avant de mourir afin d'anéantir tous les cultivateurs de la planète. À ce moment-là, face à une telle calamité, l'Alliance de Culture enverra sans doute des renforts pour s'en occuper. Pensez-vous que notre Clan des Immortels Délaissés puisse faire face à l'Alliance de Culture? »
 
 La figure resta silencieuse.
 
-« Si les choses s'étaient déroulées selon mon plan, nous aurions pu élever un cultivateur pour devenir le prochain Suzaku et le contrôler peu à peu dans l'ombre, ce qui permettrait à notre clan de continuer d'exister. C'était la méthode idéale; cependant, l'Ancêtre a été trop impatient, il vous a tous fait surgir trop tôt et a ainsi anéanti tous mes plans. » L'humeur d'Yun Quezi était très sombre.
+« Si les choses s'étaient déroulées selon mon plan, nous aurions pu élever un cultivateur pour devenir le prochain Suzaku et le contrôler peu à peu dans l'ombre, ce qui permettrait à notre clan de continuer d'exister. C'était la méthode idéale; cependant, l'Ancêtre Originel a été trop impatient, il vous a tous fait surgir trop tôt et a ainsi anéanti tous mes plans. » L'humeur d'Yun Quezi était très sombre.
 
 « Même mon identité a dû être révélée par vous tous pour prouver que je suis un membre du Clan des Immortels Délaissés. À mes yeux, cela fut inutile! »
 
@@ -60,11 +60,11 @@ Yun Quezi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 « J'avais déjà choisi quatre candidats et il ne me fallait que quelques décennies pour que mon plan aboutisse. Le stratagème que j'avais échafaudé durant d'innombrables années a été brisé par vous! »
 
-« Les deux successeurs choisis par Zhu Quezi sont Qian Feng et Liu Mei. Puisque ce Qian Feng a appris la Tactique de Suzaku, je suis convaincu qu'il est le réceptacle que le Suzaku actuel prépare pour une possession. Chaque génération de Suzaku a tenté de trouver un moyen d'utiliser la possession pour prolonger sa longévité, et je crois que ce Suzaku y est parvenu. »
+« Les deux successeurs choisis par Zhu Quezi sont Qian Feng et Liu Mei. Puisque ce Qian Feng a appris la Tactique de Suzaku, je soupçonne qu'il est le réceptacle que le Suzaku actuel prépare pour une possession. Chaque génération de Suzaku a tenté de trouver un moyen d'utiliser la possession pour prolonger sa longévité, et je crois que ce Suzaku y est parvenu. »
 
 « C'est pourquoi j'ai choisi mon deuxième candidat, Zi Xin. Si Zhu Quezi réussissait sa possession, cela finirait par servir cette jeune fille. Même si je me trompais et que Zhu Quezi préparait réellement Qian Feng pour être le prochain Suzaku, une fois celui-ci devenu Suzaku, cela servirait forcément Zi Xin. »
 
-« Le troisième que j'ai choisi est Zhou Wutai. Cet enfant possède la lignée du Dragon Vert. Puisque le Clan du Dragon Vert nous a aidés lors de la guerre il y a fort longtemps, je l'ai retenu comme candidat. C'est d'ailleurs pour cela que je me suis rendu à l'Alliance des Quatre Sectes, et il est mon rempart contre Liu Mei. »
+« Le troisième que j'ai choisi est Zhou Wutai. Cet enfant possède la lignée du Dragon Vert. Puisque le Clan du Dragon Vert nous a aidés lors de la guerre il y a fort longtemps, je l'ai retenu comme candidat. C'est d'ailleurs pour cela que je me suis rendu à l'Alliance des Quatre Sectes, et il est mon contrepoids face à Liu Mei. »
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 

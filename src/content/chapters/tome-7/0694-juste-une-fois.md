@@ -10,7 +10,7 @@ Le vieil homme n'osait pas ouvrir la bouche, car son énergie vitale s'était d�
 
 À l'heure actuelle, il comptait entièrement sur les pilules qu'il avait avalées précédemment pour tenter de stopper la perte de son énergie vitale, mais l'effet était très limité.
 
-Des filaments d'énergie spirituelle émanaient de son corps, semblables à une brume verdâtre.
+Des filaments d'énergie spirituelle émanaient de son corps, semblables à une légère brume.
 
 Le jeune homme en violet regarda Wang Lin et hocha la tête. « Je ne m'attendais pas à ce que vous soyez un cultivateur. Très bien, sur la planète Ran Yun, puisque vous avez offensé la famille Sun, cela revient à... »
 
@@ -18,11 +18,11 @@ Avant qu'il ne puisse finir sa phrase, Wang Lin agita la main droite. Le corps d
 
 Wang Lin ne l'avait pas tué, car il ne possédait que peu d'énergie spirituelle et était encore considéré comme un mortel.
 
-Avec l'expérience de Wang Lin, ce jeune homme en violet était soit le descendant direct d'une famille de cultivation, soit issu d'un lignage noble parmi les mortels. Quant au vieil homme de la Formation du Noyau et à la femme nommée Qing Yi, il s'agissait manifestement d'un maître et de son disciple.
+Avec l'expérience de Wang Lin, ce jeune homme en violet était soit le descendant direct d'une famille de cultivateurs, soit issu d'un lignage noble parmi les mortels. Quant au vieil homme de la Formation du Noyau et à la femme nommée Qing Yi, il s'agissait manifestement d'un maître et de son disciple.
 
 Cependant, quelle que soit son identité, cela n'importait guère à Wang Lin. Sur la planète Ran Yun, il était l'ancêtre suprême.
 
-La scène qui se déroulait devant lui fit haleter Wang Ping alors qu'il regardait son père. À cet instant, il réalisa soudainement que son père n'était pas un cultivateur ordinaire. Un simple regard de sa part avait suffi à plonger ce vieil homme dans un tel état.
+La scène qui se déroulait devant lui fit inspirer profondément Wang Ping alors qu'il regardait son père. À cet instant, il réalisa soudainement que son père n'était pas un cultivateur ordinaire. Un simple regard de sa part avait suffi à plonger ce vieil homme dans un tel état.
 
 Qing Yi fixa le père et le fils. Après avoir hésité un instant, elle s'avança et dit respectueusement: « Senior, c'est nous qui avons été imprudents... »
 
@@ -46,7 +46,7 @@ L'un des trois vieillards avait les cheveux blancs et des yeux semblables à la 
 
 Le cultivateur au stade de la Formation du Noyau sur le sol sembla avoir remarqué l'arrivée du vieillard et ouvrit les yeux. Il ne put retenir un flot d'énergie vitale et poussa un gémissement misérable. Une brume émana de tout son corps, puis, le visage pâle, il s'écria d'urgence: « Oncle, c'est lui qui m'a blessé, sauvez-moi! » Il pointa soudainement Wang Lin du doigt.
 
-La main droite du vieillard traça un sceau et le projeta vers l'homme. Le sceau vola et se fixa entre les sourcils de ce dernier. Le sort s'étendit immédiatement pour former une barrière verrouillant l'énergie vitale qui s'échappait.
+La main droite du vieillard traça un sceau et le projeta vers le cultivateur blessé. Le sceau vola et se fixa entre les sourcils de ce dernier. Le sort s'étendit immédiatement pour former un filet verrouillant l'énergie vitale qui s'échappait.
 
 Après avoir fait cela, il lança un regard sombre à Wang Lin et dit: « Votre méthode est vraiment impitoyable. Pensez-vous que ma famille Sun restera les bras croisés en apprenant cela?! »
 
@@ -68,7 +68,7 @@ Ce n'était ni une technique de Dao, ni un sort; il n'y avait même pas une once
 
 C'était une aura, une aura qui n'apparaissait que lorsqu'un être atteignait le sommet d'une génération. Quiconque possède son propre Dao contient le ciel et la terre en lui; ils peuvent emprunter la puissance des cieux pour créer une pression absolue. Sans parler des trois vieillards, même des cultivateurs Ascendants ordinaires ne pourraient y résister.
 
-Le vieillard au centre possédait le niveau de culture le plus élevé, au sommet du stade avancé de l'Âme Naissante. Il était en plein processus de compréhension des cieux et se trouvait à mi-chemin du stade de la Formation de l'Âme. L'aura de Wang Lin lui parut extrêmement profonde. C'était comme si son âme avait été directement percutée par Wang Lin, ce qui fit pâlir son visage et le força à reculer de deux pas.
+Le vieillard au centre possédait le niveau de culture le plus élevé, au sommet du stade avancé de l'Âme Naissante. Il était en plein processus de compréhension des cieux et avait déjà un pied dans le stade de la Formation de l'Âme. L'aura de Wang Lin lui parut extrêmement profonde. C'était comme si son âme avait été directement percutée par Wang Lin, ce qui fit pâlir son visage et le força à reculer de deux pas.
 
 Wang Lin passa devant lui et quitta le restaurant. Wang Ping le suivit et, au moment de franchir le seuil, il se retourna pour lancer un sourire doux à Qing Yi.
 
@@ -78,7 +78,7 @@ Le visage de Qing Yi devint encore plus rouge.
 
 Après avoir quitté le restaurant, Wang Ping hésita un instant avant de rattraper son père en souriant: « Père, connaissez-vous la famille Sun? »
 
-« J'ai eu quelques confrontations avec eux. Ton père a promis de protéger leur famille pendant un siècle. » Wang Lin ne cachait rien à Wang Ping, si ce n'est la raison pour laquelle il ne l'autorisait pas à cultiver.
+« Nous avons eu quelques liens par le passé. J'ai promis de protéger leur famille pendant un siècle. » Wang Lin ne cachait rien à Wang Ping, si ce n'est la raison pour laquelle il ne l'autorisait pas à cultiver.
 
 « Cette fille nommée Qing Yi est plutôt pas mal. » Wang Lin regarda Wang Ping avec un sourire qui en était un, mais sans en être un.
 

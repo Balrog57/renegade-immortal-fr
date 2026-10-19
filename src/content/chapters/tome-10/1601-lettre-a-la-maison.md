@@ -14,7 +14,7 @@ Cependant, bien que son esprit fût capable de comprendre le monde, son corps ne
 
 Wang Lin poussa son fauteuil de bois et traversa la ville de Su. Âge d'approche de la quarantaine, il dégageait une aura de stabilité inébranlable. Vêtu d'une chemise blanche, il poussait silencieusement Su Dao.
 
-Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple résonnait paresseusement au loin; son son cristallin semblait pouvoir purifier le cœur de quiconque l'entendait.
+Cet hiver était particulièrement rude. La neige, emportée par le vent glacial, s'abattait sur leurs corps. Tôt le matin, la cloche du temple résonnait paresseusement au loin; son timbre profond semblait pouvoir purifier le cœur de quiconque l'entendait.
 
 « Lin Er, Maître est sur le point de partir... Maître n'a jamais eu d'enfants. Tes trois frères aînés ont hérité de beaucoup de mes vérités, mais toi seul possèdes des pensées semblables aux miennes... »
 
@@ -102,7 +102,7 @@ Au milieu de ce tumulte, la convocation de la capitale impériale arriva une six
 
 Le comble fut que cela affecta ses parents. Âgés, ils auraient dû jouir paisiblement de la fin de leur vie. Mais pour une raison quelconque, les rumeurs s'étaient propagées jusqu'à leur village. Les médisances des villageois enflammèrent la colère de ses parents.
 
-À leur âge, cette détresse provoqua la maladie du père de Wang Lin.
+À leur âge, cette colère provoqua la maladie du père de Wang Lin.
 
 Durant l'hiver de cette année-là, Wang Lin se tenait dans la cour, tenant une lettre. C'était celle de sa mère. Elle avait sollicité quelqu'un pour l'écrire, puis avait chargé son quatrième oncle de la lui transmettre.
 
@@ -122,4 +122,4 @@ Derrière lui, Grande Fortune, bien qu'ayant atteint un âge avancé, était res
 
 En entendant les paroles de Wang Lin, une lueur d'attente brilla dans son expression fière. Il s'empressa d'organiser tout cela.
 
-« Hmph! Mon jeune maître est toujours aussi hautain. Dix ans de cours... Je veux voir la mine qu'ils auront tous quand ils échoueront! »
+« Hmph! Mon jeune maître a toujours autant de panache. Dix ans de cours... Je veux voir la mine qu'ils auront tous quand ils échoueront! »

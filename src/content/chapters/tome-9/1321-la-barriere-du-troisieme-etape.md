@@ -24,7 +24,7 @@ La neige au sommet était très dense et parfaitement lisse, sans la moindre tra
 
 L'épée de glace et la sphère tourbillonnante flottaient toujours dans les airs. La neige ne pouvait s'en approcher et contournait leur aura.
 
-Après avoir compris le Sceau d'Inversion Céleste, Wang Lin resta au sommet de la montagne pendant quatre mois supplémentaires. Le second sort, le Bouclier de Lumière et d'Ombre, contenait le pouvoir de la lumière et était éthéré. Wang Lin continuait de tenter de le déduire, mais ne trouvait aucune piste.
+Après avoir compris le Sceau d'Inversion Céleste, Wang Lin resta au sommet de la montagne pendant quatre mois supplémentaires. Le second sort, le Bouclier de Lumière et d'Ombre, contenait le pouvoir de la lumière, mais celui-ci restait très flou. Wang Lin continuait de tenter de le déduire, mais ne trouvait aucune piste.
 
 La scène du Maître du Dao Rêve Bleu utilisant ce sort se rejouait sans cesse dans son esprit.
 
@@ -32,7 +32,7 @@ Ce jour-là, Wang Lin ouvrit ses yeux fatigués et fixa la neige accumulée deva
 
 Wang Lin déploya son sens divin tout en réfléchissant. Son sens divin s'étendit à partir de la montagne comme point central. Grâce à sa puissance, il semblait se scinder en des millions de directions différentes.
 
-Il vit des montagnes blanches, la neige couvrant le sol, les rivières gelées et les glaciers flottant sur la mer.
+Il vit des montagnes blanches, la neige couvrant le sol, les rivières gelées et des blocs de glace flottant sur la mer.
 
 Il vit des cités mortelles et des mortels à l'intérieur de leurs demeures. Ils se regroupaient autour d'un feu, et il percevait la chaleur de leur vie quotidienne.
 
@@ -52,7 +52,7 @@ Cette lumière était très faible, comme si elle pouvait s'éteindre au moindre
 
 Il vit même une lumière provenant d'un squelette mort. Cette lueur était empreinte de tristesse, de regret et de lutte. Il vit également la lumière des petites bêtes!
 
-Toute vie émettait cette lumière. Les montagnes, les rivières, les mers, la terre, le ciel... tout dégageait cette faible clarté. Il pouvait même percevoir faiblement cette vie depuis l'espace.
+Toute vie émettait cette lumière. Les montagnes, les rivières, les mers, la terre, le ciel... tout dégageait cette faible clarté. Même le ciel étoilé diffusait une lumière éclatante, qu'il distinguait peu à peu.
 
 Dans son esprit, tout sur cette planète de culture contenait cette lumière. Celle-ci se propageait progressivement comme une étincelle dans une prairie, envahissant l'esprit de Wang Lin.
 
@@ -92,9 +92,9 @@ Comme le Sceau d'Inversion Céleste et le Bouclier de Lumière et d'Ombre, tout 
 
 Les sorts de Dao étaient invisibles et impossibles à expliquer. Wang Lin avait été confronté à un sort de Dao pour la première fois dans le Royaume aux Sept Couleurs face au vieil homme, et il n'avait pu y résister du tout. Sans le Royaume Ji et la Perle Défiant le Ciel, il n'aurait eu aucune chance.
 
-La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pénétra dans le domaine du Dao avec l'aide du Seigneur du Royaume Scellé. Il avait compris son propre sort de Dao, mais celui-ci était difficile à expliquer. Bien qu'incomplet, le sort de Dao de Wang Lin provoquait une étrange ondulation qui blessait l'ennemi sans que celui-ci ne s'en aperçoive. À l'extérieur de la Secte Démon, il avait pu blesser un Ancien de la Secte Démon sans que ce dernier ne s'en rende compte.
+La deuxième fois qu'il entra en contact avec un sort de Dao fut lorsqu'il pénétra pendant plusieurs années dans le domaine du Dao avec l'aide du Seigneur du Royaume Scellé. Il avait compris son propre sort de Dao, mais celui-ci était difficile à expliquer. Bien qu'incomplet, le sort de Dao de Wang Lin provoquait une étrange ondulation qui blessait l'ennemi sans que celui-ci ne s'en aperçoive. À l'extérieur du champ de bataille des fissures de la Secte Démon, il avait blessé les Anciens de la Secte Démon sans qu'ils s'en aperçoivent.
 
-À présent, c'était la troisième fois qu'il entrait en contact avec un sort de Dao. Son esprit était immergé dans un état étrange où il sentait qu'il pouvait transformer n'importe quel sort en n'importe quelle forme ou apparence.
+À présent, c'était la troisième fois qu'il entrait en contact avec un sort de Dao. Son esprit était immergé dans un état étrange où il sentait qu'il pouvait transformer n'importe quel sort et n'importe quelle matière.
 
 Comparé aux deux précédents, ce sort de Dao ne prit pas longtemps à Wang Lin pour être compris. Les sorts de Dao étaient tous ainsi: soit on les comprend, soit on ne les comprendra jamais, même après mille ou dix mille ans!
 
@@ -108,10 +108,10 @@ Le brouillard était comme une petite tempête dans la paume de Wang Lin, puis i
 
 Wang Lin ouvrit les yeux et regarda avec un sourire le nuage blanc qui s'éloignait au loin.
 
-« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan de la Soie Bleue. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans l'Ancien Système Stellaire! »
+« Ce sort peut fusionner d'autres sorts. Le premier que je dois fusionner est la Déformation Spatiale! Bien que ce sort soit puissant et me permette de me déplacer instantanément à travers l'espace infini, il possède un défaut fatal. Une fois que l'énergie d'origine du monde est perturbée, il devient inutilisable... La femme en blanc attend aux abords du Clan de la Soie Bleue. Ce n'est qu'en me défaisant totalement de son suivi que je pourrai agir à ma guise dans le Système Stellaire Antique! »
 
 « Ensuite, j'absorberai suffisamment de Flammes Joss pour compléter mes cinq essences! Le feu du Clan des Moineaux de Feu et le tonnerre du Clan du Tonnerre Dispersé seront d'excellentes sources de nutriments pour moi! »
 
-« Les marques entre les sourcils des habitants de l'Ancien Système Stellaire sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
+« Les marques entre les sourcils des habitants du Système Stellaire Antique sont étranges. Elles semblent capables de se dévorer mutuellement et d'évoluer constamment vers une forme de perfection... »
 
 « Ce que je veux savoir, c'est à quel clan appartient ce Souverain machiavélique! » Les yeux de Wang Lin s'illuminèrent. L'âme originelle de ce vieil homme aux cheveux blancs du Clan de la Lune se trouvait dans son espace de stockage. Toutes les réponses s'y trouvaient peut-être.

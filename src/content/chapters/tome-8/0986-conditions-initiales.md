@@ -8,7 +8,7 @@ slug: conditions-initiales
 ---
 Cinq étoiles apparurent rapidement entre les sourcils de Wang Lin. C'était l'une des rares fois où les étoiles du Dieu Ancien apparaissaient sans son contrôle, et elles se mirent à tourner avec frénésie.
 
-L'expression de Wang Lin changea légèrement. C'était comme si une force étrange s'était éveillée en lui. Sous l'impact de cette puissance, les souvenirs de Tu Si traversèrent son esprit.
+L'expression de Wang Lin changea légèrement; sa tête se mit à bourdonner. C'était comme si une force étrange s'était éveillée en lui. Sous l'impact de cette puissance, les souvenirs de Tu Si traversèrent son esprit.
 
 Ling Er ne cilla pas du regard alors qu'elle observait Wang Lin. Dès l'instant où les étoiles du Dieu Ancien apparurent entre ses sourcils, la confusion envahit ses yeux. Ce fut comme le passage rapide d'un nuage, laissant place à un éclat soudain dans son regard. Son corps trembla, comme si une mémoire enfouie en elle venait d'être libérée.
 
@@ -34,7 +34,7 @@ Des filaments d'énergie originelle s'élancèrent tels des dragons vers l'autel
 
 À mesure que l'énergie s'accumulait, la bouteille précieuse prit une forme tangible. Lorsqu'elle leva les mains, l'objet s'envola et se transforma en un cyclone de la taille d'un poing qui fonça vers le Dieu Ancien ressemblant à Wang Lin.
 
-Au début, ce cyclone n'était pas rapide, mais il accéléra en plein vol, générant une puissante force de succion. Il finit par percuter le front du Dieu Ancien avant d'y disparaître.
+Au début, ce cyclone n'était pas rapide, mais il accéléra en plein vol, générant une puissante force de succion. Il finit par se fondre dans le front du Dieu Ancien avant d'y disparaître.
 
 Le Dieu Ancien leva son index et pointa vers le bas. Une vague déferlante de puissance divine antique s'abattit sur Ling Er, restée agenouillée sur l'autel. Cette force se transforma à l'intérieur de son corps, puis se scinda en milliers de fragments pour se répandre dans les corps de tous ceux qui l'entouraient.
 
@@ -50,13 +50,13 @@ Dans l'Antiquité, outre la destruction de planètes pour récolter l'énergie o
 
 « Il existe un cycle de réincarnation dans ce monde. Chaque esclave de Dieu portait la marque personnelle d'un Dieu Ancien. Selon la puissance du Dieu Ancien, la part de force reçue par chaque esclave variait! »
 
-« Cependant, la marque sur Ling Er est bien trop puissante. Même après d'innombrables cycles de réincarnation, elle subsiste dans son âme... Sans cette marque, elle n'aurait jamais pu se souvenir du passé d'une époque si lointaine... »
+« Cependant, la marque sur Ling Er est bien trop puissante. Même après des myriades d'années et d'innombrables cycles de réincarnation, elle subsiste dans son âme... Sans cette marque, elle n'aurait jamais pu se souvenir du passé d'une époque si lointaine... »
 
 Wang Lin toucha l'espace entre ses sourcils. Ling Er n'était pas la seule à avoir vu cette illusion; Wang Lin l'avait vue aussi. C'était particulièrement frappant lorsque le vortex d'énergie originelle offert par la foule avait pénétré le Dieu Ancien. Wang Lin avait ressenti une chaleur entre ses sourcils, comme si une puissance y avait pénétré.
 
 Pourtant, cette force était infime. Ce n'était qu'un simple filament, mais il était d'une résilience extrême. Une fois entré dans son corps, il s'était fondu dans sa propre puissance de Dieu Ancien.
 
-Une marque supplémentaire était apparue entre les sourcils de Ling Er. Cette marque scintillait et semblait vaguement liée aux battements de cœur de Wang Lin. On pourrait même dire que chaque pulsation du cœur de Wang Lin faisait vaciller la marque. Si un jour le cœur de Wang Lin cessait de battre, la marque s'effondrerait et emporterait sa vie avec elle.
+Une marque supplémentaire était apparue entre les sourcils de Ling Er. Cette marque scintillait et semblait vaguement liée aux battements de cœur de Wang Lin. On pourrait même dire que chaque pulsation du cœur de Wang Lin faisait vaciller la marque. Si un jour le cœur de Wang Lin cessait de battre, la marque s'effondrerait et emporterait la vie de Ling Er avec elle.
 
 « Si l'âme s'effondre, tout est détruit et il n'y a plus aucune chance de réincarnation. Si un Dieu Ancien meurt, ses esclaves de Dieu suivent le même sort! Il n'y a qu'une seule explication à la survie de Ling Er au sein du cycle des réincarnations! » Tandis que Wang Lin réfléchissait, son regard brilla d'une lueur nouvelle.
 
@@ -64,7 +64,7 @@ Une marque supplémentaire était apparue entre les sourcils de Ling Er. Cette m
 
 « Je suis intervenu par accident et j'ai remplacé le propriétaire originel de cet esclave de Dieu. Ma marque a désormais supplanté la précédente, et cela ne peut s'expliquer que d'une manière: bien que l'ancien Dieu Ancien ne soit pas mort, il a perdu toute sa puissance et est devenu plus faible que moi. » Wang Lin poussa un soupir.
 
-À cet instant, il comprit pourquoi il éprouvait une certaine bienveillance envers Ling Er. Au début, il pensait que c'était à cause de sa racine spirituelle de l'eau, qui lui rappelait le passé et éveillait en lui des regrets. Mais il comprenait désormais que ce n'était pas cela: c'était parce qu'elle portait une trace du sceau d'esclave divin remontant à d'innombrables réincarnations.
+À cet instant, il comprit pourquoi il éprouvait une certaine bienveillance envers Ling Er. Au début, il pensait que c'était à cause de sa racine spirituelle de l'eau, qui lui rappelait le passé et éveillait en lui une certaine nostalgie. Mais il comprenait désormais que ce n'était pas cela: c'était parce qu'elle portait une trace du sceau d'esclave divin remontant à d'innombrables réincarnations.
 
 « Je pensais avoir tout compris de l'ancien Dieu Ancien Tu Si, mais il semble que certains souvenirs soient encore scellés... C'est probablement parce qu'il me manquait un cristal de mémoire lorsque j'ai obtenu l'héritage de la connaissance... Si je parviens à obtenir ce dernier cristal, l'héritage sera véritablement complet. »
 

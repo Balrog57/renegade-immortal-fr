@@ -112,7 +112,7 @@ Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte, o
 
 Après avoir contemplé la scène un long moment, il en fixa l'image dans sa mémoire. Il poussa un soupir et disparut dans la nuit.
 
-Dans une ville située à 5 000 kilomètres au sud, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
+Dans une ville située à 5 000 kilomètres au sud de l'Alliance des Quatre Sectes, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
 
 Ils avaient tous été rassemblés ici pour aider au déblaiement de la neige. Da Niu vivait dans l'une de ces demeures.
 

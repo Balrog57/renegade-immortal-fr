@@ -88,7 +88,7 @@ Cette tête démesurée rendait l'apparence du garçon extrêmement féroce. De 
 
 Ce garçon à la grosse tête n'avait initialement pas beaucoup de cheveux. Après avoir utilisé ce sort étrange, toute sa chevelure tomba. Il ne restait plus une seule mèche sur son crâne.
 
-Un rire strident retentit alors qu'il formait un sceau et pointait ses mains de chaque côté de sa tête. Son regard se posa sur Wang Lin et il hurla: « Sort céleste, Déplacement des Tendons! »
+Un rire strident retentit alors qu'il formait un sceau et pointait ses mains de chaque côté de sa tête. Son regard se posa sur Wang Lin et il hurla: « Art céleste-démoniaque, Déplacement des Tendons! »
 
 Alors qu'il rugissait, un craquement fracassant retentit comme un coup de tonnerre. Les nombreuses veines qui s'agitaient jaillirent de sa tête et se transformèrent en serpents venimeux d'un vert teinté de rouge. Ces derniers fusionnèrent pour s'étendre comme un pilier vers Wang Lin.
 

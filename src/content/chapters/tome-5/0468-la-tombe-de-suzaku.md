@@ -50,7 +50,7 @@ Zhou Wutai esquissa un sourire amer et soupira intérieurement. Il savait que so
 
 « Fourneau de culture... il y a quelque chose d'étrange chez elle! » Les yeux de Wang Lin s'illuminèrent. Il avait eu des différends avec Zi Xin par le passé, ils étaient donc plus ennemis qu'amis. Il remarqua un changement dans son corps; il y avait un lien entre Zi Xin et Qian Feng. Bien qu'il ignorât les détails exacts, Zi Xin avait été autrefois le fourneau de culture de Qian Feng.
 
-Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, exaucé le vœu de cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il n'avait jamais entendu parler d'un sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yun Quezi; il était convaincu que cette affaire était liée à lui.
+Le fait qu'il ait tué Qian Feng avait, d'une certaine manière, profité à cette jeune fille, un mystère que Wang Lin ne parvenait pas à percer. Il cultivait depuis longtemps, mais il n'avait jamais entendu parler d'un sort capable de permettre au fourneau de culture de voler la puissance de son maître. Ce sort était extrêmement mystérieux et étrange, mais les techniques les plus singulières possèdent toujours des failles mortelles. Wang Lin reporta alors son attention sur Yun Quezi; il était convaincu que cette affaire était liée à lui.
 
 Après une courte réflexion, Wang Lin dit: « Seigneur Messager... »
 
@@ -76,7 +76,7 @@ Si Wang Lin devenait réellement le prochain Suzaku et utilisait le Sceau de Suz
 
 Mo Zhi regarda Wang Lin et sourit. « Frère Da Niu, souhaitez-vous devenir le prochain Suzaku? »
 
-Wang Lin répondit calmement: « Seigneur Messager, même si je devenais le prochain Suzaku, je ne le transmettrais qu'à lui. » Il désigna Zhou Wutai du doigt.
+Wang Lin répondit calmement: « Seigneur Messager, même si je devenais le prochain Suzaku, je le transmettrais à lui. » Il désigna Zhou Wutai du doigt.
 
 Zhou Wutai resta sans voix. Son corps tremblait et son regard vers Wang Lin était empreint d'une immense gratitude.
 

@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 533 - demonic spiritual energy Crystal
 slug: cristal-denergie-spirituelle-demoniaque
 ---
-Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que tous possédaient un talent remarquable, bien supérieur à ce qu'était son propre corps lorsqu'il avait commencé sa culture.
+Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que tous possédaient un talent remarquable, bien supérieur à celui qu'il était lui-même lorsqu'il avait commencé sa culture.
 
-Tout en éprouvant du regret, Wang Lin se sentait également heureux. Bien qu'il n'y eût aucune énergie spirituelle ici, il y avait de l'énergie spirituelle démoniaque. Peut-être qu'en utilisant cette énergie pour cultiver l'art du drapeau d'âme, ils pourraient en tirer certains bénéfices.
+Ému, Wang Lin ressentait aussi de la joie. Bien qu'il n'y eût aucune énergie spirituelle ici, il y avait de l'énergie spirituelle démoniaque. Peut-être qu'en utilisant cette énergie pour cultiver l'art du drapeau d'âme, ils pourraient en tirer certains bénéfices.
 
 Fort de cette idée, le sens divin de Wang Lin trouva Ouyang Hua, qui planifiait des attaques contre d'autres villages et cherchait de nouveaux lieux d'habitation potentiels.
 
@@ -58,7 +58,7 @@ Wang Lin ne le regarda pas et reprit sa position assise. Tous les villageois ava
 
 Plusieurs heures passèrent avant qu'Ouyang Hua n'ouvre lentement les yeux. À l'instant même, il fut totalement stupéfait. Le monde entier lui semblait soudainement différent. Les fleurs étaient toujours des fleurs, l'herbe était toujours de l'herbe et le mur était toujours aussi robuste, mais à ses yeux, tout avait changé.
 
-Un sentiment de renaissance résonna dans le cœur d'Ouyang Hua. Il ne put s'empêcher de verser deux traînées de larmes. Il n'avait même pas besoin de vérifier s'il avait atteint le stade des deux étoiles, celui qui permet de percevoir les choses infimes. Il s'agenouilla respectueusement devant Wang Lin et s'inclina trois fois.
+Un sentiment de renaissance résonna dans le cœur d'Ouyang Hua. Il ne put s'empêcher de verser deux traînées de larmes. Il n'avait même pas besoin de vérifier s'il avait atteint le stade des deux étoiles, celui qui permet de percevoir les choses infimes. Il s'agenouilla respectueusement devant Wang Lin et se prosterna trois fois.
 
 « Merci, Suprême Céleste! »
 

@@ -16,7 +16,7 @@ Alors qu'il se trouvait dans la capitale, une partie de son âme originelle quit
 
 Il en fit le tour et raffina une partie du filon. Lorsque cette fraction de son âme originelle revint en lui, une quantité considérable de cristaux mortels se trouvait dans son espace de stockage.
 
-Traversant la ville sans utiliser le moindre sort, il atteignit progressivement la partie ouest. Les maisons y étaient innombrables et les rues étaient en ruines. Même les habitations semblaient vieilles et délabrées, comme si elles n'avaient pas été entretenues depuis des lustres.
+Traversant la ville sans utiliser le moindre sort, il atteignit progressivement la partie ouest. Les maisons y étaient innombrables et les rues étaient délabrées. Même les habitations semblaient vieilles et délabrées, comme si elles n'avaient pas été entretenues depuis des lustres.
 
 Cependant, un détail étrange frappait l'observateur: presque chaque maison arborait une guirlande de feuilles enfilées, suspendue sous son avant-toit. Cela semblait être une coutume unique à cet endroit.
 
@@ -98,7 +98,7 @@ L'âme originelle de Wang Lin chargea les six dragons restants. Il fendit les fl
 
 La nuit passa progressivement et le soleil finit par illuminer la terre, éveillant la cité endormie. Cependant, la lumière tarda à percer car d'épais nuages sombres obstruaient le ciel, rendant l'atmosphère brumeuse.
 
-Des grondements de tonnerre s'échappèrent des nuages d'orage et une fine pluie commença à tomber.
+Des grondements de tonnerre s'échappèrent des nuages d'orage et une pluie battante se mit soudain à tomber.
 
 Wang Lin ouvrit les yeux, assis en méditation.
 

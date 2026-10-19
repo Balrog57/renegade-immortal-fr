@@ -14,7 +14,7 @@ Wang Lin émergea en titubant du centre des ondes. Son visage était pâle et, d
 
 L'expression de Li Qianmei était encore plus défaite; elle commençait à dépérir.
 
-Lorsque Tuo Sen chassait Wang Lin, il avait craint de blesser Li Qianmei; il l'avait donc entourée d'énergie originelle pour maintenir le sort du Temps Fluide et l'avait placée dans son espace de stockage. Cela lui permettait de ne pas subir de dommages durant la bataille fatidique entre Wang Lin et Tuo Sen.
+Lorsque Tuo Sen chassait Wang Lin, celui-ci avait craint de blesser Li Qianmei; il l'avait donc entourée d'énergie originelle pour maintenir le sort du Temps Fluide et l'avait placée dans son espace de stockage. Cela lui permettait de ne pas subir de dommages durant la bataille fatidique entre Wang Lin et Tuo Sen.
 
 Cependant, être dans un espace de stockage n'était pas aussi bénéfique que d'être aux côtés de Wang Lin. Durant le court laps de temps écoulé pendant le combat, Li Qianmei avait perdu une grande partie de sa vitalité.
 
@@ -34,7 +34,7 @@ Wang Lin ne voulait rien qui puisse troubler ce voyage. Il voulait accompagner s
 
 Aujourd'hui, Wang Lin accomplissait sa promesse d'autrefois en accompagnant Li Qianmei vers son dernier voyage.
 
-La beauté de l'espace ne résidait pas dans les nébuleuses éclatantes ou les météores étincelants, mais dans ce silence extrême. Dans ce silence, on pouvait ressentir sa propre solitude et éprouver la froideur d'être le dernier survivant au monde...
+La beauté de l'espace ne résidait pas dans les nébuleuses éclatantes ou les météores étincelants, mais dans ce silence extrême. Dans ce silence, on pouvait ressentir sa propre solitude et éprouver la froideur d'être seul au monde...
 
 Tenant Li Qianmei, le regard de Wang Lin s'adoucit. Il se dirigea vers le domaine du Clan de la Soie Bleue, s'en rapprochant de plus en plus.
 
@@ -54,9 +54,9 @@ En raison de cela, les membres du Clan de la Soie Bleue étaient devenus des par
 
 C'était une source de douleur et de chagrin pour le clan. Cette tristesse imprégna leurs cœurs durant de longues époques, conférant aux femmes comme aux hommes du clan un sentiment de beauté singulier et mélancolique.
 
-La joie avait disparu de leur musique; celle-ci était devenue l'unique moyen d'exprimer la peine de leurs âmes alors qu'ils devenaient les esclaves des grands clans.
+La joie avait disparu de leur musique; celle-ci était devenue l'unique moyen d'exprimer la peine de leurs âmes alors qu'ils devenaient les dépendants des grands clans.
 
-Ils n'avaient pas de foyer. Chaque membre du clan était emmené avant même d'atteindre l'âge adulte, sans que l'on sache jamais ce qu'il adviendrait de leur vie. Aucun espoir ne leur permettait de revenir chez eux.
+Ils n'avaient aucune liberté. Chaque membre du clan était emmené avant même d'atteindre l'âge adulte, sans que l'on sache jamais ce qu'il adviendrait de leur vie. Aucun espoir ne leur permettait de revenir chez eux.
 
 Tout cela perdura jusqu'à l'ascension du Maître du Dao Rêve Bleu, qui provoqua un changement radical!
 
@@ -116,7 +116,7 @@ Ses yeux étaient glacials, et il ne prononça qu'un mot:
 
 « Dégage! »
 
-La femme en blanc resta pensive mais imperturbable. Son expression ne changea absolument pas face à cette injonction.
+La femme en blanc resta silencieuse mais imperturbable. Son expression ne changea absolument pas face à cette injonction.
 
 Après un long silence, elle dit calmement: « Il a déjà été choisi, tu ne pourras pas le protéger. »
 
@@ -134,4 +134,4 @@ Wang Lin regarda Li Qianmei, endormie dans ses bras, et murmura doucement: « Qi
 
 C'est à cet instant qu'une lumière bleue infinie émana du domaine stellaire du Clan de la Soie Bleue. Tandis que cette lueur immense se déployait, une voix grave résonna à travers le monde:
 
-« Remets-la-moi! »
+« Donne-la-moi! »

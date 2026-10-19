@@ -22,9 +22,9 @@ Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce viei
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Temple Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
+« Senior, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le sommet du stade avancé de l'Ascendant. Cependant, le Temple Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
 
-Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes de la Pluie et du Tonnerre étaient tous deux des passages vers l'ancien Royaume Céleste.
+Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre étaient tous des passages vers l'ancien Royaume Céleste.
 
 Après avoir recueilli ces informations, Wang Lin regarda calmement Shengong Hu et dit: « Peu importe. Tu peux rester ici pour cultiver, mais ne dérange pas ce vieil homme! »
 
@@ -72,7 +72,7 @@ Même lui ne put s'empêcher de ressentir un certain engourdissement. Wang Lin p
 
 L'action de Wang Lin provoqua une série d'explosions qui tirèrent Shengong Hu de sa torpeur. Il prit une grande inspiration et ouvrit les yeux, mais en voyant Wang Lin, ses pupilles se rétractèrent brusquement.
 
-« Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme originelle en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
+« Il est digne de son rang de Senior. Il a osé attirer autant de tonnerre dans son corps à cent pas de profondeur, sans même changer d'expression. Si j'avais été à sa place, ma chair n'aurait pu le supporter et même mon âme originelle en aurait été endommagée. » Les yeux de Shengong Hu s'illuminèrent d'excitation.
 
 « Il semble que je doive redoubler d'efforts! » Ses yeux brillèrent, puis il attira davantage de tonnerre dans son corps. Son torse trembla tandis qu'il commençait aussitôt l'absorption.
 
@@ -86,7 +86,7 @@ Durant ces deux ans, Wang Lin resta presque immobile, mais au lieu de dix fois l
 
 Quant à Shengong Hu, il travailla encore plus dur durant cette période et ses blessures se guérirent progressivement.
 
-Au cours de ces deux années, Wang Lin avait observé Shengong Hu. Cet homme cultivait également le sort d'origine du tonnerre. Cependant, Wang Lin ne parvenait à absorber qu'une trace de chaque filament de tonnerre, tandis que Shengong Hu en absorbait dix fois plus.
+Au cours de ces deux années, Wang Lin avait observé Shengong Hu. Cet homme cultivait également le sort d'origine du tonnerre. Cependant, Wang Lin ne parvenait à absorber qu'une trace de chaque filament de tonnerre, tandis que Shengong Hu en absorbait plus de dix fois davantage.
 
 En observant et en découvrant peu à peu certains indices, il comprit que cela dépendait grandement de la quantité d'énergie originelle dont on disposait. Plus l'énergie originelle était abondante, plus la capacité d'absorption augmentait.
 

@@ -8,7 +8,7 @@ slug: tie-zhu
 ---
 La lumière jaune semblait être un appel vers les origines. Quiconque était enveloppé par elle ressentait un sentiment de réincarnation, les souvenirs du passé défilant devant ses yeux, rendant impossible toute distinction avec le présent.
 
-Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Leur puissance était liée au niveau de culture de chacun. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
+Les sorts contrôlaient le pouvoir du monde et se manifestaient de manière singulière. Leur puissance était liée au niveau de culture de chacun et à la technique employée. Les capacités étaient une méthode pour augmenter de façon explosive la puissance des sorts, un moyen de rassembler et de manipuler l'énergie originelle.
 
 Cependant, le Dao était différent. Il était très rare que quelqu'un maîtrise un sort Dao. La rumeur prétendait que seuls ceux qui atteignaient le Royaume du Dao pouvaient en obtenir un. Les sorts Dao étaient similaires aux batailles de domaines, mais leur essence différait grandement.
 
@@ -38,7 +38,7 @@ Un petit sentier apparut à ses côtés... Un chemin de terre qui s'enfonçait d
 
 « J'ai dû faire un rêve... » Wang Lin se gratta le visage, son expression honnête trahissant une profonde confusion. Il ramassa le livre à ses côtés et se leva. En regardant la forêt au loin, il aperçut vaguement les montagnes brumeuses et les pavillons appartenant à la secte sur les hauteurs.
 
-« Dans ce rêve, je suis devenu un immortel... et j'ai vécu plus de mille ans de culture. J'ai dû trop étudier pour faire un rêve aussi étrange. » Wang Lin était perplexe, plongé dans une sorte de torpeur.
+« Dans ce rêve, je suis devenu un immortel... et j'ai vécu une vie de plus de mille ans. J'ai dû trop étudier pour faire un rêve aussi étrange. » Wang Lin était perplexe, plongé dans une sorte de torpeur.
 
 Alors qu'il était ainsi égaré, une voix atteignit ses oreilles: « Tie Zhu, ton père te cherche. Pourquoi n'es-tu pas encore rentré à la maison? » C'était un homme d'âge moyen tenant une fourche de chasse, s'apprêtant à quitter le village.
 
@@ -106,4 +106,4 @@ Cette puissance n'appartenait pas à un mortel, mais en cet instant, Wang Lin l'
 
 Au moment où le Royaume Ji vit le jour, ce cri misérable résonna, chargé d'un choc inimaginable!
 
-« Ji... C'est étonnamment le Ji!! Qu'a-t-il enduré dans sa vie pour que le Ji apparaisse ainsi? La Perle Défiant le Ciel est entre ses mains, et le Royaume Ji est entre ses mains. Cet homme... cet homme... » La panique imprégnait la voix, qui devint d'autant plus claire en résonnant. Le ciel s'effondra, la terre vacilla, et la lumière aux sept couleurs envahit le monde.
+« Ji... C'est étonnamment le Ji!! Qu'a-t-il enduré dans sa vie pour que le Ji apparaisse ainsi? La Perle Défiant le Ciel est entre ses mains, et le Royaume Ji est entre ses mains. Cet homme... cet homme... » La panique imprégnait la voix, qui devint d'autant plus claire en résonnant. Le ciel s'effondra, la terre s'écroula, tout bascula, et la lumière aux sept couleurs envahit le monde.

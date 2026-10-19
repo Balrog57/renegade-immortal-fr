@@ -16,7 +16,7 @@ Ce fossé est presque impossible à combler, que ce soit dès le départ ou bien
 
 Cependant, comme peu de gens parviennent à comprendre leur propre domaine, la majorité des cultivateurs opte pour la première méthode.
 
-C'est ainsi que certains cultivateurs de la Formation de l'Âme sont tués tandis que d'autres vivent en paix. Le messager qui se trouvait à Zhao avait choisi la première méthode, c’est pourquoi il avait décidé de s'enfuir après avoir aperçu le trésor magique de Wang Lin.
+C'est ainsi que certains cultivateurs de la Formation de l'Âme sont tués tandis que d'autres vivent en paix. Le messager du pays de culture de rang 4 qui se trouvait à Zhao avait choisi la première méthode, c’est pourquoi il avait décidé de s'enfuir après avoir aperçu le trésor magique de Wang Lin.
 
 Toutefois, rien n'est absolu; certains cultivateurs ayant choisi la première méthode parviennent à franchir le stade de la Transformation de l'Âme, mais ils sont bien trop peu nombreux et demeurent très faibles parmi les experts de la Transformation de l'Âme.
 
@@ -32,7 +32,7 @@ C'était Wang Lin!
 
 En contemplant les terres qui s'étendaient devant lui, Wang Lin ressentit une bouffée de mélancolie. Zhao n'était pas très vaste. Grâce à son seul Sens Divin, il pouvait aisément percevoir tout ce qui s'y passait.
 
-Après le massacre perpétré par Wang Lin, les cultivateurs de Zhao s'étaient considérablement affaiblis, particulièrement suite à la mort de plusieurs cultivateurs du stade avancé de l'Âme Naissante. Ce fut un coup terrible pour Zhao. Au cours des dernières décennies, toutes les sectes avaient fermé leurs portes.
+Après le massacre perpétré par Wang Lin, les cultivateurs de Zhao s'étaient considérablement affaiblis, particulièrement suite à la mort de plusieurs cultivateurs du stade avancé de l'Âme Naissante. Ce fut un coup terrible pour Zhao. Au cours des dernières décennies, presque toutes les sectes avaient fermé leurs portes.
 
 Parmi les cultivateurs de Zhao, les rumeurs sur Wang Lin circulaient encore aujourd'hui. D'innombrables individus étaient toujours terrifiés par ces récits, et ceux qui avaient croisé le regard de Wang Lin se réveillaient encore en pleine nuit, couverts de sueur froide.
 
@@ -54,7 +54,7 @@ La grotte était déserte. Dès que Wang Lin fut à l'intérieur, le rocher de l
 
 Assis en tailleur, Wang Lin examina les lieux. Des souvenirs familiers envahirent son esprit. Il soupira et commença sa culture.
 
-Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Sa main traça un sceau qu'il pressa contre sa poitrine. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
+Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Ses deux mains traçèrent un sceau qu'il pressa contre sa poitrine. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
 
 Son corps original émergea de son avatar; il arborait une chevelure blanche retombant sur ses épaules, un visage glacial et une marque en forme d'étoile entre les sourcils, dégageant une lueur maléfique.
 
@@ -68,7 +68,7 @@ Quant à son avatar, il était sur le point d'atteindre le stade de la Formation
 
 À cet instant précis, il s'apprêtait à atteindre la Formation de l'Âme, et si la fusion avec son corps original persistait, cela entraverait le processus de percée.
 
-Wang Lin commença à réfléchir. Si le niveau de culture de son corps original stagnait, les inconvénients seraient trop nombreux. Il avait commencé à envisager cette question il y a plusieurs années sans toutefois pouvoir trancher. Cependant, sa compréhension du domaine de la vie et de la mort s'était considérablement accrue, surtout après l'incident au sanctuaire.
+Wang Lin commença à réfléchir. Si le niveau de culture de son corps original stagnait, les inconvénients seraient trop nombreux. Il avait commencé à envisager cette question il y a plusieurs années sans toutefois pouvoir trancher. Cependant, sa compréhension du domaine de la vie et de la mort s'était considérablement accrue, surtout après l'illumination au sanctuaire.
 
 Son cœur hésitant prit enfin une décision.
 
@@ -104,7 +104,7 @@ Le niveau de culture du corps original chuta alors brutalement. 14e couche de Co
 
 Dans ces yeux, un éclair de foudre rouge traversa le regard.
 
-L'avatar prit une profonde inspiration. Cette fois, son doigt pointa l'espace entre les deux sourcils du corps original. Soudain, ce rayon de foudre rouge jaillit. Juste au moment où il s'apprêtait à percer le mur, l'avatar poussa un rugissement. Sa main bougea et des anneaux de lumière piégèrent l'éclair rouge. Il tendit la main pour le saisir. La foudre rouge se débattit un instant avant d'abandonner toute résistance.
+L'avatar prit une profonde inspiration. Cette fois, son doigt pointa l'espace entre les deux sourcils du corps original. Soudain, ce rayon de foudre rouge jaillit. Juste au moment où il s'apprêtait à percer le mur, l'avatar poussa un rugissement. Ses deux mains bougèrent et un rideau de lumière piégea l'éclair rouge. Il tendit la main pour le saisir. La foudre rouge poussa un cri muet de révolte avant de s'immobiliser.
 
 L'avatar saisit l'éclair rouge, le métamorphosa en une goutte de sang, puis la rangea dans son sac de rangement.
 
@@ -112,9 +112,9 @@ Cette goutte de sang était le Royaume Ji!
 
 Le corps original avait sacrifié sa culture pour forcer l'expulsion du Royaume Ji, le transformant ainsi en un objet semblable à un trésor magique.
 
-Peu après, le corps original parvint péniblement à se redresser et ferma les yeux. À cet instant, l'avatar projeta l'énergie spirituelle de l'anneau de fondation dans le corps original. Le liquide issu du noyau fut également renvoyé vers lui.
+Peu après, le corps original parvint péniblement à s'asseoir en tailleur et ferma les yeux. À cet instant, l'avatar projeta l'énergie spirituelle de l'anneau de fondation dans le corps original. Le liquide issu du noyau fut également renvoyé vers lui.
 
-Une énergie spirituelle infinie afflua dans le corps original, mais celui-ci n'avait aucune intention de reprendre la culture conventionnelle. Au lieu de cela, il commença à appliquer la technique de l'Ancien Dieu. Sous cette puissance, toute l'énergie spirituelle fut absorbée par la chair et les os.
+Une énergie spirituelle immense afflua dans le corps original, mais celui-ci n'avait aucune intention de reprendre la culture conventionnelle. Au lieu de cela, il commença à appliquer la technique de l'Ancien Dieu. Sous cette puissance, pareille à une meule, toute l'énergie spirituelle fut absorbée par la chair et les os.
 
 Au cours du processus d'absorption, des fragments d'une substance rouge passèrent de l'anneau vers le corps original.
 

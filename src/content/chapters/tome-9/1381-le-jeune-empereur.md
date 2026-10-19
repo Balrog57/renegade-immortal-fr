@@ -56,7 +56,7 @@ Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgrac
 
 Son père, le Patriarche du Dragon Blindé, affichait un visage sombre. Il interrompit son fils d'un ton lugubre:
 
-« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Simo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis un Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Il n'a pas respecté l'exigence des cinq respirations du Grand Empereur, mais même s'il l'avait fait, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
+« Pourquoi paniquer? Le fait d'avoir pu blesser et forcer l'avatar de Maître Simo, un cultivateur du Cinquième Fléau Céleste, à battre en retraite prouve qu'il est très puissant. Ton père n'est certes pas son égal, mais je suis un Ancien du Conseil Déchu et j'ai été loyal envers le Grand Empereur, tandis qu'il n'est qu'un simple étranger. Le Grand Empereur n'a pas confirmé sa parole sur les cinq respirations, mais même si c'était le cas, s'il m'avait provoqué, le Grand Empereur l'aurait tout de même tué! Hmph, il n'osera pas me chercher des ennuis. À sa place, je partirais immédiatement pour trouver un endroit où guérir. »
 
 Wang Lin flottait dans les airs et poussa un profond soupir. Bien que son combat contre l'avatar de Maître Simo eût été bref, il avait été chargé de danger et il était blessé. Ce qui le rendait encore plus prudent était l'attitude du Grand Empereur.
 

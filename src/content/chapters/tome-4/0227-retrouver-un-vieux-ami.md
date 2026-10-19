@@ -48,7 +48,7 @@ Bien que le chaos causé par la pluie noire se fût dissipé, celui provoqué pa
 
 Parallèlement, une nouvelle activité spécialisée dans la chasse et la vente de cœurs de bêtes apparut. Ces cultivateurs se déplaçaient en petits groupes et possédaient tous un certain niveau de culture. Ils chassaient les monstres et vendaient leurs cœurs pour subsister.
 
-Ce jour-là, dans la partie intérieure de la Mer des Démons, aux abords de la ville de Xuan Di, un cultivateur vêtu de blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
+Ce jour-là, dans la partie intérieure de la Mer des Démons, aux abords de la ville de Xuan Di, un cultivateur vêtu d'une robe de brocart blanc contemplait l'horizon. C'était un homme d'âge moyen, très beau, au regard empreint de sagesse.
 
 Après un long moment, il fronça les sourcils. D'un revers de manche, il descendit lentement le long des remparts de la ville.
 

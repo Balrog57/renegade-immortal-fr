@@ -63,11 +63,11 @@ Quant aux anciens cultivateurs de l'Alliance qui avaient fondé leurs propres se
 
 En complément de cet ordre, l'Alliance de Culture émit un décret scellé:
 
-« Toutes les sectes formées par d'anciens cultivateurs de l'Alliance qui résisteront aux cultivateurs de Luotian durant soixante ans pour protéger le quartier général seront intégrées au groupe des Anciens et jouiront de toute la puissance de l'héritage du Royaume Céleste. Ceux qui fuient sans combattre verront leur âme originelle détruite lors de l'effondrement de l'Alliance! »
+« Toutes les sectes formées par d'anciens cultivateurs de l'Alliance qui résisteront aux cultivateurs de Luotian durant soixante ans pour protéger le quartier général seront intégrées au groupe des Anciens et jouiront de toute la puissance de l'héritage du Royaume Céleste. Ceux qui fuient sans combattre verront leur âme de vie détruite lors de l'effondrement de l'Alliance! »
 
 De plus, lors de l'ouverture du quartier général, une quantité prodigieuse de trésors et de jades fut envoyée aux anciens membres de l'Alliance. Tous ces trésors et sorts célestes avaient été accumulés par l'Alliance durant d'innombrables années; les distribuer en si grande quantité témoignait de la gravité du péril auquel le quartier général faisait face.
 
-Après avoir diffusé ces deux ordres et distribué ces richesses, la formation extérieure se réactiva, scellant à nouveau le lieu. Cependant, cette brève ouverture avait glacé le cœur des anciens cultivateurs de l'Alliance. La plupart d'entre eux ne possédaient pas leur âme originelle sur eux. Plus un cultivateur était puissant, plus l'Alliance s'imposait avec force pour la lui prendre. Résister signifiait mourir. C'était ainsi que l'Alliance de Culture avait pu régner sur le système stellaire durant des éons.
+Après avoir diffusé ces deux ordres et distribué ces richesses, la formation extérieure se réactiva, scellant à nouveau le lieu. Cependant, cette brève ouverture avait glacé le cœur des anciens cultivateurs de l'Alliance. La plupart d'entre eux ne possédaient pas leur âme de vie sur eux. Plus un cultivateur était puissant, plus l'Alliance s'imposait avec force pour la lui prendre. Résister signifiait mourir. C'était ainsi que l'Alliance de Culture avait pu régner sur le système stellaire durant des éons.
 
 Au moment même où les ordres étaient envoyés, les Quatre Sectes Divines surgirent dans la région est! Elles avaient agi exactement comme Luotian le soupçonnait: elles avaient anéanti toutes les autres forces de la région est, à l'exception du Royaume du Vide Brillant!
 

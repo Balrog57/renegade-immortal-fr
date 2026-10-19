@@ -40,7 +40,7 @@ C'était la différence entre les généraux et les soldats. Les petites créatu
 
 En s'approchant, Wang Lin put voir qu'au milieu de cet immense amas de tourbillons se dressait une tour noire vertigineuse. Bossu Meng devait être à l'intérieur.
 
-Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait réalisé qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne pensait pas pouvoir tuer Bossu Meng, mais il voulait profiter de cette chance pour dérober quelques trésors.
+Wang Lin n'était pas pressé. S'il avait ordonné au second démon de le mener ici, c'était parce qu'il avait réalisé qu'il pouvait s'approcher sans être détecté. Il agissait selon les opportunités offertes. Il ne comptait pas tuer Bossu Meng, mais s'il s'y prenait bien, il pourrait encore lui dérober quelques trésors.
 
 Le marquage du sens divin laissé sur le second démon différait de celui laissé sur Xu Liguo. Le démon Xu Liguo avait été cultivé pendant très longtemps, si bien que le marquage de Wang Lin y était profondément ancré. En réalité, Wang Lin n'aurait même pas eu besoin de son Royaume Ji; une simple pensée lui aurait suffi pour détruire Xu Liguo. Cependant, en circonstances normales, il n'utiliserait pas ce marquage pour attaquer. Il le gardait comme dernier recours.
 
@@ -50,7 +50,7 @@ Mais le second démon était autre chose. Bien que le marquage de Wang Lin sur l
 
 S'il avait empêché le second démon de continuer à fusionner avec les autres dominants des tourbillons voisins, c'était par crainte qu'en en dévorant trop, il ne dilue le sens divin laissé par Wang Lin. Un retour de flamme se serait alors certainement produit. Avec la ruse qu'on lui connaissait, Wang Lin ne laisserait jamais une telle chose arriver.
 
-Si même quelqu'un d'aussi tenace que Xu Liguo avait été totalement apprivoisé par Wang Lin, un démon créé à partir d'une simple bête ne pouvait faire le poids.
+Si même quelqu'un d'aussi tenace que Xu Liguo avait été totalement apprivoisé par Wang Lin, un démon façonné à partir d'âmes de bêtes ne pouvait faire le poids.
 
 Le visage de Bossu Meng était aussi sombre que l'eau boueuse alors qu'il regardait amèrement les tourbillons extérieurs. Il fixa longuement le plus grand d'entre eux, le regard empreint de méfiance. Le sens divin à l'intérieur du plus grand tourbillon était presque aussi puissant que celui de tous les autres réunis; sous son impulsion, même son poison destructeur du ciel avait été brisé de force et chassé très loin.
 
@@ -80,7 +80,7 @@ Alors qu'il parlait, sa main droite plongea soudainement dans la gueule du crapa
 
 Bossu Meng ferma les yeux avant de les rouvrir brusquement. Son regard était devenu impitoyable lorsqu'il déclara d'une voix lourde: « Li Tian, je suis désolé! » Sur ce, sa main droite se retira violemment. Il tenait dans sa main un noyau d'origine noir d'encre, gros comme un poing, qui émettait de puissantes fluctuations d'énergie spirituelle.
 
-Le crapaud, Li Tian, s'affaiblit jusqu'à basculer sur le côté. Il laissa échapper un faible croassement alors que toutes les pustules de son dos éclataient, libérant un liquide noir fétide qui recouvrit son corps. Même son cri n'avait plus aucune force.
+Le crapaud, Li Tian, s'affaiblit jusqu'à basculer sur le côté. Il laissa échapper un faible croassement alors que toutes les pustules de son dos éclataient, libérant un liquide noir fétide qui recouvrit son corps. Même le gargouillis du liquide semblait sans force.
 
 Sans l'ombre d'une hésitation, Bossu Meng engouffra le noyau d'origine du crapaud dans sa bouche. Son corps se mit immédiatement à convulser et une fumée noire jaillit de son visage. Il poussa quelques rugissements alors que toutes les pustules de sa face éclataient. Un liquide noir jaillit de partout, dégageant une fumée sombre en frappant les murs.
 
@@ -172,4 +172,4 @@ Frappé par l'onde sonore, Bossu Meng sentit ses os et sa chair se briser. Les p
 
 En voyant que son attaque de sang avait été bloquée et que Wang Lin s'était échappé, il ne ressentit même pas de chagrin pour son sac volé. Au lieu de cela, une soif de vengeance absolue l'envahit. Si ce n'était pas pour Wang Lin, il aurait déjà franchi le barrage pour atteindre la seconde épreuve.
 
-Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Bossu Meng réalisa immédiatement qu'il avait involontairement ouvert la voie à Wang Lin, attirant sur lui l'attention de tous les tourbillons. Sinon, avec une culture de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité?
+Tout avait basculé à cause de l'apparition de ce garçon. Avec son intelligence, Bossu Meng réalisa immédiatement qu'il n'avait fait que servir d'avant-garde à Wang Lin, en retenant pour lui tous les tourbillons. Sinon, avec une culture de la Formation du Noyau, comment ce gamin aurait-il pu franchir la première épreuve en toute sécurité?

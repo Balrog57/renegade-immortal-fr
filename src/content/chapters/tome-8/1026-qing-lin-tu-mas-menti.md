@@ -20,7 +20,7 @@ Désormais dépourvu du sceau du Gardien Céleste, Ta Shan fut envahi par une au
 
 Un tatouage complexe se forma progressivement sous ses doigts, gravé profondément entre les sourcils de Ta Shan.
 
-« En tant qu'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
+« Au nom de l'Ancêtre Sainte de votre clan du Tatouage, j'active l'esprit de votre lignée et je vous accorde le Saint Tatouage du clan... » La voix de la femme paraissait épuisée. Au moment où elle traça le dernier trait, la rune étincela et les yeux de Ta Shan s'illuminèrent. Son corps cessa de trembler et il retrouva son calme, fixant la femme devant lui avec un regard empreint de confusion.
 
 Tandis qu'elle gravait ce nouveau tatouage sur Ta Shan, elle plongea sans retenue dans ses souvenirs. Elle vit comment le clan de Ta Shan avait vécu à l'intérieur de la Bête des Limbes, sacrifié aux Célestiels. Elle vit comment ces derniers les avaient marqués d'une empreinte d'esclave. Elle vit l'apparition de Wang Lin, qui les avait extirpés de la Bête des Limbes pour leur trouver un nouveau foyer.
 
@@ -62,9 +62,9 @@ Son regard était impitoyable et glacial, mais ses yeux étaient totalement dép
 
 Dès que son ombre apparut, une aura telle qu'on aurait dit que lui seul pouvait régner sur le monde se propagea. À cet instant, même l'expression de puissants êtres comme l'Omniscient changea! D'innombrables avatars de ce dernier commencèrent à apparaître autour de lui; ce n'était pas de sa volonté, mais une réaction instinctive au choc provoqué par cette aura!
 
-« Il était encore plus puissant que cet homme!! » L'Omniscient prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être!
+« Il était encore plus puissant que le Qing Lin d'autrefois!! » L'Omniscient prit une inspiration glacée, les yeux écarquillés par la peur. Il n'avait ressenti un tel choc qu'une seule fois auparavant, face à cet être!
 
-Lorsque Wang Lin aperçut l'apparition, il eut un haut-le-cœur et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue dans le grand palais de la Concubine Impériale Fleur!
+Lorsque Wang Lin aperçut l'apparition, il eut un sursaut et ses pupilles se contractèrent. Il reconnut immédiatement que cet homme ressemblait trait pour trait à la sculpture de Qing Lin qu'il avait vue dans le grand palais de la Concubine Impériale Fleur!
 
 « Qing Lin! »
 

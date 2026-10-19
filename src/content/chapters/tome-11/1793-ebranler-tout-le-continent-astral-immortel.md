@@ -32,17 +32,17 @@ Le cœur de Miao Yin trembla et il abandonna amèrement toute résistance inutil
 
 La mer redevint calme, comme si rien ne s'était produit. Wang Lin se détourna et s'élança vers le ciel.
 
-« Il reste encore le Maître Ciel Dieu Vide! » Les yeux de Wang Lin brillèrent alors qu'il scrutait l'horizon. Il localisa le corps original du Maître Ciel Dieu Vide.
+« Il reste encore le Maître Céleste Dieu du Vide! » Les yeux de Wang Lin brillèrent alors qu'il scrutait l'horizon. Il localisa le corps original du Maître Céleste Dieu du Vide.
 
-Wang Lin avait tué l'avatar du Maître Ciel Dieu Vide et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
+Wang Lin avait tué l'avatar du Maître Céleste Dieu du Vide et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
 
-Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu et au Maître Nan Yunzi. Il allait les résoudre lui-même!
+Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu, au Maître Nan Yunzi et aux autres. Il allait les résoudre lui-même!
 
 Son regard balaya les étoiles et son corps disparut.
 
 Dans la partie sud du Système d'Étoiles Anciennes, se trouvait une zone jonchée de débris. Une planète s'y trouvait autrefois, mais elle s'était effondrée, créant un désert de mort parsemé de roches.
 
-Le Maître Ciel Dieu Vide demeurait ici. Il avait renoncé à entrer dans le Royaume Intérieur et même à toute idée de combat. Toutefois, lui-même ignorait si cette situation était temporaire ou permanente.
+Le Maître Céleste Dieu du Vide demeurait ici. Il avait renoncé à entrer dans le Royaume Intérieur et même à toute idée de combat. Toutefois, lui-même ignorait si cette situation était temporaire ou permanente.
 
 Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur extrême envers Wang Lin lui nouait le cœur.
 
@@ -50,37 +50,37 @@ Pour l'instant, il n'osait pas pénétrer dans le Royaume Intérieur. Une peur e
 
 Jusqu'à ce que sa culture soit pleinement restaurée, jusqu'à ce qu'il atteigne à nouveau son apogée et qu'il puisse enfin sortir pour reprendre le contrôle des étoiles et ébranler le monde des grottes! Il en était certain, pourvu qu'on ne vienne pas l'importuner.
 
-En vérité, même si quelqu'un venait le troubler, le Maître Ciel Dieu Vide s'en moquait, tant que cette personne n'était pas Wang Lin.
+En vérité, même si quelqu'un venait le troubler, le Maître Céleste Dieu du Vide s'en moquait, tant que cette personne n'était pas Wang Lin.
 
 Cependant, alors que ce souhait était noble, la réalité se montra cruelle. Ce jour-là, bien que le système stellaire semblât normal, une pression invisible descendit sur la zone.
 
 L'arrivée de cette pression rendit l'endroit instable. Une multitude de roches éparses volèrent en éclats et furent projetées au loin, comme un halo de poussière se dispersant dans l'espace.
 
-Le Maître Ciel Dieu Vide ouvrit soudainement les yeux, le visage empreint d'amertume. Il vit la silhouette blanche qu'il n'oublierait jamais marcher vers lui.
+Le Maître Céleste Dieu du Vide ouvrit soudainement les yeux, le visage empreint d'amertume. Il vit la silhouette blanche qu'il n'oublierait jamais marcher vers lui.
 
 Cette chevelure d'un blanc immaculé était un cauchemar qui faisait trembler son âme.
 
-« Il... est encore venu... » Songea silencieusement le Maître Ciel Dieu Vide en regardant Wang Lin s'approcher, les yeux emplis de désespoir.
+« Il... est encore venu... » Songea silencieusement le Maître Céleste Dieu du Vide en regardant Wang Lin s'approcher, les yeux emplis de désespoir.
 
-« Wang Lin, autrefois je voulais te posséder et je voulais te tuer, mais j'ai échoué. Mon avatar est mort et j'ai fait le vœu de ne jamais entrer dans le Royaume Intérieur de ma vie... Peux-tu... peux-tu me laisser partir, juste cette fois? » Le Maître Ciel Dieu Vide parlait rarement ainsi, mais il n'avait plus d'autre choix.
+« Wang Lin, autrefois je voulais te posséder et je voulais te tuer, mais j'ai échoué. Mon avatar est mort et j'ai fait le vœu de ne jamais entrer dans le Royaume Intérieur de ma vie... Peux-tu... peux-tu me laisser partir, juste cette fois? » Le Maître Céleste Dieu du Vide parlait rarement ainsi, mais il n'avait plus d'autre choix.
 
 Tout en parlant, il se leva et joignit les mains devant Wang Lin en signe de respect.
 
-Wang Lin se tenait sur un rocher à mille pieds du Maître Ciel Dieu Vide. Après une courte réflexion silencieuse, il prit la parole lentement.
+Wang Lin se tenait sur un rocher à mille pieds du Maître Céleste Dieu du Vide. Après une courte réflexion silencieuse, il prit la parole lentement.
 
 « Tu n'es pas fait pour exister ici. Je me rends au Continent Astral Immortel. De nombreuses personnes ont décidé de s'y réincarner. Tu feras de même, afin que je puisse être tranquille. »
 
-« Toi... » Le visage du Maître Ciel Dieu Vide se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
+« Toi... » Le visage du Maître Céleste Dieu du Vide se décomposa et d'innombrables pensées traversèrent son esprit, mais il finit par laisser échapper un long soupir.
 
 « Tu t'en vas et tu ne te sens pas en sécurité en laissant ce vieil homme ici. As-tu pensé qu'une fois que tu seras parti, de nouvelles générations naîtront dans le Système d'Étoiles Anciennes? Certains pourraient être plus puissants que moi! Vas-tu tous les exterminer? »
 
 « Je ne peux pas tous les tuer, mais je peux sceller les différents clans du Système d'Étoiles Anciennes et forcer les cultivateurs de la troisième étape à se réincarner! S'ils refusent d'obéir, alors je les tuerai! » Les paroles de Wang Lin étaient calmes, mais leur portée était terrifiante.
 
-Le Maître Ciel Dieu Vide resta silencieux un long moment, fixant Wang Lin avec une crainte accrue.
+Le Maître Céleste Dieu du Vide resta silencieux un long moment, fixant Wang Lin avec une crainte accrue.
 
-« Fou... Il est véritablement fou... Il me force à la réincarnation, quel choix ai-je... » Le Maître Ciel Dieu Vide afficha un sourire misérable, abandonna toute résistance et ferma les yeux.
+« Fou... Il est véritablement fou... Il me force à la réincarnation, quel choix ai-je... » Le Maître Céleste Dieu du Vide afficha un sourire misérable, abandonna toute résistance et ferma les yeux.
 
-Wang Lin agita sa manche et rangea le Maître Ciel Dieu Vide dans son espace de stockage avant de partir.
+Wang Lin agita sa manche et rangea le Maître Céleste Dieu du Vide dans son espace de stockage avant de partir.
 
 Le clan Cang Meng était un clan du Royaume Extérieur ayant également participé à la guerre. Bien que peu nombreux, ils possédaient un ancêtre de la troisième étape.
 
@@ -128,4 +128,4 @@ La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 
 Xuan Luo se leva et, l'expression grave, pénétra à son tour dans la porte.
 
-Après son entrée, la porte gronda et se referma lentement. Une demi-heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.
+Après son entrée, la porte gronda et se referma lentement. Une heure plus tard, alors qu'elle allait se clore définitivement, un éclat de lumière fantomatique jaillit des profondeurs et disparut dans la porte.

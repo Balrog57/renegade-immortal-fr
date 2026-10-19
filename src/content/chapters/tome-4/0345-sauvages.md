@@ -106,7 +106,7 @@ Le vieux Hu grogna: « Reste là! » Sans bouger, il tendit sa main droite.
 
 Le sauvage laissa échapper un rugissement étrange tandis que les marques sur ses membres s'animaient. Une fumée noire s'échappa de ces marques pour pénétrer son corps, puis il projeta son bras.
 
-La fumée noire se concentra sur son poing avant qu'il ne lance un coup dévastateur.
+La fumée noire se concentra sur son poing avant qu'il ne frappe dans le vide.
 
 L'expression du vieux Hu resta impassible, mais une lueur meurtrière brilla dans ses yeux. Il serra le poing et la main droite du sauvage fut broyée en une masse sanglante. La créature poussa un cri lugubre et battit en retraite.
 

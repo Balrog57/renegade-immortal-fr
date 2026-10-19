@@ -36,9 +36,9 @@ Même la Bête du Tonnerre à ses côtés observait attentivement, et la peur qu
 
 Alors que Wang Lin restait immobile, la déception de Shengong Hu s'accentua et il poussa un soupir. Il espérait assister à l'éclosion d'un sortilège puissant de la part de celui à qui il avait voué sa loyauté, mais hélas, il n'avait rien vu.
 
-Ce contraste brutal éroda la profonde révérence qu'il portait à Wang Lin. Son cœur dao, qui s'était éteint, commença également à se régénérer lentement.
+Ce contraste brutal éroda la profonde révérence qu'il portait à Wang Lin. Son cœur dao, jusque-là craintif, commença également à se rétablir lentement.
 
-« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant que Senior, comment peut-il n'être qu'aussi puissant... » L'expression de Shengong Hu devint sombre alors qu'il reprenait ses observations.
+« Bien que cent pas soient un gouffre infranchissable pour moi actuellement, une fois que ma culture aura atteint le début du stade du Scruteur du Nirvana, je serai capable de franchir ces cent pas sans peine. Cependant, en tant que Senior, comment peut-il n'être qu'aussi puissant... » L'expression de Shengong Hu devint sombre alors qu'il reprenait ses observations.
 
 Wang Lin contemplait le lac de tonnerre devant lui. À cet instant, il semblait avoir tout oublié. Tout ce qui l'entourait disparut; seul le lac de tonnerre subsistait.
 
@@ -60,9 +60,9 @@ Du début à la fin, il se déplaçait avec une aisance extrême, comme s'il ne 
 
 Les yeux de Shengong Hu s'écarquillèrent brusquement. Son regard se remplit d'effroi et il prit une inspiration glaciale. La révérence qui s'était évanouie refleurit instantanément, balayant toute déception. En fixant Wang Lin, l'effroi dans ses yeux ne fit que croître.
 
-À ses yeux, une fois pouvait être un accident; deux ou trois fois, cela pouvait encore être de la chance! Mais ici, un éclair apparaissait pour soutenir chaque pas de Wang Lin.
+À ses yeux, une fois pouvait être un accident; deux ou trois fois, cela pouvait encore être de la chance ou une intention délibérée! Mais ici, un éclair apparaissait pour soutenir chaque pas de Wang Lin.
 
-Ce n'était plus quelque chose que les concepts d'« accident » ou de « chance » pouvaient expliquer. Pour lui, c'était l'impossible devenu réalité, une chose dépassant totalement son imagination.
+Ce n'était plus quelque chose que les concepts d'« accident » ou d'« intention » pouvaient expliquer. Pour lui, c'était l'impossible devenu réalité, une chose dépassant totalement son imagination.
 
 À cet instant, dans son esprit, Wang Lin était devenu le maître absolu du tonnerre mondial. Le comportement étrange du lac de tonnerre n'était rien d'autre que l'accueil de Wang Lin!
 

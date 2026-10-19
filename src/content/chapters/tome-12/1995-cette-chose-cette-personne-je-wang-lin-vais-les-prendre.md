@@ -42,7 +42,7 @@ Tandis que Jiu Di approchait, un loup blanc se matérialisa autour de lui, prêt
 
 Ses yeux, baignés de sang, ne reflétaient plus que la folie.
 
-« C'est malheureux! » L'expression de Jiu Di changea et il tenta d'interrompre son assaut, mais il était trop tard. L'Empereur Céleste n'avait absolument pas absorbé la fumée dorée. Tout ce qu'il avait fait jusqu'alors n'était qu'une mise en scène; la fumée qu'il prétendait avoir inhalée se répandit en réalité tout autour de lui.
+« Mauvais! » L'expression de Jiu Di changea et il tenta d'interrompre son assaut, mais il était trop tard. L'Empereur Céleste n'avait absolument pas absorbé la fumée dorée. Tout ce qu'il avait fait jusqu'alors n'était qu'une mise en scène; la fumée qu'il prétendait avoir inhalée se répandit en réalité tout autour de lui.
 
 L'Empereur Céleste laissa échapper un rire hystérique et son corps gonfla visiblement. Il avait choisi l'autodestruction! Cela dépassait toutes les prévisions. Jiu Di pensait qu'ils n'avaient pas encore poussé l'Empereur Céleste à une telle extrémité!
 
@@ -52,7 +52,7 @@ L'explosion résonna jusque dans le palais interdit, le pulvérisant en un écla
 
 Alors que le palais souterrain se dissipait, l'espace superposé avec le palais impérial créa une faille de connexion. Cette onde de choc déferla sur la place du palais impérial.
 
-La terre du palais fut projetée dans toutes les directions sous l'effet de l'effondrement total. Le palais entier, qui avait subsisté durant des ères incalculables dans la cité ancestrale, fut balayé comme par une main divine!
+Les dalles de pierre bleue du palais se réduisirent en poussière et furent projetées dans toutes les directions, déferlant comme des vagues sous l'effet de l'effondrement total. Le palais entier, qui avait subsisté durant des ères incalculables dans la cité ancestrale, fut balayé comme par une main divine!
 
 Les somptueux édifices et tous les cultivateurs qu'ils abritaient disparurent sans laisser de trace. L'explosion terrifiante secoua toute la cité ancestrale, la faisant trembler de peur.
 
@@ -80,11 +80,11 @@ Jiu Di, doté du niveau de culture le plus élevé, vit la malédiction se répa
 
 L'Empereur Céleste n'ayant fait exploser que sa chair, son âme demeurait intacte. Tandis que le crâne se fendillait, son âme, en pleine dissipation, se précipita vers la tête. Il visait l'œil gauche, là où se trouvait Lian Daofei!
 
-« Je suis l'Empereur Céleste — ma sagesse surpasse celle des mortels; comment aurais-je pu ne pas prévoir de secours? Dao Fei est mon ultime recours! Je prendrai le contrôle de son corps pour qu'il m'aide à porter le fardeau de la malédiction ancestrale. Il a lui aussi hérité d'une partie de la culture de l'Ancêtre Céleste, je peux encore renverser la situation! » L'âme de l'Empereur Céleste brûlait, et alors que les trois autres luttaient contre la malédiction, il fonça vers l'œil gauche de la tête brisée.
+« Je suis l'Empereur Céleste — ma sagesse surpasse celle des mortels; comment aurais-je pu ne pas prévoir de secours? Lian Daofei est mon ultime recours! Je prendrai le contrôle de son corps pour qu'il m'aide à porter le fardeau de la malédiction ancestrale. Il a lui aussi hérité d'une partie de la culture de l'Ancêtre Céleste, je peux encore renverser la situation! » L'âme de l'Empereur Céleste brûlait, et alors que les trois autres luttaient contre la malédiction, il fonça vers l'œil gauche de la tête brisée.
 
 Cependant, au moment même où son âme atteignait l'œil gauche et s'apprêtait à s'engouffrer dans le corps de Lian Daofei, un changement stupéfiant se produisit!
 
-Un éclat de lumière dorée jaillit de l'œil droit de l'Ancêtre Céleste, et Wang Lin en sortit! Il avait attendu ce moment crucial pendant une éternité!
+Un éclat de lumière dorée jaillit de l'œil droit de l'Ancêtre Céleste, et Wang Lin en sortit! Il avait longtemps attendu ce moment crucial!
 
 Il était tel un chasseur ayant patienté jusqu'à l'instant parfait pour déclencher la traque!
 

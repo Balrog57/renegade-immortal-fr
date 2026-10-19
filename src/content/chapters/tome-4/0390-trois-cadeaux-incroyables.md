@@ -40,7 +40,7 @@ Le vieil homme ne daigna même pas regarder où Liu Mei s'était rendue. Il se t
 
 L'existence de Liu Mei était comme une épine dans le flanc de Wang Lin. En sa présence, il avait l'impression d'être la cible d'un cobra. Maintenant qu'elle était partie, cette sensation s'était soudainement dissipée.
 
-Wang Lin eut un sourire amer. « Quel genre de petit cadeau est-ce là? Le Senior est prêt à offenser Suzaku; plutôt que d'en être heureux, cela m'effraie au plus haut point. »
+Wang Lin eut un sourire amer. « Un cadeau bien généreux! Le Senior est prêt à offenser Suzaku; plutôt que d'en être heureux, cela m'effraie au plus haut point. »
 
 « Cet ancêtre de la Secte de l'Affinement de l'Âme est très intéressant », pensa Wang Lin. Il était certain que Liu Mei avait reçu la permission de l'ancêtre pour entrer dans la secte, sans quoi elle n'aurait jamais pu y pénétrer.
 

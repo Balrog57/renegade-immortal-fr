@@ -44,7 +44,7 @@ Bien que les Dieux Anciens aient été repoussés à cent mille pieds, les quatr
 
 Ces sortilèges étaient d'une étrangeté extrême. Ils se transformaient en artefacts de Diable Ancien ou en spectres lugubres qui encerclaient les quatre démons avant de fondre sur Wang Lin.
 
-Une hache de guerre noire et gigantesque apparut: un trésor de Diable Ancien. L'un des démons s'empara de la hache et l'abattit sur Wang Lin, provoquant un froid glacial dans le regard de ce dernier.
+Une hache de guerre noire et gigantesque apparut: un trésor de Diable Ancien. L'un des démons la fit surgir et l'abattit sur Wang Lin, provoquant un froid glacial dans le regard de ce dernier.
 
 Les Dieux Anciens appartenant au même clan, il s'était montré relativement indulgent. Les Diables Anciens appartenaient à la même race, mais pas au même clan. Alors que la hache descendait, le corps de Wang Lin vacilla et sa paume droite pressa la lame de l'arme. Le Diable Ancien frémit tandis que la hache se désintégrait en une énergie démoniaque infinie. Cette énergie fonça vers l'œil droit clos de Wang Lin.
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin s'ouvrirent.
 
 « En si peu de temps, il... il a réellement réussi à obtenir ce trésor! La probabilité qu'il soit le troisième n'est plus de 30 %, mais de 50 %! »
 
-« J'ai fouillé la grotte intérieure durant d'innombrables années, et Sept-Couleurs a exploré la grotte extérieure pendant des éons. Nous n'avons jamais trouvé le troisième, ignorant totalement où il était passé... »
+« J'ai fouillé la grotte intérieure durant d'innombrables années, et Sept-Couleurs a exploré la grotte extérieure pendant d'innombrables années. Nous n'avons jamais trouvé le troisième, ignorant totalement où il était passé... »
 
 « Si je peux le trouver le premier... » Les yeux du Vieux Fantôme Zhan brillèrent de convoitise tandis qu'il serrait les poings.
 
@@ -92,7 +92,7 @@ Sous cette aura de massacre, Wang Lin leva la main droite et pointa vers le ciel
 
 L'Empreinte de l'Esprit Guerrier!
 
-C'était la première fois que Wang Lin l'utilisait depuis son réveil du Dao du Rêve, et elle était plusieurs fois plus puissante qu'auparavant. L'espace lui-même trembla lors de son apparition. Cette empreinte qui semblait recouvrir toute la zone descendit avec une pression infinie. Les quatre Démons Anciens tremblèrent et poussèrent des cris de douleur alors que l'empreinte perçait leurs corps. Ils s'effondrèrent tous.
+C'était la première fois que Wang Lin l'utilisait depuis son réveil du Dao du Rêve, et elle était bien plus puissante qu'auparavant. L'espace lui-même trembla lors de son apparition. Cette empreinte qui semblait recouvrir toute la zone descendit avec une pression infinie. Les quatre Démons Anciens tremblèrent et poussèrent des cris de douleur alors que l'empreinte perçait leurs corps. Ils s'effondrèrent tous.
 
 Des lambeaux d'énergie démoniaque furent aspirés dans l'œil gauche de Wang Lin.
 

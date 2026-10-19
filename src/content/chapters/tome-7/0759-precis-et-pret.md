@@ -8,7 +8,7 @@ slug: precis-et-prêt
 ---
 Wang Lin tenait le pinceau et ferma lentement les yeux. Après un long moment, il les ouvrit soudainement et sa main commença à écrire en suivant le texte. Il percevait progressivement une trace de ce que ressentait ce Céleste, jadis assis en ce lieu.
 
-Son esprit s'empressa tandis qu'il écrivait; c'était un sentiment mêlant hésitation et confusion. Cette aura persistait encore dans cette pièce, même aujourd'hui.
+Son esprit s'agita tandis qu'il écrivait; c'était un sentiment mêlant hésitation et confusion. Cette aura persistait encore dans cette pièce, même aujourd'hui.
 
 Finalement, la main droite de Wang Lin s'arrêta brusquement en plein air. Il leva les yeux et regarda par la fenêtre du deuxième étage.
 

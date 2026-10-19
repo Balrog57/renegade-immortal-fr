@@ -64,11 +64,11 @@ L'expression de Lu Fei et Tie Yan changea instantanément. Ils reculèrent rapid
 
 « Asseyez-vous! » dit doucement Wang Lin avec un léger sourire.
 
-Le vieil homme regarda Li Muwan et sourit: « Depuis notre séparation d'alors, compagnon cultivateur, vous n'avez pas changé. Je me demande combien de fils de flamme vous avez pu obtenir. »
+Le vieil homme regarda Li Muwan et sourit: « Depuis notre séparation d'alors, compagnon cultivateur, vous allez bien. Je me demande combien de fils de flamme vous avez pu obtenir. »
 
 Wang Lin fut stupéfait. Lors de leur rencontre passée, il portait un chapeau de paille pour ne pas révéler sa véritable identité. Le vieil homme devait posséder une méthode spéciale pour reconnaître Wang Lin d'un seul regard. Wang Lin sourit et répondit: « L'ouverture était trop étroite, je n'en ai donc pas obtenu beaucoup. »
 
-Le vieil homme acquiesça avant de poursuivre: « J'ai moi aussi été limité par l'ouverture et n'en ai pas eu beaucoup. Cependant, lors de ma visite il y a quelques années, j'ai trouvé un fil ancestral qui avait bien grandi. »
+Le vieil homme acquiesça avant de poursuivre: « J'ai moi aussi été limité par l'ouverture et n'en ai pas eu beaucoup. Cependant, lors de ma visite il y a quelques années, j'ai trouvé un fil ancestral plusieurs fois plus épais. »
 
 Après avoir parlé, il fixa Wang Lin. Il restait impassible, mais redoutait fortement Wang Lin. S'il n'avait pas cultivé une technique secrète lui permettant d'identifier les individus par leur silhouette, il n'aurait jamais su que Wang Lin était ce cultivateur de la Formation de l'Âme au chapeau de paille.
 

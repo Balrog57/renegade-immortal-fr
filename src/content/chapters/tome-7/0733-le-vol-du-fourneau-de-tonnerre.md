@@ -36,7 +36,7 @@ Wang Lin atteignit le sommet du stade avancé de l'Ascendant 19 ans et 8 mois ap
 
 Tous les jades célestes dans un rayon de plusieurs kilomètres autour de Wang Lin se transformèrent en poussière lors de sa percée. L'herbe commença à pousser sur cette terre aride, désormais empreinte de vie.
 
-Wang Lin ouvrit lentement les yeux, lesquels semblaient contenir les cieux eux-mêmes.
+Wang Lin ouvrit lentement les yeux, lesquels semblaient contenir les cieux eux-mêmes, où flottaient des volutes de nuages.
 
 « Après 1 000 ans de culture, j'ai enfin atteint la perfection... » Wang Lin poussa un soupir de soulagement et un sourire apparut au coin de ses lèvres.
 
@@ -66,7 +66,7 @@ Tandis que l'éclair fendait l'espace, Wang Lin ouvrit les yeux et commença à 
 
 S'il voulait se rendre au Royaume Céleste du Tonnerre, il lui fallait un fourneau de tonnerre. Sans cela, aucun moyen n'était possible pour y pénétrer. Wang Lin le savait parfaitement.
 
-Cependant, le Système Stellaire de Luotian différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite un nombre défini de fourneaux à chaque famille de culture.
+Cependant, le Système Stellaire de Luotian différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite à chaque famille de culture un ou plusieurs fourneaux, selon sa puissance.
 
 Il ne restait plus que trois mois avant l'ouverture du Royaume Céleste du Tonnerre. C'était le moment où toutes les familles recevraient leurs fourneaux. Les yeux de Wang Lin s'illuminèrent et il prit une décision.
 

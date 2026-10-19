@@ -88,7 +88,7 @@ Il n'y avait aucune énergie originelle dans cette zone de 10 000 pieds, seuleme
 
 « Puisque je ne peux pas la fusionner par la force, j'essaierai une méthode différente! » À l'intérieur de ce monde de 10 000 pieds, Wang Lin ouvrit la bouche et le Sceau Céleste en sortit.
 
-Dès que le sceau apparut, une puissante force de rejet surgit, très semblable à la résistance ressentie sur la Montagne Bleue. Sous cette poussée dévastatrice, des craquements retentirent, comme si le Sceau Céleste ne pouvait plus tenir... et une fissure inattendue apparut sur sa surface!
+Dès que le sceau apparut, une puissante force de rejet surgit, très semblable à la résistance ressentie sur le Mont Bleu. Sous cette poussée dévastatrice, des craquements retentirent, comme si le Sceau Céleste ne pouvait plus tenir... et une fissure inattendue apparut sur sa surface!
 
 Une pointe d'hésitation traversa le regard de Wang Lin. Alors qu'il hésitait, d'autres fissures se formèrent et les innombrables âmes à l'intérieur poussèrent des cris lugubres, comme si elles précipitaient la fin du monde!
 
@@ -100,6 +100,6 @@ Cela choqua profondément Wang Lin! Il sentait clairement que la force de rejet 
 
 Des grondements tonitruants résonnèrent rapidement. Tandis que le monde se contractait, de nouvelles fissures apparurent sur le Sceau Céleste jusqu'à ce qu'il vole en éclats.
 
-Les innombrables restrictions à l'intérieur se dispersèrent dans ce monde et, contre toute attente... devinrent une partie intégrante du monde à mesure qu'il rétrécissait!
+Les innombrables restrictions à l'intérieur se dispersèrent dans ce monde et, contre toute attente... formèrent un nouveau ciel et une nouvelle terre à mesure que le monde rétrécissait!
 
-Ce qui stupéfia encore plus Wang Lin, c'est que les innombrables âmes de combat des êtres qu'il avait tués se dispersèrent parmi ces fragments infinis...
+Ce qui stupéfia encore plus Wang Lin, c'est que les innombrables âmes de combat des êtres qu'il avait tués se transformèrent en innombrables lueurs cristallines qui se posèrent sur chaque fragment...

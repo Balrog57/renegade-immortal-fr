@@ -12,11 +12,11 @@ Wang Lin réfléchit silencieusement.
 
 « Si ce jour vient, le Frère Lu devra accompagner Qianmei pour son départ. » Li Qianmei cligna des yeux et gloussa. Son sourire était aussi magnifique qu'une orchidée en fleur, empreint de grâce et d'élégance.
 
-Ce visage gracieux ressemblait à celui de Lu Yanfei, qui s'était tenue au sommet de son pavillon pour observer silencieusement Wang Lin lorsqu'il avait quitté le continent de Mo Luo. Sa voix douce aussi.
+Ce visage gracieux ressemblait à celui de Lu Yanfei, qui s'était tenue au sommet de son pavillon des monts du Sud pour observer silencieusement Wang Lin lorsqu'il avait quitté le continent de Mo Luo. Sa voix douce aussi.
 
-« J'espère que Senior viendra à la compétition centenaire qui aura lieu dans la secte principale, et qu'il n'oubliera pas la Secte de l'Origine... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était qu'un point d'appui, et il n'était qu'un passant...
+« J'espère que Senior viendra à la compétition centenaire qui aura lieu dans la secte principale, et qu'il n'oubliera pas la Secte de l'Origine... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était pour lui qu'une lentille d'eau flottante, et il n'était qu'un passant...
 
-Elle savait qu'il partirait une fois l'affaire avec la Secte de l'Origine réglée. Son départ avait eu lieu presque immédiatement après la résolution du désastre de la Secte du Dao Pourpre. Une fois parti... elle ne le reverrait probablement jamais.
+Elle savait qu'il partirait une fois l'affaire avec la Secte de l'Origine réglée. Son départ avait eu lieu presque immédiatement après la résolution du désastre de la Secte du Dao Pourpre. Une fois parti... elle ne le reverrait pas de sitôt.
 
 La femme aux cheveux bleus qui était partie avec Wang Lin avait également captivé le regard de Lu Yanfei, qui baissa progressivement la tête.
 
@@ -58,7 +58,7 @@ Li Qianmei sourit et murmura: « Cette fois, ce n'est pas mal. Je me souviens qu
 
 Wang Lin secoua silencieusement la tête.
 
-Bien que l'on puisse juger la Secte du Jade Précieux sans vergogne, Peng Lai était magnifique. La terre était verdoyante et les mortels des capitales levaient respectueusement les yeux vers les cultivateurs qui passaient en volant, une pointe d'envie dans le regard.
+Bien que la Secte du Jade Précieux soit méprisable, Peng Lai était magnifique. La terre était verdoyante et les mortels des capitales levaient respectueusement les yeux vers les cultivateurs qui passaient en volant, une pointe d'envie dans le regard.
 
 Il y avait même des montagnes et des rivières majestueuses; c'était un véritable festin pour les yeux.
 

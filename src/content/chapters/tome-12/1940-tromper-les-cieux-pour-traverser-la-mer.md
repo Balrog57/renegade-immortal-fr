@@ -14,7 +14,7 @@ Cela était dû au fait que très peu de membres de cette secte quittaient leur 
 
 En étendant son sens divin, il perçut une fluctuation familière provenant d'une cité mortelle située à des dizaines de milliers de kilomètres de là. Il avait placé ce sceau sur toutes les incarnations. Il ne pouvait pas les détecter de loin, mais dès qu'il s'approcherait, il pourrait ressentir leur présence.
 
-« Cette fluctuation... qui pourrait-ce être? » Wang Lin esquissa un sourire teinté d'attente. Il lui était impossible de savoir de qui il s'agissait, tout comme lorsqu'il avait retrouvé Zhou Yi et Qing Shuang.
+« Cette fluctuation... qui pourrait-ce être? » Wang Lin esquissa un sourire teinté d'attente. Il lui était impossible de savoir de qui il s'agissait, tout comme lorsqu'il avait senti la présence de Zhou Yi et Qing Shuang.
 
 Il ne pouvait que détecter leur trace. À moins de les voir de ses propres yeux, il serait très difficile de percer l'identité de la personne. Après tout, le sceau ayant été placé sur tout le monde simultanément, il n'y avait guère de distinction entre eux.
 
@@ -46,11 +46,11 @@ Après son entrée dans la ville, trois jours passèrent en un éclair. Durant c
 
 Parmi eux se trouvaient trois garçons et deux filles. L'aîné avait treize ans et le plus jeune huit ans.
 
-Tandis que la foule lui adressait des adieux respectueux et enthousiastes, Liu Jinbiao installa les cinq enfants sur une chaise et s'éleva dans les airs.
+Tandis que la foule lui adressait des adieux respectueux et enthousiastes, Liu Jinbiao s'assit sur la chaise, les cinq enfants étant portés dans les bras d'autres personnes, et s'éleva dans les airs.
 
 Pendant ces trois jours, Wang Lin avait observé les agissements de Liu Jinbiao avec un air préoccupé.
 
-« Que cherche exactement Liu Jinbiao? Il n'a dérobé aucune propriété, il a seulement pris cinq enfants ayant un soupçon de talent... Bien qu'ils soient dotés d'un certain potentiel, aucune secte ne les accepterait! S'il nourrit des intentions malveillantes, je ne lui ferai aucun cadeau! » Wang Lin suivit calmement Liu Jinbiao.
+« Que cherche exactement Liu Jinbiao? Il n'a escroqué aucun bien, il a seulement pris cinq enfants ayant un soupçon de talent... Bien qu'ils soient dotés d'un certain potentiel, aucune secte ne les accepterait! S'il nourrit des intentions malveillantes, je ne lui ferai aucun cadeau! » Wang Lin suivit calmement Liu Jinbiao.
 
 Assis sur sa chaise, Liu Jinbiao affichait une expression joyeuse. Son regard balayait occasionnellement les cinq enfants avec une satisfaction imperceptible.
 
@@ -62,7 +62,7 @@ Quelques jours plus tard, ils arrivèrent aux abords d'une chaîne de montagnes.
 
 « Attendez-moi ici jusqu'à mon retour. »
 
-Les quatre hommes robustes et les enfants hochèrent rapidement la tête. Les quatre hommes étaient au stade de l'Établissement des Fondations, tandis que les enfants étaient au stade de la Condensation de Qi. La plupart d'entre eux avaient reçu des méthodes de culture de la part de Liu Jinbiao et s'étaient entraînés par eux-mêmes.
+Les quatre hommes robustes et les jeunes serviteurs hochèrent rapidement la tête. Les quatre hommes étaient au stade de l'Établissement des Fondations, tandis que les jeunes serviteurs étaient au stade de la Condensation de Qi. La plupart d'entre eux avaient reçu des méthodes de culture de la part de Liu Jinbiao et s'étaient entraînés par eux-mêmes.
 
 Liu Jinbiao emporta les cinq enfants dans un courant de vent noir et disparut.
 
@@ -98,11 +98,11 @@ Liu Jinbiao marqua une pause.
 
 Wang Lin observait la scène en réfléchissant. Il savait que Liu Jinbiao avait raison: avec un tel talent, ces enfants auraient peu de chances d'attirer l'attention des grandes sectes.
 
-« Mais j'ai une méthode qui vous permettra de tromper ceux qui vous évaluent afin de vous faire intégrer la secte. Cela peut même donner l'illusion que votre talent est exceptionnel! Cependant, tout cela sera factice. Si vos performances sont médiocres une fois dans la secte, vous serez démasqués. Vous ne courrez pas de danger de mort et vous ne serez probablement pas expulsés, mais vous passerez inaperçus et serez oubliés. C'est pourquoi je dis que le talent importe peu. Ce qui compte, c'est la force de votre volonté! »
+« Mais j'ai une méthode qui vous permettra de tromper ceux qui vous évaluent afin de vous faire intégrer la secte. Cela peut même donner l'illusion que votre talent est exceptionnel! Cependant, tout cela sera factice. Si vos performances sont médiocres une fois dans la secte, vous serez démasqués. Vous ne courrez pas de danger de mort et vous ne serez probablement pas expulsés, mais vous ne serez que des disciples de bas rang. C'est pourquoi je dis que le talent importe peu. Ce qui compte, c'est la force de votre volonté! »
 
 Liu Jinbiao continua son discours en scrutant les cinq enfants.
 
-« Et puisque votre talent est tout de même acceptable, je peux vous échanger contre les matériaux dont j'ai besoin auprès de la secte. Plus votre talent paraîtra élevé, meilleur sera votre traitement initial et plus ma récompense sera grande. Mais quelqu'un doté d'un talent trop brillant risque davantage d'être démasqué. Je peux vous aider à tromper les cieux pour traverser la mer afin de vous faire entrer dans une secte. Après cela, tout reposera sur vous; mon profit ne sera qu'une conséquence naturelle.
+« Et puisque votre talent est tout de même acceptable, je peux vous échanger contre les matériaux dont j'ai besoin auprès de la secte. Plus votre talent paraîtra élevé, meilleur sera votre traitement initial et plus les biens que j'obtiendrai en échange seront de qualité supérieure. Mais quelqu'un doté d'un talent trop brillant risque davantage d'être démasqué. Je peux vous aider à tromper les cieux pour traverser la mer afin de vous faire entrer dans une secte. Après cela, tout reposera sur vous; mon profit ne sera qu'une conséquence naturelle.
 
 « Cependant, réfléchissez bien. Si vous refusez, j'effacerai vos souvenirs et vous renverrai auprès de vos proches. Si vous acceptez, choisissez le niveau de talent avec lequel vous souhaitez entrer: Excellent, Bon ou Ordinaire — voilà vos trois options! Je vous suggère de choisir "Ordinaire"! Après tout, je compte mener cette affaire sur le long terme et je n'ai pas envie d'être trop exposé et de finir traqué! »
 

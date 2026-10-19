@@ -63,11 +63,11 @@ Lorsque l'autre cultivateur de Luotian vit l'expression de son frère, il fut st
 
 Leurs deux crânes picotèrent instantanément et leurs cœurs battirent la chamade. Ils se regardèrent avec incrédulité et virent la panique dans les yeux de l'autre. Le nom de « Maître Démon Xu Mu » était tout simplement trop célèbre dans le Système Stellaire de Luotian!
 
-Lors de la compétition pour le titre céleste, il avait obtenu le rang de Céleste du Tonnerre et pouvait commander 3 000 cultivateurs. Un tel prestige n'était pas l'apanage d'un homme ordinaire. Oubliez-les, même leurs ancêtres auraient dû se montrer respectueux face au Maître Démon Xu Mu. Même le Messager Céleste, le garçon à la grosse tête, tremblerait devant lui.
+Lors de la bataille pour le titre céleste, il avait obtenu le rang de Céleste du Tonnerre et pouvait commander 3 000 cultivateurs. Un tel prestige n'était pas l'apanage d'un homme ordinaire. Oubliez-les, même leurs ancêtres auraient dû se montrer respectueux face au Maître Démon Xu Mu. Même le Messager Céleste, le garçon à la grosse tête, tremblerait devant lui.
 
 Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait: le massacre, un massacre sanglant. S'opposer à cet homme signifiait une mort certaine!
 
-Le Junior Frère du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes du Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
+Le Junior Frère du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes du Luotian, bienfaiteur d'innombrables familles de culture, et celui qui, traqué par la famille Yao, avait au contraire essuyé de lourdes blessures! Chacun de ces éléments suffisait à faire mourir ces deux frères mille fois!
 
 À cet instant, ils ne cherchèrent même pas à comprendre ce qui se passait. Perdus dans leur effroi, ils ne voulaient qu'une chose: partir le plus vite possible. Avec leur intelligence, ils étaient sûrs de ne pas s'être trompés. Cette statue était Xu Mu!
 

@@ -12,13 +12,13 @@ Wang Lin quitta le jardin sans dire un mot. Son uniforme rouge attira l'attentio
 
 « Est-ce seulement la peine de poser la question? Je parie qu'il a dû lécher les orteils de l'Ancien et commettre toutes sortes d'actes ignobles pour gagner ses faveurs et être pris comme disciple. Quelqu'un comme ça est vraiment abject. »
 
-« Ouais, regarde-moi ce visage stupide. Même s'il devient disciple interne, il restera au bas de l'échelle. Comment la culture pourrait-elle être aussi facile? »
+« Ouais, regarde-le, ce visage stupide. Même s'il devient disciple interne, il restera au bas de l'échelle. Comment la culture pourrait-elle être aussi facile? »
 
 « Ce déchet... Peu importe qu'il devienne disciple interne ou non, cela ne nous regarde pas. Un déchet reste un déchet; peu importe où il va, il sera méprisé. »
 
 « Maudit soit-il! Cela fait quatre ans que je suis disciple honoraire et je n'ai jamais vu quelqu'un d'aussi effronté. Pourquoi l'Ancien l'a-t-il choisi? Je suis meilleur que lui à tous égards! »
 
-« Tu n'es ici que depuis quatre ans? Moi, cela fait douze ans, et j'ai compté uniquement sur mes propres capacités. Regarde son arrogance! Humph, les disciples internes ne cessent de se battre entre eux; attendons donc de voir le spectacle. »
+« Tu n'es ici que depuis quatre ans? Moi, cela fait douze ans, et j'ai compté uniquement sur mes propres capacités. Humph, les disciples internes ne cessent de se battre entre eux; attendons donc de voir le spectacle. »
 
 Wang Lin entendit chacune de ces paroles. Il balaya l'assemblée d'un regard glacial. Sa force était encore insuffisante pour l'instant, mais il jura qu'il se vengerait un jour.
 

@@ -84,13 +84,13 @@ La vieille femme trembla et son expression vacilla.
 
 Le visage du vieil homme à la robe violette se renfrogna et il grommela: « Vous, les gens de la Secte de l'Affinement de l'Âme, vous êtes tous des fous. Quand votre espérance de vie touche à sa fin, vous sortez le drapeau d'âmes d'un milliard pour voler les autres... »
 
-Du Tian rit: « C'est exact. Il ne me reste que deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je m'efforcerai d'anéantir tous les insectes venimeux de ce marais. »
+Du Tian rit: « C'est exact. Il ne me reste pas deux ans, alors je ne crains plus la mort. Donnez-moi les jades et je partirai. Si vous refusez, je ne me battrai pas, mais je m'efforcerai d'anéantir tous les insectes venimeux de ce marais. »
 
 Le vieil homme à la robe violette eut un rire colérique et s'apprêta à répliquer quand la vieille femme l'interrompit par une quinte de toux: « Vieux fantôme, pourquoi agir ainsi? Sans parler de la vengeance que nous deux pourrions exercer contre votre Secte de l'Affinement de l'Âme, ce junior à vos côtés mourra à coup sûr. »
 
 Wang Lin esquissa un léger sourire et, d'un geste de la main droite, fit jaillir son épée céleste. Il y injecta une parcelle d'énergie spirituelle céleste. Bien qu'il n'ait pas encore atteint le stade de la Transformation de l'Âme, il pouvait déjà manipuler un peu de cette essence.
 
-L'épée céleste exigeait naturellement de l'énergie spirituelle céleste pour fonctionner. Une fois activée, elle libéra une lumière dorée aveuglante et une pression céleste écrasante. L'énergie de l'épée descendit telle la foudre.
+L'épée céleste exigeait naturellement de l'énergie spirituelle céleste pour fonctionner. Une fois activée, elle libéra une lumière dorée aveuglante et une pression céleste écrasante. L'énergie de l'épée descendit telle la foudre, avec la puissance qui ouvre le ciel et sépare la terre.
 
 Le visage de la vieille femme changea radicalement; elle plongea la main dans son sac de rangement et en sortit une carapace de tortue pour parer l'assaut.
 

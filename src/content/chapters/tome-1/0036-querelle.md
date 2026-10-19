@@ -10,11 +10,11 @@ Après réflexion, il sortit la perle mystérieuse et commença son premier entr
 
 Le temps s'écoula en un éclair, et en un clin d'œil, deux ans s'étaient écoulés. Durant ces deux années, Wang Lin passait son temps soit à cultiver, soit à pratiquer sa technique d'attraction, mais il ne ressentit aucune solitude.
 
-Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé treize ans en entraînement à porte close.
+Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé près de treize ans en entraînement à porte close.
 
 L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'eau de source spirituelle, il constata que chaque fois qu'il cultivait dans le monde réel, l'énergie spirituelle y était plusieurs fois plus dense qu'à l'extérieur.
 
-À partir du deuxième niveau, sa culture ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après plusieurs tentatives, il réussit enfin sa percée.
+À partir du deuxième niveau, sa culture ralentit considérablement. Au bout de six ans de culture dans l'espace de rêve, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après plusieurs tentatives, il réussit enfin sa percée.
 
 Cependant, ce qui le plongeait dans la confusion et la détresse était que, durant les sept années suivantes, bien qu'il ait atteint le sommet du troisième niveau, il ne parvenait pas à passer au quatrième, quels que soient ses efforts. Ce n'était pas par manque d'énergie spirituelle; il sentait une force mystérieuse l'arrêter chaque fois qu'il atteignait le point critique.
 
@@ -38,7 +38,7 @@ Durant les treize années passées dans l'espace de rêve, il avait parfaitement
 
 C'était ce qu'il faisait en ce moment même en appliquant la technique d'attraction sur son propre corps. On pouvait certes affirmer qu'une fois la technique d'attraction portée à un certain niveau, elle devenait praticable, mais cela n'était vrai que pour des mouvements lents. Dès que l'on accélérait, on perdait forcément le contrôle.
 
-Mais Wang Lin se sentait désormais si confiant que, même s'il devait voler rapidement, il ne perdrait pas le contrôle. Sans une dizaine d'années de pratique de cette technique, cela aurait été impossible.
+Mais Wang Lin se sentait désormais si confiant que, même s'il devait voler rapidement, il ne perdrait pas le contrôle. Sans plus d'une dizaine d'années de pratique de cette technique, cela aurait été impossible.
 
 Toutefois, qui aurait eu le temps de gaspiller plus de dix ans à pratiquer une technique de si bas niveau? Tous les cultivateurs étaient engagés dans une course contre la montre. S'ils disposaient de tant de temps, pourquoi ne pas pratiquer des techniques de rang supérieur?
 
@@ -46,11 +46,11 @@ Afin de ne pas attirer l'attention, Wang Lin atterrit avec précaution dans la v
 
 Wang Lin tourna la tête et regarda Wang Zhuo avec indifférence. Quelques personnes étaient assises à ses côtés; c'étaient tous des disciples intérieurs.
 
-Un jeune homme vêtu de blanc, âgé de vingt-quatre ou vingt-cinq ans, éclata de rire: « Wang Lin, tu ne devrais pas être ici. Tu devrais rester avec les disciples honoraires à la maison des tâches. Au moins là-bas, tu peux te sentir important, mais ici, tu es le plus médiocre d'entre nous tous. »
+Un jeune homme vêtu de blanc, âgé de vingt-quatre ou vingt-cinq ans, éclata de rire: « Wang Lin, tu ne devrais pas être ici. Tu devrais rester avec les disciples honoraires à la maison des corvées. Au moins là-bas, tu peux te sentir important, mais ici, tu es le plus médiocre d'entre nous tous. »
 
 Wang Lin sonda la zone de son Sens Divin. Wang Zhuo avait atteint comme lui le troisième niveau, tandis que le jeune homme en blanc avait atteint le sommet du quatrième niveau et pouvait franchir l'étape à tout moment. Wang Lin était très perplexe: lui qui n'était qu'au troisième niveau, comment pouvait-il percer aisément à jour la culture de personnes plus fortes que lui? Et l'énergie spirituelle du jeune homme en blanc semblait même un peu plus faible que la sienne. Wang Lin garda le silence et ne dit rien de ses doutes, convaincu qu'il y avait là un grand mystère.
 
-Wang Zhuo déclara d'un ton orgueilleux: « Wang Lin, tu étais bien malin lors du grand tournoi d'il y a deux ans. Tu savais que tu n'étais pas mon égal, alors tu as simplement abandonné. Mais laisse-moi te dire une chose: une poubelle restera toujours une poubelle. Tu ne me rattraperas jamais. J'étais le meilleur nouveau venu il y a deux ans, et toi, qu'es-tu? »
+Wang Zhuo déclara d'un ton orgueilleux: « Wang Lin, tu étais bien malin lors du grand tournoi d'il y a deux ans. Tu savais que tu n'étais pas mon égal, alors tu as simplement abandonné. Mais laisse-moi te dire une chose: une poubelle restera toujours une poubelle. Tu ne me rattraperas jamais. J'étais le meilleur nouveau venu il y a deux ans, et toi, en es-tu capable? »
 
 Le jeune homme en blanc à ses côtés ricana: « Cher frère cadet, va me chercher de l'eau à la rivière là-bas. Ton frère aîné est d'humeur clémente, je pourrais peut-être te donner quelques conseils. » En parlant, il lança une bouteille qui atterrit aux pieds de Wang Lin.
 

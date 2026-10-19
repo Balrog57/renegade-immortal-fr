@@ -20,7 +20,7 @@ Le brasier devint soudainement plus impétueux.
 
 Cependant, à cet instant précis, Wang Lin sortit de la boule de feu. Les flammes ne purent même pas l'approcher. À mesure qu'il avançait, la boule de feu rétrécissait jusqu'à s'éteindre complètement.
 
-Stupéfait, le sauvage à trois feuilles recula promptement en se transformant en un éclair noir. Comment Wang Lin pouvait-il le laisser s'échapper? Il utilisa aussitôt une technique de téléportation pour tenter de le rattraper.
+Stupéfait, le sauvage à trois feuilles recula promptement et disparut dans l'obscurité. Comment Wang Lin pouvait-il le laisser s'échapper? Il utilisa aussitôt une technique de téléportation pour tenter de le rattraper.
 
 Quant aux autres sauvages qui les attaquaient, ils avaient tous été tués par le vieil homme Hu d'un simple revers de manche.
 
@@ -98,7 +98,7 @@ Cependant, au moment où l'épée céleste frappa, la lumière noire passa outre
 
 L'homme poussa un cri. Sans hésiter, il se mua en une masse obscure qui prit la forme d'un visage pour battre en retraite.
 
-Mais la lumière noire atteignit tout de même la masse sombre. Un cri de douleur déchirant s'en échappa. La masse ralentit un instant avant de reprendre sa course effrénée.
+Mais la lumière noire atteignit tout de même la masse sombre. Un cri de douleur déchirant s'en échappa. La masse ralentit un instant en laissant derrière elle une traînée de sang, avant de reprendre sa course effrénée.
 
 Les yeux de Wang Lin brillèrent, mais il ne le poursuivit pas. Son regard se tourna vers le crapaud tonnerre.
 

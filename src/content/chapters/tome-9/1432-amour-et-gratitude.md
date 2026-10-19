@@ -14,7 +14,7 @@ Cependant, cet impact se transforma en vagues qui déferlèrent dans le cerveau 
 
 « Ce vieil homme sait aussi que pour ramener votre femme, vous avez demandé l'aide de nombreux cultivateurs, mais qu'au final, aucun d'eux n'a pu vous aider! Vous ne croyez probablement pas mes paroles; vous supposez qu'étant donné que je suis gravement blessé, comment puis-je accomplir cela?
 
-« Cette affaire est en effet extrêmement difficile; même si je n'étais pas blessé, je n'aurais pas la capacité de ramener votre femme. Cependant, mon maître est un être d'un niveau comparable au Souverain Céleste Antique. Il est même célèbre dans le monde ancien!
+« Cette affaire est en effet extrêmement difficile; même si je n'étais pas blessé, je n'aurais pas la capacité de ramener votre femme. Cependant, mon maître est un être d'un niveau comparable au Souverain Céleste Antique. Il est même célèbre dans le Système Stellaire Antique!
 
 « Ce vieil homme sollicitera Maître pour vous. Il cherchera un monde de vivants, massacrera d'innombrables gens et prendra leurs âmes pour former un sceau de longévité. Non seulement votre femme pourra être ressuscitée, mais même votre fils unique pourra également renaître! »
 
@@ -76,7 +76,7 @@ Le dernier souhait de l'ancien Empereur Oiseau Vermillon était que Wang Lin vei
 
 La deuxième génération d'Oiseau Vermillon n'avait connu Wang Lin que quelques jours. Son rire franc, son expression satisfaite, son admiration et sa gentillesse lui revinrent en mémoire. Il avait pêché un dragon pour offrir son sang à Wang Lin et avait tenté de le sauver à maintes reprises lors des épreuves. Il avait même rugi face à la première génération d'Oiseau Vermillon lors de l'Épreuve Céleste!
 
-La deuxième génération lui avait transmis la méthode pour contrôler le dragon et la Restriction de l'Âme Antique. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: l'Ombrelle Brûlante du Royaume!
+La deuxième génération lui avait transmis la méthode pour contrôler le dragon de flamme et la carapace de tortue de la Restriction de l'Âme Ancienne. De plus, avant le départ de Wang Lin, il avait clairement désobéi aux ordres de la première génération et dû en payer un prix inconnu pour enseigner à Wang Lin le sortilège le plus puissant du Clan de l'Oiseau Vermillon: l'Ombrelle Brûlante du Royaume!
 
 « Petit gars, n'oublie pas que la prochaine fois que nous nous verrons, tu devras choisir la septième génération pour ce vieil homme. Choisis un enfant déterminé! Tu as l'air plutôt froid, mais même toi, tu as été espiègle à un moment donné. Quel dommage... Ah, qu'est-ce qu'il y a de si bien dans la culture duale, ce vieil homme ne comprend vraiment pas... »
 

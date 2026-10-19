@@ -8,17 +8,17 @@ slug: chemin-etroit
 ---
 Sa culture, au sommet du stade intermédiaire du Scruteur du Nirvana, se changea en une immense énergie d'origine qui balaya la planète Da Luo comme une tempête. Un vortex se forma, prenant Wang Lin pour centre. Ce vortex hurlait en enveloppant la planète entière.
 
-Soudain, chaque disciple de la Secte de l'Épée de Da Luo eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
+Soudain, chaque disciple de la Secte de l'Épée Da Luo eut l'impression qu'une montagne s'abattait sur lui. Leur énergie spirituelle commença à circuler d'elle-même pour résister; c'était comme s'ils ne pourraient pas survivre sans cet effort.
 
 De loin, on pouvait voir un vortex déchaîné au-dessus de la planète Da Luo. Wang Lin se tenait au cœur du tourbillon, ses cheveux flottant au vent. Les mains derrière le dos, il leva la tête vers les cieux.
 
 Ses yeux brillaient intensément, comme s'ils contenaient l'éclatante voûte étoilée.
 
-Ce regard plongea dans les yeux des disciples de la Secte de l'Épée de Da Luo, et pour eux, il apparut comme une existence éternelle!
+Ce regard plongea dans les yeux des disciples de la Secte de l'Épée Da Luo, et pour eux, il apparut comme une existence éternelle!
 
 Wang Lin restait simplement immobile. Il contemplait calmement le ciel et méditait sereinement sur ce qui habitait son cœur.
 
-« Cette vie pourrait-elle être ma vie antérieure... » Tandis que Wang Lin réfléchissait, il était immergé dans tout ce qu'il avait perçu lorsqu'il avait levé le pied devant la porte défiant le ciel.
+« Cet oiseau pourrait-il être ma vie antérieure... » Tandis que Wang Lin réfléchissait, il était immergé dans tout ce qu'il avait perçu lorsqu'il avait levé le pied devant la porte défiant le ciel.
 
 « Origine... Qu'est-ce que l'origine? Cet oiseau... Il n'est pas ma vie antérieure, mais un symbole vivant de ma mentalité! Cet oiseau est mort face à un python; qu'est-ce que cela signifie... » Wang Lin fronça les sourcils. Il ne parvenait toujours pas à comprendre, mais il semblait avoir saisi une piste.
 
@@ -38,7 +38,7 @@ Il mit fin à ses pensées et ne s'attarda plus sur cette affaire. Puis, se tran
 
 « Le complot de l'Omniscient a échoué, il n'est donc plus nécessaire de rester sur la planète Da Luo. Maintenant, je dois faire des préparatifs pour me rendre vers la Terre des Esprits Démoniaques! Je contrôle l'une des quatre grottes, je peux donc emmener plusieurs personnes! » Tandis que Wang Lin volait, diverses pensées traversèrent son esprit.
 
-Wang Lin n'utilisant pas la Distorsion Spatiale, il ne volait pas à une vitesse fulgurante en traversant l'espace comme un simple rayon de lumière. Quelques heures plus tard, il aperçut une planète abandonnée.
+Wang Lin n'utilisant pas la Distorsion Spatiale, il volait néanmoins à bonne allure, filant comme un rayon de lumière à travers l'espace. Quelques heures plus tard, il aperçut une planète abandonnée.
 
 « La voilà! » La silhouette de Wang Lin ne ralentit pas. Il chargea vers la planète désolée, provoquant des détonations soniques.
 
@@ -64,7 +64,7 @@ Lei Ji arriva bientôt et, lorsqu'il se posa, il regarda respectueusement Wang L
 
 Da Tou hésita un instant avant de demander: « Le voyage du Maître s'est-il bien déroulé? »
 
-Wang Lin leur adressa un signe de tête et répondit lentement: « Tout s'est bien passé, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la culture. »
+Wang Lin leur adressa un signe de tête et répondit lentement: « Ça s'est passé correctement, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la culture. »
 
 Da Tou acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux toutes les deux heures. »
 
@@ -90,7 +90,7 @@ Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début 
 
 « À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Purificateur du Nirvana. Si je retournais dans le passé, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
 
-À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait près de cent mètres de long et émettait des ondes de fluctuations.
+À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait près de cent mètres de long et émettait des ondes de fluctuations de trésor magique.
 
 Une énergie spirituelle dense s'en dégageait, faisant comprendre à quiconque le voyait qu'il ne s'agissait pas d'un objet ordinaire.
 

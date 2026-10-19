@@ -113,7 +113,7 @@ Un tatouage était gravé sur cet os. Ce motif était bien plus complexe que tou
 
 Une aura puissante s'accumulait au-dessus du crâne.
 
-Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
+Yun Quezi observa l'objet avec respect et déclara d'un ton grave: « L'Ancêtre Originel a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 

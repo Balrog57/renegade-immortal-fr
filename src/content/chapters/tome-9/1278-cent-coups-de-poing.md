@@ -26,7 +26,7 @@ Alors que Wang Lin rugissait, il ressemblait à un esprit maléfique des temps i
 
 Le clan des dieux antiques ne possédait que peu de sorts, mais chacun d'eux était d'une puissance extrême, dépassant l'entendement des cultivateurs. Tandis que les paroles de Wang Lin résonnaient, une force vitale colossale jaillit de son corps! Dans ce monde, rien ne pouvait égaler la vitalité d'un dieu antique!
 
-« Sort du dieu ancien: Échange de Vie! »
+« Sort du dieu ancien: Extinction de la Vie, Invocation de l'Esprit! »
 
 Wang Lin poussa un rugissement et lança un coup de poing. Ce coup était si dévastateur que le vide devant lui s'effondra soudainement. En l'exécutant, la vitalité de Wang Lin se dissipa à vue d'œil, et l'impact du choc fonça droit sur le Shui Daozi.
 
@@ -86,13 +86,13 @@ Après cet assaut, du sang noir s'échappa du coin de sa bouche et il se mit à 
 
 « J'ai rejoint la Secte Heng Yue... J'ai tué Teng Li! » Le 22e coup partit, et la brume s'arrêta brusquement.
 
-« Je me suis enfui vers la Mer des Démons et j'y ai formé mon Noyau Doré! » Le 23e coup! La brume se rétracta en poussant un rugissement strident.
+« Je me suis enfui vers la Mer des Démons et j'y ai atteint la Formation du Noyau! » Le 23e coup! La brume se rétracta en poussant un rugissement strident.
 
 « J'ai atteint le stade de l'Âme Naissante, j'ai anéanti la famille Teng, j'ai ébranlé la planète Suzaku et je suis devenu le disciple de l'Omniscient! » Wang Lin continuait d'avancer en murmurant, riant presque de lui-même. Ses coups bombardaient avec une frénésie folle. Les 24e, 25e et 26e coups! La brume explosa et fut repoussée de trente pieds!
 
-« Stades Yin et Yang, trois royaumes du Nirvana! J'ai affronté une vie entière de crises sans jamais céder, tuant d'innombrables ennemis! » Les 27e, 28e, 29e et 30e coups! La brume recula en rugissant plus violemment encore. Elle était terrifiée et se retirait dans la panique.
+« Yin et Yang, vide et plein, trois stades du Briseur du Nirvana! J'ai affronté une vie entière de crises sans jamais céder, tuant d'innombrables ennemis! » Les 27e, 28e, 29e et 30e coups! La brume recula en rugissant plus violemment encore. Elle était terrifiée et se retirait dans la panique.
 
-« J'ai tué d'innombrables personnes depuis lors. Il m'a fallu plus de 2 000 ans de culture pour atteindre ce niveau! » Le 31e coup... le 39e coup!
+« J'ai tué d'innombrables personnes depuis lors. Il m'a fallu 2 000 ans de culture pour atteindre ce niveau! » Le 31e coup... le 39e coup!
 
 « J'ai combattu les cieux, j'ai combattu la terre et aujourd'hui, je combats un cultivateur du troisième niveau! Et alors si je meurs?! » Les 40e, 41e, 42e... jusqu'au 53e coup!
 

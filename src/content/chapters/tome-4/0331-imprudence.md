@@ -66,7 +66,7 @@ L'expression de Zhan Bai changea radicalement. Il recula immédiatement.
 
 « Imprudent? » Wang Lin laissa échapper un rire démoniaque. Sa main traça un sceau, puis pointa vers l'avant. Des dragons façonnés par le brouillard de restriction jaillirent de la brume noire et se rassemblèrent devant Wang Lin, se condensant en une lance!
 
-Cette lance était si puissante qu'elle ébranla même Papillon Rouge, qui dut utiliser son trésor de vie pour s'en protéger.
+Cette lance était si puissante qu'elle ébranla même Papillon Rouge, qui dut utiliser son trésor de vie pour riposter.
 
 À l'instant où la lance apparut, le ciel s'obscurcit. Le brouillard noir recouvrit les cieux et tous les insectes poussèrent des cris stridents, comme face à leur ennemi naturel.
 
@@ -92,7 +92,7 @@ Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard 
 
 D'innombrables asticots grouillaient dans ce sang; la vue en était révoltante.
 
-« Ceng Niu!! Ne me pousse pas à bout! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été mortellement atteint.
+« Ceng Niu!! Ne me pousse pas à bout! » Les yeux de Zhan Bai étaient injectés de sang et sa voix était rauque. Il était totalement ébranlé. Le domaine contenu dans la lance de Wang Lin aggravait ses blessures. S'il n'avait pas possédé un domaine aussi spécial, il aurait déjà été gravement blessé.
 
 « Me pousser à bout? Alors aujourd'hui, c'est moi qui vais te pousser à bout! » Les yeux de Wang Lin restaient froids. Sa main droite pointa soudainement vers l'avant et un rayon d'énergie spirituelle, d'apparence très ordinaire, fonça sur Zhan Bai.
 
@@ -136,7 +136,7 @@ C'était le domaine de la vie et de la mort de Wang Lin. Un autre cycle céleste
 
 Les insectes aux côtés de Zhan Bai poussèrent tous des cris misérables avant de s'effondrer au sol. Chaque insecte fut capturé par une masse de gaz gris et absorbé dans le vortex.
 
-Le regard injecté de sang de Zhan Bai trahissait une pointe de terreur profondément enfouie. Il poussa un rugissement et pointa son front. Le mille-pattes réapparut, et un gaz aux couleurs de l'arc-en-ciel émana de son front.
+Le regard injecté de sang de Zhan Bai trahissait une pointe de terreur profondément enfouie. Il poussa un rugissement et pointa son front. Le mille-pattes réapparut, et un gaz aux couleurs de l'arc-en-ciel émana du sommet de son crâne.
 
 Ce gaz se transforma presque instantanément en un mille-pattes d'environ 330 mètres de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
 
@@ -146,7 +146,7 @@ Lorsqu'il était dans la Vallée Désolée des Neuf Fantômes, il avait fusionn�
 
 Si les humains pouvaient devenir immortels, cela signifiait que les bêtes le pouvaient aussi.
 
-Pourquoi l'humain devrait-il être la plus noble de toutes les créatures? Le Dao de Zhan Bai consistait à utiliser l'âme d'une bête comme fondement.
+Pourquoi l'humain devrait-il être la plus noble de toutes les créatures? Le Dao de Zhan Bai consistait à faire de la bête le fondement de toutes choses.
 
 Dès que son âme originelle apparut, elle poussa un rugissement et quitta son corps. Elle s'élança dans les airs, ouvrit sa gueule et chargea vers le vortex.
 

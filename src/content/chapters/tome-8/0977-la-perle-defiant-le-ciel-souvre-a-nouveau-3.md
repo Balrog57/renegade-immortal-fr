@@ -12,11 +12,11 @@ Non seulement son âme originelle, mais même son corps changeait graduellement 
 
 Au fil du temps, la peau de Wang Lin devint lentement rouge. Des gouttes de sueur s'évaporèrent au gré du vent. Bien que cela provoquât une sensation de froid, Wang Lin ne pouvait pas le ressentir.
 
-Une atmosphère brûlante se manifesta dans un rayon de mille pieds autour de lui. Si quiconque osait s'approcher, il serait stoppé par cette chaleur. S'ils tentaient de forcer le passage, leur âme serait instantanément détruite!
+Une atmosphère brûlante se manifesta dans un rayon de mille pieds autour de lui. Si quiconque osait s'approcher, il serait stoppé par cette chaleur. S'ils tentaient de forcer le passage, leur corps et leur âme seraient détruits en quelques pas!
 
 Wang Lin resta assis dans cet environnement relativement calme pendant dix jours. Durant ces dix jours, il demeura immobile, totalement absorbé par les changements radicaux qui s'opéraient au sein de son corps.
 
-Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Scruteur du Nirvana après la bataille entre Luotian et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
+Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Scruteur du Nirvana lors de la bataille entre Luotian et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
 
 Cependant, au onzième jour, alors que la perle défiant le ciel changeait une fois de plus, la situation bascula!
 
@@ -24,9 +24,9 @@ Le soleil sur la perle défiant le ciel, qui tournait rapidement, ralentit et, �
 
 Une lueur rouge jaillit alors que l'énergie source s'échappait pour pénétrer le motif solaire de la perle défiant le ciel.
 
-Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la flamme du clan du Tatouage sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était l'ultime atout que Wang Lin avait préparé pour le combat.
+Une grande partie de l'énergie source de Wang Lin provenait des Parchemins de Bataille. Une petite portion fut absorbée à partir de la compréhension du clan du Tatouage sur la planète Suzaku. Les deux étant des sources d'énergie originelle, elles fusionnèrent aisément pour demeurer dans le troisième œil. C'était le pouvoir ultime de survie que Wang Lin s'était préparé pour ses combats.
 
-À cet instant, cette rare énergie source originelle pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant l'âme originelle de Wang Lin à l'intérieur même de l'objet.
+À cet instant, cette rare énergie source originelle pénétra la perle défiant le ciel. C'était comme si une clé avait été trouvée pour elle. La perle défiant le ciel trembla et une force puissante en jaillit, entraînant le Sens Divin de Wang Lin à l'intérieur même de l'objet.
 
 Wang Lin sentit seulement sa vision se brouiller, et lorsqu'il retrouva la vue, il découvrit cette scène familière.
 
@@ -44,7 +44,7 @@ Cependant, cette fois, au moment où Wang Lin sombrait dans cet état, une aura 
 
 Tandis qu'il réfléchissait, une lueur d'illumination brilla dans les yeux de Wang Lin.
 
-« L'achèvement des cinq éléments a fait apparaître la porte défiant le ciel, mais il était impossible d'y entrer. À l'époque, je n'ai pu franchir le seuil et seul mon esprit s'est perdu en son sein. »
+« L'achèvement des cinq éléments a fait apparaître la porte défiant le ciel, mais il était impossible d'y entrer. À l'époque, je n'ai pu franchir le seuil, et mon corps comme mon esprit se sont perdus en son sein. »
 
 « Après les cinq éléments viennent le Yin et le Yang. Maintenant que la perle défiant le ciel a absorbé l'Extrême Yang, l'exigence du Yin et du Yang est à moitié remplie. C'est pourquoi elle m'a tiré de ma transe. J'ignore simplement quel rôle jouera l'Extrême Yin... Si le Yin et le Yang sont complets, que se passera-t-il... » Wang Lin réfléchit longuement avant de fixer la porte et de flotter vers elle.
 
@@ -70,7 +70,7 @@ Cet oiseau était magnifique; il arborait des plumes colorées et son vol était
 
 En regardant l'oiseau disparaître au loin, Wang Lin eut l'illusion que cet oiseau était lui-même... C'était si familier, si étrangement familier...
 
-Il vit la courte vie de l'oiseau. Bien que pour autrui cette existence puisse sembler insignifiante, pour Wang Lin, c'étaient des souvenirs d'une époque très, très lointaine. Les souvenirs de cette vie venaient d'être effleurés et révélés.
+Il vit la courte vie de l'oiseau. Bien que pour autrui cette existence puisse sembler insignifiante, pour Wang Lin, c'étaient les souvenirs d'une vie antérieure, depuis longtemps effacés. Ces souvenirs venaient d'être profondément remués et révélés.
 
 « Énergie source... Ceci... C'est l'énergie source... » Ce fut comme si un coup de tonnerre explosait dans l'esprit de Wang Lin; il semblait avoir saisi une piste!
 

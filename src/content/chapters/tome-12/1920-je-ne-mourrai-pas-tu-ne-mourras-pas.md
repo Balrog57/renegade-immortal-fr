@@ -34,7 +34,7 @@ L'existence du sang de l'âme avait provoqué un changement chez Wang Lin. Norma
 
 Toutes ces fortunes pouvaient sembler insignifiantes prise individuellement, mais une fois cumulées, elles produisaient un effet stupéfiant!
 
-Alors que le trou noir se refermait, les 98 Wang Lin apparurent. Ces 98 clones n'utilisèrent pas 98 sorts différents; ils utilisèrent tous le même!
+Alors que le trou noir approchait, les 98 Wang Lin apparurent. Ces 98 clones n'utilisèrent pas 98 sorts différents; ils utilisèrent tous le même!
 
 Il exécuta 98 fois de suite la Charge du Taureau Céleste, un sort issu d'un fragment de la mémoire du Taureau Céleste obtenu après avoir revêtu l'armure d'âme du Taureau Céleste et porté sa culture à son sommet grâce à la force de l'âme empruntée!
 
@@ -66,7 +66,7 @@ Tout se passa à une vitesse fulgurante. À l'instant même où le trou noir s'e
 
 L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahirent une rare trace de choc et il recula précipitamment.
 
-« Une fusion de 98 sorts... Il ne peut pas fusionner le Dao avec son corps, mais cette méthode produit un effet similaire. S'il pouvait utiliser un sort de plus, ne serait-il pas encore plus puissant?! »
+« Une fusion de 98 sorts... Il ne peut pas fusionner le Dao avec son corps, mais cette méthode produit un effet similaire. S'il pouvait fusionner le Dao à son corps, ne serait-il pas encore plus puissant?! »
 
 « La limite d'un Exalté Empyréen est de 99; un de plus serait considéré comme atteignant le rang d'Ascendant Empyréen! Après avoir emprunté la puissance de l'armure d'âme, il est devenu terrifiant!! » Le vieil homme aux cheveux roux leva les mains et, dans un rugissement, lança plusieurs attaques.
 
@@ -92,7 +92,7 @@ Cette figure surgit soudainement et bloqua la Charge du Taureau Céleste. Puis, 
 
 Ce coup semblait d'une banalité extrême, comme s'il était porté par un mortel. Le monde entier sembla s'apaiser, comme si rien ne se passait, et pourtant, le Taureau Céleste s'effondra instantanément. Les 98 sorts en son sein furent tous anéantis.
 
-Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière. Son visage était pâle, mais ses yeux brillaient d'une détermination farouche.
+Lorsque l'ombre du Taureau disparut, Wang Lin fut projeté en arrière sur mille pieds. Son visage était pâle, mais ses yeux brillaient d'une détermination farouche.
 
 « Grand Empyréen Dao Yi!! »
 

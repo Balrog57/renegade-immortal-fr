@@ -8,7 +8,7 @@ slug: une-rencontre-avec-soi-même
 ---
 C'était l'automne de la 35e année depuis que Wang Lin avait quitté Zhao.
 
-À Huo Fen, alors que le vent d'automne balayait la mer en direction de Zhao, l'hiver était déjà là. Le pays de Zhao tout entier était recouvert de neige, tel un bloc de jade blanc posé sur la terre.
+À Huo Fen, alors que le vent d'automne balayait la mer en direction de Zhao, l'hiver était déjà là. Le pays de Zhao tout entier était recouvert de neige, comme s'il avait revêtu une veste de coton blanche, à perte de vue.
 
 Seules deux traces laissées par le passage du chariot étaient visibles. Le craquement lent et régulier de l'attelage s'éloignait peu à peu dans le lointain.
 
@@ -50,7 +50,7 @@ Il s'appelait Grande Fortune.
 
 Il avait attendu ici pendant trente-cinq ans. Il se souvenait encore du jour où Wang Lin lui avait dit d'attendre son retour.
 
-« Il a dit qu'il n'y aurait pas de trente-huitième année, alors il devrait bientôt être de retour... » Grande Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, si gelés qu'ils n'aboyaient plus, commencèrent à gémir.
+« Il a dit qu'il n'y aurait pas de seconde trente-huitième année, alors il devrait bientôt être de retour... » Grande Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, si gelés qu'ils n'aboyaient plus, commencèrent à gémir.
 
 Le bruit d'un chariot écrasant la neige parvint faiblement du lointain jusqu'à s'arrêter devant la cour. La porte du véhicule s'ouvrit et Wang Lin en sortit, faisant face au vent et aux flocons.
 
@@ -68,7 +68,7 @@ Cette nuit-là, le vent hurlait avec violence. Cependant, les trois personnes à
 
 Ce n'est qu'au petit matin que la neige se fit plus rare et sporadique. La lumière du soleil toucha la couche blanche et, bien qu'elle ne la fît point fondre, elle apportait un sentiment de renouveau.
 
-La réverbération du soleil sur la neige était telle qu'il devenait difficile de garder les yeux ouverts. Le matin même, Wang Lin emmena Li Muwan et Grande Fortune vers la tombe de ses parents, près du village.
+La réverbération du soleil sur la neige était telle qu'il devenait difficile de garder les yeux ouverts. Le matin même, Wang Lin emmena Li Muwan et Grande Fortune vers la tombe de ses parents, derrière le village.
 
 Agenouillés devant le monument, Li Muwan s'inclina aux côtés de son époux. Les deux restèrent silencieux un long moment.
 

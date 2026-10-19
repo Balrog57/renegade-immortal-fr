@@ -16,7 +16,7 @@ Ce brouillard était terrifiant pour les autres, mais pour Wang Lin, il n'y avai
 
 « Ce brouillard est très intéressant... » Wang Lin comprit que ce n'était pas réellement du brouillard, mais du tonnerre. Quelqu'un avait utilisé un sort puissant pour amener le tonnerre ici, avant de le broyer pour le transformer en brume. Puis, une technique unique avait été ajoutée pour qu'il agisse comme une formation de protection.
 
-« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan du Tonnerre Dispersé a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant ainsi une certaine souplesse. En termes de protection, l'effet est similaire à mon Monde du Vent et de la Pluie... »
+« Ainsi, le tonnerre peut être transformé en brouillard. Le Clan du Tonnerre Dispersé a déjà étudié le tonnerre à ce point... Ils ont métamorphosé le tonnerre en brume, lui conférant une forme immatérielle, modelable à volonté. En termes de protection, l'effet est similaire à mon Monde du Vent et de la Pluie... »
 
 « D'une simple pensée, ce brouillard de tonnerre peut se contracter pour former une cage. Les possibilités sont infinies! C'est véritablement merveilleux! » Tout en traversant le passage, il commença à observer la brume avec une attention accrue.
 
@@ -28,7 +28,7 @@ Cependant, la situation était extrêmement propice. Tandis que son Sens Divin �
 
 Ce sort transformant le tonnerre en brouillard était d'une complexité telle qu'elle laissa même Wang Lin émerveillé.
 
-Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Dispersé. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
+Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Dispersé, depuis des dizaines de milliers d'années. Ils n'auraient jamais imaginé que quelqu'un puisse simplement pénétrer dans le brouillard et percer l'origine de la technique utilisée pour le créer!
 
 À travers les âges, Wang Lin était le premier!
 

@@ -18,7 +18,7 @@ Leurs Sens Divins étaient assez puissants pour couvrir toute la Mer des Nuages,
 
 C'est ainsi que l'Omniscient avait pu demeurer dans la Rivière Invoquée pendant des centaines d'années sans jamais être détecté.
 
-Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar condensait ses essences à ses côtés. Les ondulations qui se propageaient à travers la Mer des Nuages ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
+Le corps original de Wang Lin était assis sur le dos de la Bête des Limbes, tandis que son avatar, placé face à lui, condensait ses essences. Les ondulations qui se propageaient à travers la Mer des Nuages ne pouvaient être dissimulées et furent détectées par les quatre généraux ainsi que par d'autres êtres célestes.
 
 Cependant, peu importe la manière dont ils sondaient l'espace avec leur Sens Divin, ils ne trouvaient rien. Dans leur perception, la Bête des Limbes n'existait pas; il n'y avait que le calme de l'espace.
 
@@ -28,7 +28,7 @@ Le Vieux Fantôme Zhan, qui les suivait, fronça également les sourcils en scru
 
 Wang Lin ignorait tout cela. Son corps original dormait pour récupérer tandis que son avatar reformait ses essences. Après l'apparition des essences véritable et fausse, Wang Lin leva la main droite et ouvrit lentement sa paume.
 
-« La troisième essence éthérée est l'essence du karma... La paume ouverte est la cause karmique, la paume fermée est l'effet karmique... » L'essence du karma se rassembla dans la main droite de Wang Lin. Une force invisible se condensa au creux de sa paume.
+« La troisième essence éthérée est l'essence du karma... La paume ouverte est la cause karmique, la paume fermée est l'effet karmique... » L'essence du karma se rassembla dans la main droite de Wang Lin. Une force invisible se condensa au creux de sa paume, puis se fondit dans le corps de Wang Lin.
 
 Après cela, les essences de mise à mort et de restriction furent rappelées et recondensées par Wang Lin. Les sept essences circulèrent lentement à l'intérieur du corps de Wang Lin.
 
@@ -48,7 +48,7 @@ Les yeux de Wang Lin brillèrent et il bougea son corps. Constatant qu'il n'épr
 
 Du point de vue de Wang Lin, l'Omniscient était un clou qu'il fallait arracher; sinon, il y aurait trop d'imprévus à l'avenir. L'un d'eux pourrait s'avérer fatal.
 
-C'était la vérité. Maintenant que l'Omniscient avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi.
+C'était la vérité. Maintenant que l'Omniscient avait été détruit par Wang Lin, il ne restait plus qu'un second clou: les êtres célestes de la Secte Gui Yi, venus du Continent Astral Immortel.
 
 Ces intrus étaient le deuxième clou! Il allait les exposer à la lumière!
 
@@ -108,7 +108,7 @@ Simultanément, la Tortue Noire s'avança également pour se positionner à sa g
 
 Peu après, la centaine d'anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Limbes.
 
-« Compagnon de Culture Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire d'un ton sombre.
+« Compagnon de Culture Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire avec un sourire.
 
 Wang Lin observa les êtres célestes qui l'encerclaient, mais son regard resta impassible.
 
@@ -118,12 +118,12 @@ Wang Lin observa les êtres célestes qui l'encerclaient, mais son regard resta 
 
 Le Vieux Fantôme Zhan esquissa lentement un sourire. Vu son âge, il était certainement bien plus astucieux que les autres. Si les quatre généraux osaient barrer la route à Wang Lin, c'était parce qu'il les suivait toujours.
 
-Dans sa jeunesse, il avait souvent emprunté le pouvoir d'autrui pour faire pression sur ses adversaires. Intéressé lui aussi par cette bête, il hocha la tête après une courte réflexion.
+Dans sa jeunesse, il avait souvent exploité sa propre présence pour faire pression sur ses adversaires. Intéressé lui aussi par cette bête, il hocha la tête après une courte réflexion.
 
 « Je suis en effet intéressé par cette bête. Si vous êtes prêt à vous en séparer, je peux vous promettre une chose. »
 
 « Compagnon de Culture, pour une simple bête féroce, vous allez gaspiller plusieurs flèches de l'Arc Li Guang; cela n'en vaut pas la peine... De plus, combien de flèches vous reste-t-il? Pouvez-vous maintenant nous dire où vous avez trouvé cette bête? Et si c'est possible, prêtez-la à ce vieil homme. Si vous me la prêtez, je vous laisserai repartir immédiatement. »
 
-« Même si vous refusez de nous la prêter, puisque nous sommes tous amis, je ne vous bloquerai pas naturellement. Cependant, il pourrait y avoir un problème avec notre coopération passée. Il ne reste plus beaucoup de cultivateurs dans le monde caverneux », ajouta lentement le général du Dragon Azure avec un sourire.
+« Même si vous refusez de nous la prêter, puisque nous sommes tous amis, je n'oserais évidemment pas vous barrer la route. Cependant, il pourrait y avoir un problème avec notre coopération passée. Il ne reste plus beaucoup de cultivateurs dans le monde caverneux », ajouta lentement le général du Dragon Azure avec un sourire.
 
 « Au lieu de chercher la troisième âme, vous venez me chercher des ennuis! On dirait que la douleur passée n'était pas assez profonde. Très bien, aujourd'hui, je vais vous faire ressentir une douleur telle qu'elle sera gravée dans vos os! » L'expression de Wang Lin était de marbre alors qu'il se redressait. Sa main gauche s'élança vers le vide et la Hache Brise-Ciel apparut!

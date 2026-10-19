@@ -28,7 +28,7 @@ L’Illustre Taureau Vert fronça les sourcils et fixa Wang Lin. Il prit le jade
 
 Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, l’Illustre Taureau Vert prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
 
-Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pilules.
+Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations sur les bouleversements du ciel et de la terre et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pilules.
 
 Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure qui ne pouvait cicatriser rapidement. Tout cela confirmait l'authenticité de ce qui était enregistré dans le jade.
 
@@ -38,7 +38,7 @@ Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure 
 
 Wang Lin ne ressentit aucune satisfaction face aux paroles de l’Illustre Taureau Vert. Il le regarda calmement et demanda: « Quelle est la condition? »
 
-« Tuer dix cultivateurs du stade de début de la Tribulation du Vide du Continent Démon Vert, ainsi que trois cultivateurs du stade intermédiaire de la Tribulation du Vide du même continent. Puis, accéder aux neuvième et dixième étages du Pavillon des Écritures de l'Âme! »
+« Tuer dix cultivateurs du stade de début de la Tribulation du Vide du Continent du Démon Vert, ainsi que trois cultivateurs du stade intermédiaire de la Tribulation du Vide du même continent. Puis, accéder aux neuvième et dixième étages du Pavillon des Écritures de l'Âme! »
 
 « Une fois ces trois choses accomplies, tu pourras quitter la Secte de la Grande Âme! »
 
@@ -56,7 +56,7 @@ Voyant Wang Lin acquiescer, l’Illustre Taureau Vert sourit et ne dit plus rien
 
 Wang Lin attrapa le jade. Il contenait le sortilège extrêmement puissant de la Secte de la Grande Âme: le sort complet de l'illusion multicouche du neuvième étage.
 
-« Pour cultiver ce sort, tu dois affiner la Voile Fantôme. Maintenant que la guerre a commencé, je vais t'offrir tous les matériaux nécessaires. Cependant, la Voile Fantôme nécessite une âme; si tu n'en as pas de convenable, tu pourras aller en chercher une au Pic des Fantômes. » Tandis qu’il parlait, l’Illustre Taureau Vert tendit la main vers le vide et une sphère de lumière apparut. Cette sphère contenait de nombreux matériaux d'affinage, qu'il remit à Wang Lin.
+« Pour cultiver ce sort, tu dois affiner la Voile Fantôme. Maintenant que la guerre approche, je vais t'offrir tous les matériaux nécessaires. Cependant, la Voile Fantôme nécessite une âme; si tu n'en as pas de convenable, tu pourras aller en chercher une au Pic Fantôme. » Tandis qu’il parlait, l’Illustre Taureau Vert tendit la main vers le vide et une sphère de lumière apparut. Cette sphère contenait de nombreux matériaux d'affinage, qu'il remit à Wang Lin.
 
 Wang Lin agita sa manche pour ranger la sphère de lumière. Il se leva, salua l’Illustre Taureau Vert en joignant les mains, puis partit.
 

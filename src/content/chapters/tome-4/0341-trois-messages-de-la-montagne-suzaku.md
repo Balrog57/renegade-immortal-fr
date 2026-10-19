@@ -8,7 +8,7 @@ slug: trois-messages-de-la-montagne-suzaku
 ---
 Le messager était d'une rapidité fulgurante et arriva bientôt devant les six individus. Il marqua un bref instant de pause, son regard perçant balayant le groupe.
 
-Hormis le vieil homme Hu et l'homme au manteau noir, le cœur de chacun trembla et tous baissèrent la tête.
+Hormis le vieil homme Hu et l'homme à la veste de toile bleue, le cœur de chacun trembla et tous baissèrent la tête.
 
 « Il y a deux cultivateurs au stade de la Formation de l'Âme ici! » La lumière se dissipa, révélant un jeune homme vêtu de blanc, au visage d'une blancheur de jade et d'une beauté remarquable. Droit comme un pin, il se tenait là, d'une allure hors du commun. Sur sa robe blanche, quatre dragons d'or brodés dégageaient une aura légère et vivante.
 
@@ -20,7 +20,7 @@ Le vieil homme comprit immédiatement que la culture de ce jeune homme se situai
 
 Le regard du jeune homme se posa sur la femme au voile blanc et il ordonna: « Retirez votre voile. »
 
-L'homme au manteau noir fit un pas en avant et déclara: « Seigneur messager, ma dame est tenue, selon les préceptes de ses ancêtres, de ne point révéler son visage à la légère. J'espère que le seigneur messager saura comprendre. »
+L'homme à la veste de toile bleue fit un pas en avant et déclara: « Seigneur messager, ma dame est tenue, selon les préceptes de ses ancêtres, de ne point révéler son visage à la légère. J'espère que le seigneur messager saura comprendre. »
 
 Les yeux du jeune homme brillèrent d'un éclat singulier. Après une courte réflexion, il agita ses manches et s'envola.
 
@@ -100,7 +100,7 @@ La main invisible qui entravait Feng Yushan disparut, lui rendant sa liberté. S
 
 Désormais, il n'en pensait plus rien.
 
-La réponse de Wang Lin le plaçait dans une position délicate. Après réflexion, il joignit les mains et dit respectueusement: « Cher cultivateur Ceng, c'est sur ordre du mont Suzaku que vous devez affronter Papillon Rouge. Ils envoient rarement des messages. Au cours des cent dernières années, ils n'en ont envoyé que trois. La première pour recruter Papillon Rouge comme disciple de base. La seconde pour empêcher quiconque de vous poursuivre. La troisième, c'est celle-ci: ils révèlent votre position et ordonnent le combat contre Papillon Rouge. Je suis convaincu que vous obtiendrez de grands bénéfices en cas de victoire. Après tout, sur les trois messages, deux concernaient votre personne! »
+La réponse de Wang Lin le plaçait dans une position délicate. Après réflexion, il joignit les mains et dit respectueusement: « Cher cultivateur Ceng, c'est sur ordre du mont Suzaku que vous devez affronter Papillon Rouge. Ils envoient rarement des messages. Au cours des cent dernières années, ils n'en ont envoyé que trois. La première pour recruter Papillon Rouge comme disciple central. La seconde pour empêcher quiconque de vous poursuivre. La troisième, c'est celle-ci: ils révèlent votre position et ordonnent le combat contre Papillon Rouge. Je suis convaincu que vous obtiendrez de grands bénéfices en cas de victoire. Après tout, sur les trois messages, deux concernaient votre personne! »
 
 La voix de Wang Lin s'éleva de la vallée: « Dites à Papillon Rouge que si elle veut combattre, ce ne sera que dans dix ans! »
 
@@ -124,7 +124,7 @@ Wang Lin pointa le sol et, soudain, une table de pierre surgit de la terre, acco
 
 Le vieil homme Hu fixa Wang Lin du regard avant de s'asseoir face à lui. La belle femme salua respectueusement Wang Lin, s'approcha et servit le thé pour chacun.
 
-Wang Lin tourna son regard vers l'homme au manteau noir qui se tenait aux côtés de la femme voilée et sourit: « Cher cultivateur, je vous en prie, asseyez-vous. »
+Wang Lin tourna son regard vers l'homme à la veste de toile bleue qui se tenait aux côtés de la femme voilée et sourit: « Cher cultivateur, je vous en prie, asseyez-vous. »
 
 L'homme observa longuement Wang Lin. Il reconnut en lui l'homme d'autrefois. Une expression complexe traversa son visage alors qu'il prenait place.
 

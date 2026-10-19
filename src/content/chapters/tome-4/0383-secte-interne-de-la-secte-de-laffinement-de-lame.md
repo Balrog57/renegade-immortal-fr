@@ -148,6 +148,6 @@ Les deux sens divins éclatèrent d'un rire sonore avant de se dissiper.
 
 Wang Lin rétracta son sens divin alors qu'il remontait le sentier de la montagne.
 
-« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en culture fermée, et la Secte de l'Affinement de l'Âme est gérée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
+« Tous les cultivateurs du stade de la Formation de l'Âme et au-delà sont en culture fermée, et la Secte de l'Affinement de l'Âme est gardée par ces trois-là », médita Wang Lin en se dirigeant vers le hall secondaire.
 
 Après avoir récupéré son jeton et ses vêtements, Wang Lin remarqua qu'il était encore tôt dans la journée; il décida donc de se rendre à la bibliothèque.

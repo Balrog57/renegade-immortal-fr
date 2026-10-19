@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1598 - A Meeting
 slug: une-rencontre
 ---
-Sur son lit de mort, il se remémora les paroles de l'érudit anonyme prononcées des centaines d'années auparavant. Ces mots semblaient hanter son esprit jusqu'à ce que sa vie s'éteigne et qu'il devienne l'une des âmes principales du drapeau des âmes.
+Sur son lit de mort, il se remémora les paroles de l'érudit anonyme prononcées des centaines d'années auparavant. Ces mots semblaient hanter son esprit jusqu'à ce que sa vie s'éteigne et qu'il devienne l'âme principale du drapeau des âmes.
 
 Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte de l'Affinement de l'Âme. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi la foule de ceux qui désiraient entrer dans la Secte. Un homme d'apparence tout à fait ordinaire.
 
@@ -20,7 +20,7 @@ Wang Lin fut ramené à la ville de Zhao et se tint près de l'arbre, à l'exté
 
 Après avoir réveillé Grande Fortune, les deux retournèrent à l'auberge. La lumière lunaire tombait du ciel, étirant leurs ombres sur le sol.
 
-Le classement devait être publié quelques jours après l'examen. Tous les érudits attendaient ce jour avec une anxiété fébrile. Ceux qui figureraient au classement auraient la chance de passer l'étape suivante.
+Le classement devait être publié quelques jours après l'examen. Tous les érudits attendaient ce jour avec une anxiété fébrile. Ceux qui figureraient au classement obtiendraient le titre de xiucai et auraient la chance de passer l'étape suivante.
 
 Cette chance consistait à se rendre dans la ville de Su pour y participer aux examens, avec l'espoir ultime de s'élever vers les cieux. Une fois qu'ils auraient obtenu le titre de l'Élu de Su, ils pourraient tenter leur ultime ascension vers la capitale de Zhao!
 
@@ -28,9 +28,9 @@ S'ils possédaient assez de talent pour gagner l'estime du Grand Érudit Su, leu
 
 C'était le désir de presque tous les érudits de Zhao.
 
-Moins de cinquante personnes dans tout le comté auraient l'opportunité de rejoindre la ville de Su. Bien que le nom de Wang Lin ne fût pas en tête de liste, il comptait parmi ces cinquante élus.
+Moins de cinquante personnes dans tout le comté obtiendraient le titre de xiucai et l'opportunité de rejoindre la ville de Su. Bien que le nom de Wang Lin ne fût pas en tête de liste, il comptait parmi ces cinquante élus.
 
-En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmement le classement et partit avec Grande Fortune, qui débordait de fierté et d'enthousiasme. Il se rendit à la mairie pour confirmer son identité, obtenir sa certification pour l'examen suivant et percevoir la prime en argent dévolue par la cour impériale.
+En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmement le classement et partit avec Grande Fortune, qui débordait de fierté et d'enthousiasme. Il se rendit à la mairie avec son laissez-passer et sa carte de visite pour confirmer son identité et obtenir son certificat de xiucai et percevoir la prime en argent dévolue par la cour impériale.
 
 Ce qui exaltait tant Grande Fortune n'était pas la présence de Wang Lin au classement, mais bien cet argent.
 
@@ -38,7 +38,7 @@ Ses expériences durant ce peu plus d'un mois avaient transformé Wang Lin sans 
 
 Sa mentalité avait évolué. Il ne se sentait plus égaré; la confusion et l'inquiétude face à l'échec de l'examen avaient disparu.
 
-Ce qui devait être acquis le serait, et ce qui devait être perdu serait perdu.
+Gagner ou perdre, c'est toujours la même chose.
 
 Rien n'avait d'importance, seul le cœur demeurait immuable. Son cœur était aussi calme que l'eau d'un puits. C'était comme contempler une montagne en tant que montagne, puis la voir non plus comme une montagne, pour enfin la percevoir à nouveau comme une montagne. En ce laps de temps, il n'avait même pas réalisé à quel point il avait changé.
 
@@ -46,13 +46,13 @@ L'aura d'un grand érudit se manifestait désormais sur lui. Parmi les innombrab
 
 En tant qu'immortel, il contemplerait froidement les autres cultivateurs; en tant que mortel, il serait tout autant un génie parmi les hommes!
 
-« La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville avec Grande Fortune.
+« La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville, son coffre à livres en bambou sur le dos, avec Grande Fortune.
 
 Tout comme il était venu, il partit avec calme.
 
 Grande Fortune suivait Wang Lin tout en continuant de compter leur argent. Il marmonnait parfois, le visage marqué par la douleur de voir ses économies fondre.
 
-À la porte de la ville, Wang Lin s'arrêta et son regard se posa sur un étal de vin non loin de là. « Grande Fortune, va nous acheter du vin! » Il ressentit soudain l'envie de boire, bien qu'il fût déjà tombé dans un profond sommeil après seulement deux coupes auparavant.
+À la porte de la ville, Wang Lin s'arrêta et son regard se posa sur un étal de vin non loin de là. « Grande Fortune, va nous acheter du vin! » Il ressentit soudain l'envie de boire, bien qu'il eût déjà sombré dans l'ivresse après seulement deux coupes auparavant.
 
 « Nous n'avons presque plus d'argent et tu veux encore du vin?! » Grande Fortune leva les yeux au ciel en ajustant le tissu autour de sa poitrine, secouant la tête de dépit.
 
@@ -66,7 +66,7 @@ Malgré cela, Grande Fortune ressentit une telle douleur en déboursant ses piè
 
 Wang Lin rit et saisit la cruche. Il prit une longue gorgée, laissant le vin couler au coin de sa bouche. Grande Fortune le suivit rapidement, l'air accablé.
 
-Il était alors midi. Les deux s'éloignèrent davantage. L'aura solitaire et mélancolique qui entourait Wang Lin s'était largement dissipée, remplacée par un sentiment d'apaisement.
+Il était alors midi. Les deux s'éloignèrent davantage. L'aura solitaire et mélancolique qui entourait Wang Lin s'était largement dissipée, remplacée par un sentiment de liberté insouciante.
 
 « Jeune Maître, où allons-nous? » La voix de Grande Fortune résonna au loin.
 

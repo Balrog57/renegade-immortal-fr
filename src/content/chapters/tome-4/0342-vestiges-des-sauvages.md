@@ -50,17 +50,17 @@ Le vieil homme Hu rit, sans chercher à se cacher: « Frère Wang est véritable
 
 La femme au voile blanc fronça les sourcils en le regardant.
 
-Le vieil homme Hu éclata de rire: « Cultivatrice Zi Xin, ne me blâmez pas. Si ce n'était que pour l'Arbre de Réincarnation, je ne vous suivrais pas dans le Cimetière des Immortels. Ce que je convoite, c'est le Fruit de la Réincarnation! » Après avoir parlé, il se tourna vers Wang Lin: « Sans frère Wang, je n'ai que 30 % de chances de réussir, mais si frère Wang m'accompagne, ma confiance passera à 60 %. »
+Le vieil homme Hu éclata de rire: « Cultivatrice Zi Xin, ne me blâmez pas. Si ce n'était que pour l'Arbre de Réincarnation, je ne vous suivrais pas dans le Cimetière des Immortels. Ce que je convoite, c'est le Fruit de la Réincarnation! » Après avoir parlé, il se tourna vers Wang Lin: « Sans frère Wang, je n'ai que 30 % de chances de réussir, mais si frère Wang m'accompagne, ma confiance passera à plus de 60 %. »
 
 « Le Fruit de la Réincarnation... » Bien que l'expression de Wang Lin soit restée impassible, son cœur fut troublé.
 
-En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », il en eut la certitude. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures? »
+En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », ses soupçons se renforcèrent. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures? »
 
-Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de plus de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
+Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, à la grande perfection, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de plus de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
 
-Wang Lin réfléchit. D'après ses souvenirs d'Ancien Dieu, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
+Wang Lin réfléchit. D'après les souvenirs de l'Ancien Dieu Tu Si, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
 
-Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de culture, si l'on étalait l'un de ces fruits sur tout son corps, cela renforcerait la fondation.
+Seuls quelques rares fruits spirituels pouvaient avoir un effet. Bien qu'ils n'augmentent pas le niveau de culture, si l'on étalait l'un de ces fruits sur tout son corps, cela produirait un effet comparable à l'Établissement des Fondations.
 
 C'était ce que les Anciens Dieux appelaient la purification corporelle.
 
@@ -80,9 +80,9 @@ Wang Lin ne savait pas grand-chose sur le Cimetière des Immortels. Il savait se
 
 Personne, hormis Suzaku, ne connaissait le nombre exact de couches du Cimetière des Immortels.
 
-« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance de la Culture. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, fut ravagée par le conflit et n'est plus aujourd'hui qu'une planète à moitié dévastée. Tout cela est de la faute des sauvages. »
+« Frère Wang doit savoir que ces sauvages étaient les autochtones de cette planète. Lorsque Suzaku est devenue un pays de culture de rang 6, cette planète leur fut offerte par l'Alliance de la Culture. Ils menèrent ensuite une grande guerre contre les sauvages. Cette planète, autrefois si vivante, faillit s'effondrer sous ce conflit et n'est plus aujourd'hui qu'à moitié abandonnée. Tout cela est de la faute des sauvages. »
 
-« Durant cette guerre, 90 % des sauvages furent massacrés. Les survivants s'enfuirent alors dans le Cimetière des Immortels. Tous les cent ans, Suzaku envoie d'innombrables cultivateurs pour les éliminer, mais ils ne parviennent toujours pas à les anéantir totalement. »
+« Durant cette guerre, 90 % des sauvages furent massacrés. Les survivants s'enfuirent alors dans le Cimetière des Immortels, sans jamais en ressortir. Tous les cent ans, Suzaku envoie d'innombrables cultivateurs pour les éliminer, mais ils ne parviennent toujours pas à les anéantir totalement. »
 
 « L'Arbre de Réincarnation pousse sous terre et est considéré comme sacré par les sauvages. Cependant, il existe au total neuf Arbres de Réincarnation, ce qui nous donne une chance. »
 

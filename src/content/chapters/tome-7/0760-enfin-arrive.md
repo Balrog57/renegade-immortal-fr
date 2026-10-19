@@ -32,9 +32,9 @@ Il ne pouvait pas se dissimuler totalement de l'Ancêtre Sanguin; il ne pouvait 
 
 Des filaments de restrictions apparurent autour de lui, formant une sphère protectrice dans laquelle il s'assit. Juste au moment où la sphère était sur le point de se refermer, le garde céleste fit son apparition.
 
-En contemplant le garde céleste, Wang Lin afficha un sourire sinistre. Il lança le cristal du réseau de transfert vers le garde et ferma lentement les yeux. Une parcelle de son sens divin se détacha de son corps pour pénétrer directement dans le garde céleste.
+En contemplant le garde céleste, Wang Lin afficha un sourire sinistre. Il lança le cristal du réseau de transfert vers le garde et ferma lentement les yeux. Une parcelle de son âme originelle se détacha de son corps pour pénétrer directement dans le garde céleste.
 
-C'était l'un des sorts du garde céleste: il permettait au sens divin de la personne l'ayant raffiné d'y entrer pour le contrôler.
+C'était l'un des sorts du garde céleste: il permettait à l'âme originelle de la personne l'ayant raffiné d'y entrer pour le contrôler.
 
 Une fois que cette portion d'âme originelle fut entrée, les yeux de Wang Lin commencèrent à se fermer. Juste avant l'obscurité totale, une ultime restriction s'échappa de sa main pour parfaire la sphère. Celle-ci se rétracta brusquement jusqu'à disparaître dans un éclat de lumière.
 
@@ -42,7 +42,7 @@ Le garde céleste ouvrit les yeux, dont le regard devint glacial. Il saisit le c
 
 Après avoir remué son corps pour surmonter l'inconfort des premiers instants, Wang Lin scruta les profondeurs avec son sens divin. Il était incapable de détecter où se trouvait son véritable corps.
 
-« Sans le garde céleste, je ne pourrais pas tromper l'Ancêtre Sanguin. Cependant, je prends l'initiative: une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
+« Sans le garde céleste, je ne pourrais peut-être pas tromper l'Ancêtre Sanguin. Cependant, je prends l'initiative: une fois qu'il aura pris conscience de l'âme originelle présente dans ce corps, il ne pourra éviter cette attraction. »
 
 Wang Lin baissa la tête et contempla son corps. Il s'élança vers l'horizon tel un météore, son sens divin déployé au maximum. Il était comme une lueur éclatante dans les ténèbres; si quelqu'un le cherchait, il pourrait immédiatement le verrouiller du regard.
 

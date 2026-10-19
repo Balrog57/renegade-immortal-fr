@@ -6,15 +6,15 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1945 - Dead Secte
 slug: la-secte-morte
 ---
-La montagne verdoyante n'était plus là... Elle était devenue une montagne nue et dévastée.
+La montagne verdoyante n'était plus là... Elle était devenue une montagne de la mort, nue et dévastée.
 
 L'eau n'était plus claire et dégageait une odeur nauséabonde...
 
 Même le vent qui soufflait était empreint de tristesse et d'une odeur de décomposition.
 
-De plus, les pavillons complexes étaient recouverts de poussière. Ils avaient perdu toute vitalité et semblaient en ruines.
+De plus, les pavillons raffinés étaient recouverts de poussière. Ils avaient perdu toute vitalité et semblaient en ruines.
 
-Les marches de pierre menant au sommet de la montagne étaient pour la plupart brisées. Le vent hurlant entonnait une mélodie funèbre.
+Les marches de pierre des petites montagnes étaient pour la plupart brisées. Une multitude de gravats, emportés par le vent, entonnaient une mélodie funèbre.
 
 Les disciples de la Secte Dong Lin que Wang Lin avait vus déambuler dans la secte n'étaient plus que des squelettes éparpillés sur les places, dans les pavillons et sur les marches de pierre. Ils s'étaient décomposés depuis longtemps, ne laissant derrière eux que des ossements.
 
@@ -30,7 +30,7 @@ Ils continuaient à cultiver au sein de ce songe.
 
 C'est aussi pour cette raison que, lorsque Wang Lin et Liu Jinbiao se tenaient là, tous les disciples de la Secte Dong Lin passèrent simplement devant eux sans les voir. Ce n'était pas que Wang Lin n'existait pas, c'était qu'eux n'existaient plus.
 
-Il serait inapproprié de les qualifier de fantômes, car Wang Lin ne voyait aucun spectre. C'était seulement un rêve qui ignorait la mort... Dans ce songe, même si un étranger venait, il lui serait difficile de s'en apercevoir. C'était comme s'ils étaient devenus une partie intégrante du rêve.
+Il serait inapproprié de les qualifier de fantômes, car Wang Lin ne voyait aucun spectre. C'était seulement un rêve qui ignorait la mort... Dans ce songe, même si un étranger venait, il lui serait difficile de s'en apercevoir. Il pourrait même être attiré dans ce rêve et voir apparaître des scènes semblables à des illusions. En réalité, c'est parce que le rêve de l'étranger fusionne avec ce lieu et s'y intègre.
 
 Cet endroit avait été détruit il y a d'innombrables années. Il ignorait depuis combien de temps... Mais il comprenait que les gens venaient ici sans réaliser qu'il s'agissait d'une secte morte. Ils séjournaient comme des invités, puis repartaient...
 
@@ -102,7 +102,7 @@ Wang Lin marcha lentement vers le Temple Dong Lin. Dès qu'il fut complètement 
 
 « Vous êtes venu... »
 
-Dans le temple, juste devant Wang Lin, se dressaient trois grandes statues représentant deux hommes et une femme. Ils regardaient tous vers l'est avec un sourire, dégageant une aura de fierté.
+Dans le temple, juste devant Wang Lin, se dressaient trois grandes statues représentant deux hommes et une femme. Ils regardaient tous vers l'est avec un sourire, dégageant une aura imposante.
 
 Au pied des statues se tenait un vieil homme vêtu d'une robe grise. Son visage était parsemé de taches brunes, semblable à celui d'un mortel approchant du crépuscule de sa vie. Son expression était misérable, empreinte d'une tristesse infinie.
 

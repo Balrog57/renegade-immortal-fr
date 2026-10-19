@@ -44,7 +44,7 @@ Un jeune homme vêtu d'une robe daoïste était assis en tailleur sur la tête d
 
 « L'entrée de la rétribution divine dont l'oncle-maître Ma a parlé devrait se trouver ici... »
 
-À cet instant précis, le jeune homme leva soudainement la tête. Ses yeux étaient empreints d'extase. En regardant vers le ciel, il avait manifestement détecté le Sens Divin de Wang Lin. Ses yeux s'illuminèrent et un rayon de lumière noire jaillit vers les cieux.
+À cet instant précis, le jeune homme leva soudainement la tête. Ses yeux étaient empreints d'extase. En regardant vers le ciel, il avait manifestement détecté le Sens Divin de Wang Lin. Ses yeux s'illuminèrent et un rayon de lumière vert-noir jaillit vers les cieux.
 
 Wang Lin n'hésita pas une seconde à couper ce fragment de son Sens Divin. Il se précipita immédiatement pour traverser le feu et le tonnerre des nuages de la rétribution divine. Il s'en extirpa et fonça vers les bêtes moustiques.
 
@@ -72,7 +72,7 @@ Si Maître Yan Leizi avait vu l'expression du vieil homme, il aurait été profo
 
 Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de culture ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la rétribution divine!
 
-La distance parcourue était absolument inconcevable; même la manipulation spatiale ne permettrait pas de franchir une telle distance en un seul mouvement!
+La distance parcourue était absolument inconcevable; même la Distorsion Spatiale ne permettrait pas de franchir une telle distance en un seul mouvement!
 
 Pourtant, l'opération fut d'une facilité déconcertante pour le vieil homme. Il fronça les sourcils en observant les environs jusqu'à ce que son regard se fixe sur le vide, à environ 1 000 pieds de là.
 
@@ -80,7 +80,7 @@ C'est là que la lumière vert-noir était apparue!
 
 « Un fragment d'aura du Royaume Céleste Antique... » Le vieil homme réfléchit un instant avant de faire demi-tour et de partir.
 
-Quant à Wang Lin, il regagna rapidement la zone contrôlée par les Quatre Sectes Divines avant de ralentir sa course. Il ne cessait de rejouer la scène qu'il venait de vivre, et plus particulièrement l'image de ce jeune homme qui l'avait tant troublé.
+Quant à Wang Lin, il regagna rapidement la zone de l'est de l'Alliance contrôlée par les Quatre Sectes Divines avant de ralentir sa course. Il ne cessait de rejouer la scène qu'il venait de vivre, et plus particulièrement l'image de ce jeune homme qui l'avait tant troublé.
 
 « Qui est-il...? » Les yeux de Wang Lin trahissaient une crainte alors qu'il scrutait le ciel sombre derrière lui. Il s'élança et des ondulations apparurent avant qu'il ne disparaisse. Lorsqu'il réapparut, il se trouvait déjà à l'extérieur de la Secte Divine de l'Oiseau Vermillon.
 

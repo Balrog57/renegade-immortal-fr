@@ -13,11 +13,11 @@ Tous les sorts interdits sont dérivés de sorts célestes; il existe donc d'imp
 
 De même, s'il existe des sorts dérivés de sorts célestes de haute qualité, ils ne sont en rien inférieurs aux sorts de faible qualité; ils peuvent même s'avérer plus puissants encore! En fin de compte, la puissance d'un sort interdit dépend de la qualité du sort céleste dont il est issu.
 
-Wang Lin n'était pas dépourvu de sorts offensifs. Qu'il s'agisse des trois sorts mortels de Situ Nan ou du char de guerre dont le premier sceau avait été libéré, tous constituaient des méthodes d'attaque redoutables. En plus de ceux-là, il possédait encore l'épée céleste et la lame en croissant. Cette dernière comptait sans doute parmi les trésors les plus précieux de Wang Lin.
+Wang Lin n'était pas dépourvu de sorts offensifs. Qu'il s'agisse des trois sorts mortels de Situ Nan ou du char de guerre dont le premier sceau avait été libéré, tous constituaient des méthodes d'attaque redoutables. En plus de ceux-là, il possédait encore l'épée céleste et la lame en croissant. Cette dernière pouvait devenir l'un des trésors les plus précieux de Wang Lin.
 
 Quant aux sorts d'évasion, avec le sort interdit de téléportation, il ne s'en inquiétait guère. Bien que son utilisation demande un certain temps, une fois activée, sa puissance est extraordinaire. Quant à ses déplacements dans l'espace, il disposait de la boussole du dragon argenté, et sa vitesse n'y était donc inférieure à celle de quiconque.
 
-Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux étapes Yin et Yang, ou qui franchit ces paliers pour atteindre les trois étapes du Nirvana, qu'il s'agisse du Scruteur du Nirvana ou de la Purification du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
+Toutefois, tout cela ne s'appliquait qu'en comparaison avec les cultivateurs au stade Ascendant. La puissance que l'on acquiert lorsque sa culture dépasse le stade Ascendant pour atteindre les deux intentions du Yin-Yang et du Vide-Réel, ou qui franchit ces paliers pour atteindre les trois niveaux du Briseur du Nirvana, qu'il s'agisse du Scruteur du Nirvana ou du Purificateur du Nirvana, était une chose que Wang Lin ne pouvait encore concevoir à l'heure actuelle.
 
 L'Omniscient ne rompit pas la réflexion de Wang Lin. Il fixa silencieusement le lointain, sans montrer le moindre signe d'impatience. C'était le choix initial de Wang Lin; l'Omniscient voulait voir quel genre de sort cet enfant choisirait.
 
@@ -25,7 +25,7 @@ Peu de temps après, Wang Lin leva la tête vers l'Omniscient et dit lentement: 
 
 « De survie? » L'Omniscient regarda Wang Lin en souriant. « Comment souhaites-tu survivre? »
 
-La voix de Wang Lin était calme lorsqu'il répondit avec lenteur: « Tant qu'il subsiste une lueur d'espoir, je serai capable de survivre et de poursuivre ma quête du Grand Dao! »
+La voix de Wang Lin était calme lorsqu'il répondit avec lenteur: « Tant qu'il reste un souffle de vie, je serai capable de survivre et de poursuivre ma quête du Grand Dao! »
 
 L'Omniscient esquissa un léger sourire et secoua la tête: « Maître ne possède pas un tel sort. »
 
@@ -43,9 +43,9 @@ Wang Lin resta là, immobile, observant ces multiples incarnations de l'Omniscie
 
 Au premier coup d'œil, il aperçut un Omniscient au loin. Ses mains formaient des sceaux qui bougeaient de manière imprévisible. Des rayons d'énergie spirituelle céleste de nature métallique émanaient de ses mains. Cette énergie forma un vortex gigantesque. Un tour, deux tours... bientôt, il atteignit aisément neuf tours. À cet instant, une puissance qui fit tressaillir le cœur de Wang Lin émergea lentement du vortex. Cette force était colossale!
 
-« Tactique de Raffinement Céleste aux Neuf Cycles... » Wang Lin l'observa un instant avant de passer au suivant.
+« Tactique de Raffinement Céleste en Neuf Cycles... » Wang Lin l'observa un instant avant de passer au suivant.
 
-Il vit un autre Omniscient assis en lotus à près d'un kilomètre de là. Ses yeux n'étaient pas clos; ils projetaient une lumière éclatante. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper l'Omniscient. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
+Il vit un autre Omniscient assis en lotus à près d'un kilomètre de là. Ses yeux n'étaient pas clos; ils projetaient une lueur étrange. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper l'Omniscient. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
 
 « Sort interdit, Corps Immortel Démoniaque! » Les yeux de Wang Lin s'illuminèrent.
 

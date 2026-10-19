@@ -66,11 +66,11 @@ La grande sœur était comme une âme évidée. Ses yeux étaient vides alors qu
 
 « Petite sœur… Grande sœur ne voulait pas, je ne le voulais vraiment pas… J'aurais dû être dévorée… Cela aurait dû être moi… Petite sœur… » Le visage de Yao Bingyun était baigné de larmes et son corps tremblait. À cet instant, elle ne ressentait plus de peur, mais seulement un regret infini.
 
-« Je n'aurais pas dû reculer… Avant que Mère ne parte, elle m'avait dit de prendre soin de ma petite sœur, mais je ne l'ai pas fait… Je n'aurais pas dû reculer… » Yao Bingyun regarda la lampe avec désespoir, se mordit la lèvre et s'agenouilla. Elle cria: « Ancêtre Grand-père, moi, Yao Bingyun, je suis prête à devenir l'âme du trésor. Même si cela dure toute une vie, j'accepterai sans la moindre plainte. Je vous en prie, Ancêtre Grand-père, laissez Mengyun sortir en échange de ma vie pour devenir l'âme du trésor. Je vous en supplie, Ancêtre Grand-père! Je vous en conjure! Je vous en conjure… »
+« Je n'aurais pas dû reculer… Avant que Mère ne parte, elle m'avait dit de prendre soin de ma petite sœur, mais je ne l'ai pas fait… Je n'aurais pas dû reculer… » Yao Bingyun regarda la lampe avec désespoir, se mordit la lèvre et s'agenouilla. Elle cria: « Ancêtre Grand-père, moi, Yao Bingyun, je suis prête à devenir l'âme du trésor. Même si cela dure toute une vie, voire des milliers d'années, j'accepterai sans la moindre plainte. Je vous en prie, Ancêtre Grand-père, laissez Mengyun sortir en échange de ma vie pour devenir l'âme du trésor. Je vous en supplie, Ancêtre Grand-père! Je vous en conjure! Je vous en conjure… »
 
 Le visage de Yao Bingyun était inondé de larmes; elle continuait de se prosterner jusqu'à ce que le sang coule de son front, sans jamais s'arrêter. Ses supplications étaient si poignantes qu'elles auraient pu émouvoir n'importe qui. Son comportement laissa même Wang Lin silencieux!
 
-Ses cris résonnèrent dans tout le hall et parvinrent jusqu'aux oreilles de Yao Yun. Les yeux de ce dernier devinrent rouges; il poussa un rugissement et lutta pour se redresser. Mais alors qu'il s'apprêtait à s'élancer à l'intérieur, une force jaillit du temple, projetant Yao Yun à l'extérieur dans un jet de sang.
+Ses cris résonnèrent dans tout le hall et parvinrent jusqu'aux oreilles de Yao Yun. Les yeux de ce dernier devinrent rouges; il poussa un rugissement et lutta pour se redresser. Mais alors qu'il s'apprêtait à s'élancer à l'intérieur, une force jaillit du hall, projetant Yao Yun à l'extérieur dans un jet de sang.
 
 « La famille Yao va périr! »
 
@@ -90,7 +90,7 @@ La seule chose subsistante était Yao Bingyun, assise par terre. Ses yeux étaie
 
 « Quiconque pourra sauver ma petite sœur, moi, Yao Bingyun, deviendra votre servante pour les générations à venir. Même si cela signifie que je dois perdre toute conscience morale, tant que je peux sauver ma petite sœur, je… je suis prête!! Sans aucun regret!! » Sa voix lugubre résonna entre le ciel et la terre, révélant la détermination glaciale de Yao Bingyun, mais surtout son immense impuissance!
 
-Le Sens Divin de Wang Lin fut bouleversé. Il avait personnellement expérimenté le Dao de Yao Bingyun pour confirmer le sien; par extension, le Dao de cette jeune fille s'était exposé à lui.
+Le Sens Divin de Wang Lin fut bouleversé. Il avait personnellement expérimenté le domaine de Yao Bingyun pour confirmer le sien; par extension, le Dao de cette jeune fille s'était exposé à lui.
 
 L'image de ces deux petites filles l'une dépendant de l'autre resta gravée dans son esprit pendant un long moment.
 

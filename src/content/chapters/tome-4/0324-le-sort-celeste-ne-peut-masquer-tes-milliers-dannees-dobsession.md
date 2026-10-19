@@ -8,7 +8,7 @@ slug: le-sort-celeste-ne-peut-masquer-tes-milliers-dannees-dobsession
 ---
 La femme vêtue de blanc murmura: « Tu ne peux pas sortir avant que la quatrième épée ne prenne forme! »
 
-D’un revers de main, elle fit s'effondrer l'épée de foudre. Le vieil homme recula et ne parvint à créer que deux cents écrans de lumière cette fois. Il chargea vers elle, l'excitation dans le regard plus vive que jamais.
+D’un revers de main, elle fit s'effondrer l'épée de foudre. Le vieil homme recula et ne parvint à créer que deux cents écrans de lumière cette fois. Son excitation n'en était que plus vive.
 
 À cet instant, la dernière vague d'épées arriva. Un hymne d'épée s'éleva du quatrième dragon doré, qui se solidifia.
 
@@ -56,6 +56,8 @@ Cependant, alors qu'il s'apprêtait à la saisir, une autre personne surgit de l
 
 « Tian Mozi! Tu oses me voler? Attends donc! Ta planète, Tian Mo, sera anéantie par ma Secte de l'Épée Da Luo! »
 
+Le vieil homme savait que Tian Mozi était le plus rapide de sa génération. Incapable de le rattraper, il ne put que le regarder s'éloigner.
+
 « Haha, Ling Tian, une bataille entre nous semble inévitable. Je suis prêt à t'affronter à tout moment! » L'érudit rit face à la menace du vieil homme. Il se déplaça encore plus vite lorsqu'il atteignit le vide. Soudain, un vortex noir apparut et il y plongea; ce vortex menait vers sa planète.
 
 « Quelle vitesse! Il est même plusieurs fois plus rapide que ma boussole stellaire! » Wang Lin prit une profonde inspiration. Il ne percevait plus que des images rémanentes.
@@ -78,7 +80,7 @@ La main qui le poursuivait s'arrêta soudainement et dévia sur le côté; elle 
 
 Dès sa disparition, la voix antique de l'Omniscient résonna de nouveau:
 
-« Ling Tianhou, recevoir une épée céleste est la volonté des cieux; je ne t'en empêcherai donc pas, mais connais tes limites... »
+« Ling Tianhou, recevoir une épée céleste est la volonté des cieux; je ne t'en empêcherai donc pas, mais prends garde à toi... »
 
 Le vieil homme éclata de rire. Ses yeux se posèrent sur la femme en blanc et il lui lança d'un ton sinistre: « Ton attaque est bien plus faible qu'autrefois. Cette empreinte céleste n'a même pas réussi à me tuer. Puisque tu es une Céleste, je t'épargnerai, mais pour les deux dernières épées célestes, tu ne pourras pas en prendre les esprits! »
 

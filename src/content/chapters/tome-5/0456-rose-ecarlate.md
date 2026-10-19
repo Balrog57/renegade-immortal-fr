@@ -12,11 +12,11 @@ Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de sa
 
 La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à trois cent trente mètres de lui.
 
-Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Papillon Rouge et avait même perçu sa présence lors de son combat contre Qian Feng.
+Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Papillon Rouge et avait même perçu sa présence lors de son combat contre Qian Feng aux confins du continent Suzaku.
 
 Mais c'était la première fois qu'il la rencontrait véritablement après leur affrontement.
 
-Ce que Wang Lin percevait dans les yeux de Papillon Rouge, c'était l'image même de la mort.
+Dans les yeux de Papillon Rouge, Wang Lin ne voyait qu'un silence de mort.
 
 L'actuelle Papillon Rouge était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
@@ -26,7 +26,7 @@ Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certa
 
 En voyant son ancienne rivale réduite à cet état, Wang Lin ne put s'empêcher de soupirer. L'adage « si les choses restent les mêmes, les hommes, eux, changent » n'était pas dénué de vérité.
 
-Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Papillon Rouge orgueilleuse d'autrefois. Ce n'est qu'en combattant des êtres tels qu'elle qu'il pourrait progresser vers les sommets de la culture.
+Comparant celle qu'elle était à ce qu'elle était devenue, Wang Lin aurait préféré retrouver la Papillon Rouge orgueilleuse d'autrefois. Ce n'est qu'en affrontant une Papillon Rouge telle qu'autrefois qu'il pourrait progresser vers les sommets de la culture.
 
 Wang Lin poussa un soupir et enfouit son regret au plus profond de son cœur. Il regarda Papillon Rouge et cria: « Qian Feng, sors de ta cachette! »
 
@@ -88,7 +88,7 @@ Elle pressa soudainement le fragment de glace rouge contre son front. À cet ins
 
 Cette armure la recouvrait entièrement et dégageait un froid mortel. La lumière qui l'illuminait la rendait plus splendide encore, lui donnant l'apparence d'une divinité guerrière. Puis, l'armure se mit à luire intensément et un fouet noir apparut subitement dans sa main.
 
-Le Fouet de l'Âme! Ce fouet avait été confié par Qian Feng pour venir à bout de Wang Lin.
+Le Fouet de l'Âme! Ce fouet avait été confié par Qian Feng pour affronter Wang Lin.
 
 Les yeux de Papillon Rouge brillèrent d'une lueur mystérieuse alors qu'elle fit claquer le fouet, provoquant une série de détonations là où l'arme passait. Le fouet se mouvait comme un dragon et fondit sur Wang Lin avec la rapidité de la foudre.
 
@@ -98,7 +98,7 @@ Le Fouet de l'Âme et la lance entrèrent en collision!
 
 Boum!
 
-L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ciel et la terre allaient s'effondrer. La rafale de vent projeta toute la force du choc vers Papillon Rouge.
+L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ciel et la terre allaient s'effondrer. Wang Lin, droit comme un pin, ne bougea pas. La rafale de vent projeta toute la force du choc vers Papillon Rouge.
 
 Tout cela se joua en un éclair. Au moment où le Fouet de l'Âme percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
 

@@ -46,17 +46,17 @@ Wang Lin avait tout calculé avant de briser la glace. Si elle ne s'était pas r
 
 Il comptait sur sa vitesse et son initiative!
 
-Dès que le domaine de Yao Bingyun se propagea, il disparut, ne laissant derrière lui qu'une tristesse extrême. Cela surprit Wang Lin, et ses yeux s'illuminèrent. Sans hésiter, il pointa sa main droite vers le corps de Yao Bingyun.
+Dès que le domaine de Yao Bingyun se propagea, il disparut, ne laissant derrière lui qu'une tristesse extrême. Cela surprit Wang Lin, et ses yeux s'illuminèrent. Sans hésiter, il pointa sa main droite, deux doigts joints en lame d'épée, vers le corps de Yao Bingyun.
 
 Des bruits de craquements retentirent rapidement alors que la glace autour de Yao Bingyun s'effondrait totalement, révélant son corps!
 
 La main droite de Wang Lin ne s'arrêta pas; il continua de former des sceaux qui s'abattirent sur le corps de Yao Bingyun. Un à un, les restrictions se posèrent sur elle et sur son âme originelle.
 
-Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet d'Âme apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
+Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet de l'Âme apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
 
 Wang Lin n'étant pas encore tranquille, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Ce drapeau de 33 mètres s'enroula étroitement autour de Yao Bingyun.
 
-Enfin, Wang Lin cracha le Sceau de Scellement Céleste. Dès qu'il apparut, la main de Wang Lin traça un sceau et il hurla: « Scelle! »
+Enfin, Wang Lin cracha le Sceau Céleste. Dès qu'il apparut, la main de Wang Lin traça un sceau et il hurla: « Scelle! »
 
 Des centaines de milliers de runes dorées apparurent et coulèrent comme un fleuve d'or sur le corps de Yao Bingyun, la scellant totalement. Chaque rune représentait une restriction.
 

@@ -8,7 +8,7 @@ slug: le-domaine-ji-reapparait
 ---
 Wang Lin s'arrêta. Il fixa silencieusement l'œil qui était apparu au centre du vortex.
 
-« Laissez votre ami lever cette restriction céleste, et je vous enseignerai un sortilège céleste! »
+« Laissez votre ami lancer cette restriction céleste, et je vous enseignerai un sortilège céleste! »
 
 Wang Lin réfléchit un instant en silence, puis demanda lentement: « Qui êtes-vous? »
 
@@ -40,13 +40,13 @@ Soudain, un éclair rouge jaillit et tout le tonnerre se désintégra. L'éclair
 
 « C'est... le Royaume Ji! »
 
-Il recula sans réfléchir et, dans sa retraite, se fondit dans les environs. L'éclair rouge percuta de plein fouet le corps de Wang Lin.
+Il recula sans réfléchir et, dans sa retraite, se fondit dans les environs. L'éclair rouge s'enfonça directement dans le corps de Wang Lin.
 
 Simultanément, la formation à l'entrée s'ouvrit. Wang Lin saisit Li Yuan et s'élança hors du tunnel. Ils n'eurent même pas le temps de refermer l'entrée avant de disparaître dans le vide.
 
 Wang Lin et Li Yuan réapparurent à plus de 5 000 kilomètres de là sur le même fragment. Le corps de Wang Lin trembla et son visage pâlit. Il ouvrit la bouche pour cracher un grain de sable. Ce grain grossit instantanément pour devenir un sceau géant surplombant les deux hommes, dégageant des ondes de pression écrasantes.
 
-Wang Lin s'assit immédiatement en position du lotus et leva sa main droite. L'os de bête apparut, tournant autour de lui en dégageant une lueur démoniaque.
+Wang Lin s'assit immédiatement en position du lotus et leva sa main droite. L'os de bête du dos de sa main apparut, tournant autour de lui en dégageant une lueur démoniaque.
 
 « Frère Li, protège-moi! » Après avoir lancé cet appel, Wang Lin ferma aussitôt les yeux. Ses mains formèrent chacune un sceau qu'il plaça sur ses genoux. L'énergie originelle afflua frénétiquement vers son sens divin.
 
@@ -60,7 +60,7 @@ Cela empêcha l'éclair rouge de déployer toute sa puissance. Pourtant, c'étai
 
 C'est parce que Wang Lin connaissait extrêmement bien le Royaume Ji qu'il ne paniqua pas, continuant à superposer des couches d'énergie originelle. Bien que son âme originelle se soit fusionnée avec le Dragon de Tonnerre Ancien, les souvenirs d'autrefois faisaient qu'elle n'était pas totalement sans défense face au Royaume Ji.
 
-Après tout, il avait été autrefois le maître du Royaume Ji!
+Après tout, il avait été autrefois le détenteur du Royaume Ji!
 
 En conséquence, cet éclair rouge ne détruisit pas immédiatement son âme originelle, lui laissant une chance de résister. Si cela avait été quelqu'un d'autre, même avec un niveau de culture supérieur à celui de Wang Lin, cette personne serait sans aucun doute morte!
 
@@ -88,7 +88,7 @@ Une lumière rouge jaillit du vortex et recouvrit instantanément tout le tunnel
 
 Puis, le vortex disparut lentement.
 
-« Sur les neuf grands sceaux, cinq ont été brisés au fil des ans. Avec ma force actuelle, je peux enfin activer les quatre restants pour attirer des gens qui viendront les briser... »
+« Sur les neuf grands sceaux, cinq ont été brisés au fil des ans. Avec ma force actuelle, je peux enfin entrouvrir les quatre restants pour attirer des gens qui viendront les briser... »
 
 Une pointe de joie perçait dans cette voix étrange alors qu'elle se dissipait lentement.
 

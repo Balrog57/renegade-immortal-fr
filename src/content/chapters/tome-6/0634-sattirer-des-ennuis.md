@@ -118,6 +118,6 @@ Faisant un pas en avant, Wang Lin tendit sa main droite et projeta une bourrasqu
 
 Toutefois, dans cet espace étroit, il fut très difficile pour lui d'esquiver compte tenu de son niveau de culture. Même s'il avait tenté une téléportation, il n'aurait pu échapper au sort de Wang Lin, imprégné de son Dao. Bien que ce ne fût pas suffisant pour tuer Du Jian, qui possédait le trésor salvateur de l'Omniscient, cela le projeta droit vers l'arbre ancien.
 
-À cet instant précis, un cri strident s'échappa de l'arbre. Puis, l'arbre ancien s'effondra en une multitude d'insectes de la taille d'un doigt qui se précipitèrent hors de là comme un nuage dense.
+À cet instant précis, un bourdonnement strident s'échappa de l'arbre. Puis, l'arbre ancien s'effondra en une multitude d'insectes de la taille d'un doigt qui se précipitèrent hors de là comme un nuage dense.
 
 Comment pouvait-il s'agir d'un arbre ancien? Ce n'était manifestement qu'une illusion formée par l'immense essaim d'insectes qui s'était rassemblé en ce lieu.

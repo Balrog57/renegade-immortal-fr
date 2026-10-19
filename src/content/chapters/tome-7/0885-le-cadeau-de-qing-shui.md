@@ -48,7 +48,7 @@ Il ne restait plus beaucoup de vitalité dans le corps de Wang Lin. La vitesse d
 
 Il prit une profonde inspiration et une force encore plus intense jaillit de son corps. Cette explosion sembla engendrer une tempête de force vitale qui balaya les environs, faisant s'illuminer les yeux d'innombrables crânes humains éparpillés ici.
 
-« Hein? » À l'intérieur du cercueil, l'ancêtre Xiang fut surpris. À cet instant, le couvercle s'ouvrit, révélant un corps semblable à une charogne desséchée.
+« Hein? » À l'intérieur du cercueil, l'ancêtre Xiang fut surpris. À cet instant, le couvercle glissa de côté, révélant un corps semblable à une charogne desséchée.
 
 Un regard froid et impitoyable, chargé d'une aura de mort, jaillit de ses yeux et se posa sur Wang Lin.
 
@@ -88,7 +88,7 @@ Xiang Yundong observa la direction dans laquelle Wang Lin avait disparu et esqui
 
 Qing Shui et Wang Lin ne furent plus que deux rayons de lumière traversant le ciel étoilé.
 
-« Senior Frère, savez-vous ce que c'est? » Tout en volant, Wang Lin réfléchit un instant avant de frapper son sac de rangement, d'où surgit le Cercueil Évitement du Ciel.
+« Senior Frère, savez-vous ce que c'est? » Tout en volant, Wang Lin réfléchit un instant avant de frapper son sac de rangement, d'où surgit le Cercueil Évitant le Ciel.
 
 Le corps de Qing Shui se figea un instant. Son œil droit brilla d'un éclat rouge alors qu'il fixait l'objet. Après un long silence, il dit: « Je n'ai jamais vu cette chose, mais une puissante énergie spirituelle céleste s'en dégage; elle doit donc provenir du Royaume Céleste. De plus, elle contient une puissance particulière... une sorte de Loi. Cet objet possède sans doute des capacités de guérison, n'est-ce pas? »
 

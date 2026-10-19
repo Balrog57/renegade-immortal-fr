@@ -76,7 +76,7 @@ Bai Wei n'était manifestement pas au courant, mais Wang Lin fronça les sourcil
 
 « J'espère que ce camarade ne sera pas offensé, mais nous sommes tous les trois chargés de la sécurité de la Cité aux Yeux Fantômes, nous devons donc être vigilants. Si vous n'êtes pas d'accord, ne me blâmez pas si je détruis ce sens divin! » Maître Yi Chen laissa échapper un soupir. Il savait que son attitude était excessive; après tout, cet homme n'avait pas outrepassé les limites et il ne s'agissait que d'une vérification naturelle.
 
-Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais qu'ils étaient employés par la Cité aux Yeux Fantômes, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
+Les trois frères Chen avaient déjà agi ainsi par le passé. Mais désormais que la Cité aux Yeux Fantômes leur témoignait de grands égards, ils se devaient d'être rigoureux. De plus, il était quelque peu irrité.
 
 En substance, tous les vieux monstres du stade Scruteur du Nirvana de la planète comprenaient que les trois frères assuraient la sécurité de la cité. La plupart d'entre eux évitaient de sonder avec leur sens divin par respect pour eux.
 
@@ -90,13 +90,13 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 S'il s'était agi d'un membre de la Secte de l'Épée Da Luo, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 
-Trois respirations passèrent en un instant. Maître Yi Chen poussa un reniflement froid et le dragon de sens divin formé par les trois rugit face au sens divin de Wang Lin. Ils s'apprêtaient à l'anéantir.
+Trois respirations passèrent en un instant. Maître Yi Chen poussa un reniflement froid et le dragon de sens divin formé par les trois rugit, gueule grande ouverte, face au sens divin de Wang Lin. Ils s'apprêtaient à l'anéantir.
 
-« Vous trois, vous allez trop loin! » Wang Lin ne prêta aucune attention à Bai Wei ou Xu Liguo. Il fronça les sourcils et disparut d'un pas.
+« Vous trois, vous allez trop loin! » Wang Lin ne prêta aucune attention à Bai Wei ou Xu Liguo, qui flottait derrière lui depuis le début. Il fronça les sourcils et disparut d'un pas.
 
 La restriction de la Cité aux Yeux Fantômes ne put rien faire contre le sens divin de Wang Lin, et encore moins contre son corps physique. Au moment où Wang Lin disparut, la restriction n'eut le temps de clignoter que trois fois avant de s'effondrer totalement.
 
-Dès l'effondrement de la restriction, la silhouette de Wang Lin apparut au-dessus de la cité. Sa vitesse dépassait l'entendement. À l'instant où il se manifesta, il saisit directement le dragon de sens divin. La créature tenta de se débattre, en vain. Wang Lin projeta le dragon en arrière et, dans un fracas retentissant, le dragon de sens divin se désintégra.
+Dès l'effondrement de la restriction, la silhouette de Wang Lin apparut au-dessus de la cité. Sa vitesse dépassait l'entendement. À l'instant où il se manifesta, il saisit directement de la main gauche le dragon de sens divin. La créature tenta de se débattre, en vain. Wang Lin projeta le dragon en arrière et, dans un fracas retentissant, le dragon de sens divin se désintégra.
 
 À l'intérieur de la Cité aux Yeux Fantômes, dans un bâtiment magnifique, un vieil homme était assis dans la troisième pièce à partir de l'est. Il portait une robe verte et affichait une expression digne. Cependant, à cet instant précis, ses yeux s'ouvrirent brusquement; il cracha du sang et son visage se décomposa!
 

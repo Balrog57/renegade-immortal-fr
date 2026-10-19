@@ -30,7 +30,7 @@ Le dernier des sept perdit instantanément toute vigueur. Puis ce fut le tour du
 
 Un tigre noir apparut et chargea Da Tou dans un rugissement.
 
-Da Tou rit et, sans la moindre hésitation, serra violemment son poing. À cet instant précis, les yeux du vieil homme sur le bateau s'illuminèrent; il leva la main droite et pointa l'avant!
+Da Tou rit et, sans la moindre hésitation, lança violemment sa main droite pour saisir. À cet instant précis, les yeux du vieil homme sur le bateau s'illuminèrent; il leva la main droite et pointa l'avant!
 
 Un rayon de lumière noire jaillit à une vitesse prodigieuse en direction de Da Tou!
 
@@ -48,7 +48,7 @@ L'expression de Wang Lin resta sereine. Il serra le poing et lança un coup avan
 
 S'il adoptait la forme d'un Dieu Ancien, Wang Lin était certain de pouvoir affronter des cultivateurs du stade intermédiaire de Purificateur du Nirvana!
 
-Son coup provoqua un bang sonique qui résonna à travers l'espace et ouvrit de vastes fissures spatiales. Ce n'était là qu'un aperçu de la puissance réelle derrière ce coup. En frappant, une illusion représentant le poing d'un Dieu Ancien de mille pieds apparut!
+Son coup provoqua un bang sonique qui résonna à travers l'espace et ouvrit de vastes fissures spatiales. Ce n'était là qu'un aperçu de la puissance réelle derrière ce coup. En frappant, une illusion représentant le bras d'un Dieu Ancien de près de mille pieds apparut!
 
 C'était comme si ce coup était porté simultanément par Wang Lin et par l'illusion du Dieu Ancien. Cette scène stupéfia profondément le vieil homme!
 
@@ -102,7 +102,7 @@ Au moment où cette puissance lumineuse se propagea, les yeux de Wang Lin devinr
 
 « Ces vieux monstres du Purificateur du Nirvana ne doivent pas être sous-estimés. Bien que cet homme ne soit qu'au stade initial de Purificateur du Nirvana, cette bataille aurait été difficile sans mon corps de Dieu Ancien! En particulier, ce sort qui concentre l'essence de sa chair pour former un rayon de lumière si puissant est extraordinaire! »
 
-La main droite de Wang Lin s'élança vers le vide dans un grondement sourd. L'énergie originelle du monde se rassembla frénétiquement et une fissure spatiale apparut. Un éclair rouge jaillit alors que la Lance Tueuse de Dieux se matérialisait dans la main de Wang Lin.
+La main droite de Wang Lin saisit le vide dans un grondement sourd. L'énergie originelle du monde se rassembla frénétiquement et une fissure spatiale apparut. Un éclair rouge jaillit alors que la Lance Tueuse de Dieux se matérialisait dans la main de Wang Lin.
 
 « Tu es digne que j'utilise ceci! » Wang Lin saisit l'illusion de la Lance Tueuse de Dieux et la projeta. La lance se mua en un rayon de lumière rouge, fonçant vers l'éclat aveuglant qui l'approchait.
 
@@ -112,7 +112,7 @@ Une explosion qui fit trembler les cieux retentit lors de la collision entre la 
 
 La Lance Tueuse de Dieux chargea le vieil homme. Ce dernier, terrifié par la situation et les yeux emplis d'incrédulité, voulut reculer, mais il était bien trop lent face à la lance qui allait le transpercer.
 
-À cet instant précis, le vieil homme frappa son sac de rangement et un petit bouclier vert apparut dans sa main. Il l'interposa devant lui, et celui-ci percuta la Lance Tueuse de Dieux.
+À cet instant précis, le vieil homme frappa son sac de rangement et un petit bouclier de lumière azur apparut dans sa main. Il l'interposa devant lui, et celui-ci percuta la Lance Tueuse de Dieux.
 
 Le petit bouclier trembla et il fut repoussé, mais aucune fissure n'apparut sur la protection!
 

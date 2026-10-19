@@ -16,7 +16,7 @@ Le visage de l'homme en robe noire se renfrogna; sa main gauche s'étira vers la
 
 La silhouette fantomatique poussa un rugissement, d'une obstination sans faille. L'homme jura intérieurement. Il n'était plus en état de contrôler la silhouette, et la présence de Wang Lin se rapprochait comme un éclair.
 
-L'index droit de Wang Lin pointa vers le ciel, et à cet instant, l'énergie spirituelle céleste à l'intérieur de son corps commença à converger vers le bout de son doigt!
+L'index droit de Wang Lin pointa dans le vide, et à cet instant, l'énergie spirituelle céleste de son corps s'inversa et se transforma pour converger vers le bout de son doigt!
 
 Doigt Démoniaque!
 
@@ -42,7 +42,7 @@ Cependant, qui aurait cru que ce poison n'aurait que peu d'effet sur Wang Lin? J
 
 Doigt Démoniaque!
 
-L'expression de l'homme en robe noire changea radicalement. Incapable de l'esquiver à temps, il leva précipitamment sa main gauche pour former un sceau. Il pressa ensuite ce sceau vers le doigt de Wang Lin afin de stopper sa progression.
+L'expression de l'homme en robe noire changea radicalement. Incapable de l'esquiver à temps, il leva précipitamment sa main gauche pour former un sceau. Il pressa ensuite ce sceau vers le doigt de Wang Lin afin d'en atténuer la force.
 
 Leurs doigts se touchèrent en un instant. Pourtant, ils ne se rencontrèrent pas directement; un espace de dix centimètres les séparait!
 
@@ -50,7 +50,7 @@ Quelque chose d'étrange se jouait dans ces quelques centimètres!
 
 L'énergie spirituelle démoniaque de Wang Lin jaillit du bout de son doigt et entra en collision avec l'énergie noire émanant du doigt de l'homme en robe noire. À cet instant, une sphère d'un noir abyssal apparut entre leurs deux doigts.
 
-Cette petite sphère était purement composée de l'énergie spirituelle démoniaque de Wang Lin, tandis que l'énergie noire provenait de l'homme en robe noire. Des grondements tonitruants émanaient de l'intérieur de la sphère et des éclairs noirs parcouraient sa surface.
+Cette petite sphère était formée de l'énergie spirituelle démoniaque de Wang Lin et de l'énergie noire de l'homme en robe noire. Des grondements tonitruants émanaient de l'intérieur de la sphère et des éclairs noirs parcouraient sa surface.
 
 À ce moment précis, il semblait que le monde entier s'était figé, toute la lumière convergeant vers Wang Lin et l'homme en robe noire.
 
@@ -82,7 +82,7 @@ Le regard de Wang Lin resta froid: « C'est bien fait pour toi! »
 
 Les yeux de l'homme en robe noire étaient emplis d'une intention meurtrière: « Petit bâtard, tu es mort! » Maintenant que le fantôme ne l'absorbait plus, il utilisa toute l'énergie spirituelle céleste démoniaque qu'il avait cultivée selon la méthode de sa secte pour l'injecter dans la petite sphère.
 
-« Wang Lin, accepte ta mort! » En disant cela, il insuffla 90 % de son énergie spirituelle céleste démoniaque dans la sphère. À cet instant, le rugissement tonitruant de l'objet résonna à travers les cieux. C'était comme si la petite sphère entre leurs doigts n'était plus un objet ordinaire, mais la légendaire foudre de la rétribution divine.
+« Wang Lin, accepte ta mort! » En disant cela, il insuffla 90 % de son énergie spirituelle céleste démoniaque dans la sphère. À cet instant, le rugissement tonitruant de l'objet résonna à travers les cieux. C'était comme si la petite sphère entre leurs doigts n'était plus un objet ordinaire, mais la légendaire foudre de la tribulation céleste.
 
 Alors que l'énergie spirituelle céleste démoniaque de l'homme pénétrait dans la sphère, il devint évident que l'énergie de Wang Lin était insuffisante, ce qui fit que la petite sphère commença lentement à converger vers lui.
 
@@ -94,7 +94,7 @@ Mais à cet instant précis, l'homme en robe noire fut frappé de stupeur. En re
 
 Cette expression fit trembler son cœur.
 
-Wang Lin ne daigna même pas regarder la sphère et déclara: « Chariot de Guerre Divin, libère-toi! »
+Wang Lin ne daigna même pas regarder la sphère et déclara: « Char de Guerre Divin, libère-toi! »
 
 À ces mots, presque instantanément, un rugissement qui perçait les cieux et portait une volonté inflexible jaillit de l'endroit où Wang Lin avait lancé le piège à bêtes.
 
@@ -110,7 +110,7 @@ La bête spirituelle poussa un rugissement. Ses yeux étaient d'une froideur ext
 
 Wang Lin s'était déjà préparé à ce que la bête ne l'obéisse pas. Il laissa échapper un froid reniflement et cracha un seul mot.
 
-Ce mot était d'une complexité extrême, incompréhensible pour quiconque. Cependant, c'était une parole que Wang Lin avait apprise de l'héritage du chariot de guerre laissé par le céleste qui l'avait créé: le Mantra des Neuf Mots!
+Ce mot était d'une complexité extrême, incompréhensible pour quiconque. Cependant, c'était une parole que Wang Lin avait apprise, après avoir hérité du char de guerre, dans le jade laissé par le céleste qui l'avait créé: le Mantra des Neuf Mots!
 
 Ce Mantra des Neuf Mots servait précisément à contrôler cette bête. À chaque sceau libéré, un nouveau mot du mantra pouvait être utilisé!
 

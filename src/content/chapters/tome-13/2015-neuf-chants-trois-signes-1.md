@@ -44,7 +44,7 @@ Cette trace de puissance fusionnée était un mélange de céleste et d'ancien. 
 
 Dès que cette puissance apparut, une vision surgit dans le ciel. Cela choqua Xuan Luo et poussa la silhouette dans la brume, au sommet de la tour, à ouvrir les yeux!
 
-Le ciel passa instantanément du bleu à l'or. Cette voûte dorée brilla intensément et se propagea dans toutes les directions. En un clin d'œil, le ciel sur des centaines de milliers de kilomètres devint doré!
+Le ciel passa instantanément du bleu à l'or. Cette voûte dorée brilla intensément et se propagea dans toutes les directions. En un clin d'œil, le ciel dans un rayon de 100 000 kilomètres devint doré!
 
 Ce firmament doré était visible de très loin — un spectacle saisissant!
 
@@ -94,7 +94,7 @@ Quant à la silhouette dans la brume qui s'était éveillée lors de l'apparitio
 
 « Le Chant du Vent Céleste... Le premier des neuf chants... »
 
-Un autre fragment de la fusion entre le céleste et l'ancien apparut en Wang Lin. Il ne se contentait pas de circuler dans son corps, il s'y ancrait. À mesure que ses pouvoirs continuaient de fusionner, cette puissance grandissait lentement.
+Un autre fragment de la fusion entre le céleste et l'ancien apparut en Wang Lin. Il ne circulait pas dans son corps, il y sommeillait en silence. À mesure que ses pouvoirs continuaient de fusionner, cette puissance grandissait lentement.
 
 Wang Lin savait que même s'il ne pouvait en percevoir toute la profondeur, cette force était une existence dépassant les pouvoirs célestes et anciens!
 

@@ -12,7 +12,7 @@ Cela fit perler la sueur sur son front, fit trembler son cœur et fit poindre un
 
 Tout cela aurait dû lui appartenir. Cette aura aurait dû être la sienne. Tout cela aurait dû être à lui, Lu Wenran!
 
-Un grondement tonitruant retentit. Wang Lin, entouré d'innombrables fils noirs, pressa sa main contre l'engrenage. Des fissures apparurent soudainement sur celui-ci, qui vola en éclats en d'innombrables morceaux.
+Un grondement tonitruant retentit. Wang Lin, entouré d'innombrables fils noirs, pressa ses deux mains contre l'engrenage. Des fissures apparurent soudainement sur celui-ci, qui vola en éclats en d'innombrables morceaux.
 
 Le corps de Wang Lin sembla s'animer. Tandis que les innombrables fils s'agitaient, ils se tissèrent rapidement pour former une armure noire. Cette armure recouvrait tout le corps de Wang Lin, y compris son cou et son visage, ne laissant apparaître que ses yeux clos et ses cheveux blancs!
 
@@ -48,7 +48,7 @@ Tout ce qu'il avait accompli pour se préparer n'avait servi qu'à quelqu'un d'a
 
 L'apparition de Wang Lin était la cause de tout cela, et toute sa folie était due à Wang Lin! Mais c'était ainsi que les autres percevaient la scène. Seul Wang Lin savait que dans l'esprit de Lu Wenran, la silhouette d'une femme en blanc pleurait.
 
-Puisque Wang Lin allait agir, il ferait tout pour anticiper chaque issue. L'illusion multicouche avait été discrètement plantée sans que Lu Wenran ne s'en aperçoive!
+Puisque Wang Lin allait agir, il ferait tout pour anticiper chaque issue. Les illusions multicouches du Voile Fantôme avaient été discrètement implantées sans que Lu Wenran ne s'en aperçoive!
 
 Tandis que Lu Wenran attaquait comme un possédé, l'aura de Wang Lin augmenta encore une fois. Il franchit directement le sommet du Vide Arcane pour entrer dans la Tribulation de l'Arcane!
 
@@ -62,7 +62,7 @@ Les yeux de Wang Lin restaient clos. Son aura, après être entré dans la Tribu
 
 La première Tribulation de l'Arcane, la deuxième, la troisième, la quatrième... la huitième, la neuvième!!!
 
-Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du stade de la Tribulation de l'Arcane au stade de la Tribulation du Vide!
+Aucune Tribulation de l'Arcane ne survint; c'était extrêmement sûr. L'aura de Wang Lin changea neuf fois et augmenta neuf fois. Il passa directement du sommet du Vide Arcane au stade de la Tribulation du Vide!
 
 Stade initial de la Tribulation du Vide!!
 
@@ -80,7 +80,7 @@ En surface, les six cultivateurs du stade médian de la Tribulation du Vide ente
 
 « J'ai déjà entendu un son similaire, c'était le rugissement du Démon Vert. Ce doit être le Taureau Céleste!! » Les six sentirent un pressentiment funeste.
 
-S'ils réagissaient ainsi, que dire des près de 2 000 cultivateurs du Continent du Démon Vert? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
+S'ils réagissaient ainsi, que dire des moins de 2 000 cultivateurs du Continent du Démon Vert? Leurs corps tremblaient et la peur se lisait dans leurs yeux. Ce rugissement avait failli provoquer l'effondrement de leurs âmes originelles.
 
 Dans le palais souterrain, les yeux de Wang Lin étaient rouges. Cette rougeur n'était pas due à la folie, mais à l'armure d'âme. Elle provenait du ressentiment transcendant du Taureau Céleste!
 
@@ -120,7 +120,7 @@ Puisque la situation ne pouvait mener qu'à l'un ou l'autre, Wang Lin n'avait au
 
 Son corps pouvait être considéré comme un corps façonné par les essences. Son sang était l'essence de l'eau et ses yeux étaient l'essence du tonnerre et du feu. Son existence même était composée d'essences!
 
-Ce sentiment émanait de l'armure sur son corps. À cet instant, il avait la sensation de n'être plus un simple cultivateur, mais le féroce Taureau Céleste ayant cultivé dans l'immensité de l'espace pendant des éons!
+Ce sentiment émanait de l'armure sur son corps. À cet instant, il avait la sensation de n'être plus un simple cultivateur, mais le suprême et féroce Taureau Céleste ayant cultivé dans l'immensité de l'espace pendant des éons!
 
 Wang Lin leva la tête et fixa froidement le sommet du palais souterrain. Une intention meurtrière jaillit de ses yeux.
 

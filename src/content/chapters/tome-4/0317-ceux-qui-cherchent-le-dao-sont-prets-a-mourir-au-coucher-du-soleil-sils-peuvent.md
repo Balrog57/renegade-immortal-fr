@@ -108,7 +108,7 @@ Néanmoins, cela témoignait de l'immense puissance du propriétaire de ces lieu
 
 « Un palais de Roi Céleste! » Une voix joyeuse retentit au loin. Le visage de l'homme montrait une stupéfaction totale avant qu'il n'éclate d'un rire sonore.
 
-« J'ignore de quel Roi Céleste il s'agit, mais vu son état de conservation, il doit contenir le cadavre d'une divinité! » L'ancien riait en se précipitant vers l'un des palais.
+« J'ignore de quel Roi Céleste il s'agit, mais vu son état de conservation, il doit contenir le cadavre d'un immortel! » L'ancien riait en se précipitant vers l'un des palais.
 
 À cet instant précis, Zhou Yi apparut, portant le cadavre féminin dans ses bras. Dès son apparition, il commença à avancer. Bien que sa démarche parût lente, il ne lui fallut que trois pas pour se retrouver face à l'ancien de la Secte des Cadavres.
 

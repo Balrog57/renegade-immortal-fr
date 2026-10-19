@@ -20,7 +20,7 @@ Yun Quezi vit l'homme âgé assis au sommet de la montagne avec le petit singe s
 
 Yun Quezi fixa l'homme âgé et dit: « Je me demande quel cultivateur a osé pratiquer la possession... Pourquoi ne pas venir avec votre véritable corps?! »
 
-L'homme âgé ouvrit les yeux. Il lança un regard nonchalant à Yun Quezi et dit: « Toi et moi ne nous connaissons pas, alors en quoi cela importerait-il que je vienne avec mon vrai corps ou non? Ou crois-tu être capable de reconnaître ce vieil homme?! » Le petit singe montra les dents à Yun Quezi et ses yeux brillèrent d'un éclat rouge.
+L'homme âgé ouvrit les yeux. Il lança un regard nonchalant à Yun Quezi et dit: « Toi et moi ne nous connaissons pas, alors en quoi cela importerait-il que je vienne avec mon vrai corps ou non? Ou crois-tu être capable de reconnaître ce vieil homme, Ming Wei?! » Le petit singe montra les dents à Yun Quezi et ses yeux brillèrent d'un éclat rouge.
 
 Le regard de Yun Quezi resta calme face au singe, puis il sourit. « Ainsi, c'est une marionnette... »
 
@@ -70,7 +70,7 @@ Yun Quezi fronça les sourcils et attendit avec gravité le prochain effondremen
 
 À ce moment-là, une silhouette pourpre monta du pied de la montagne. C'était une femme portant un voile violet. Elle n'était pas seule; elle était suivie de quatre vieillards dont les tatouages brillaient sur le front. Chacun d'eux se trouvait au stade avancé de la Formation de l'Âme, et leurs corps portaient de nombreuses blessures.
 
-Cette femme était Zi Xin. Si elle et Zhou Wutai avaient pu arriver ici seuls, c'est parce qu'ils possédaient tous deux plusieurs marionnettes tatouées. Ces marionnettes leur avaient été confiées par Yun Quezi pour leur protection.
+Cette femme était Zi Xin. Si elle et Zhou Wutai avaient pu arriver jusqu'ici avec leur niveau de Formation de l'Âme, c'est parce qu'ils possédaient tous deux plusieurs marionnettes tatouées. Ces marionnettes leur avaient été confiées par Yun Quezi pour leur protection.
 
 En voyant Zi Xin, Yun Quezi hocha la tête et lui fit signe de s'approcher. Zi Xin prit une profonde inspiration en lançant un regard chargé de haine vers Qian Feng dans son coin, puis elle se dirigea vers Yun Quezi.
 
@@ -86,7 +86,7 @@ C'est à cet instant qu'une autre silhouette monta du pied de la montagne pour a
 
 Qian Feng ouvrit soudainement les yeux, une lueur de froideur y passant. Zi Xin baissa immédiatement la tête et recula de quelques pas pour se placer derrière Yun Quezi.
 
-Les yeux de Yun Quezi s'illuminèrent et il afficha un sourire d'intrigue. Zhou Wutai poussa un soupir; il avait poursuivi Wang Lin auparavant pour lui dire quelque chose, mais il ne s'attendait pas à tomber sur Yun Quezi.
+Les yeux de Yun Quezi s'illuminèrent et il afficha un sourire d'intrigue. Zhou Wutai poussa un soupir; il avait poursuivi Wang Lin auparavant pour lui dire quelque chose, mais il ne s'attendait pas à tomber sur Yun Quezi, qui l'avait conduit jusqu'ici.
 
 La personne qui venait d'atteindre le sommet de la montagne était Wang Lin!
 
@@ -94,7 +94,7 @@ La personne qui venait d'atteindre le sommet de la montagne était Wang Lin!
 
 L'homme masqué tourna également la tête vers Wang Lin. Ses yeux passèrent de la confusion à la clarté. Il adressa un signe de tête à Wang Lin sans prononcer un mot.
 
-Wang Lin avait l'air d'un désastre. Ses vêtements étaient extrêmement usés. Plus tôt, alors qu'il montait la montagne, le second effondrement s'était produit. Il avait eu beaucoup de mal avec les failles qui surgissaient partout; il avait finalement dû creuser un trou sur le flanc de la montagne et n'avait pas osé en sortir avant que les secousses ne cessent. S'il était resté à découvert, il serait mort.
+Wang Lin avait l'air d'un désastre. Ses vêtements étaient extrêmement usés. Plus tôt, alors qu'il montait la montagne, le second effondrement s'était produit. Il avait eu beaucoup de mal avec les failles qui surgissaient partout; il avait finalement dû creuser un trou sur le flanc de la montagne et n'avait pas osé en sortir avant que les secousses ne cessent. S'il était resté en plein ciel, il serait mort.
 
 « Frère Wang... »
 « Ceng Niu! »

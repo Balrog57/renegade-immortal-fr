@@ -28,15 +28,15 @@ Aucune femme rencontrée par Wang Lin dans sa vie ne pouvait se comparer à Mu B
 
 « Pourquoi êtes-vous venue dans la Mer des Nuages? » Wang Lin la regarda. Bien qu'elle lui ait infligé une douleur sans fin, elle s'était profondément gravée dans son esprit. Il ne pourrait jamais l'oublier totalement.
 
-Pourtant, Liu Mei appartenait à cette femme, et Liu Mei continuait de vivre à travers elle. Parfois, même Wang Lin ne savait plus si elle était Liu Mei ou Mu Bingmei.
+Pourtant, Liu Mei était l'avatar de cette femme, et Liu Mei continuait de vivre à travers elle. Parfois, même Wang Lin ne savait plus si elle était Liu Mei ou Mu Bingmei.
 
-Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système Stellaire de l'Alliance, il avait mis fin à toutes les querelles avec cette femme. Même si le vent tournait à nouveau, il ne pourrait plus jamais affecter son cœur.
+Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système Stellaire de l'Alliance, il avait mis fin à toutes les querelles avec cette femme. Que ce vent s'en retourne, il ne pourrait plus jamais troubler son cœur.
 
 « Connaissez-vous une personne appelée Tuo Sen... un Dieu Ancien... » Mu Bingmei regarda Wang Lin. Ses yeux trahissaient une pointe d'amertume et un profond sentiment d'inquiétude.
 
 « Tuo Sen! » Les yeux de Wang Lin changèrent soudainement, laissant poindre une lueur de froideur.
 
-« Il s'est échappé. L'armée de Luotian s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Luotian. Ils n'osent plus entrer dans l'Alliance... Luotian possède un puissant cultivateur nommé Maître Lu Fu. Il a évité le Système Stellaire de l'Alliance pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
+« Il s'est échappé. L'armée de Luotian s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Luotian. Ils n'osent plus entrer dans l'Alliance... Luotian possède un puissant cultivateur nommé Maître Lu Fu. Il a fui vers les étendues stellaires pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
 
 Pourtant, Mu Bingmei n'en avait pas fini; elle n'avait pas encore livré toutes les nouvelles!
 
@@ -112,7 +112,7 @@ Alors qu'il venait de comprendre la situation, un rugissement furieux résonna �
 
 C'était déjà le neuvième clan antique qu'il détruisait. Il ne parvenait toujours pas à trouver la moindre trace de Wang Lin dans le Système Stellaire Antique, ce qui rendait Tuo Sen presque fou!
 
-Cependant, un instant après avoir anéanti ce clan, son esprit trembla. Il sentit distinctement l'empreinte qu'il avait laissée sur la Sainte du Vide Brillant détecter l'aura de Wang Lin!
+Cependant, à l'instant même où il anéantissait ce clan, son esprit trembla. Il sentit distinctement l'empreinte qu'il avait laissée sur la Sainte du Vide Brillant détecter l'aura de Wang Lin!
 
 Cette découverte rendit le visage de Tuo Sen affreux, et une tempête éclata en lui.
 

@@ -94,7 +94,7 @@ Le jeune homme ne daigna même pas y jeter un œil. Il secoua la tête et poursu
 
 La jeune fille laissa échapper un petit bruit de mépris et abandonna l'idée. Elle retourna auprès de son frère et lui remit toutes les noix de litchi.
 
-Deux heures plus tard, la porte de la Secte du Ciel Nuageux apparut au loin. Le garçon laissa échapper un soupir en contemplant la magnifique entrée. Il ne put s'empêcher de penser à la Secte Heng Yue.
+Quatre heures plus tard, la porte de la Secte du Ciel Nuageux apparut au loin. Le garçon laissa échapper un soupir en contemplant la magnifique entrée. Il ne put s'empêcher de penser à la Secte Heng Yue.
 
 Ce jeune homme était Wang Lin.
 
@@ -136,7 +136,7 @@ Après un moment d'attente, l'homme agita sa main droite et une décharge de for
 
 Simultanément, une colonne de brume sombre s'éleva du sol. Elle était majestueuse. Cette épaisse colonne de ténèbres semblait être une main gigantesque soutenant la voûte céleste. En s'élevant, elle s'étira si haut vers le ciel que, depuis le bas, on ne pouvait en percevoir le sommet.
 
-La voix de l'homme résonna vers la foule: « Par n'importe quel moyen, tant que vous parvenez à identifier précisément la substance qui se trouve au cœur de cette colonne de brume sombre, vous serez qualifiés. Vous avez six heures! » Sur ces mots, il se posa sur le côté et resta silencieux, observant la colonne.
+La voix de l'homme résonna vers la foule: « Par n'importe quel moyen, tant que vous parvenez à identifier précisément la substance qui se trouve au cœur de cette colonne de brume sombre, vous serez qualifiés. Vous avez douze heures! » Sur ces mots, il se posa sur le côté et resta silencieux, observant la colonne.
 
 L'expression de Wang Lin demeura impassible. Il fixa la colonne noire et commença à réfléchir. Bien qu'il ne soit qu'un avatar, sa création n'avait pas hérité de la culture ou du Sens Divin du corps principal, mais toutes ses techniques et les souvenirs de l'Ancien Dieu étaient restés intacts.
 
@@ -154,7 +154,7 @@ Ainsi, Wang Lin ne brisa pas la restriction immédiatement; il attendit. Il ne c
 
 Si son analyse était juste, quelqu'un trouverait bientôt la réponse pour lui.
 
-Le temps s'écoula et, en un clin d'œil, trois heures passèrent. Une certaine impatience commença à gagner la foule. Certains avaient déjà tenté de sonder la brume avec leur Sens Divin, mais chaque fois que leur perception approchait de l'obscurité, une force mystérieuse les repoussait. Peu importe la méthode employée, ils échouaient tous.
+Le temps s'écoula et, en un clin d'œil, six heures passèrent. Une certaine impatience commença à gagner la foule. Certains avaient déjà tenté de sonder la brume avec leur Sens Divin, mais chaque fois que leur perception approchait de l'obscurité, une force mystérieuse les repoussait. Peu importe la méthode employée, ils échouaient tous.
 
 Finalement, un homme frappa son sac de rangement et en sortit une sculpture en bois. Il psalmodia quelques mots, puis lança l'objet vers la colonne de brume.
 

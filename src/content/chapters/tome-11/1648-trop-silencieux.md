@@ -12,7 +12,7 @@ Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Tr
 
 Ce sentiment de sang chaud ne disparaîtrait pas; au plus, il se stabiliserait avec le passage des années. Cependant, à l'instant de la crise, cette ferveur jaillissait de nouveau.
 
-« Venez avec moi et reprenons les montagnes et les rivières du Royaume Intérieur! » Wang Lin fit un geste de sa manche et descendit du sommet de la statue. Sa robe, blanche comme la neige, flottait au rythme de ses cheveux blancs. Sous le soleil, l'ensemble émettait une lueur éblouissante.
+« Venez avec moi et reprenons les montagnes et les rivières du Royaume Intérieur! » Wang Lin fit un geste de sa manche et s'éleva du sommet de la statue vers le ciel. Sa robe, blanche comme la neige, flottait au rythme de ses cheveux blancs. Sous le soleil, l'ensemble émettait une lueur éblouissante.
 
 Au cœur de la lumière, le corps de Wang Lin se mua en un rayon de clarté qui, dans un hurlement puissant, s'élança vers l'espace.
 
@@ -22,11 +22,11 @@ C'était une scène spectaculaire; on aurait dit d'innombrables météores s'arr
 
 C'était comme si, menés par Wang Lin, ils pouvaient percer le ciel et se libérer de ce monde semblable à une cage, brisant cette illusion pour rejoindre l'infini au-delà.
 
-Wang Lin ouvrait la voie. Son Sens Divin s'étendait et, mêlée à la froideur de son regard, une intention meurtrière monstrueuse émanait de lui.
+Wang Lin ouvrait la voie, telle la tête d'un paon déployant sa queue. Son Sens Divin s'étendait et, mêlée à la froideur de son regard, une intention meurtrière monstrueuse émanait de lui.
 
 Il allait tuer; il allait massacrer chaque cultivateur envahisseur. Il allait engendrer un bain de sang, il allait tuer jusqu'à ce que le monde change de couleur! Cette intention de tuer jaillissait de son corps avec une force qu'il n'avait pas ressentie depuis bien longtemps.
 
-Il se souvenait encore du paroxysme de cette fureur dans sa vie: lorsqu'il avait exterminé la famille Teng entière sur la planète Suzaku, il y a plus de deux mille ans. Aujourd'hui, deux millénaires plus tard, cette intention meurtrière resurgissait.
+Il se souvenait encore du paroxysme de cette fureur dans sa vie: lorsqu'il avait exterminé la famille Teng entière sur la planète Suzaku, dans le pays de Zhao, il y a plus de deux mille ans. Aujourd'hui, deux millénaires plus tard, cette intention meurtrière resurgissait.
 
 Cette fois, il agissait pour lui-même, mais plus encore pour le Royaume Intérieur. Il n'était pas un héros, et il ne souhaitait pas l'être. Il n'était qu'un simple cultivateur; il se trouvait simplement pris dans les tourments de cette guerre!
 
@@ -40,7 +40,7 @@ Il devait posséder la détermination nécessaire pour s'extraire de cette grott
 
 Tandis que Wang Lin fonçait, des milliers de cultivateurs le suivaient. Leur progression dans l'espace générait une onde de choc phénoménale qui grondait et faisait trembler tout le système stellaire.
 
-De nombreux cultivateurs du Royaume Extérieur étaient déjà morts sous les flèches de Wang Lin, mais certains subsistaient. À cet instant, le Sens Divin de Wang Lin couvrait l'intégralité du Vide Brillant.
+De nombreux cultivateurs du Royaume Extérieur étaient déjà morts sous la flèche de Wang Lin, mais certains subsistaient. À cet instant, le Sens Divin de Wang Lin couvrait l'intégralité du Vide Brillant.
 
 Pour lui, les survivants du Royaume Extérieur n'avaient nulle part où se cacher.
 
@@ -60,7 +60,7 @@ Dans l'obscurité finale, il aperçut une dernière chose: un jeune homme vêtu 
 
 Ces dizaines de cultivateurs n'avaient absolument pas remarqué qu'un membre de leur groupe venait de périr. Wang Lin avança et balaya de la main droite. Un fracas tonitruant retentit tandis que quatre cultivateurs du Royaume Extérieur hurlaient de douleur, leurs têtes volant sous l'impact. Leur sang éclaboussa les corps et les visages des survivants.
 
-Ce n'est qu'à cet instant que les restants du Royaume Extérieur réalisèrent le carnage et regardèrent en arrière avec terreur.
+Ce n'est qu'à cet instant que les restants du Royaume Extérieur réalisèrent le carnage et regardèrent en arrière avec terreur; ce regard fut pour eux l'éternité.
 
 Wang Lin se mua en un rayon de lumière blanche et fendit la foule. En moins de trois secondes, il avait dépassé ce groupe de cultivateurs déjà réduit à des amas de chair et de sang.
 
@@ -76,9 +76,9 @@ Lui-même ne pouvait plus compter précisément ses victimes. Pour survivre dans
 
 Au plus profond du Vide Brillant, deux cultivateurs du Royaume Extérieur fuyaient avec anxiété. Ils se ressemblaient étrangement; c'étaient des jumeaux, une rareté dans le monde de la culture.
 
-Ces deux-là jouissaient d'une certaine renommée dans le Système Stellaire Antique. Ils attaquaient toujours de concert et se connaissaient parfaitement. Bien qu'ils n'en fussent qu'au second Fléau Céleste, même des cultivateurs du troisième niveau auraient dû battre en retraite dans un état pitoyable face à eux.
+Ces deux-là jouissaient d'une certaine renommée dans le Système Stellaire Antique. Ils attaquaient toujours de concert et se connaissaient parfaitement. Bien qu'ils n'en fussent qu'au second Fléau Céleste, même des cultivateurs du troisième Fléau Céleste auraient dû battre en retraite dans un état pitoyable face à eux.
 
-Ces deux frères étaient cruels et, après avoir pénétré le Royaume Intérieur, ils avaient massacré de nombreux cultivateurs locaux. Ils avaient un penchant particulier: celui d'abuser et de tuer ceux dont le niveau de culture était inférieur au leur.
+Ces deux frères étaient cruels et, après avoir pénétré le Royaume Intérieur, ils avaient massacré de nombreux cultivateurs locaux. Ils avaient un penchant particulier: celui de torturer et de tuer ceux dont le niveau de culture était inférieur au leur.
 
 Pourtant, à cet instant, ils fuyaient comme des chiens errants. Ils sentaient une aura terrifiante les traquer à distance. Peu importait leurs efforts pour se cacher, ils ne pouvaient échapper à cette pression.
 
@@ -92,7 +92,7 @@ Sa cadence n'était pas rapide, mais en réalité, il était plus prompt que l'�
 
 « Grand frère! » hurla l'autre dans un râle misérable. Renonçant à sa fuite, il chargea Wang Lin. Ces deux frères avaient perdu leurs parents dès leur enfance et avaient été élevés par des loups. Ils partageaient toujours les mêmes pensées et ne se quittaient presque jamais.
 
-Plus tard, ils avaient été recueillis par une famille de cultivateurs-loups qui leur avait accordé leurs marques. Autrefois, c'était eux qui traquaient et tuaient cruellement les autres; aujourd'hui, ils étaient devenus la proie de Wang Lin.
+Plus tard, ils avaient été recueillis par un cultivateur-loup qui leur avait accordé leurs marques. Autrefois, c'était eux qui traquaient et tuaient cruellement les autres; aujourd'hui, ils étaient devenus la proie de Wang Lin.
 
 Au moment où le cri retentit, une tête fut tranchée et le sang jaillit partout. Une tête s'envola dans les airs.
 

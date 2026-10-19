@@ -8,7 +8,7 @@ slug: je-veux-la-première-place
 ---
 Wang Lin ne fusionna pas avec le monde lorsqu'il se trouva à 50000 kilomètres de la planète Terre Flamme. Au lieu de cela, il avança pas à pas, gagnant en vitesse à chaque mouvement. S'il n'avait pas utilisé la manipulation spatiale pour fusionner avec les éléments, c'était parce que cette bataille était d'une importance capitale pour lui!
 
-À chacun de ses pas, son cœur s'apaisait et son regard devenait d'une tranquillité terrifiante. Une intention de combat croissait en lui à chaque foulée alors qu'il progressait avec détermination!
+À chacun de ses pas, son cœur s'apaisait et son regard devenait d'une tranquillité terrifiante. Une intention de combat croissait en lui à chaque foulée alors qu'il progressait avec détermination, de plus en plus tranchante et tendue droit vers l'avant!
 
 Cette intention de combat s'intensifia de manière effrénée au fur et à mesure que Wang Lin avançait, finissant par former une tempête derrière lui. Cette tempête était d'une puissance inouïe, car elle concentrait toute l'intention de combat de Wang Lin!
 
@@ -22,7 +22,7 @@ L'intention de combat émanait du cœur de Wang Lin. À cet instant, son âme é
 
 Le blanc de ses vêtements n'évoquait pas la pureté de la neige, mais la pâleur de l'os!
 
-Non seulement Wang Lin devait gagner, mais il devait remporter une victoire totale. Ce n'était qu'à cette condition que la famille Xiang le prendrait au sérieux lorsqu'il viendrait les solliciter!
+Non seulement Wang Lin devait gagner, mais il devait remporter une victoire totale. Ce n'était qu'à cette condition qu'il se ferait un nom dans tout le Système Stellaire Tout-Ciel, et que la famille Xiang le prendrait au sérieux lorsqu'il viendrait les solliciter!
 
 « Wan Er… » L'intention de combat dans les yeux de Wang Lin atteignit son paroxysme. Cependant, une pointe de tristesse imprégnait cette volonté, et cette mélancolie était celle de sa Wan Er.
 
@@ -30,7 +30,7 @@ Il se souvenait encore de l'illusion du monde entier s'effondrant autour de lui 
 
 Il ne pourrait jamais oublier cela. Lorsqu'il avait atteint le stade Ascendant, il avait accepté de défier les cieux et de cultiver à contre-courant pour l'attachement qu'il refusait d'abandonner!
 
-Arriver dans le Système Stellaire Tout-Ciel et traverser toutes ces batailles n'avait qu'un seul but: la résurrection de Wan Er! Les paroles de la femme de la famille Xiang résonnaient comme d'innombrables coups de tonnerre dans son esprit. C'était la raison fondamentale de sa présence dans le Système Stellaire Tout-Ciel!
+Arriver dans le Système Stellaire Tout-Ciel et traverser toutes ces batailles n'avait qu'un seul but: la résurrection de Wan Er! Les paroles de la femme de la famille Xiang, scellée dans le rouleau, résonnaient comme d'innombrables coups de tonnerre dans son esprit. C'était la raison fondamentale de sa présence dans le Système Stellaire Tout-Ciel!
 
 Il ne pouvait pas perdre!
 
@@ -42,7 +42,7 @@ Cette puissante intention de combat se propagea sauvagement, résonnant dans un 
 
 À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Terre Flamme!
 
-À cet instant, les deux cultivateurs qui se livraient bataille pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
+À cet instant, les deux cultivateurs qui se livraient bataille sous la barrière lumineuse de la planète pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
 
 À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 5 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes vertes du Temple Céleste du Tonnerre sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation!
 
@@ -64,7 +64,7 @@ Les yeux de Shengong Hu s'écarquillèrent et il se redressa brusquement. Un sen
 
 Mais ce n'était pas là le point crucial. Le plus important était qu'une sensation très familière émanait de cette intention. Cette aura, combinée à l'amertume dans son cœur, fit naître un sentiment complexe qui envahit tout son être.
 
-« Respecté… Seigneur! » Le corps de Shengong Hu trembla. Il avait cru être déçu, avoir perdu foi en son seigneur, s'être senti trahi par lui. Pourtant, à cet instant, une puissance surgit dans son corps qui l'exalta de nouveau, mais cette fois avec une pointe d'indignation!
+« Respecté… Seigneur! » Le corps de Shengong Hu trembla. Il avait cru être déçu, avoir perdu foi en son seigneur, s'être senti trahi et berné par lui, comme un idiot. Pourtant, à cet instant, une puissance surgit dans son corps qui l'exalta de nouveau, mais cette fois avec une pointe d'indignation!
 
 « Grrr! » Shengong Hu poussa un rugissement qui enveloppa son corps. Cette aura absorba toutes ses émotions complexes pour les transformer, elle aussi, en intention de combat. Cette dernière jaillit tel un dragon colossal.
 
@@ -80,7 +80,7 @@ Sous cette pression, ces trois hommes ne furent pas les seuls à voir leur inten
 
 Cette scène stupéfia tous les cultivateurs environnants!
 
-Seul le vieil homme en robe pourpre du Temple Céleste du Tonnerre demeurait calme. Ses yeux étaient clos et son visage impassible.
+Seul le vieil homme en robe violette du Temple Céleste du Tonnerre demeurait calme. Ses yeux étaient clos et son visage impassible.
 
 Diverses tempêtes formées par l'intention de combat chargèrent et entrèrent en collision avec celle de Wang Lin. Des explosions se produisirent lors des impacts, donnant l'impression que tout l'espace dans un rayon de dizaines de milliers de kilomètres tremblait. Wang Lin, vêtu de blanc, s'approchait lentement, pas après pas!
 

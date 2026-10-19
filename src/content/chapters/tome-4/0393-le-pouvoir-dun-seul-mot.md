@@ -10,7 +10,7 @@ Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la perle d
 
 Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal de la taille d'un poing, scintillant d'une lueur verte. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée sous le nez de l'Ancien du mont Suzaku pendant son combat contre Papillon Rouge.
 
-« Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
+« Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître et déployer sa puissance. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
 
 Au moment où les deux se touchèrent, le cristal de bois disparut dans la perle défiant le ciel. Les motifs de feuilles de la perle se mirent à changer étrangement et à s'épanouir une à une jusqu'à ce qu'elle atteigne sa complétion.
 
@@ -38,7 +38,7 @@ Au centre de Xue Yu se dressait un palais de glace.
 
 C'était l'endroit le plus sacré de Xue Yu; c'est là que le seul cultivateur de Transformation de l'Âme du pays, Li Yuanfeng, pratiquait sa culture toute l'année.
 
-Après avoir été blessé par la foudre immortelle de Sun Tai, il se remettait lentement. Il avait en effet atteint le stade de la Transformation de l'Âme par la force et sa culture était instable; c'était déjà une grande chance que son royaume n'ait pas régressé.
+Après avoir été blessé par la foudre immortelle de Sun Tai, il se remettait lentement. Il avait en effet atteint le stade de la Transformation de l'Âme par la force et sa culture était instable; c'était déjà une grande chance que son niveau de culture n'ait pas régressé.
 
 Plusieurs énormes blocs de glace l'entouraient, chacun émettant une énergie spirituelle céleste.
 
@@ -86,7 +86,7 @@ Dans un fracas assourdissant, d'innombrables fissures apparurent là où Wang Li
 
 Wang Lin murmura: « Brise! »
 
-Le palais entier commença à trembler, puis la moitié de l'édifice s'effondra.
+Le palais entier commença à trembler, puis la moitié de l'édifice s'effondra et se réduisit en cendres.
 
 L'expression des trois Anciens changea radicalement lorsqu'une force puissante les repoussa. L'un des vieillards regarda Wang Lin avec incrédulité et hurla: « Aurais-tu atteint le stade de la Transformation de l'Âme?! »
 

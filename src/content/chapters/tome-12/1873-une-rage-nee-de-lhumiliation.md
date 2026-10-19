@@ -20,7 +20,7 @@ Une fois la fusion accomplie, il n'aurait plus à tenir compte de l'opinion de q
 
 « Rangez cette tête et retirez-vous. Je peux faire comme si de rien n'était. Sinon, si vous continuez à jouer la comédie pour vous attribuer des mérites, je pourrais vous tuer sans même demander l'avis de l'Ancêtre! »
 
-« Car votre comportement est une insulte envers moi, mais aussi envers les dix mille âmes ici présentes qui ont péri! » rugit Lu Wenran, une force étrange imprégnant sa voix.
+« Car votre comportement est une insulte envers moi, mais aussi envers les près de dix mille âmes qui ont péri! » rugit Lu Wenran, une force étrange imprégnant sa voix.
 
 Son visage était empreint d'une vive excitation, comme s'il était transporté par la colère face aux agissements de Wang Lin! Pourtant, il se contenait encore, feignant le deuil.
 
@@ -48,7 +48,7 @@ Sur cette pensée, l'inquiétude de Lu Wenran s'estompa. Bien qu'il n'ait pas as
 
 « J'ai présenté sa tête et vous prétendez que je simule. Alors, regardez ceci! » Le regard de Wang Lin devint glacial. Ne perdant plus de temps en vaines discussions avec Lu Wenran, il agita la main droite et une seconde tête apparut!
 
-Il s'agissait de celle de Xu Decai, un cultivateur de la Tribulation du Vide du Continent du Démon Vert! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché perlaient de ses orifices!
+Il s'agissait de celle de Xu Decai, un cultivateur de la Tribulation du Vide du Continent du Démon Vert! La tête de Xu Decai était dans un état lamentable. Ses yeux vides exprimaient une peur et une rancœur infinies, tandis que des traces de sang séché marquaient ses orifices!
 
 À l'instant où la tête apparut, le palais souterrain fut plongé dans un silence de mort. Tous les regards se fixèrent sur elle. Même les trois cultivateurs de la Tribulation du Vide de la secte voisine se redressèrent brusquement!
 
@@ -82,7 +82,7 @@ Xu Decai était si célèbre sur le Continent du Démon Vert que Lu Wenran en av
 
 Après la déclaration de Wang Lin, le visage de Lu Wenran se crispa et il reprit lentement:
 
-« Je n'ai pas vu ce vieil homme insondable, mais puisqu'il a agi une fois, il est possible qu'il ait agi une seconde! Quant au fait que vous possédiez ces têtes, je ne peux que dire que votre chance est insolente. Vous... » Les paroles de Lu Wenran furent interrompues par le rire de Wang Lin.
+« Je n'ai pas vu ce vieil homme insondable, mais puisqu'il a agi une fois, il est possible qu'il ait agi une seconde! Quant au fait que vous possédiez ces têtes, je ne peux que dire que votre chance est plutôt bonne. Vous... » Les paroles de Lu Wenran furent interrompues par le rire de Wang Lin.
 
 Alors qu'il riait, Wang Lin leva la main gauche et une âme spectrale apparut dans sa paume. L'âme poussa un cri déchirant: c'était l'apparence même de Xu Decai!!
 
@@ -100,13 +100,13 @@ Le cœur du vieil homme tressaillit et il hocha précipitamment la tête. Même 
 
 Une fois qu'il eut parlé, le silence retomba. Lu Wenran leva la tête, une intention meurtrière émanant de lui alors qu'il fixait Wang Lin. Il pesait le pour et le contre, mais il refusait de capituler ainsi!
 
-« Voleur audacieux, vous prétendez gagner du mérite tout en insultant les morts. Vous méritez la mort! » Lu Wenran serra les dents et prit sa décision. Il ne permettrait pas à Wang Lin d'obtenir l'armure. Sinon, compte tenu de leurs tensions récentes, il serait immédiatement supplanté.
+« Voleur audacieux, vous prétendez gagner du mérite tout en insultant les morts. Vous méritez la mort! » Lu Wenran serra les dents et prit sa décision. Il ne permettrait pas à Wang Lin d'obtenir l'armure. Sinon, compte tenu de leurs tensions récentes, il serait aussitôt écrasé.
 
 Il n'y avait plus place pour la réflexion: Lu Wenran allait tout donner!
 
 « S'il meurt, il ne pourra plus rivaliser avec moi pour l'armure. Au pire, je ferai preuve d'héroïsme sur le champ de bataille pour obtenir des mérites avant de retourner à la secte pour accepter ma punition! Je suis certain que l'Ancêtre ne m'exécutera pas pour un homme mort! » Lu Wenran poussa un rugissement et chargea Wang Lin.
 
-Wang Lin était resté sur ses gardes durant tout ce temps. Dès que Lu Wenran s'élança, il recula immédiatement. La première veine de sorts de son corps lui conférait une vitesse d'incantation extrêmement rapide!
+Wang Lin était resté sur ses gardes durant tout ce temps. Dès que Lu Wenran s'élança, il recula immédiatement et leva la main droite. Le premier vortex de sa veine de sorts, formé par l'Art Magique Rapide, tournoyait à vive allure et lui conférait une vitesse d'incantation extrêmement rapide!
 
 Simultanément, l'armure de l'âme derrière Wang Lin émit une lumière spectrale infinie. Sous l'impulsion du vieil homme nommé Zhou, les cultivateurs en contrebas commencèrent rapidement à trancher entre Wang Lin et Lu Wenran!
 

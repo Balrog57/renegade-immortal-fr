@@ -22,7 +22,7 @@ Une fois que le fou commença à bavarder, il devint presque incessant. Il parla
 
 Wang Lin n'entendit pas un seul mot. Son corps se trouvait dans un état chaotique. Son corps d'Ancien Dieu était à l'extérieur tandis que son origine céleste résidait à l'intérieur, agissant comme son âme originelle. Plus profondément encore, la Perle Défiant le Ciel tournait lentement.
 
-En temps mortel, il fallait douze heures pour que la Perle Défiant le Ciel accomplisse une rotation complète.
+En temps mortel, il fallait vingt-quatre heures pour que la Perle Défiant le Ciel accomplisse une rotation complète.
 
 L'énergie originelle à l'intérieur de son corps s'était effondrée et avait disparu sans laisser de trace. Ce qui l'avait remplacée était la dense énergie spirituelle céleste issue du nouveau sang produit par sa moelle osseuse!
 
@@ -30,11 +30,11 @@ Cette énergie spirituelle céleste était bien plus puissante que son énergie 
 
 Pourtant, malgré sa faible quantité, cette énergie spirituelle céleste faisait trembler l'esprit de Wang Lin. Il pouvait ressentir une aura terrifiante émaner de cette substance!
 
-En raison de l'effondrement des sept étoiles, la seconde épreuve avait débuté prématurément. Cependant, avant que la puissance de cette épreuve ne puisse éclater, elle fut absorbée par la Perle Défiant le Ciel. Désormais, sa force physique était plusieurs fois supérieure à celle qu'il possédait auparavant. Chaque battement de son cœur semblait générer une onde invisible capable de secouer les environs!
+En raison de l'effondrement des sept étoiles, la seconde épreuve avait débuté prématurément. Cependant, avant que la puissance de cette épreuve ne puisse éclater, elle fut absorbée par son corps, grâce à la Perle Défiant le Ciel. Désormais, sa force physique était plusieurs fois supérieure à celle qu'il possédait auparavant. Chaque battement de son cœur semblait générer une onde invisible capable de secouer les environs!
 
 Un sentiment de puissance déferla dans le corps de Wang Lin. Il était confiant: même des cultivateurs du stade avancé du Vide du Nirvana ne pourraient s'échapper de son emprise! Peut-être qu'un cultivateur au sommet du Vide du Nirvana aurait la force de l'affronter!
 
-À présent, il était une fusion entre le Céleste et l'Ordre Antique; une mutation extrêmement rare parmi les vastes étoiles!
+À présent, il était une fusion entre le Céleste et le Dieu Antique; une mutation extrêmement rare parmi les vastes étoiles!
 
 Wang Lin ignorait si ce changement était une bénédiction ou une malédiction, mais il ressentait actuellement une douleur atroce. Bien que son corps et son origine céleste fussent en état de fusion, le phénomène de rejet persistait entre eux!
 
@@ -52,7 +52,7 @@ Cette force de rejet était telle une lame de mort suspendue au-dessus de sa tê
 
 Wang Lin réfléchit frénétiquement, assis là, cherchant désespérément un moyen de se débarrasser de ce rejet, mais aucune solution ne lui vint.
 
-Bien que la marque de l'ancêtre céleste semblât s'être effondrée, seul Wang Lin savait qu'elle n'avait pas disparu. Elle s'était au contraire fusionnée avec ses sept étoiles d'Ancien Dieu, faisant apparaître des étoiles dorées. Cela n'était jamais arrivé auparavant dans l'Ordre Antique!
+Bien que la marque de l'ancêtre céleste semblât s'être effondrée, seul Wang Lin savait qu'elle n'avait pas disparu. Elle s'était au contraire fusionnée avec ses sept étoiles d'Ancien Dieu, faisant apparaître des étoiles dorées. Cela n'était jamais arrivé auparavant dans le clan Ancien!
 
 Quelques jours plus tard, alors que le fou parlait toujours avec exaltation, Wang Lin ouvrit lentement les yeux. Deux rayons de lumière dorée jaillirent de son regard et rencontrèrent ceux du fou.
 
@@ -82,7 +82,7 @@ L'ancien démon qu'il avait obtenu dans la tombe antique apparut devant lui.
 
 Le corps de cet ancien démon était déjà pétrifié, mais lorsque Wang Lin obtint l'héritage de l'Ordre Antique, il fut restauré en chair. Les six étoiles démoniaques tournaient dans son œil droit, mais ce corps n'ayant plus d'âme, il n'était encore qu'un cadavre.
 
-Wang Lin fixa l'ancien démon aux six étoiles. Il avait initialement prévu de condenser une âme de démon antique pour son corps, mais face au danger du rejet interne, il changea d'avis.
+Wang Lin fixa l'ancien démon aux six étoiles. Il avait initialement prévu de condenser une âme de démon antique pour en faire son avatar, mais face au danger du rejet interne, il changea d'avis.
 
 Ses yeux s'illuminèrent et il pointa le doigt vers l'avant. L'ancien démon trembla violemment; en tremblant, son corps massif se rétracta rapidement. Toute sa chair, son sang et son énergie démoniaque convergèrent vers les étoiles de son œil droit.
 

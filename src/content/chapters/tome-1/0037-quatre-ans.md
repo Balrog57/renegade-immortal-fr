@@ -6,17 +6,17 @@ bookTitle: The Mediocre Youth
 en: Chapter 37 - Four Years
 slug: quatre-ans
 ---
-L'apprenti-frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier est en effet étroitement liée au talent. Certains n'ont besoin que de quelques tentatives pour réussir, tandis que d'autres ont besoin de centaines ou de milliers de tentatives, voire ne parviennent jamais à progresser de toute leur vie. »
+Le frère Zhang lança un regard froid à Wang Zhuo et déclara: « La clé pour franchir un palier est en effet étroitement liée au talent. Certains réussissent dès la première tentative, tandis que d'autres ont besoin de centaines ou de milliers de tentatives, voire ne parviennent jamais à progresser de toute leur vie. »
 
-Wang Lin afficha une expression mélancolique et demanda soudainement: « Apprenti-frère Zhang, est-ce aussi difficile de franchir chaque étape? Le passage du deuxième au troisième niveau est-il aussi ardu que celui du troisième au quatrième? »
+Wang Lin afficha une expression mélancolique et demanda soudainement: « Frère Zhang, est-ce aussi difficile de franchir chaque étape? Le passage du deuxième au troisième niveau est-il aussi ardu que celui du troisième au quatrième? »
 
-L'apprenti-frère Zhang hocha la tête: « Oui. Plus on avance dans les stades, plus c'est difficile, particulièrement lors des passages du troisième au quatrième, et du cinquième au sixième niveau. »
+Le frère Zhang hocha la tête: « Oui. Plus on avance dans les stades, plus c'est difficile, particulièrement lors des passages du troisième au quatrième, et du cinquième au sixième niveau. »
 
-La réponse de l'apprenti-frère Zhang attira également l'attention de quelques autres disciples. Une disciple demanda soudainement: « Apprenti-frère, qu'est-ce qui rend si difficile le passage du troisième au quatrième niveau? Je suis actuellement au troisième niveau. »
+La réponse du frère Zhang attira également l'attention de quelques autres disciples. Une disciple demanda soudainement: « Frère Zhang, qu'est-ce qui rend si difficile le passage du troisième au quatrième niveau? Je suis actuellement au troisième niveau. »
 
 Wang Lin reconnut la personne qui venait de parler. C'était la jeune fille nommée Zhou, celle que Wang Zhuo courtisait.
 
-L'apprenti-frère Zhang réfléchit un instant et dit: « Très bien. Aujourd'hui, je vais vous parler des deux goulots d'étranglement que vous rencontrerez avant d'atteindre le sixième niveau de Condensation de Qi. Le premier est le passage du troisième au quatrième niveau. Pour certains, c'est très facile, mais pour d'autres, c'est un obstacle qu'ils ne surmonteront peut-être jamais de leur existence. La clé n'a rien à voir avec le talent, mais plutôt avec la capacité de chacun à comprendre le sens de l'expression: "la voie est impitoyable". »
+Le frère Zhang réfléchit un instant et dit: « Très bien. Aujourd'hui, je vais vous parler des deux goulots d'étranglement que vous rencontrerez avant d'atteindre le sixième niveau de Condensation de Qi. Le premier est le passage du troisième au quatrième niveau. Pour certains, c'est très facile, mais pour d'autres, c'est un obstacle qu'ils ne surmonteront peut-être jamais de leur existence. La clé n'a rien à voir avec le talent, mais plutôt avec la capacité de chacun à comprendre le sens de l'expression: "la voie est impitoyable". »
 
 Il lança un regard pensif à l'assemblée et continua: « Les immortels doivent rompre leurs liens mortels. Si vous y parvenez, alors le passage du troisième au quatrième niveau sera aisé; sinon, il deviendra ardu. Quant à l'obstacle entre le cinquième et le sixième niveau, il s'agit d'un changement qualitatif de la Condensation de Qi: votre corps, remodelé par l'énergie spirituelle, atteint un petit accomplissement et subit alors une série de changements plus profonds. Cela nécessite une quantité massive d'énergie spirituelle, ce qui en fait un goulot d'étranglement qui bloque de nombreux cultivateurs. »
 
@@ -48,7 +48,7 @@ Par conséquent, le terme « couper les désirs mortels » était une expression
 
 Après avoir été perplexe pendant longtemps sans trouver d'indices, Wang Lin comprit qu'il ne pourrait jamais rompre les liens avec sa famille. Sa chance résidait dans le fait que le troisième niveau n'était pas comme les deux premiers. Même s'il ne parvenait pas à franchir le palier, son énergie spirituelle continuait de croître. Finalement, il renonça à l'idée de progresser rapidement vers le quatrième niveau pour consolider tranquillement le troisième niveau.
 
-Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en culture fermée depuis quatre ans désormais. Durant les deux dernières années, il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau afin de la transformer en eau d'énergie spirituelle pour sa pratique.
+Le temps passa rapidement. Un an, deux ans... sans s'en rendre compte, deux années supplémentaires s'écoulèrent. Wang Lin était en culture fermée depuis quatre ans désormais. Durant les deux dernières années, il n'avait quitté sa grotte qu'une seule fois pour remplir ses gourdes d'eau, qu'il faisait tremper avec la perle mystérieuse avant de s'entraîner.
 
 Quatre ans dans le monde réel équivalaient à 25 ans dans l'espace onirique. En incluant la période précédant la culture fermée, Wang Lin cultivait depuis déjà 27 ou 28 ans.
 

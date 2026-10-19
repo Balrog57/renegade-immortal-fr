@@ -14,7 +14,7 @@ Wang Lin tenait le jade tandis que son sens divin l'explorait attentivement.
 
 « L'Oncle-Maître est parti. Il s'est aventuré dans les profondeurs de ce lieu. Il m'a dit qu'une voix l'avait appelé… Cela fait onze ans que je suis ici… Je parviens à saisir un peu de la Restriction Temporelle. »
 
-« Combien de temps s'est-il écoulé? Cela doit faire au moins 30 ans. Les Éveillés ont attaqué une fois de plus, et j'ai clairement vu l'Oncle-Maître parmi eux… Ils ont emporté le Cinquième Frère et le Sixième Frère… »
+« Combien de temps s'est-il écoulé? Cela doit faire environ 30 ans. Les Éveillés ont attaqué une fois de plus, et j'ai clairement vu l'Oncle-Maître parmi eux… Ils ont emporté le Cinquième Frère et le Sixième Frère… »
 
 « J'ai enfin maîtrisé la Restriction Temporelle. Avec les restes de ma secte, nous avons instauré une immense Restriction Temporelle dans une vallée. Le Neuvième Frère a sacrifié sa longévité pour renforcer l'effet temporel de cette restriction. Avant de mourir, il m'a fait promettre de ramener ses restes à la Secte Brise-Ciel… Je l'ai promis, mais en serai-je capable? »
 
@@ -32,7 +32,7 @@ Wang Lin réfléchissait silencieusement en contemplant le squelette devant lui.
 
 « Ils ont tous disparu. Seuls le Seizième Frère et moi restons… Cependant, j'ai conçu une méthode pour les sauver. Je dois tenter ma chance, dût-il en coûter ma vie! J'ai fait mes adieux au Seizième Frère et j'ai quitté la vallée. »
 
-« J'ai ramené le Deuxième Frère et le Troisième Frère, ainsi que tous ceux qui étaient devenus des Perdus… Je suis entré dans les profondeurs de la montagne et j'ai retrouvé le Cinquième Frère et le Sixième Frère, devenus des Éveillés, pour les ramener avec moi. J'ai ensuite plongé dans les tréfonds de ce lieu. Le chemin m'était devenu très familier… »
+« J'ai ramené le Deuxième Frère et le Troisième Frère, ainsi que tous ceux qui étaient devenus des Perdus… Je suis entré dans les profondeurs de la montagne, dans la brume, et j'ai retrouvé le Cinquième Frère et le Sixième Frère, devenus des Éveillés, pour les ramener avec moi. J'ai ensuite plongé dans les tréfonds de ce lieu. Le chemin m'était devenu très familier… »
 
 « J'ai retrouvé le Deuxième Oncle-Maître et je l'ai ramené. »
 
@@ -60,9 +60,9 @@ Le visage de Wang Lin pâlit et il prit une inspiration saccadée. Inconsciemmen
 
 Cependant, à l'époque, le Souverain était une figure lointaine, un colosse appartenant à l'ère de Qing Lin. Des éons s'étaient écoulés depuis.
 
-Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système d'Étoiles de la Mer des Nuages, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
+Pourtant, Wang Lin ne s'attendait pas à trouver un jade contenant des informations sur le Souverain dans le Système Stellaire de la Mer des Nuages, au sein de ce Monde aux Sept Couleurs, dans cette même vallée!
 
-Wang Lin ferma les yeux et repensa malgré lui au combat entre Qing Shui et le Serpent aux yeux de lune. L'effondrement du vide avait provoqué l'apparition de ces deux mystérieux cultivateurs!
+Wang Lin ferma les yeux et repensa malgré lui au combat qu'il avait mené aux côtés de Qing Shui contre le Serpent aux yeux de lune. L'effondrement du vide avait provoqué l'apparition de ces deux mystérieux cultivateurs!
 
 Ces deux individus étaient des résidents du monde extérieur! Si la Perle Défiant le Ciel n'était pas apparue, il aurait été capturé par eux!
 

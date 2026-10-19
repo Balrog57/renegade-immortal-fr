@@ -8,7 +8,7 @@ slug: la-gloire-de-la-mer-des-nuages
 ---
 Sa voix déferla sur la Secte Divine, pénétrant les oreilles des quelque 10 000 cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
 
-Ces cultivateurs n'avaient pas encore terminé la mise en place de la formation. Ils s'étaient précipités ici dès réception de l'ordre, mais Wang Lin avait été trop rapide: la formation n'était achevée qu'à 30 %!
+Ces cultivateurs n'avaient pas encore terminé la mise en place de la formation. Ils s'étaient précipités ici dès réception de l'ordre, mais Wang Lin avait été trop rapide: la formation n'était achevée qu'à moins de 30 %!
 
 « Tu as comploté avec le Royaume Extérieur!! Tu as trahi ton seigneur pour la gloire!! » La voix de Wang Lin était empreinte d'une pression indiscutable qui réduisit ces cultivateurs au silence.
 
@@ -16,7 +16,7 @@ Alors que sa voix résonnait à travers les étoiles, elle fut clairement entend
 
 « Je suis venu ici sur ordre du Seigneur du Royaume Scellé pour tuer son esclave en son nom! » Lorsque les divers puissants cultivateurs entendirent cela, leurs expressions changèrent radicalement.
 
-« Tu ne racontes que des bêtises. Formation de Destruction des Neuf Cieux, détruisez ce pion du Souverain! » La voix du Shui Daozi perça l'esprit de Wang Lin telle une épée tranchante.
+« Tu ne racontes que des bêtises. Formation de Destruction des Neuf Cieux, détruisez cet espion du Souverain! » La voix du Shui Daozi perça l'esprit de Wang Lin telle une épée tranchante.
 
 Un éclair de froideur brilla dans ses yeux et il laissa échapper un reniflement glacial. Ce souffle dispersa l'épée invisible envoyée par le Shui Daozi, tandis que Wang Lin pointait simultanément l'espace entre ses sourcils. Un éclat de lumière sanguine apparut sans que personne ne puisse le détecter, puis Wang Lin avança vers la Secte Divine!
 

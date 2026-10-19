@@ -8,7 +8,7 @@ slug: le-drapeau-des-un-milliard-dames
 ---
 Alors que la nouvelle de l'affrontement entre Ceng Niu et Li Yuanfeng se répandait sur la planète, Ceng Niu disparut une fois de plus.
 
-Après avoir quitté Xue Yue, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la perle défiant le ciel.
+Après avoir quitté Xue Yu, Wang Lin trouva immédiatement un lieu isolé avant de placer les deux membres dans la perle défiant le ciel.
 
 Il se tint devant l'âme gigantesque de Situ Nan. Dès son arrivée, il leva le sceau qui retenait les deux bras.
 
@@ -66,7 +66,7 @@ Les neuf anneaux brillèrent, puis un homme d'âge moyen se matérialisa. En voy
 
 « Jeune maître de la secte... » Les yeux de Wang Lin brillèrent. Il comprit que Du Tian avait dû informer ces cultivateurs de la Formation de l'Âme de leurs échanges.
 
-Wang Lin joignit les mains et dit: « Compagnon cultivateur Ouyang, je souhaite saluer l'Ancien. »
+Wang Lin joignit les mains et dit: « Compagnon cultivateur Ouyang, je souhaite voir l'Ancien. »
 
 Ouyang Tian secoua la tête: « L'Ancien est déjà entré en culture de méditation intensive; à moins qu'il ne s'agisse d'une affaire extrêmement urgente, il ne doit pas être dérangé. Cependant, l'Ancien avait pressenti votre venue et a préparé deux objets pour vous. »
 

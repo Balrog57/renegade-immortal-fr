@@ -12,7 +12,7 @@ La voix de l'Ancêtre Sanguin était empreinte d'une intention meurtrière qui e
 
 C'était comme si une flamme noire dévorait l'espace de stockage derrière lui. Cette flamme, féroce, cherchait à engloutir l'Ancêtre Sanguin.
 
-Alors que l'Ancêtre Sanguin s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son sens divin à l'intérieur du gardien céleste ait été détruit, le gardien n'avait pas encore été totalement raffiné par la mer de sang.
+Alors que l'Ancêtre Sanguin s'apprêtait à franchir le réseau de transfert pour s'échapper, l'expression de Wang Lin, qui était poursuivi par l'aiguille rouge, s'assombrit instantanément. Bien que son âme originelle à l'intérieur du gardien céleste ait été détruite, le gardien n'avait pas encore été totalement raffiné par la mer de sang.
 
 Grâce au lien qu'il entretenait avec le gardien céleste, Wang Lin put voir le réseau de transfert scintiller et la silhouette de l'Ancêtre Sanguin se condenser rapidement.
 
@@ -36,7 +36,7 @@ Sous la force de cette déflagration, le réseau de transfert s'effondra immédi
 
 À l'intérieur de l'espace de stockage, la moitié du corps de l'Ancêtre Sanguin avait déjà franchi le réseau de transfert. Il poussa un rugissement et fut violemment repoussé. Il regarda le réseau de transfert se dissiper rapidement; c'était comme si des milliers d'années avaient été compressées en un seul souffle.
 
-Au moment critique, une étrange lumière émana du corps de l'Ancêtre Sanguin. Il fixa la sphère de restriction où se trouvait Yao Xixue et la brisa sans la moindre hésitation!
+Au moment critique, une étrange lueur passa dans les yeux de l'Ancêtre Sanguin. Il fixa la sphère de restriction où se trouvait Yao Xixue et la brisa sans la moindre hésitation!
 
 Sous la force destructrice de l'espace de stockage, même si Yao Xixue avait consommé une Pilule d'Âme Sanguine, une seule n'aurait pas suffi. C'est pour cette raison que l'Ancêtre Sanguin brisa personnellement la sphère afin de permettre sa résurrection. Grâce à sa connaissance des Pilules d'Âme Sanguine, il savait qu'elle en avait déjà pris une.
 
@@ -48,7 +48,7 @@ Son corps fut instantanément enveloppé et les flammes commencèrent à le cons
 
 Ces quelques respirations durèrent comme des dizaines de milliers d'années. Sous la protection de son père qui contenait l'effondrement, le processus de résurrection de Yao Xixue ne fut pas perturbé par la destruction de l'espace de stockage.
 
-Une lumière rouge emplit la zone où Yao Xixue avait caché sa Pilule d'Âme Sanguine dans la Terre des Esprits Démoniaques, et la silhouette de la jeune femme apparut lentement.
+Une lumière rouge emplit la zone où Yao Xixue avait avalé sa Pilule d'Âme Sanguine dans la Terre des Esprits Démoniaques, et la silhouette de la jeune femme apparut lentement.
 
 Une fois apparue, elle leva les yeux vers le ciel, le regard empreint de chagrin et d'une intention meurtrière inoubliable.
 
@@ -80,7 +80,7 @@ Malgré cela, le sceau restait instable; l'aiguille rouge semblait capable de s'
 
 « L'Ancêtre Sanguin n'est pas mort... Même s'il a survécu, il doit être extrêmement affaibli. Autrement, cette aiguille n'aurait pas perdu autant de force... Une fois qu'il se sera rétabli, la première chose qu'il fera sera de tenter de me tuer... » Les yeux de Wang Lin devinrent glacials tandis qu'il fixait l'aiguille rouge. Celle-ci, presque transparente, dégageait une aura de mort.
 
-« Cette aiguille a dû être rappelée par l'Ancêtre Sanguin. Je ne peux pas laisser passer cette chance; je dois tenter le tout pour le tout! » Wang Lin serra les dents et lança l'aiguille rouge. L'objet s'envola, suivi de près par Wang Lin qui ajustait l'énergie spirituelle céleste en lui.
+« Cette aiguille doit être attirée vers l'Ancêtre Sanguin. Je ne peux pas laisser passer cette chance; je dois tenter le tout pour le tout! » Wang Lin serra les dents et lança l'aiguille rouge. L'objet s'envola, suivi de près par Wang Lin qui ajustait l'énergie spirituelle céleste en lui.
 
 Son sceau étant posé sur l'aiguille, il lui fut très facile de la suivre. Un homme et une aiguille traversèrent rapidement le Royaume Céleste du Tonnerre, disparaissant souvent sans laisser de trace en un éclair.
 

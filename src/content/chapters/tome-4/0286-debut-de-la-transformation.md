@@ -36,13 +36,13 @@ Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce st
 
 Les cultivateurs possédant déjà une Âme Naissante furent les premiers à bénéficier de ce phénomène, car leurs propres âmes semblaient subir des mutations. Leurs Âmes Naissantes s'échappèrent de leurs corps pour commencer à cultiver.
 
-À mesure que l'Âme Naissante de Wang Lin absorbait davantage d'énergie spirituelle, la lumière arc-en-ciel s'intensifia. Son âme commença également à flotter de plus en plus haut au-dessus de sa tête.
+À mesure que l'Âme Naissante de Wang Lin absorbait davantage d'énergie spirituelle, la lumière arc-en-ciel s'intensifia. Son âme commença également à flotter de plus en plus haut, à trois pouces au-dessus de sa tête.
 
 L'apparition du trou noir au-dessus de Zhao rendit les mortels encore plus pieux. C'était comme si une pression céleste les avait submergés, balayant toute distraction pour ne leur laisser que le respect face à cette puissance divine.
 
-Plus les mortels étaient proches du trou noir, plus ils en étaient affectés. Cela était particulièrement vrai pour le village situé aux abords immédiats de la Secte Xuan Dao, où chaque enfant contemplait le gouffre avec stupéfaction. Si un cultivateur se trouvait à proximité, il pouvait voir une faible ceinture de lumière sur le front des mortels, reliée au trou noir.
+Plus les mortels étaient proches du trou noir, plus ils en étaient affectés. Cela était particulièrement vrai pour le village situé aux abords immédiats de la Secte Xuan Dao, où chaque enfant contemplait le gouffre avec stupéfaction. Si un cultivateur se trouvait à proximité, il pouvait voir une faible ceinture de lumière au-dessus de la tête des mortels, reliée au trou noir.
 
-En réalité, chaque fois qu'un cultivateur est sur le point d'atteindre la Formation de l'Âme dans un pays de culture de rang 4, il retourne dans son pays d'origine. À chaque ascension vers ce stade, le trou noir qui apparaît transforme les mortels environnants.
+En réalité, chaque fois qu'un cultivateur est sur le point d'atteindre la Formation de l'Âme dans un pays de culture de rang 4, il choisit sa terre natale. À chaque ascension vers ce stade, le trou noir qui apparaît transforme les mortels environnants.
 
 Ceux qui n'avaient aucune racine spirituelle peuvent alors en acquérir une!
 
@@ -54,7 +54,7 @@ Alors que l'énergie spirituelle affluait massivement dans l'Âme Naissante de W
 
 À cet instant, tous les cultivateurs alentour furent témoins d'une scène inoubliable: une minuscule silhouette, émanant une lumière arc-en-ciel et assise en tailleur, s'élevant lentement dans les airs.
 
-Dès l'apparition de l'Âme Naissante, l'énergie spirituelle environnante se précipita vers elle. Les mains de l'âme commencèrent également à former rapidement divers sceaux.
+Dès l'apparition de l'Âme Naissante, l'énergie spirituelle environnante se précipita vers elle, l'enveloppant comme une illumination soudaine. Les mains de l'âme commencèrent également à former rapidement divers sceaux.
 
 Ce processus dura un long moment...
 
@@ -74,11 +74,11 @@ Son regard semblait surplomber la terre, et quoi qu'elle observât, sa vue resta
 
 L'aspect le plus crucial de la Formation de l'Âme est que l'Âme Naissante devient l'âme originelle. Si l'âme originelle subsiste, alors le corps sera éternel, à l'instar des lois célestes.
 
-À cet instant, grâce à l'immense énergie spirituelle reçue lors de son ascension, l'Âme Naissante de Wang Lin subit une mutation et se transforma en âme originelle.
+À cet instant, grâce à l'immense énergie spirituelle reçue lors de son ascension, l'Âme Naissante de Wang Lin subit une mutation, abandonna sa forme enfantine et se transforma en âme originelle.
 
 Si l'on compare une Âme Naissante à un enfant, l'âme originelle est comparable à un adulte ayant acquis la capacité d'user du pouvoir des cieux. C'est ce qui rend les cultivateurs de la Formation de l'Âme si redoutables.
 
-Grâce à son âme originelle, un cultivateur de la Formation de l'Âme peut insuffler la puissance de son domaine dans ses attaques. L'âme originelle est forgée sur la base de l'Âme Naissante et transcendée par l'énergie spirituelle des cieux.
+Grâce à son âme originelle, un cultivateur de la Formation de l'Âme peut insuffler la puissance de son domaine dans ses attaques. L'âme originelle est forgée sur la base de l'Âme Naissante et nourrie par l'énergie spirituelle des cieux.
 
 C'est cette existence même qui rend les cultivateurs de la Formation de l'Âme bien plus puissants que ceux de l'Âme Naissante, tout comme les cultivateurs de l'Âme Naissante sont bien plus forts que ceux de la Formation du Noyau.
 
@@ -92,15 +92,15 @@ Selon les principes de la culture, nul ne peut recevoir d'aide extérieure pour 
 
 Cependant, atteindre ce stade est si ardu que des pilules capables de défier le ciel, telles que la Pilule d'Établissement des Fondations, furent créées. Aujourd'hui, après tant de temps, très peu de personnes parviennent à l'Établissement des Fondations sans l'aide d'une telle pilule.
 
-Bien que cela contrevienne aux lois célestes, l'union de la culture a décrété que les cieux étant morts, il était naturel de les défier. Avec le passage des âges, les hommes en ont oublié l'importance.
+Bien que cela contrevienne aux lois célestes, l'union de la culture a décrété que les cieux étant morts, il était naturel de les défier. Avec le passage des âges, les hommes n'en ont plus cherché les fondements.
 
 Une fois l'Établissement des Fondations atteint, le corps devient plus apte à absorber l'énergie spirituelle et peut en contenir davantage. Pourtant, un nouveau goulot d'étranglement finit toujours par apparaître.
 
 C'est ainsi qu'apparut le stade de la Formation du Noyau. Son but est de comprimer l'énergie spirituelle dans le corps, encore et encore, jusqu'à ce que l'énergie intangible devienne tangible. Elle passe alors de l'état tangible à l'état liquide, puis enfin de liquide à solide, afin de former le noyau.
 
-Ce processus est extrêmement difficile pour les cultivateurs, bien que non impossible. Un talent exceptionnel facilite grandement la tâche.
+Ce processus est extrêmement difficile pour les cultivateurs, bien que non impossible. Un talent suffisant facilite grandement la tâche.
 
-Le noyau allège la charge du corps et permet une absorption accrue d'énergie spirituelle. À mesure que celle-ci s'accumule, une partie est absorbée par le noyau, le rendant de plus en plus dense. La quantité d'énergie condensée dans un noyau est inimaginable.
+Le noyau allège la charge du corps et permet une absorption accrue d'énergie spirituelle. À mesure que celle-ci s'accumule, toute cette énergie converge vers le noyau, le rendant de plus en plus dense. La quantité d'énergie condensée dans un noyau est inimaginable.
 
 C'est pourquoi les cultivateurs de la Formation du Noyau sont comme des êtres célestes aux yeux de ceux qui sont au stade de l'Établissement des Fondations. Après tout, la réserve d'énergie spirituelle qu'ils possèdent dépasse l'entendement de leurs prédécesseurs.
 

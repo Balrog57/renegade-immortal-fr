@@ -22,7 +22,7 @@ Hu Juan, qui s'était redressée en se mordant la lèvre inférieure, regardait 
 
 Qing Lin esquissa un léger sourire tout en observant attentivement ce couple, ses deux disciples, et dit doucement: « Vous avez travaillé dur durant toutes ces années... »
 
-« Maître! » Le corps de Wang Wei trembla violemment et deux larmes coulèrent de ses yeux. Il avait attendu d'innombrables années le réveil de Qing Lin. Pour que ce moment advienne, il avait vécu pendant des éons dans la Terre des Esprits Démoniaques. Tout cela n'avait qu'un seul but: témoigner sa gratitude à Qing Lin pour l'avoir accepté comme disciple!
+« Maître! » Le corps de Wang Wei trembla violemment et deux larmes coulèrent de ses yeux. Il avait attendu d'innombrables années le réveil de Qing Lin. Pour que ce moment advienne, il avait vécu pendant de longues années dans la Terre des Esprits Démoniaques. Tout cela n'avait qu'un seul but: témoigner sa gratitude à Qing Lin pour l'avoir accepté comme disciple!
 
 Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre raffineur de Qi. C'était son maître qui lui avait offert une nouvelle vie, la chance d'atteindre les sommets de la culture, et une existence empreinte de bonheur.
 
@@ -46,7 +46,7 @@ Sur ces mots, Qing Lin secoua la tête avec bienveillance. Il se leva et posa sa
 
 Soudain, une puissante force de succion émana de la main droite de Qing Lin, et un mince filet d'énergie céleste se détacha de Qing Shuang pour rejoindre sa paume.
 
-Ce n'était qu'une infime quantité, un simple filet. C'était si peu que même le maigre peu d'énergie céleste que Wang Lin possédait autrefois en contenait plusieurs fois davantage. Pourtant, ce filet d'énergie se changea en une lumière dorée éblouissante dans la main de Qing Lin.
+Ce n'était qu'une infime quantité, un simple filet. C'était si peu que même le maigre peu d'énergie céleste que Wang Lin possédait autrefois en contenait des milliers de fois davantage. Pourtant, ce filet d'énergie se changea en une lumière dorée éblouissante dans la main de Qing Lin.
 
 Bien que cette lueur ne s'étendît pas à perte de vue, elle illumina tout le temple. Ce temple à la lumière verte n'était plus vert; il rayonnait d'un éclat doré comme un soleil.
 
@@ -96,7 +96,7 @@ En songeant au bonheur, le regard de Wang Lin s'égara vers l'horizon. Là-bas, 
 
 La personnalité de Qing Shuang était d'une froideur extrême, même envers son père, et elle parlait peu. Elle ne s'exprimait que légèrement avec Hu Juan. Après la reconstruction du royaume, elle avait utilisé son pouvoir pour créer cet iceberg et y vivait en retrait, n'autorisant personne à l'approcher.
 
-Pourtant, Wang Lin voyait clairement Zhou Yi assis au pied de l'iceberg, contemplant la silhouette floue au sommet. Il semblait veiller sur elle, tout comme il avait gardé le cadavre pendant deux mille ans.
+Pourtant, Wang Lin voyait clairement Zhou Yi assis au pied de l'iceberg, contemplant la silhouette floue au sommet. Il semblait veiller sur elle, tout comme il avait gardé le cadavre il y a deux mille ans.
 
 « Le réveil de Qing Shuang n'est peut-être pas un signe de bonheur pour Grand Frère Zhou... » Wang Lin détourna les yeux vers le ciel bleu. Le nouveau Royaume Céleste de la Pluie ne présentait aucune fissure spatiale et était d'une grande stabilité.
 

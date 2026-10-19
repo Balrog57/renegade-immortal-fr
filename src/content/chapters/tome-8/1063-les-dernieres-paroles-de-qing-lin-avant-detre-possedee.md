@@ -12,7 +12,7 @@ Le Maître du Vide fixa Wang Lin. Après avoir été contraint de réprimer sa c
 
 Wang Lin recula rapidement, le regard devenu glacial.
 
-Alors que le Maître du Vide poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, l'Omniscient fut projeté à l'extérieur. Bien qu'il parût pâle, il n'était pas dans un état critique. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea l'Omniscient.
+Alors que le Maître du Vide poursuivait Wang Lin, le brouillard sombre saturé de sorts s'étendit soudainement une fois de plus, et cette fois, l'Omniscient fut projeté à l'extérieur. Bien qu'il parût pâle, il n'avait rien de piteux. Dès qu'il fut expulsé, le brouillard noir se mua en la lumière noire qui avait blessé Wang Wei et chargea l'Omniscient.
 
 Les yeux de l'Omniscient s'illuminèrent. Il s'élança et sa main droite toucha l'espace entre ses sourcils. Un rayon de lumière aux sept couleurs jaillit de son front et percuta la lumière noire.
 
@@ -46,7 +46,7 @@ Des gouttes de sang dégoulinaient de la lame. L'ancien démon afficha une expre
 
 « Foutaises! À l'époque, nous avions convenu que je prendrais le corps et que tu prendrais les souvenirs. Si tu n'avais pas trahi notre accord, ce corps m'aurait appartenu! » rugit Bei Lou en reculant.
 
-L'ancien démon blindé esquissa un sourire moqueur, la lame à la main: « C'est simplement que j'ai été un peu plus rapide. Si j'avais agi plus tard, nos rôles auraient été inversés! » Sur ces mots, il abattit sa lame sur Bei Lou.
+L'ancien démon blindé esquissa un sourire moqueur, la lame à la main: « C'est simplement que j'ai changé d'avis un peu plus vite. Si j'avais agi plus tard, nos rôles auraient été inversés! » Sur ces mots, il abattit sa lame sur Bei Lou.
 
 « Révèle ta forme de démon pour ce démon! »
 
@@ -54,11 +54,11 @@ Une lame d'une taille phénoménale apparut dans le monde, comme si elle pouvait
 
 Un rayon d'énergie tranchante, long de centaines de milliers de pieds, apparut soudainement et balaya impitoyablement Bei Lou, faisant changer radicalement son expression. La lame était si rapide qu'il n'eut pas le temps de l'esquiver avant qu'elle ne l'atteigne.
 
-L'énergie de la lame pénétra le corps de Bei Lou et s'écrasa au sol. Un puissant fracas retentit alors que le sol s'effondrait, créant un ravin d'une profondeur inconnue.
+L'énergie de la lame pénétra le corps de Bei Lou et s'écrasa au sol. Un puissant fracas retentit alors que le sol s'effondrait, créant un ravin de cent mille pieds de long et d'une profondeur inconnue.
 
 Le corps de Bei Lou fut tranché en deux et s'effondra en un amas de chair et de sang. Cependant, alors que son corps se désagrégeait, une lumière démoniaque verte jaillit dans les airs et se mua instantanément en un ancien démon de mille pieds de haut!
 
-C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il recula à une vitesse fulgurante. L'ancien démon laissa échapper un reniflement froid et le poursuivit de sa lame. Quant aux autres, il ne les considérait nullement comme des menaces. Hormis l'ancien démon, la seule autre présence méritant son attention était cette dégoûtante aura d'ancien dieu qu'il avait ressentie lors de son apparition.
+C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il recula à une vitesse fulgurante. L'ancien démon laissa échapper un reniflement froid et le poursuivit de sa lame. Quant aux autres, il ne les considérait nullement comme des menaces. Hormis Bei Lou, la seule autre présence méritant son attention était cette dégoûtante aura d'ancien dieu qu'il avait ressentie lors de son apparition.
 
 Tout en poursuivant Bei Lou, l'ancien démon lança un regard glacial à Wang Lin, au loin.
 

@@ -40,7 +40,7 @@ Un croissant de lune gigantesque apparut dans le ciel. Une lueur lunaire sans fi
 
 Un vieil homme du Clan de la Lune siégeait sur chacune des centaines de planètes de culture du domaine stellaire. Chacun d'eux déployait sa pleine puissance pour permettre à la lumière lunaire d'atteindre son apogée!
 
-Pour le Clan de la Lune, les anciens dieux morts ne valaient pas un ancien dieu vivant, et encore moins un ancien dieu royal. Cela représentait une tentation fulgurante!
+Pour le Clan de la Lune, les anciens dieux morts ne valaient pas un ancien dieu vivant, et a fortiori un ancien dieu royal vivant. Cela représentait une tentation fulgurante!
 
 S'ils pouvaient sceller un ancien dieu royal vivant pour en faire leur esclave, l'idée seule suffisait à faire trembler l'âme originelle de n'importe quel membre du Clan de la Lune d'excitation et à provoquer un rugissement.
 
@@ -48,7 +48,7 @@ Une fois qu'ils auraient réussi, le Clan de la Lune pourrait renaître de ses c
 
 Pour attendre ce jour, le Clan de la Lune s'était préparé depuis d'innombrables dizaines de milliers d'années, afin qu'un jour, il puisse sceller un ancien dieu vivant!
 
-Lorsque Tuo Sen était arrivé des années auparavant, bien qu'ils aient ressenti de la peur, ils étaient aussi empreints d'excitation. Ils avaient préparé la formation laissée par leur ancêtre et attendu l'arrivée de Tuo Sen.
+Lorsque Tuo Sen était arrivé des années auparavant, bien qu'ils aient ressenti de la peur, ils étaient aussi empreints d'excitation. Ils avaient activé la formation laissée par leur ancêtre et attendu l'arrivée de Tuo Sen.
 
 À l'origine, selon leurs connaissances, en tant qu'ancien dieu, Tuo Sen chercherait certainement le Clan de la Lune. Cependant, ils avaient attendu plus de dix ans sans que Tuo Sen ne vienne!
 
@@ -82,7 +82,7 @@ S'il ne s'était agi que d'épées de lumière lunaire ordinaires, Wang Lin aura
 
 Tuo Sen subissait le même sort. Alors qu'il rugissait, son poing percuta la tempête. Celle-ci se brisa en d'innombrables épées qui transpercèrent son corps, laissant de multiples marques sanglantes!
 
-« Esclaves impies, osez-vous blesser ce dieu? Maintenant, mourez!! » Tuo Sen était hors de lui. Lorsqu'il combattait Wang Lin, il le considérait au moins comme un membre de son clan. Cependant, ces anciens esclaves n'étaient que des fourmis à ses yeux. Et ces fourmis avaient osé l'offenser; comment ne pouvait-il être furieux?
+« Esclaves insolents, osez-vous blesser ce dieu? Maintenant, mourez!! » Tuo Sen était hors de lui. Lorsqu'il combattait Wang Lin, il le considérait au moins comme un membre de son clan. Cependant, ces anciens esclaves n'étaient que des fourmis à ses yeux. Et ces fourmis avaient osé l'offenser; comment ne pouvait-il être furieux?
 
 Dans sa rage, Tuo Sen sembla perdre la raison, déchaînant une destruction massive dans ce monde de lumière lunaire. Pourtant, plus il détruisait, plus la soie se reformait. En un clin d'œil, le monde devint flou, totalement enveloppé par les fils de soie.
 

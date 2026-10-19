@@ -16,7 +16,7 @@ Le combat entre cultivateurs du troisième niveau pouvait provoquer l'effondreme
 
 Tuo Sen laissa échapper un grognement étouffé, ses yeux brillant d'une pointe de folie. Les trois cultivateurs qui le traquaient ne s'étaient jamais séparés. Durant les dix années de leur poursuite, ils n'avaient jamais rompu leur formation pour lui laisser une chance de les éliminer un par un!
 
-Cependant, afin de capturer Wang Lin au plus vite et de ne pas être entravé par ce trio, il laissa éclater sa démence.
+Cependant, afin de rattraper Wang Lin au plus vite et de ne pas être entravé par ce trio, il laissa éclater sa démence.
 
 « Ce Dieu a tué plusieurs cultivateurs du troisième niveau au cours de sa vie. Vous m'avez pourchassé pendant dix ans... Pensez-vous vraiment que ce Dieu ne peut pas vous gérer tous les trois?! Étoile, brise-toi!! » Les étoiles entre ses sourcils brillèrent et l'une d'elles s'en détacha. Elle dégageait une lumière éblouissante dotée d'une force de pénétration phénoménale. Même Wang Lin, qui avait fusionné avec le monde et se trouvait à distance, ressentit cette puissance indescriptible de l'Ancien Dieu!
 
@@ -26,7 +26,7 @@ L'étoile de l'Ancien Dieu brilla intensément et, dans cet éclat, le rugisseme
 
 Il n'hésita pas à briser une étoile pour empêcher les trois cultivateurs du troisième niveau de ralentir sa course. Cela témoignait de sa détermination farouche à dévorer Wang Lin!
 
-L'étoile de l'Ancien Dieu dégaga une désolation infinie et explosa avec la puissance de celles qui détruisent le monde. L'explosion s'étendit jusqu'à former une tempête balayant les environs.
+L'étoile de l'Ancien Dieu dégaga une désolation infinie et explosa avec la puissance de celles qui détruisent le monde. L'explosion s'étendit jusqu'à former une tempête tourbillonnante balayant les environs.
 
 Boum, boum, boum, boum!
 
@@ -34,7 +34,7 @@ Ce grondement assourdissant donnait l'impression que le monde allait s'effondrer
 
 D'innombrables planètes de culture, d'innombrables cultivateurs et d'innombrables créatures furent réduits en cendres!
 
-Une petite partie du Système Stellaire Antique trembla sous la force destructrice de cette explosion folle. Les retombées se transformèrent en une onde de choc qui continua de se propager.
+Presque la moitié du Système Stellaire Antique trembla sous la force destructrice de cette explosion folle. Les retombées se transformèrent en une onde de choc qui continua de se propager.
 
 Face à cette puissance colossale, les trois cultivateurs du troisième niveau libérèrent toute leur énergie. Ils utilisèrent leurs trésors et leurs sorts, mais furent tout de même repoussés et dispersés par la déflagration!
 
@@ -56,7 +56,7 @@ Elle s'apprêtait à lancer un sort lorsque le coup de poing de Tuo Sen la percu
 
 Tout cela se produisit en un éclair. Après avoir emprisonné cette femme, Tuo Sen déchira l'espace et disparut.
 
-« Ce Dieu possède encore quelques étoiles qui n'ont pas été brisées. Je vous attendrai pour que vous me rejoigniez tous les deux! » Bien que Tuo Sen fût parti, sa voix lugubre résonnait encore à travers les étoiles.
+« Ce Dieu possède encore quelques étoiles qui n'ont pas été brisées. Je vous attends, venez donc me poursuivre tous les deux! » Bien que Tuo Sen fût parti, sa voix lugubre résonnait encore à travers les étoiles.
 
 Le vieil homme du Vide Spirituel regarda Maître Simo. Un étrange sourire apparut au coin de leurs lèvres, teinté d'une pointe d'envie. Puis, ils se transformèrent en deux rayons de lumière et s'éloignèrent rapidement.
 
@@ -82,17 +82,17 @@ Cette femme dégageait une aura éthérée, comme si elle n'était pas censée a
 
 Le vieil homme au stade du Vide Spirituel regarda la lumière blanche, les yeux brillants. Les deux hommes restèrent silencieux avant de disparaître parmi les étoiles.
 
-Il semblait que la femme en blanc était la seule chose qui subsistait dans ce monde. Une rivière d'étoiles semblait se former sous ses pas alors qu'elle marchait vers la zone où Tuo Sen poursuivait sa proie.
+Il semblait que la femme en blanc était la seule chose qui subsistait dans ce monde. Une rivière d'étoiles semblait se dissiper sous ses pas alors qu'elle marchait vers la zone où Tuo Sen poursuivait sa proie.
 
 Wang Lin continuait de progresser vers le Clan de la Lune, utilisant la Déformation Spatiale en s'appuyant sur les souvenirs de l'emplacement du clan. Son expression était sombre; les fluctuations de l'aura de l'Ancien Dieu lui avaient laissé quelques spéculations.
 
-Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Déformation Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une lumière lunaire éblouissante. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
+Cependant, ce n'était pas le moment de trop réfléchir. Après avoir utilisé la Déformation Spatiale à plusieurs reprises, il atteignit un domaine stellaire baigné d'une douce lumière lunaire. La lueur provenait des planètes environnantes et se répandait dans le vide, créant un spectacle d'une beauté extrême, semblable à un royaume onirique.
 
 « C'est ici! » Un éclat de froideur passa dans les yeux de Wang Lin. Le Clan de la Lune était là!
 
 À cet instant précis, un rugissement tonitruant retentit derrière lui. Sans se retourner, Wang Lin chargea en avant et déploya son Sens Divin. Rapidement, il identifia une zone saturée d'aura d'Ancien Dieu!
 
-« Un appât pour m'attirer? » Wang Lin ricana. Simultanément, le bruit sourd de l'espace se déchirant résonna comme un fou dans ce champ stellaire baigné de clair de lune.
+« Un appât pour m'attirer? » Wang Lin ricana. Simultanément, le bruit sourd de l'espace se déchirant retentit avec fracas dans ce champ stellaire baigné de clair de lune.
 
 Une fissure spatiale s'ouvrit et Tuo Sen en sortit, épuisé.
 

@@ -50,7 +50,7 @@ C'est à ce moment précis qu'une des runes de sang dans le ciel descendit brusq
 
 Alors que les runes continuaient de pleuvoir, presque chaque centimètre du corps de Liu Mei fut recouvert de ces marques. Les yeux de l'ancêtre de la famille Huan se plissèrent et il fit un pas en avant. Il arriva devant elle et leva la main droite. Une lumière mystérieuse apparut dans sa paume, changeant des dizaines de milliers de fois. Quiconque la contemplerait verrait instantanément toutes les possibilités de son existence, de sa naissance à sa mort. Toutes les maladies, tous les amours et toutes les haines d'une vie entière étaient contenus dans cette illusion.
 
-C’était le Dao de l'ancêtre de la famille Huan: le Dao de l'Identité Sans Forme des Dix Mille Illusions!
+C’était le Dao de l'ancêtre de la famille Huan: le Dao de l'Absence de Forme des Dix Mille Illusions!
 
 Il pressa sa paume contre le front de Liu Mei. Le puissant Dao de l'ancêtre pénétra directement l'âme originelle de Liu Mei. Simultanément, son propre esprit céleste se déversa en elle sans retenue pour l'aider à élever son niveau de culture.
 

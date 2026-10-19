@@ -10,7 +10,7 @@ Wang Lin dit calmement: « Quatrième Sœur, je vous en prie, entrez. »
 
 Une respiration lourde se faisait entendre à l'extérieur du pavillon et, après un long moment, la porte fut poussée. Une belle femme vêtue de violet entra, mordant sa lèvre inférieure.
 
-Bien que l'apparence de cette femme ne fût pas aussi éblouissante que celle de Liu Mei, elle demeurait magnifique. Cependant, les traces du passage du temps marquaient son visage, lui donnant un air légèrement vieilli.
+Bien que l'apparence de cette femme ne fût pas aussi éblouissante que celles de Liu Mei et de Hongdie, elle demeurait magnifique. Cependant, les traces du passage du temps marquaient son visage, lui donnant un air légèrement vieilli.
 
 Une fois entrée dans la pièce, elle s'assit silencieusement sur une chaise. Elle ne regarda pas Wang Lin; ses yeux vides fixaient l'espace vide devant elle.
 
@@ -35,7 +35,7 @@ La femme en violet ouvrit la bouche comme pour parler, mais finit par garder le 
 
 Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la femme en violet vers lui et dit calmement: « Que veut dire Senior Sœur par là? »
 
-La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours des derniers siècles! »
+La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours de ces cent dernières années! »
 
 « Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, hormis Maître, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
 
@@ -53,7 +53,7 @@ Sans attendre la suite, Wang Lin secoua la tête et dit: « N'as-tu pas peur que
 
 Wang Lin réfléchit un instant, puis regarda Zhao Xinmeng: « Est-ce pour cela que tu portes six sceaux dans ton corps? »
 
-Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa poindre une trace d'amertume: « Que puis-je faire d'autre? Une partie de mon âme est entre les mains de Maître, je ne peux tout simplement pas partir. Même si je tentais de m'enfuir, il lui suffirait d'une pensée pour me détruire totalement. »
+Zhao Xinmeng ne fut pas choquée par la clairvoyance de Wang Lin. Elle laissa poindre une trace d'amertume: « Que puis-je faire d'autre? Mon âme de vie est entre les mains de Maître, je ne peux tout simplement pas partir. Même si je tentais de m'enfuir, il lui suffirait d'une pensée pour me détruire totalement. »
 
 « Beaucoup de gens scellent leur culture comme moi. Parmi eux, Sun Hong, de la Division Rouge, possède le niveau le plus élevé. Elle porte onze sceaux sur son corps, ce qui la force à rester au stade intermédiaire de l'Ascendant. Elle a même altéré sa propre compréhension pour qu'elle ne corresponde pas à son véritable niveau de culture. Si elle levait les sceaux, elle pourrait rapidement atteindre le début du stade Scruteur du Nirvana. »
 

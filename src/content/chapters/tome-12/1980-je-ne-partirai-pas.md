@@ -8,7 +8,7 @@ slug: je-ne-partirai-pas
 ---
 Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure d'âme. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois immenses vortex derrière lui!
 
-Toute cette force convergea vers son doigt. Grâce à la formation créée par la lumière dorée et le fragment d'épée, Wang Lin pouvait exploiter la puissance de son avatar dans le vide jusqu'à son paroxysme.
+Toute cette force convergea vers son doigt. Grâce à la formation créée par la lumière dorée et les fragments de la Lame Yin, Wang Lin pouvait exploiter la puissance de son avatar dans le vide jusqu'à son paroxysme.
 
 Wang Lin voulait utiliser cela pour anéantir l'être tapi derrière ce doigt. Wang Lin avait toujours été ainsi: si quelqu'un tentait de le tuer, il le tuerait en retour!
 
@@ -94,7 +94,7 @@ Cependant, sept déchirures marquaient les vêtements de Wang Lin. Sept fragment
 
 Le sang coula de sa bouche alors qu'il reculait de quelques pas en titubant. Sa main droite se serra en un poing et il frappa la bordure de la rue scellée. À l'impact, le vide entourant la rue commença à se distordre.
 
-Un bouclier en forme d'anneau apparut tel une coupe et enveloppa la rue. Juste avant que les ondulations ne disparaissent, Wang Lin vit des dizaines de milliers de cultivateurs vêtus de noir assis en rangs à l'extérieur de la rue.
+Un bouclier en forme d'anneau apparut tel un bol renversé et enveloppa la rue. Juste avant que les ondulations ne disparaissent, Wang Lin vit des dizaines de milliers de cultivateurs vêtus de noir assis en rangs à l'extérieur de la rue.
 
 Ces cultivateurs noirs semblaient reliés entre eux par une force commune. C'étaient eux qui avaient scellé cet endroit avec cette puissance étrange.
 
@@ -112,8 +112,8 @@ Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il obser
 
 « Puisque vous ne voulez pas que je parte, alors je ne partirai pas aujourd'hui! La meilleure façon de briser ce piège mortel est de tous vous massacrer. Ce piège se rompra une fois que je l'aurai fait. » Les cheveux blancs de Wang Lin commencèrent à s'allonger et leurs racines devinrent noires, comme si sa chevelure entière allait virer au noir!
 
-Ses yeux révélaient une cruauté nichée dans la sérénité. C'était une indifférence totale envers le monde, dépourvue de toute émotion. À cet instant, Wang Lin était tel un bloc de glace éternelle!
+Ses yeux révélaient une froideur sans pitié nichée dans la sérénité. C'était une indifférence totale envers le monde, dépourvue de toute émotion. À cet instant, Wang Lin était tel un bloc de glace éternelle!
 
-« Je ne voulais pas que le massacre s'abatte, mais maintenant, vous tous... vous devez subir mon carnage! » Wang Lin ferma les yeux. C'était comme si une divinité de la guerre avait descendu sur terre. Pour la première fois, son avatar du Tonnerre du Massacre prit le contrôle!
+« Je ne voulais pas que le massacre s'abatte, mais maintenant, vous tous... vous devez subir mon carnage! » Wang Lin ferma les yeux. C'était comme si une divinité de la guerre avait descendu sur terre. Pour la première fois, son essence du Tonnerre du Massacre prit le contrôle!
 
-C'était également la première fois que Wang Lin libérait l'essence de la restriction et l'essence de l'Absolu Originel. Cela permit aux essences du massacre et de la fin absolue d'éclater avec une violence inouïe!
+C'était également la première fois que Wang Lin libérait l'essence de la restriction et l'essence du commencement absolu. Cela permit aux essences du massacre et de la fin absolue d'éclater avec une violence inouïe!

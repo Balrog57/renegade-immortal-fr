@@ -58,7 +58,7 @@ Les yeux de Wang Lin brillèrent et il toucha l'espace entre ses sourcils de sa 
 
 Hormis l'unique fil qu'il conservait dans son âme originelle, tous les autres avaient été condensés au bout du doigt de Wang Lin en une seule fibre. Ce filament dense d'énergie de massacre jaillit après avoir été projeté par un coup sec de Wang Lin.
 
-« L'Esprit d'Épée Brisée de Ling Tianhou et l'Art Céleste du Massacre de l'Omniscient! » Les yeux de Cupidité brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
+« L'Esprit d'Épée Brisée de Ling Tianhou et l'Art du Massacre Céleste de l'Omniscient! » Les yeux de Cupidité brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
 
 Cupidité frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre environ 330 mètres de haut et flotta dans les airs.
 

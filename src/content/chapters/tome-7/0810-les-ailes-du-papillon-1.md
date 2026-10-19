@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 810 - Wings of the Butterfly (1)
 slug: les-ailes-du-papillon-1
 ---
-Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, animés d'un éclat démoniaque. Ses lèvres étaient fines et il dégageait une aura austère. Ses cheveux ébouriffés lui donnaient l'apparence d'un démon parmi les êtres célestes.
+Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, mais d'un éclat éblouissant. Ses lèvres étaient fines et il avait un air légèrement cruel. Ses cheveux ébouriffés lui donnaient l'apparence d'un démon parmi les êtres célestes.
 
 Il sortit de la porte de l'autel et s'éleva dans les airs. Sa silhouette n'était pas encore tout à fait solidifiée; si on le regardait, on pouvait encore distinguer l'autel derrière lui.
 
-Wang Lin flottait dans les airs, et derrière lui se trouvait le papillon apparu après l'activation du Char de Guerre Anti-Dieu. Le papillon battait doucement des ailes pour maintenir sa suspension.
+Wang Lin flottait dans les airs, et à ses côtés se trouvait le papillon apparu après l'activation du Char de Guerre Anti-Dieu. Le papillon battait doucement des ailes pour maintenir sa suspension.
 
 Les membres du Clan des Immortels Élus, empreints de prudence, reculèrent tout en fixant l'homme d'âge moyen. Les yeux de Ta Shan étaient glacials lorsqu'il fit un pas en avant et cria: « Qui est cet homme?! »
 
@@ -68,7 +68,7 @@ Il n'y avait aucun doute sur l'identité de cet individu. « Dès que vous les r
 
 Le vieil homme n'avait pas compris auparavant; il avait confondu cette excitation et ce respect avec de la loyauté. Mais face à l'être céleste, la vérité s'imposa à lui.
 
-« Je ne peux m'empêcher d'être ému... Je ne peux m'empêcher d'être respectueux... » Le vieil homme esquissa un sourire pitoyable et s'agenouilla au sol en murmurant: « Cet humble serviteur salue l'Être Céleste Supérieur. »
+« Je ne peux m'empêcher d'être ému... Je ne peux m'empêcher d'être respectueux... » Le vieil homme esquissa un sourire pitoyable et s'agenouilla au sol en murmurant: « Cet humble serviteur salue le Haut Céleste. »
 
 Il n'était pas le seul à s'agenouiller. Les cœurs des autres membres du Clan des Immortels Élus tremblèrent sous le regard de l'homme d'âge moyen. Une force intérieure les obligeait à la soumission. Même s'ils devaient mourir, même si leurs âmes se brisaient, ils étaient condamnés à céder!
 
@@ -88,7 +88,7 @@ Wang Lin fronça les sourcils en observant la scène. Il put en tirer de nombreu
 
 À cet instant, il comprenait tout.
 
-« L'empreinte est fusionnée avec les tatouages des membres du Clan des Immortels Élus. Elle est extrêmement tyrannique et bien plus puissante que celle utilisée sur la famille de Li Yuan. Après tout, celle de Li Yuan ne forçait sa lignée qu'à servir un seul être céleste. »
+« L'empreinte est fusionnée avec les tatouages des membres du Clan des Immortels Élus. Elle est extrêmement tyrannique et bien plus puissante que celle utilisée sur la famille de Li Yuan. Après tout, celle de Li Yuan ne faisait éprouver de la vénération qu'envers un seul être céleste. »
 
 « Mais cette empreinte est différente. Il est fort probable qu'elle les force à s'agenouiller devant tous les êtres célestes. Ce n'est plus de la manipulation, c'est un asservissement total. Cela fait du clan entier une propriété des êtres célestes! »
 
@@ -116,7 +116,7 @@ Les yeux de l'homme s'illuminèrent, mais il ne chercha pas à provoquer Wang Li
 
 Dès l'apparition des bêtes de brouillard, les expressions des membres du Clan des Immortels Élus changèrent. Toutefois, la force de l'empreinte d'esclave les empêchait de se relever. C'était un instinct auquel ils ne pouvaient opposer aucune résistance.
 
-Les créatures de brume prirent forme et ouvrirent brusquement leurs yeux. Leurs regards froids brillèrent intensément alors que l'homme en bleu pointait le sol du doigt.
+Les créatures de brume prirent forme et ouvrirent brusquement leurs yeux, tandis que de stridents cris retentissaient. Leurs regards froids brillèrent intensément alors que l'homme en bleu pointait le sol du doigt.
 
 Ces bêtes de brouillard s'élancèrent avec rapidité vers la terre.
 

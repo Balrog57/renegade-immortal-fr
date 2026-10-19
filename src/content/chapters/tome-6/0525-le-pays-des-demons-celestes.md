@@ -68,7 +68,7 @@ Ouyang Hua ne s'arrêta pas et, passant devant le feu, il s'engagea dans les pro
 
 Lorsqu'une femme tenta de s'écarter, elle ne serra pas assez son enfant et celui-ci tomba. Elle voulut le ramasser, mais son visage pâlit en voyant que Wang Lin était déjà là. Quant à l'enfant, il se redressa seul; semblant ignorer l'angoisse de sa mère, il observa Wang Lin avec curiosité.
 
-En passant devant lui, Wang Lin s'arrêta un instant et baissa la tête pour le contempler. L'enfant paraissait robuste et honnête. En le voyant, Wang Lin ne put s'empêcher de penser à l'enfance de Da Niu. Un sourire apparut sur ses lèvres tandis qu'il frottait la tête de l'enfant avant de poursuivre sa route.
+En passant devant lui, Wang Lin s'arrêta un instant et baissa la tête pour le contempler. L'enfant paraissait robuste et vif. En le voyant, Wang Lin ne put s'empêcher de penser à l'enfance de Da Niu. Un sourire apparut sur ses lèvres tandis qu'il frottait la tête de l'enfant avant de poursuivre sa route.
 
 Une fois Wang Lin passé, la mère se précipita pour saisir son fils et recula précipitamment, tandis que des voix de réprimandes s'élevaient au loin. Ce n'est que bien après le départ de Wang Lin que la chaleur revint autour du feu.
 

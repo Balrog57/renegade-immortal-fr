@@ -52,9 +52,9 @@ Soudain, l'Esprit de la Terre poussa un cri déchirant alors qu'une nouvelle vag
 
 Wang Lin soupira intérieurement. Il pointa la main vers le ciel et le sceau noir tomba des hauteurs. L'intention de tuer, mêlée aux fragments d'âmes, descendit tel un effondrement céleste.
 
-Le visage de l'Esprit de la Terre devint soudainement très grave alors que son corps se muait en boue noire. Il tenta de s'enrouler autour du sceau noir.
+Le visage de l'Esprit de la Terre se crispa soudain, féroce, alors que son corps se muait en boue noire. Il tenta de s'enrouler autour du sceau noir.
 
-À cet instant, le jeune homme ouvrit les yeux, révélant une lueur mystérieuse. Sa main bougea à nouveau, faisant disparaître une grande partie de la boue noire produite par l'Esprit de la Terre.
+À cet instant, le jeune homme ouvrit les yeux, révélant une lueur mystérieuse. Sa main bougea à nouveau, faisant disparaître une grande partie de la boue noire produite par l'Esprit de la Terre, dont l'élan s'en trouva un instant freiné.
 
 La pression du sceau noir s'abattit sur l'Esprit de la Terre, le faisant hurler de douleur tandis qu'il reprenait sa forme humaine. Cependant, l'Esprit de la Terre n'était plus que semi-transparent; il semblait sur le point de se dissiper au moindre souffle de vent.
 
@@ -84,7 +84,7 @@ Les sculptures commencèrent à briller alors qu'elles s'élançaient soudaineme
 
 Peu après, une puissante aura bleu foncé émana de la faille centrale. Dès son apparition, elle se propagea rapidement, enveloppant un périmètre de 5 000 kilomètres.
 
-Certains cultivateurs de l'Alliance des Quatre Sectes ne purent esquiver assez vite et furent frappés par cette aura bleutée. Ils se figèrent instantanément, se transformant en sculptures de glace. Même leurs Âmes Naissantes furent totalement pétrifiées sur place.
+Certains cultivateurs de l'Alliance des Quatre Sectes ne purent esquiver assez vite et furent frappés par cette aura bleutée. Ils se figèrent instantanément, se transformant en sculptures de glace qui chutèrent du ciel. Même leurs Âmes Naissantes furent totalement pétrifiées sur place.
 
 Cette scène bizarre provoqua la stupéfaction des cultivateurs environnants.
 
@@ -102,16 +102,16 @@ Bien qu'il eût déjà informé Zhou Wutai de la situation, il n'appartenait pas
 
 Wang Lin courut jusqu'à ce que l'aura bleue cesse de se propager, puis s'arrêta et contempla le ciel d'un visage sombre.
 
-À cet instant, Zhou Wutai, qui se tenait au-dessus de la tête du dragon, laissa échapper un reniflement glacial. Soudain, le dragon noir sous lui s'élança dans les airs. Il ouvrit une gueule capable d'engloutir les cieux et chargea vers la créature descendante.
+À cet instant, Zhou Wutai, qui se tenait au-dessus de la tête du dragon, laissa échapper un reniflement glacial. Soudain, le dragon azur sous lui s'élança dans les airs. Il ouvrit une gueule capable d'engloutir les cieux et chargea vers la créature descendante.
 
-L'aura bleu foncé n'eut aucun effet sur le dragon noir.
+L'aura bleu foncé n'eut aucun effet sur le dragon azur.
 
-Cependant, alors que le dragon noir fonçait sur la créature, une voix froide résonna de l'intérieur de la faille: « Noble messager, Suzaku a promis de nous aider une fois; je vous demande donc maintenant de tuer ce dragon noir. »
+Cependant, alors que le dragon azur fonçait sur la créature, une voix froide résonna de l'intérieur de la faille: « Noble messager, Suzaku a promis de m'aider une fois; je vous demande donc maintenant de tuer ce dragon azur. »
 
 Tandis que ces paroles s'élevaient, une femme en robe blanche, aux longs cheveux noirs, émergea de la faille. Cette femme était d'une grande grâce. Il ne semblait même pas émaner de froid de son corps, mais ses yeux révélaient une détermination sans faille.
 
-Dès l'apparition de cette femme, n'importe quel imbécile aurait pu constater la différence abyssale entre elle et la femme précédente. C'était comme comparer la lune éclatante à une luciole.
+Dès l'apparition de cette femme, n'importe quel imbécile aurait pu constater la différence abyssale entre elle et la femme précédente, celle que l'Alliance des Quatre Sectes avait tuée. C'était comme comparer la lune éclatante à une luciole.
 
-Une fois apparue, elle agita la main et quatre rayons de lumière volèrent vers elle depuis quatre directions distinctes. Il s'agissait des esprits élémentaires du métal, du bois, de l'eau et du feu.
+Une fois apparue, elle agita la main et quatre rayons de lumière volèrent vers elle depuis les quatre points cardinaux. Il s'agissait des esprits élémentaires du métal, du bois, de l'eau et du feu.
 
 Le front de la femme se plissa. « Il en manque un? »

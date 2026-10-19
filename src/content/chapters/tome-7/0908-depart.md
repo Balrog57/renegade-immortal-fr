@@ -82,9 +82,9 @@ Cette aura était imprégnée d'une odeur de sang qui se propagea pour former un
 
 Dans ce rugissement, une voix froide et impitoyable s'éleva:
 
-« Domaine de Massacre de l'Alliance de Culture, Yu Fei, venu réclamer votre tête! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
+« Domaine de la Boucherie de l'Alliance de Culture, Yu Fei, venu réclamer votre tête, Xu Mu! » Au moment où cette voix résonna, le rocher sous lui accéléra encore. Il allait si vite que des flammes rouges apparurent sur la pierre à cause de la friction, fonçant droit sur Lei Ji.
 
-L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Sa main traça un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
+L'expression de Lei Ji devint paniquée et il s'apprêta à esquiver. À cet instant, le garçon à grosse tête regarda Wang Lin, serra les dents et s'avança. Ses deux mains tracèrent un sceau et l'énergie d'origine céleste jaillit. Cette énergie forma une tempête autour de son corps et, bientôt, un sortilège céleste apparut.
 
 Le garçon à grosse tête cria en projetant ses mains en avant. L'énergie d'origine céleste se transforma en fils qui s'approchèrent du grand rocher comme un filet fin.
 
@@ -98,7 +98,7 @@ Une fois l'avatar apparu, il balaya l'air de la main et sept rayons de lumière 
 
 Les deux lancèrent des sorts à une cadence effrénée, provoquant des explosions qui résonnaient parmi les étoiles. Aucun ne parvenait à l'emporter dans un délai raisonnable.
 
-« Cet avatar est au début du stade Scruteur du Nirvana! Le corps original est au milieu du stade Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors que le rocher se rapprochait. Lei Ji poussa un rugissement continu. Dans l'ombre derrière Wang Lin, Ta Shan surgit et lança un coup de poing dévastateur.
+« Cet avatar est au début du stade Scruteur du Nirvana! Le corps original est au milieu du stade Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors que le rocher se rapprochait. Lei Ji poussa un rugissement continu tout en reculant. Dans l'ombre derrière Wang Lin, Ta Shan surgit et lança un coup de poing dévastateur.
 
 À l'apparition de Ta Shan, l'expression de l'homme en robe rouge ne changea pas d'un iota. La deuxième épée volante explosa pour former un second avatar, entouré de sept rayons de lumière sanguine, qui chargea directement Ta Shan.
 

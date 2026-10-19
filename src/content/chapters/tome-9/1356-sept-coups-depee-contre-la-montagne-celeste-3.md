@@ -18,11 +18,11 @@ Jeunes et vieux, hommes et femmes, tous sortirent et s'assirent. Ils ne pouvaien
 
 Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respectives. Ils fixèrent le ciel avec détermination avant de s'asseoir, libérant une volonté plus puissante encore!
 
-« Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux, alors nous allons le détruire et devenir nous-mêmes des êtres célestes! »
+« Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux et impitoyable, alors nous allons le détruire et devenir nous-mêmes des êtres célestes! »
 
 D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Daoïste Esprit Dispersé pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
 
-« Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Foudre Spirituelle! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
+« Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Tonnerre Spirituel! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
 
 Les pensées de chaque être vivant affluèrent dans leurs esprits et convergèrent pour former une tempête indescriptible!
 
@@ -44,7 +44,7 @@ Tout cela semble lent, mais cela se produisit en un instant. À l'instant même 
 
 Un grondement tonnerre résonna, ébranlant le monde entier. La tempête commença à trembler et des rugissements empreints de résistance en jaillirent. C'étaient les cris d'innombrables cultivateurs et de millions de mortels. Ces rugissements fusionnèrent pour former un son capable de défier le ciel lui-même!
 
-Wang Lin resta stupéfait devant ce spectacle, son esprit tremblant sous l'effet du rugissement. Son âme sembla entrer en résonance avec ce cri, et il eut la sensation d'être baptisé. La confirmation de son propre Dao devint plus limpide.
+Wang Lin resta stupéfait devant ce spectacle, son esprit tremblant sous l'effet du rugissement. Son âme sembla entrer en résonance avec ce cri, et il eut la sensation d'être purifié. La confirmation de son propre Dao devint plus limpide.
 
 L'éclair éternel ne brisa pas la tempête dès le premier assaut, et celle-ci devint plus forte encore. Le rugissement de millions de personnes éclata simultanément!
 
@@ -78,7 +78,7 @@ Une épée cristalline commença à se condenser au cœur de cette tempête. Dè
 
 Cette épée mesurait sept pieds de long pour trois pouces de large. Elle était radieuse et dégageait une lueur éblouissante!
 
-« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée et porte sept coups pour terrasser le Grand Ancien. C'est là que résident mes 70 % de certitude! »
+« Cher compagnon cultivateur, ce vieil homme a utilisé les vies des 7 Millions de Mondes et le monde lui-même pour créer cette formation. Elle scellera ce monde tout en condensant cette épée qui tranche le ciel. Prends cette épée, c'est comme tenir mes 7 Millions de Mondes, et porte sept coups pour terrasser le Grand Ancien. C'est là que résident mes 70 % de certitude! »
 
 L'épée de sept pieds brilla et vola vers Wang Lin. Ce dernier leva la main et l'épée vint se loger dans sa paume. En la tenant, Wang Lin sentit clairement la folie inimaginable qui l'habitait!
 

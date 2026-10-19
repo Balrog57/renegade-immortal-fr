@@ -66,7 +66,7 @@ Le petit cultivateur voulut lancer un regard noir à Wang Lin, mais voyant que s
 
 Même Xu Tao trouva les paroles de Wang Lin excessives. Il devint plus prudent encore, craignant que le cultivateur aux grandes oreilles n'entre dans une rage noire.
 
-À sa grande surprise, après avoir fini de méditer, le cultivateur aux grandes oreilles ne se mit pas en colère; il afficha au contraire un sourire amer.
+À sa grande surprise, après un bref silence, le cultivateur aux grandes oreilles ne se mit pas en colère; il afficha au contraire un sourire amer.
 
 Avec son niveau de culture, le petit cultivateur était incapable de percevoir la lutte sous-jacente entre Zhou Wutai et Wang Lin. Quant à Xu Tao, n'étant qu'un mortel, il était impuissant à ressentir la dangerosité de cet échange.
 

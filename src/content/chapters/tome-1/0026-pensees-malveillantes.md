@@ -42,7 +42,7 @@ Choqué, le jeune Liu se mit aussitôt à se débattre avec acharnement. Le fron
 
 C'était la première fois que Wang Lin utilisait cette méthode sur un être humain. De toute évidence, il ne la maîtrisait pas encore assez bien; de plus, les mouvements convulsifs de sa cible rendaient le contrôle extrêmement difficile. Le corps de Wang Lin tremblait. Voyant que Zhang Hu n'était plus en danger immédiat, il se détendit légèrement, ce qui provoqua un relâchement de la Force d'Attraction.
 
-En voyant que Liu allait réussir à se libérer, l'expression de Zhang Hu changea étrangement. Il regarda Wang Lin, puis le frère Liu. Son visage se mua en une grimace impitoyable. Il saisit une hachette de bûcheron et s'avança vers lui.
+En voyant que Liu allait réussir à se libérer, l'expression de Zhang Hu changea étrangement. Il regarda Wang Lin, puis le frère Liu. Son visage se mua en une grimace impitoyable. Il saisit une hachette de bûcheron et s'avança vers le frère Liu.
 
 Le visage du frère Liu fut envahi par la terreur tandis qu'il se débattait avec encore plus de ferveur. Zhang Hu serra les dents et murmura pour lui-même: « Un homme sans venin n'est pas un homme. Frère Liu, tu m'as forcé à faire ça. Tu voulais tuer toute ma famille? »
 
@@ -66,8 +66,8 @@ Après une courte réflexion, il se tourna vers Wang Lin: « Wang Lin, aujourd'h
 
 Wang Lin ne le prit pas. Il poussa un soupir et esquissa un sourire amer. « Toi... pourquoi faut-il que tu fasses ça? Si tu ne l'avais pas tué... »
 
-Zhang Hu fronça les sourcils. « Wang Lin, ne parlons plus de cela. J'ai assez souffert ces dernières années. Si tu me considères encore comme un ami, prends ce talisman immortel. »
+Zhang Hu fronça les sourcils. « Wang Lin, ne parlons plus de cela. J'en ai assez supporté ces dernières années. Si tu me considères encore comme un ami, prends ce talisman immortel. »
 
 Wang Lin accepta amèrement le talisman, sans ajouter un mot.
 
-« Wang Lin, je m'en vais. Cela n'a rien à voir avec toi. Si la secte enquête, elle ne trouvera que moi. D'ici là, j'aurai déjà quitté la secte Heng Yue. Humph, le pays de Zhao est vaste. Je ne crois pas rester un disciple honoraire toute ma vie. » L'expression de Zhang Hu était indéchiffrable. Après un long moment, il se détourna lentement et quitta la pièce.
+« Wang Lin, je m'en vais. Cela n'a rien à voir avec toi. Si la secte enquête, elle ne trouvera que moi. D'ici là, j'aurai déjà quitté la secte Heng Yue. Humph, le pays de Zhao est vaste. Je ne me résigne pas à rester disciple honoraire toute ma vie. » L'expression de Zhang Hu était indéchiffrable. Après un long moment, il se détourna lentement et quitta la pièce.

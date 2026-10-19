@@ -12,7 +12,7 @@ Le vieil homme à l'intérieur du jade laissa poindre un soupçon de désespoir,
 
 Cette centipède était d'un noir absolu, parcourue d'une ligne dorée sur le dos. Elle était d'une férocité extrême!
 
-Dès son apparition, elle cracha soudainement un jet de poison vers Wang Lin! Cette brume toxique contenait un venin puissant qui, au contact des restrictions se refermant sur elle, les fit s'effondrer instantanément.
+Dès son apparition, elle se retourna brusquement et cracha un jet de poison vers Wang Lin, qui la poursuivait! Cette brume toxique contenait un venin puissant qui, au contact des restrictions se refermant sur elle, les fit s'effondrer instantanément.
 
 Les yeux de Wang Lin s'illuminèrent. Sans marquer le moindre temps de pause, il chargea en avant. Il leva sa main droite vers le ciel et hurla: « Tonnerre du monde, écoutez mon commandement! »
 
@@ -108,4 +108,4 @@ Alors qu'il sombrait dans sa mélancolie, il entendit soudain le message de Wang
 
 « Maître, soyez tranquille, haha! Le Petit Xu va certainement donner une leçon mémorable à ce type et lui faire connaître ma force! » Xu Liguo se frotta les mains avec enthousiasme et afficha un sourire maléfique. Il s'approcha lentement du vieil homme nommé Liu Jinbiao. La terreur dans les yeux de ce dernier redoubla, faisant briller le regard de Xu Liguo.
 
-« Bon sang, combien de temps ton Grand-père Xu a-t-il dû supporter cette solitude? Combien d'années, hein? Aujourd'hui, le Ciel a enfin remarqué ma présence en te laissant offenser ce démon. Bien joué! » Xu Liguo se jeta sur Liu Jinbiao en riant. Quel que soit le ton qu'on lui prêtait, ce rire était empreint d'une intention purement malveillante...
+« Bon sang, combien de temps ton Grand-père Xu a-t-il dû supporter cette solitude? Combien d'années, hein? Aujourd'hui, le Ciel a enfin remarqué ma présence en te laissant offenser ce démon. Bien joué! » Xu Liguo se jeta sur Liu Jinbiao en riant. Quel que soit le ton qu'on lui prêtait, ce rire sentait la luxure...

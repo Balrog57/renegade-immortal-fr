@@ -10,7 +10,7 @@ La neige tombait comme des plumes d'oie, recouvrant la terre couche après couch
 
 Le poids de la neige sur les branches des arbres créait une sensation oppressante, comme si elles allaient se briser à tout instant.
 
-C'était le matin, et une fumée s'élevait progressivement du village mortel. Cette fumée dérivait dans l'air, tentant de teinter la neige de gris, mais elle était dispersée par les flocons et le vent glacial.
+C'était le matin, et une fumée s'élevait progressivement du village mortel. Cette fumée dérivait dans l'air, comme pour rivaliser avec la blancheur de la neige, mais elle était dispersée par les flocons et le vent glacial.
 
 Des aboiements de chiens résonnaient depuis la ville ou le village. Une nouvelle journée commençait.
 
@@ -54,11 +54,11 @@ Dès l'apparition du jeune homme, l'expression de l'immortel changea radicalemen
 
 « Qui es-tu?! Ce vieil homme était là le premier! »
 
-« Je suis ta rétribution divine. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de rétribution dans le ciel!
+« Je suis votre rétribution divine. Je suis venu détruire le Dao Céleste et collecter le Tonnerre Spirituel! » Wang Lin leva la main droite et pointa les nuages de rétribution dans le ciel!
 
 Le tonnerre gronda et le vieillard dans les nuages trembla. Le tonnerre à l'intérieur de son corps rugissait hors de son contrôle, faisant changer son expression. Cependant, loin de s'enfuir, il chargea avec une férocité inattendue hors des nuages. Ses mains formèrent un sceau et il cracha une perle de tonnerre qui fonça vers Wang Lin.
 
-« Arrogant à l'extrême! » Le vieil homme était d'une rapidité fulgurante. Il dégageait l'aura d'un cultivateur au stade avancé du Scruteur du Nirvana. Il semblait sur le point de franchir le stade du Purificateur du Nirvana!
+« Arrogant à l'extrême! » Le vieil homme était d'une rapidité fulgurante. Il dégageait l'aura d'un cultivateur au sommet du stade avancé du Scruteur du Nirvana. Il semblait sur le point de franchir le stade du Purificateur du Nirvana!
 
 La perle de tonnerre contenait une puissance infinie. C'était un trésor composé de cinq Éclairs de Tonnerre Spirituel! La perle fonçait sur Wang Lin avec une force capable de briser la terre.
 

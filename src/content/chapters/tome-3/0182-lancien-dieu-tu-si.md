@@ -52,19 +52,19 @@ De son point de vue, le but de la deuxième épreuve n'était pas vraiment de bl
 
 Wang Lin était très perplexe face à cette logique, mais il n'avait personne à qui poser la question.
 
-Au moment où Wang Lin pénétra dans le tourbillon, tout changea. Des lueurs violettes jaillirent du vortex jusqu'à former une gigantesque sphère de foudre pourpre.
+Au moment où Wang Lin pénétra dans le tourbillon, tout changea. Des lueurs violettes jaillirent du vortex jusqu'à former une gigantesque sphère de foudre violette.
 
 Cette boule de foudre était différente de celles de la restriction céleste; elle était plus sombre et plus puissante. À son apparition, Wang Lin sentit la montagne entière trembler.
 
 Du pied jusqu'au sommet, toutes les restrictions commencèrent à s'élever vers la cime. Chaque parcelle de lumière représentait une restriction, et d'innombrables éclats lumineux montaient de plus en plus haut.
 
-Étonnamment, cette ascension massive de restrictions ne déclencha pas l'attaque céleste. Lorsqu'elles atteignirent un certain point, elles se mirent soudain à converger à très grande vitesse vers un même point pour former une grande sphère de lumière qui grossit peu à peu jusqu'à se trouver à la même hauteur que la boule de foudre pourpre.
+Étonnamment, cette ascension massive de restrictions ne déclencha pas l'attaque céleste. Lorsqu'elles atteignirent un certain point, elles se mirent soudain à converger à très grande vitesse vers un même point pour former une grande sphère de lumière qui grossit peu à peu jusqu'à se trouver à la même hauteur que la boule de foudre violette.
 
 À cet instant, toutes les parcelles de lumière avaient disparu de la montagne. Il ne restait plus aucune restriction sur ces pentes.
 
-Wang Lin ne pouvait que contempler le spectacle. Depuis l'apparition de la sphère pourpre, son corps était figé par une force écrasante; il était incapable de faire le moindre demi-pas.
+Wang Lin ne pouvait que contempler le spectacle. Depuis l'apparition de la sphère violette, son corps était figé par une force écrasante; il était incapable de faire le moindre demi-pas.
 
-La sphère de foudre pourpre et la sphère de lumière se déplacèrent lentement l'une vers l'autre. Au moment de leur contact, une immense illusion apparut au-dessus d'elles.
+La sphère de foudre violette et la sphère de lumière se déplacèrent lentement l'une vers l'autre. Au moment de leur contact, une immense illusion apparut au-dessus d'elles.
 
 Cette ombre illusoire avait la forme d'un géant d'une taille colossale, dont la tête semblait toucher le ciel et les pieds fouler la terre. Les deux globes montèrent lentement depuis ses pieds jusqu'à s'arrêter à l'emplacement des yeux du géant. De loin, ces deux globes ressemblaient aux yeux de ce colosse.
 
@@ -72,7 +72,7 @@ Bien que ce géant ne fût qu'une illusion, il dégageait une aura de vie.
 
 « Quatrième grand Éveillé de la montagne des restrictions, mon nom est Tu Si... Conformément à l'ancien pacte conclu avant le sommeil de mon corps principal, tu as satisfait aux exigences de cette montagne. Je t'accorde le titre d'Éveillé et te confère le jade permettant de fabriquer un drapeau de restriction. Si tu parviens à entrer dans la mer de conscience de mon corps principal, tu pourras, en tant qu'Éveillé, recevoir une partie des souvenirs de restrictions de mon corps principal... »
 
-Le géant parla d'une voix qui fit trembler le monde. Puis, un fragment de jade entouré de foudre pourpre apparut et flotta vers Wang Lin.
+Le géant parla d'une voix qui fit trembler le monde. Puis, un fragment de jade entouré de foudre violette apparut et flotta vers Wang Lin.
 
 Wang Lin fut saisi par l'effroi. Il prit une profonde inspiration.
 
@@ -80,7 +80,7 @@ D'après le ton du géant, il s'agissait d'un avatar de l'ancien dieu. Sans aucu
 
 L'ancien dieu était trop puissant. Son simple avatar suffisait à donner à Wang Lin une sensation d'étouffement. Il ne pouvait même pas imaginer la puissance que dégagerait Tu Si s'il était présent en personne.
 
-À cet instant, le jade se trouva devant lui. Il cligna des yeux et tendit la main pour le saisir. Dès qu'il l'eut saisi, la foudre pourpre traversa son corps avant de retourner dans le fragment.
+À cet instant, le jade se trouva devant lui. Il cligna des yeux et tendit la main pour le saisir. Dès qu'il l'eut saisi, la foudre violette traversa son corps avant de retourner dans le fragment.
 
 Wang Lin sentit alors une information s'imprimer dans son esprit. Il comprit que l'éclair ne lui était pas malveillant, mais servait de méthode pour confirmer l'identité du propriétaire.
 
@@ -112,7 +112,7 @@ Peut-être était-ce là la récompense de la première épreuve. Wang Lin eut u
 
 À ce moment, le corps du géant commença à s'estomper. Les deux sphères s'éloignèrent l'une de l'autre. La sphère de lumière se dispersa en innombrables éclats qui retombèrent sur la montagne. À leur contact, les restrictions furent réinstallées et la montagne retrouva son état initial.
 
-La boule de foudre pourpre retourna dans le tourbillon. Puis, une force d'aspiration émanant du vortex attira lentement Wang Lin vers lui. Son corps sombra progressivement dans le tourbillon.
+La boule de foudre violette retourna dans le tourbillon. Puis, une force d'aspiration émanant du vortex attira lentement Wang Lin vers lui. Son corps sombra progressivement dans le tourbillon.
 
 Lorsque Wang Lin en ressortit, il se trouva dans ce qui ressemblait à un pays de féerie, une vaste prairie ouverte. L'air était saturé d'énergie spirituelle.
 

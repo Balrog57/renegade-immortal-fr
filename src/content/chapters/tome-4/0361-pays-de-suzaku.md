@@ -34,7 +34,7 @@ Au centre du continent, occupant la moitié de sa superficie, se trouvait le pay
 
 Même les mortels de Suzaku possédaient un rang supérieur à celui des mortels ordinaires, car ils étaient les sujets de Suzaku.
 
-Le pays de Suzaku comptait au total trois sectes: la Secte du Jade Céleste, la Secte de l'Âme Terrestre et la Secte du Chemin de l'Immortel.
+Le pays de Suzaku comptait au total trois sectes: la Secte du Jade Céleste, la Secte de la Terre et la Secte du Chemin de l'Immortel.
 
 Chaque secte possédait un cultivateur Ascendant. Conjoints à l'Ascendant du stade tardif résidant au Mont Suzaku, qui portait le titre de Suzaku, ils constituaient la force maîtresse de la planète.
 

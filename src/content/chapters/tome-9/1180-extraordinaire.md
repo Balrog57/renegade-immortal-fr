@@ -38,7 +38,7 @@ Les cheveux blancs de Maître Pin Cendré flottaient sans qu'aucun vent ne les a
 
 La terre trembla dans un fracas assourdissant, déclenchant des grondements interminables. Tandis que le sol s'ébranlait, des craquements sinistres retentirent; des fissures progressèrent comme des dragons s'étendant vers l'horizon.
 
-Les secousses redoublèrent de violence. Une montagne imposante à l'est émit une lueur fulgurante, bientôt rejointe par des lueurs similaires provenant des montagnes du nord, du sud et de l'ouest.
+Les secousses redoublèrent de violence. Une montagne imposante et d'une hauteur vertigineuse à l'est émit une lueur fulgurante, bientôt rejointe par des lueurs similaires provenant des montagnes du nord, du sud et de l'ouest.
 
 L'éclat des quatre montagnes s'intensifia et se propagea instantanément. Vu d'en haut, on aurait pu voir que la lumière de ces quatre sommets se rejoignait pour former une formation à quatre montagnes!
 

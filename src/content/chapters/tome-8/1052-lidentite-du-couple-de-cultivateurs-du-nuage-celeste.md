@@ -40,7 +40,7 @@ Lorsque Zhou Yi vit que Wang Wei ne donnait que six bouteilles de pilules Céles
 
 Wang Wei lança un regard significatif à Zhou Yi avant de tendre à nouveau sa main droite vers la fissure. Cette fois, cinq bouteilles de jade aux cinq couleurs en sortirent. Il les lança à Wang Lin.
 
-« Ces pilules sont appelées Pilules d'Évitement Céleste. Ce sont des pilules célestes de rang 4, et leur ingestion réduira considérablement tes blessures. »
+« Ces pilules sont appelées Pilules d'Évitement Céleste. Ce sont des pilules célestes de rang 4; chaque bouteille en contient cinq, et leur ingestion réduira considérablement les blessures de ton âme originelle. »
 
 Wang Lin prit les bouteilles et les scruta avec son sens divin. L'énergie spirituelle céleste à l'intérieur de ces flacons était monstrueuse, bien supérieure aux six bouteilles de pilules Célestes Rassembleuses obtenues précédemment.
 
@@ -88,11 +88,11 @@ Les deux pouvaient aisément discerner la vérité du mensonge. En ajoutant cela
 
 Wang Wei admira encore davantage la prudence de Wang Lin. Cette vigilance signifiait qu'il tenait véritablement sa promesse envers Zhou Yi.
 
-« Peu importe. Cela fait longtemps que je n'ai révélé mon identité à personne. Puisque vous et Zhou Yi nous avez aidés, ainsi que l'Empereur Céleste Qing Lin, je ne peux plus vous le cacher. » Wang Wei soupira en regardant vers le centre du sixième étage, une pointe de mélancolie sur le visage.
+« Peu importe. Cela fait longtemps que je n'ai révélé mon identité à personne. Puisque vous et Zhou Yi nous avez aidés, ainsi que l'Empereur Céleste Qing Lin, je ne peux plus vous le cacher. » Wang Wei soupira en regardant vers la brume noire qui couvrait le centre du sixième étage, une pointe de mélancolie sur le visage.
 
 « Je suis le premier garde de l'Empereur Céleste Qing Lin et, en même temps... j'étais aussi son second disciple... » Alors que Wang Wei révélait son identité, une aura indescriptible se propagea de son corps. Cette aura contenait une arrogance capable de faire trembler les cieux.
 
-En un instant, Wang Lin put ressentir la renommée de Wang Wei dans le Royaume Céleste!
+Wang Lin crut presque percevoir la prestance qu'avait Wang Wei dans le Royaume Céleste!
 
 Hu Juan dit doucement: « Je suis la septième disciple du Maître, et j'ai grandi aux côtés de la Petite Sœur Qing Shuang. »
 
@@ -102,7 +102,7 @@ L'esprit de Wang Lin fut frappé de stupeur et il commença à réfléchir inten
 
 Hu Juan regarda Wang Lin et agita la main vers la restriction sur la droite. La restriction changea immédiatement, devenant encore plus puissante qu'auparavant.
 
-« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Seule moi peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
+« Vous avez dû remarquer la différence entre les restrictions autour de la salle d'alchimie. Avec votre culture des restrictions, vous auriez dû vous en douter... Une fois que le Maître a ouvert l'antre céleste, tous les bâtiments et les restrictions ici ont été mis en place par moi sur ses ordres. Moi seule peux parfaire les restrictions de ce lieu. » La voix de Hu Juan n'était pas forte, mais lorsqu'elle atteignit les oreilles de Wang Lin, elle résonna comme un tonnerre rugissant.
 
 Wang Lin eut un sursaut et sourit amèrement. « C'est donc bien vous. Je pensais que c'était le Senior Wang Wei. »
 

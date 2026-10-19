@@ -15,7 +15,7 @@ L'homme d'âge moyen comprit immédiatement la situation et laissa échapper un 
 
 L'ancêtre du Clan des Démons Géants surgit et hurla: « Chi Hu, que fais-tu?! »
 
-Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Ceng Niu, ce n'est pas quelque chose qu'il a volé! Moi, Chi Hu, suis un homme d'honneur! Ceng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je l'abandonner ainsi?! »
+Chi Hu s'interposa pour bloquer son ancêtre. Le regard clair, il cria: « Ancêtre, cette boussole stellaire est un cadeau que j'ai fait à Ceng Niu, ce n'est pas quelque chose qu'il a volé! Moi, Chi Hu, suis un homme d'honneur! Ceng Niu m'a sauvé à plusieurs reprises dans le Royaume Céleste et il est mon ami. Comment pourrais-je commettre un acte aussi inhumain?! »
 
 L'ancêtre du Clan des Démons Géants laissa échapper un rire furieux. Il s'apprêtait à contourner Chi Hu.
 
@@ -23,7 +23,7 @@ Cependant, Chi Hu rugit et l'image de la hache sur son front brilla intensément
 
 L'ancêtre se retourna brusquement pour fixer Chi Hu. Il tendit la main et Chi Hu sentit immédiatement une force puissante l'immobiliser totalement.
 
-« Si tu n'étais pas le cadet possédant le sang le plus pur du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel! »
+« Si tu n'étais pas le cadet possédant le plus de sang du Clan des Démons Géants, je te tuerais aujourd'hui, espèce d'enfant ingrat! Une fois de retour au clan, tu seras puni par cent ans de culture à huis clos et tu subiras la douleur d'un raffinage corporel! »
 
 Sur ces mots, il se remit à la poursuite de Wang Lin qui s'enfuyait.
 

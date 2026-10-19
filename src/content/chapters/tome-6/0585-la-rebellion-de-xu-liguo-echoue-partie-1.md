@@ -60,7 +60,7 @@ Wang Lin dit calmement: « Tu en as assez dit! »
 
 Alors que Xu Liguo s'apprêtait à poursuivre, Wang Lin frappa son sac de conservation et l'épée céleste s'envola. Xu Liguo poussa un cri de joie et jaillit immédiatement de l'épée.
 
-Une épaisse fumée noire se mua en une brume sombre avant de prendre la forme de Xu Liguo. Il laissa échapper un rire, prêt à foncer vers le palais impérial. Mais à cet instant, les yeux de Wang Lin devinrent glacials; sa main droite s'étira et saisit l'épée céleste.
+Une épaisse fumée noire se mua en une brume sombre avant de prendre la forme de Xu Liguo. Il laissa échapper un rire, prêt à foncer vers la capitale impériale. Mais à cet instant, les yeux de Wang Lin devinrent glacials; sa main droite s'étira et saisit l'épée céleste.
 
 Il passa sa main sur la lame, laquelle se mit à trembler légèrement. Xu Liguo se tourna aussitôt vers Wang Lin et cria: « Wang Lin, qu'est-ce que tu fais?! »
 
@@ -78,7 +78,7 @@ Wang Lin continua de le fixer avec froideur. Plus Wang Lin agissait ainsi, plus 
 
 « Maintenant, je vais reprendre tout cela! » La main gauche de Wang Lin balaya l'épée céleste et Xu Liguo poussa un gémissement de douleur. Tout son corps fut secoué lorsque Wang Lin rompit le lien qui l'unissait à l'épée volante.
 
-Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, il ressentit une intention de tuer qu'il n'avait pas éprouvée depuis plus d'un siècle!
+Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, Xu Liguo ressentit une intention de tuer qu'il n'avait pas éprouvée depuis plus d'un siècle!
 
 « Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan des Démons Géants, il n'avait plus jamais ressenti une telle volonté meurtrière qui le poursuivait depuis si longtemps!
 

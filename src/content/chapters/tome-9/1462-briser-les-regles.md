@@ -34,7 +34,7 @@ Il n'y avait que neuf gouttes de poison, il ne voulait donc pas les gaspiller. P
 
 Les étoiles du Dieu Ancien de Wang Lin scintillèrent et il rangea le Fourneau Impérial. Il baissa ensuite le regard vers la terre en contrebas.
 
-L'intérieur de la forêt était vide, ne laissant qu'une centaine d'arbres sur les lisières. Au centre, le vortex par lequel Cupidité avait quitté le Tombeau flottait toujours, intact.
+L'intérieur de la forêt était vide, ne laissant que près d'une centaine d'arbres sur les lisières. Au centre, le vortex par lequel Cupidité avait quitté le Tombeau flottait toujours, intact.
 
 Wang Lin réfléchit un instant. Il avait l'intention d'emporter la forêt et le crâne avec lui. Cependant, il n'était pas sûr que le vortex se dissiperait s'il les emmenait. Si le vortex disparaissait, cela ne vaudrait pas le coup.
 

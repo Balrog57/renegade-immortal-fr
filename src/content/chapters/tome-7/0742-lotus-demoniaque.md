@@ -12,9 +12,9 @@ Des rafales de tonnerre, semblables à des serpents d'argent, parcouraient sans 
 
 Le ciel était sombre et le tonnerre s'abattait occasionnellement sur les cimes; c'était comme si le firmament et la montagne n'étaient qu'un. Les grondements résonnaient continuellement, refusant de se dissiper.
 
-Au cœur de la montagne se trouvait une grotte. Wang Lin y était assis en position du lotus, soignant ses blessures. Le gardien céleste cultivait également à l'entrée, en pleine récupération.
+Au cœur de la montagne se trouvait une grotte. Wang Lin y était assis en position du lotus, soignant ses blessures. La garde céleste cultivait également à l'entrée, en pleine récupération.
 
-Ce jour-là, Wang Lin ouvrit les yeux et libéra un éclair doré. Devant lui, plus de dix fragments de formes diverses flottaient lentement dans les airs, comme si une main géante les soutenait.
+Ce jour-là, Wang Lin ouvrit les yeux et libéra un éclair de lumière. Devant lui, plus de dix fragments de formes diverses flottaient lentement dans les airs, comme si une main géante les soutenait.
 
 Wang Lin commença à réfléchir. Il n'avait pas encore vu à quoi ressemblait l'outil d'origine du Royaume Céleste du Tonnerre, mais il estimait qu'il y avait soixante-dix pour cent de chances que ces fragments appartenaient à un tel objet.
 
@@ -24,9 +24,9 @@ Il leva la main et saisit l'un des fragments. Après l'avoir examiné avec soin,
 
 Le temps s'écoula lentement. Une heure plus tard, Wang Lin ouvrit les yeux et fronça les sourcils en observant les fragments devant lui.
 
-« Il est impossible que ces pièces forment un trésor magique complet, car il en manque. » Après un moment de réflexion silencieuse, Wang Lin agita la main. Les fragments furent entourés d'énergie spirituelle céleste et se mirent à bouger, s'assemblant pour former un vase.
+« Il est impossible que ces pièces forment un trésor magique complet, car il en manque. » Après un moment de réflexion silencieuse, Wang Lin agita la main. Les fragments furent entourés d'énergie spirituelle céleste et se mirent à bouger, s'assemblant pour former une cruche.
 
-Des fissures semblables à des cicatrices marquaient chaque fragment, lui conférant une beauté incomplète. De plus, sur l'un des côtés du vase, plusieurs pièces manquaient, empêchant toute complétude.
+Des fissures semblables à des cicatrices marquaient chaque fragment, lui conférant une beauté incomplète. De plus, sur l'un des côtés de la cruche, plusieurs pièces manquaient, empêchant toute complétude.
 
 Après l'avoir observé un instant, Wang Lin fit un geste de la main et les fragments se dispersèrent à nouveau. Il les rangea ensuite dans son sac de rangement.
 
@@ -74,7 +74,7 @@ Les yeux de Wang Lin brillèrent et il retira sa main, tenant les deux perles. U
 
 « Quel sortilège fascinant: utiliser un élément formé par le Dao comme sac de rangement. » Wang Lin prit une profonde inspiration et comprit enfin pourquoi Xu Fenghan n'avait pas de sac de rangement.
 
-« Utiliser son propre Dao pour créer un espace de stockage et y placer des objets précieux afin d'assurer une protection maximale... Ce sortilège est extrêmement ingénieux. »
+« Utiliser son propre Dao pour créer un espace de stockage et y placer des objets précieux afin d'assurer une protection maximale... Ce sortilège est très pratique. »
 
 À ce moment-là, après avoir perdu les perles et le gaz noir, le lotus se fana rapidement. C'était comme si des milliers d'années s'étaient écoulées en un instant; il se flétrit totalement avant de disparaître.
 
@@ -88,7 +88,7 @@ Après l'avoir contemplée un long moment, Wang Lin rangea la pilule et brisa la
 
 « Si Xu Fenghan l'a stocké dans son Dao, il ne peut pas être ordinaire! » Les yeux de Wang Lin se plissèrent, mais après une longue inspection, il ne trouva aucun indice.
 
-Après avoir réfléchi un instant, il rangea le talisman et cessa d'y penser. Son corps vacilla et il sortit directement de la grotte. Le gardien céleste le suivit et fusionna avec son ombre.
+Après avoir réfléchi un instant, il rangea le talisman et cessa d'y penser. Son corps vacilla et il sortit directement de la grotte. La garde céleste le suivit et fusionna avec son ombre.
 
 Juste devant la montagne du tonnerre se trouvait la limite du fragment. Un champ de tonnerre s'étendait à sa lisière, les éclairs, de couleur brune, ressemblant à des chaînes rouillées plongeant dans l'obscurité.
 

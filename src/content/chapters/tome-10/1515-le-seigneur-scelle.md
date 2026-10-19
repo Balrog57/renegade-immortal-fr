@@ -56,7 +56,7 @@ Les yeux du Shui Daozi étaient déjà vitreux et il fut projeté au loin. La do
 
 Dans son ultime moment de lucidité, le Shui Daozi hurla son dernier atout!!
 
-« Je suis lié à Mu Bingmei, me tuer revient à la tuer!! Elle est ta femme! Tue-moi!! Tue-moi!! Si tu me tues, Mu Bingmei mourra!! Ce vieil homme s'est préparé depuis longtemps. Cette stupide Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa culture et lui a donné des pilules pour que nos âmes soient liées! »
+« Je suis lié à Mu Bingmei, me tuer revient à la tuer!! Elle est ta femme! Tue-moi!! Tue-moi!! Si tu me tues, Mu Bingmei mourra!! Ce vieil homme s'est préparé depuis longtemps. Cette misérable Mu Bingmei n'en savait rien. Ce vieil homme l'a aidée à restaurer sa culture et lui a donné des pilules pour que nos âmes soient liées! »
 
 « À quoi bon cette cloche dorée? Elle est mon véritable talisman!! » rit le Shui Daozi en agitant son bras droit restant. Le monde se distordit et une scène apparut.
 
@@ -114,7 +114,7 @@ Son cœur tremblait à l'idée qu'elle n'avait pas remarqué le départ de Wang 
 
 Ces ondes de rugissements balayèrent les restes de la mort sanglante du Shui Daozi pour atteindre les oreilles des cultivateurs plongés dans le silence de la réflexion.
 
-« Les cultivateurs de la Secte Démoniaque saluent le Seigneur du Royaume Scellé! » Les membres de la Secte Démoniaque marquèrent un temps d'arrêt, puis s'inclinèrent avec leur Maître de Secte.
+« Les cultivateurs de la Secte Démon saluent le Seigneur du Royaume Scellé! » Les membres de la Secte Démon marquèrent un temps d'arrêt, puis s'inclinèrent avec leur Maître de Secte.
 
 « Les cultivateurs de la Secte Divine saluent le Seigneur du Royaume Scellé! » Ayant été témoins de tout ce qui s'était produit, les membres de la Secte Divine joignirent les mains, l'expression complexe.
 

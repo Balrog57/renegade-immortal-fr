@@ -46,7 +46,7 @@ Celle du bas indiquait: « Fils aîné: Wang Lin »
 
 Sous les deux tablettes se trouvait un brûle-encens avec quelques bâtons d'encens inutilisés à ses côtés.
 
-Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons d'encens et les disposa dans le brûle-encens. Il s'agenouilla lentement sur le sol. Il effectua plusieurs kowtows impitoyables et murmura: « Ce fils ingrat est venu offrir l'encens cette fois. La prochaine fois, je construirai une tour faite des têtes de la famille Teng pour mes parents. » Une aura d'intention meurtrière s'échappa de Wang Lin. La pièce devint instantanément plus glaciale que la nuit pluvieuse à l'extérieur.
+Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons d'encens et les disposa dans le brûle-encens. Il s'agenouilla lentement sur le sol. Il effectua plusieurs kowtows appuyés et murmura: « Ce fils ingrat est venu offrir l'encens cette fois. La prochaine fois, je construirai une tour faite des têtes de la famille Teng pour mes parents. » Une aura d'intention meurtrière s'échappa de Wang Lin. La pièce devint instantanément plus glaciale que la nuit pluvieuse à l'extérieur.
 
 Une fois ses paroles achevées, il réfléchit un moment, puis, dans un mouvement soudain, disparut sur place.
 
@@ -186,7 +186,7 @@ Tenant l'âme de Teng Li, Wang Lin l'engloutit sans hésiter et étendit à nouv
 
 Anéantir une famille ne consistait pas simplement à tuer ses membres. Wang Lin devait éliminer quiconque possédait ce sang pour extirper toute la lignée. C'était là le véritable sens de l'extermination d'un clan.
 
-Progressivement, les points lumineux se multiplièrent dans son sens divin et son sourire devint de plus en plus sinistre. Au fil des années, le nombre de descendants des Teng avait atteint un degré inimaginable, et Wang Lin mémorisait chaque signature d'âme.
+Progressivement, les points lumineux se multiplièrent dans son sens divin et son sourire devint de plus en plus sinistre. Au fil des années, le nombre de descendants des Teng avait atteint un nombre considérable, et Wang Lin mémorisait chaque signature d'âme.
 
 Un quart d'heure passa en un instant et l'âme de Teng Li, dévorée par Wang Lin, se dissipa.
 
@@ -244,7 +244,7 @@ Wang Lin quitta le hall et s'engouffra dans la secte. Les ancêtres de l'Âme Na
 
 Ensuite, les cultivateurs se regardèrent. Ils mordirent leur lèvre inférieure et décidèrent de suivre Wang Lin. Bien qu'ils n'osassent l'arrêter, ne pas oser le suivre aurait signifié qu'ils n'étaient pas dignes de leur rang d'ancêtres de l'Âme Naissante.
 
-Une femme magnifique volait vers la Secte Tian Dao, le visage paniqué. Elle ne voulait pas mourir. Ses yeux étaient emplis de terreur. Elle ne voulait pas mourir, mais son nom était Teng!
+Une femme magnifique volait vers la salle d'alchimie de la Secte Tian Dao, le visage paniqué. Elle ne voulait pas mourir. Mais Wang Lin était bien plus rapide: il apparut presque au moment où elle atteignait la salle, et d'un geste de la main la fit tomber dans sa paume en poussant un cri. Ses yeux étaient emplis de terreur. Elle ne voulait pas mourir, mais son nom était Teng!
 
 Wang Lin broya impitoyablement ses vertèbres cervicales. Après avoir recueilli son âme, il projeta son corps en arrière. Le tendon de dragon s'élança à nouveau pour l'enrouler. À cet instant, trois corps y étaient attachés.
 

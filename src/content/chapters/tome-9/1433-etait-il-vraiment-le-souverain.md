@@ -12,7 +12,7 @@ Le Maître du Dao Rêve Bleu l'avait déjà poussé à choisir une première foi
 
 Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 
-Après avoir quitté le clan des Moineaux de Feu, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié du clan des Moineaux de Feu, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
+Après avoir quitté le clan des Moineaux de Feu, l'effondrement de la terre sainte avait déclenché un incendie dévastateur qui se propageait dans toutes les directions. Le brasier détruisit près de la moitié des tribus du clan des Moineaux de Feu, et une flamme monstrueuse brillait derrière Wang Lin alors qu'il s'éloignait.
 
 Des grondements tonitruants résonnèrent au loin, ébranlant le domaine stellaire, mais Wang Lin ne sortit pas de sa torpeur. Son cœur semblait déchiré et une douleur lancinante imprégnait son corps.
 

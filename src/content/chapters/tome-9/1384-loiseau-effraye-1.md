@@ -26,11 +26,11 @@ Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 
-De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
+De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Distorsion Spatiale pour se diriger vers le Clan du Scorpion Noir.
 
 Le groupe de Cupidité progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
 
-Un instant plus tard, les mille rayons de lumière percèrent l'atmosphère de la planète et plongèrent droit vers le sol.
+Un instant plus tard, les mille rayons de lumière s'abattirent: les quelques centaines de cultivateurs de tête brisèrent sans peine la couche de vents violents de la planète et plongèrent droit vers le sol.
 
 Entouré par la foule, Cupidité descendait avec un air arrogant!
 
@@ -50,7 +50,7 @@ Ce bruit fit pâlir les membres du Clan du Scorpion Noir. L'un d'eux hésita ava
 
 Mais avant qu'il ne puisse terminer, son expression changea radicalement et il leva les yeux vers le ciel. À cet instant, chaque membre du Clan du Scorpion Noir fixa l'azur avec effroi.
 
-Le Patriarche du Clan du Scorpion Noir, qui siégeait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
+Le Patriarche du Clan du Scorpion Noir, qui, sur l'ordre de Wang Lin, était rentré plus tôt et méditait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
 
 Zhong Grand Rouge fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un sursaut, totalement stupéfait.
 

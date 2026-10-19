@@ -46,7 +46,7 @@ L'ancêtre de la famille Huan, semblable à de la fumée, se condensa dans les a
 
 Le démon dispersé rit: « Montre-le moi! »
 
-L'ancêtre de la famille Huan ferma les yeux. Il avait absorbé le domaine de Liu Mei et récupéré l'énergie spirituelle céleste qu'il lui avait offerte. Bien que sa culture n'ait pas totalement retrouvé son niveau initial, la différence était minime.
+L'ancêtre de la famille Huan ferma les yeux. Il avait absorbé le domaine de Liu Mei et récupéré l'énergie spirituelle céleste présente dans son corps. Bien que sa culture n'ait pas totalement retrouvé son niveau initial, la différence était minime.
 
 Toutefois, il n'avait aucune confiance pour affronter le démon dispersé fusionné avec Wang Lin. Même s'il tentait de fuir, il ne pourrait échapper aux sorts du démon. C'est pourquoi il avait mis tous ses espoirs sur la trace du Dao du Démon Céleste qu'il portait en lui.
 

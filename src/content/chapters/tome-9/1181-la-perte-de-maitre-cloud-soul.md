@@ -30,13 +30,13 @@ Les flammes d'âme percutèrent l'énergie d'épée dans un fracas tonitruant, m
 
 Face à cette crise, les yeux de Maître Nuage-Âme s'écarquillèrent de rage. Au moment ultime, il se mordit la langue et cracha un jet de sang essentiel. Ce sang se mua en un crâne qui dévora le rayon d'énergie d'épée.
 
-Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, son âme originelle trembla, et il vacilla vers la faille.
+Un fracas assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, son âme originelle trembla, et il vacilla vers la faille.
 
 « Tu cherches la mort, Junior! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
 
 Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur du Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
 
-Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et avait déjà commencé à s'engager dans la faille. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Arrête! »
+Alors que Wang Lin reculait, sur le point de s'engouffrer totalement dans la faille, Maître Nuage-Âme se rapprocha et avait déjà commencé à s'engager dans la faille. Il leva la main, prêt à lancer un sort, mais à cet instant précis, Wang Lin esquissa un sourire qui n'en était pas un. Il ouvrit la bouche et hurla: « Immobile! »
 
 L'énergie d'origine céleste qui bouillonnait en lui jaillit avec frénésie pour se transformer en un Sort de Stase qui enveloppa Maître Nuage-Âme. En un clin d'œil, le corps de ce dernier se figea!
 
@@ -90,7 +90,7 @@ Le vieil homme nommé Pang tressaillit. En repensant à la mort de Wu Qing, il r
 
 « Camarade cultivateur Lu, je demande des explications! » lança Maître Pin Cendré en fixant Wang Lin. Il savait que Maître Nuage-Âme surveillait ce jeune homme vêtu de blanc; désormais qu'il manquait à l'appel, ce dernier était le suspect numéro un!
 
-« Quelle plaisanterie! » Wang Lin eut un rire amer. Il regarda Maître Pin Cendré avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
+« Quelle plaisanterie! » Wang Lin éclata d'un rire de colère. Il regarda Maître Pin Cendré avec indifférence et ricana: « Maître Nuage-Âme est au stade intermédiaire du Briseur du Nirvana, et je ne suis pas son égal. Vous exigez des explications de ma part, mais c'est une chose que je suis incapable de vous donner! »
 
 « Maître Nuage-Âme a des jambes et un cerveau; pourquoi viendrait-il me rendre compte de ses déplacements? Ridicule! Si vous cherchez un prétexte pour combattre, alors je vous accompagnerai jusqu'au bout! » Une lueur glaciale traversa les yeux de Wang Lin, sa voix était tranchante comme une lame.
 

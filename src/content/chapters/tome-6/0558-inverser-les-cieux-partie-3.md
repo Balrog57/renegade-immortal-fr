@@ -40,7 +40,7 @@ L'expression de Wang Lin resta neutre tandis qu'il fixait Yao Xixue. Tout ce qui
 
 Il avait pris le risque d'utiliser son aura démoniaque pour tromper totalement Yao Xixue et lui faire croire qu'il déployait toute sa puissance. Puis, au moment précis où l'énergie d'épée pénétrait son corps, il avait brisé le cristal céleste qu'il portait en lui sans la moindre hésitation.
 
-Il avait passé trois jours dans le camp militaire à convertir un tiers des jades célestes obtenus de Yao Xixue en un cristal céleste afin de créer cette circonstance imprévue.
+Il avait passé trois jours dans le camp militaire, sous terre, à convertir un tiers des jades célestes obtenus de Yao Xixue en un cristal céleste afin de créer cette circonstance imprévue.
 
 Lorsque le cristal céleste se brise, une quantité massive d'énergie spirituelle céleste est libérée. Normalement, une telle décharge l'aurait contraint à s'asseoir pour cultiver, et la moindre erreur aurait endommagé ses méridiens sous la pression de cette énergie.
 
@@ -54,7 +54,7 @@ Ce chapeau contenait de puissantes restrictions et, Yun Quezi étant un cultivat
 
 Comment Yao Xixue pouvait-elle le savoir?
 
-Wang Lin tint le sac de rangement de Yao Xixue et dit calmement: « Chère cultivatrice Yao, nous nous revoyons. »
+Wang Lin tint le sac de rangement de Yao Xixue et dit calmement: « Compagnon cultivateur Yao, nous nous revoyons. »
 
 Bien qu'il s'adressât à elle, son regard balaya l'homme d'âge moyen devant la porte de pierre.
 
@@ -64,15 +64,15 @@ Yao Xixue serra les dents et cracha: « Tu es méprisable! »
 
 Wang Lin esquissa un léger sourire. Beaucoup l'avaient maudit, mais le vainqueur avait toujours raison et le perdant avait tort. C'était la loi du monde de la culture, une règle que Wang Lin n'avait jamais oubliée. Il sourit: « La cultivatrice Yao m'a donné une pilule factice et m'a caché les dangers d'une telle intrusion. Je ne fais que me venger; nul besoin de me faire tant de compliments! »
 
-« Si mon père, l'Ancêtre Sanguin, l'apprend, tu seras mort, fût-tu un disciple de l'Omniscient! De plus, j'ai activé une Pilule d'Âme Sanguine avant de venir ici! » Le visage de Yao Xixue était d'une pâleur cadavérique.
+« Si mon père, l'Ancêtre Sanguin, l'apprend, tu seras mort, fût-tu un disciple de l'Omniscient! De plus, j'ai activé une Pilule de l'Âme Sanguine avant de venir ici! » Le visage de Yao Xixue était d'une pâleur cadavérique.
 
-« Pourquoi te tuerais-je alors que tes Pilules d'Âme Sanguine peuvent te ressusciter? Pour les utiliser, tu dois d'abord mourir; je vais donc utiliser un sort pour sceller ton corps tout entier. Maintenant que tu n'as plus aucune énergie spirituelle céleste, j'ai hâte de voir comment tu vas mourir! » Wang Lin laissa échapper un sourire empreint d'une profonde noirceur.
+« Pourquoi te tuerais-je alors que tes Pilules de l'Âme Sanguine peuvent te ressusciter? Pour les utiliser, tu dois d'abord mourir; je vais donc utiliser un sort pour sceller ton corps tout entier. Maintenant que tu n'as plus aucune énergie spirituelle céleste, j'ai hâte de voir comment tu vas mourir! » Wang Lin laissa échapper un sourire empreint d'une profonde noirceur.
 
 Yao Xixue était livide et sans force. Comme l'avait dit Wang Lin, ses méridiens étaient brisés et son énergie spirituelle céleste épuisée. Normalement, elle serait déjà morte, mais le sceau sur son corps émettait des ondes de force vitale pour la maintenir en vie, la piégeant dans un cycle perpétuel entre la vie et la mort.
 
 Sa destinée était suspendue à ce va-et-vient!
 
-« Je vais simplement te sceller dans un lieu où tu endureras des millénaires de solitude, coincée entre la vie et la mort, incapable de trépasser. Même si tu tentais de te mordre la langue pour te suicider, le sceau sur ton front t'en empêcherait! Je veux voir comment tu te relèveras avec ta Pilule d'Âme Sanguine! » La voix de Wang Lin était calme, mais ses paroles firent chanceler l'expression de Yao Xixue.
+« Je vais simplement te sceller dans un lieu où tu endureras des millénaires de solitude, coincée entre la vie et la mort, incapable de trépasser. Même si tu tentais de te mordre la langue pour te suicider, le sceau sur ton front t'en empêcherait! Je veux voir comment tu te relèveras avec ta Pilule de l'Âme Sanguine! » La voix de Wang Lin était calme, mais ses paroles firent chanceler l'expression de Yao Xixue.
 
 En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsqu'il avait vu sa culture détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yue. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité!
 
@@ -88,11 +88,11 @@ Wang Lin afficha un sourire qui n'en était pas un en pressant sa poitrine, et l
 
 L'humiliation dans les yeux de la jeune femme était immense alors qu'elle fixait Wang Lin en grinçant des dents. Elle avait cultivé pendant de nombreuses années en préservant sa virginité; elle n'avait jamais eu un contact aussi intime avec un homme!
 
-Après avoir rangé les sacs, il déclara: « Chère cultivatrice Yao, et si nous concluions un marché? »
+Après avoir rangé les sacs, il déclara: « Compagnon cultivateur Yao, et si nous concluions un marché? »
 
 Yao Xixue le fixa sans dire un mot.
 
-Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épuisement naturel, mais la Terre des Esprits Démoniaques a une limite de 500 ans. Je vais donc te poser des questions, et chaque réponse te retirera 50 ans de vie. Qu'en dis-tu? »
+Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épuisement naturel, mais la Terre des Esprits Démoniaques a une limite de 500 ans. Je vais donc te poser des questions, et chaque réponse réduira de 50 ans la durée de ton scellement. Qu'en dis-tu? »
 
 Yao Xixue prit une profonde inspiration et réfléchit un instant. Puis elle demanda froidement: « Comment savoir si tu dis la vérité? »
 

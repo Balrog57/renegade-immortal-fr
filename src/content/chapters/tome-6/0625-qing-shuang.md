@@ -98,7 +98,7 @@ Le vieil homme répondit: « Dans mon sac de rangement... »
 
 Wang Lin agita ses manches et un filament d'énergie spirituelle céleste pénétra le vieillard pour sceller son âme originelle. Puis, il ferma les yeux et s'assit en position de lotus pour cultiver. Quant au vieil homme, il sombra dans l'inconscience. Néanmoins, la Formation des Trois Talents à l'Épée resta active par précaution.
 
-Trois jours passèrent en un éclair. Le troisième jour, le Filet de Capture Céleste qui emprisonnait le vieillard émit soudainement une lueur verte. Il se détacha de sa proie et s'envola sur le côté, se transformant en un filet vert de la taille d'une paume.
+Trois jours passèrent en un éclair. Le troisième jour, vers minuit, le Filet de Capture Céleste qui emprisonnait le vieillard émit soudainement une lueur verte. Il se détacha de sa proie et s'envola sur le côté, se transformant en un filet vert de la taille d'une paume.
 
 Wang Lin ouvrit brusquement les yeux et tendit la main droite. Le sac de rangement du vieillard vola immédiatement dans sa paume. Il l'examina avec son sens divin et fronça légèrement les sourcils. Il tendit à nouveau la main pour saisir le vieil homme et, après l'avoir secoué, plus d'une dizaine de sacs de rangement tombèrent de toutes parts de son corps.
 

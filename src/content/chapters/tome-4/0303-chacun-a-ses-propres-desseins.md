@@ -12,11 +12,11 @@ Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centain
 
 Non loin de là reposait le cadavre du troisième frère aîné, tué par Sun Lei.
 
-Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce temple de bête céleste. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
+Sun Lei observa la grotte à distance et murmura: « La nourriture pour bêtes célestes est destinée aux bêtes elles-mêmes. Lorsqu'elles s'en nourrissent, cela renforce leur corps, mais c'est totalement inutile pour nous. Je ne peux croire qu'il reste encore autant de provisions dans ce Temple des Bêtes Célestes. Cela doit être dû à cette nourriture noire pour bêtes célestes. Ce compagnon cultivateur sait-il pourquoi elle existe? »
 
 Le regard de Wang Lin resta calme lorsqu'il répondit: « Je crois que cela a un lien avec ce squelette noir. » Il se souvenait que la première fois qu'il avait vu cette ligne noire, elle s'agitait à l'intérieur du squelette. À chaque mouvement, les ossements tremblaient comme si la créature allait reprendre vie.
 
-Sun Lei déposa quelques morceaux de jade et reprit d'une voix lente: « L'expérience de ce compagnon cultivateur est en effet hors du commun. Cette nourriture noire a dû utiliser une méthode quelconque pour dévorer la chair, et même l'âme céleste, de ce squelette lors de la catastrophe qui brisa le Royaume Céleste. Elle s'est cachée dans les os pour ensuite, après une longue période, acquérir son propre domaine! C'est sans doute pour cela qu'il y a tant de nourriture ici; elles doivent toutes être ses descendantes. »
+Sun Lei déposa quelques morceaux de jade et reprit d'une voix lente: « L'expérience de ce compagnon cultivateur est en effet hors du commun. Cette nourriture noire a dû utiliser une méthode quelconque pour dévorer la chair, et même l'âme céleste, de ce squelette lors de la catastrophe qui brisa le Royaume Céleste. Elle s'est cachée dans les os pour ensuite, après une longue période, acquérir sa propre culture! C'est sans doute pour cela qu'il y a tant de nourriture ici; elles doivent toutes être ses descendantes. »
 
 Wang Lin resta silencieux.
 

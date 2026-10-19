@@ -40,7 +40,7 @@ Ces neuf continents n'étaient rien d'autre qu'une multitude de bêtes moustique
 
 Le nombre de créatures était terrifiant. Wang Lin ne pouvait absolument pas les dénombrer, mais selon son intuition, il estimait qu'elles dépassaient le million.
 
-Le roi moustique avait bu deux gorgées de sang et son corps dégageait désormais une lueur dorée. Une pression plusieurs fois plus puissante que la précédente s'abattit sur la zone!
+Le roi moustique avait bu deux gorgées de sang et son corps dégageait désormais une lueur dorée. Une pression bien plus intense que la précédente s'abattit sur la zone!
 
 En un instant, près de 10 000 bêtes moustiques rouges tremblèrent. Elles étaient les plus proches du roi moustique de Wang Lin et, après un moment d'hésitation, une lueur d'adoration apparut dans leurs yeux. Elles encerclèrent le roi moustique de Wang Lin et formèrent un nuage rouge qui les emporta au loin.
 
@@ -78,7 +78,7 @@ Son mouvement entraîna un million de bêtes moustiques dans sa course. Elles co
 
 Le roi moustique de Wang Lin survolait rapidement le monde avec plus de 10 000 bêtes à ses côtés. Ils se déplaçaient à toute allure pour s'échapper, fuyant la partie intérieure du Royaume Céleste du Vent vers la sortie menant à la région de rang 8.
 
-Après plusieurs heures, l'essaim traversait le ciel. Wang Lin, debout sur le dos du roi moustique, se retourna soudainement. Loin derrière lui, il apercevait un nuage rouge qui se propageait, accompagné par le grondement du ciel qui s'effondrait. Les yeux de Wang Lin restèrent calmes; il afficha un regard glacial et leva la main pour poser une grande quantité de restrictions.
+Après plusieurs heures, l'essaim traversait le ciel. Wang Lin, debout sur le dos du roi moustique, se retourna soudainement. Loin derrière lui, il apercevait un nuage rouge qui se propageait, accompagné par le bruit des formations qui s'effondraient. Les yeux de Wang Lin restèrent calmes; il afficha un regard glacial et leva la main pour poser une grande quantité de restrictions.
 
 Tandis que l'essaim traversait le ciel, Wang Lin continuait de déployer d'innombrables restrictions. C'était grâce à l'effondrement de ces barrières que son troupeau parvenait à garder l'avantage.
 
@@ -102,8 +102,8 @@ Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui de
 
 Peu après, un grondement sourd provint de derrière Wang Lin. Le monde lui-même semblait trembler sous l'onde de choc puissante qui se propageait. Sans se retourner, Wang Lin fonça comme un fou avec son essaim.
 
-Il finit par atteindre la périphérie du Royaume Céleste du Vent; la sortie n'était plus très loin! Il ne lui restait que quelques heures pour sortir, et il avait utilisé sort après sort pour bloquer les poursuivants. Mais en fin de compte, cela ne suffisait pas: l'immense essaim était à moins de 50 kilomètres derrière lui. De loin, on aurait dit que la masse colossale des moustiques occupait tout le Royaume Céleste, telle une inondation se refermant lentement sur Wang Lin.
+Il finit par atteindre la périphérie du Royaume Céleste du Vent; la sortie n'était plus très loin! Il ne lui restait que quelques heures pour sortir, et il avait utilisé sort après sort pour bloquer les poursuivants. Mais en fin de compte, cela ne suffisait pas: l'immense essaim était à moins de 50 kilomètres derrière lui. Vu d'en haut, on aurait dit que la masse colossale des moustiques occupait tout le Royaume Céleste, telle une inondation se refermant lentement sur Wang Lin.
 
 Le roi moustique de cent mille pieds fixait droit devant lui au sein de l'essaim, et ses rugissements faisaient trembler les cieux.
 
-Wang Lin fronça les sourcils, un éclair froid brillant dans son regard. Debout sur le dos de la bête, il tendit sa main droite vers le vide.
+Wang Lin fronça les sourcils, un éclair froid brillant dans son regard. Debout sur le dos de la bête, il saisit le vide de sa main droite.

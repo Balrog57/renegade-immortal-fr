@@ -88,19 +88,19 @@ Cette fois, dès que la bête spirituelle chargea en rugissant, son corps s'effo
 
 Après que la bête spirituelle s'est effondrée deux fois, son regard devint plus féroce encore. Elle poussa un rugissement violent, son corps se reforma et elle chargea une nouvelle fois. Cette fois, sa masse se divisa en une multitude de segments pour attaquer Wang Lin de toutes parts.
 
-Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans de culture, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée!
+Wang Lin fronça légèrement les sourcils. C'était un homme cruel et décisif. Après mille ans d'expérience, il avait développé sa propre manière d'agir. Il était évident que la bête ne s'était pas encore soumise car il ne l'avait pas assez éprouvée!
 
 Le regard de Wang Lin se glaça et il dit calmement: « Effondrement! Effondrement! Effondrement! »
 
 À peine ces trois mots prononcés, la bête qui chargeait fut instantanément brisée et repoussée. Aussitôt après, un second effondrement survint.
 
-Un gémissement de douleur émana du chaos, et à cet instant précis, un troisième effondrement se produisit. Ces trois décompositions consécutives plongèrent la bête spirituelle dans une agonie inimaginable.
+Un gémissement de douleur émana du chaos, et à cet instant précis, un troisième effondrement se produisit. Ces trois effondrements consécutifs plongèrent la bête spirituelle dans une agonie inimaginable.
 
 Si les effondrements n'avaient pas été successifs, elle aurait pu les endurer, mais cette triple attaque provoqua la peur au plus profond de son cœur.
 
 Dès l'apparition de cette crainte, son corps commença à se reformer avec une certaine hésitation. À ce moment-là, le regard de Wang Lin devint glacial et il ordonna calmement: « Effondrement! »
 
-Dans un fracas assourdissant, la bête qui venait de se reconstituer s'effondra une fois de plus. La peur qui l'habitait décupla de façon incontrôlable, finissant par saturer son esprit.
+Dans un fracas assourdissant, la bête qui venait de se reconstituer s'effondra une fois de plus. La peur qui l'habitait s'accrut de façon incontrôlable, finissant par saturer son esprit.
 
 Son corps se reforma une ultime fois et ses yeux révélèrent un profond respect. Elle n'osait plus résister et baissa la tête en signe de reddition.
 

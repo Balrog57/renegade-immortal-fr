@@ -28,7 +28,7 @@ Sous cet éclat doré, le regard de Wang Lin dégageait une puissance de suppres
 
 Le regard de Wang Lin balaya le ciel. Toutes les ombres touchées par cette vision tremblèrent et n'osèrent plus bouger. Elles manifestèrent une peur profonde, comme si le Ciel lui-même descendait sur elles. Cette pression invisible leur donnait l'impression qu'elles seraient impitoyablement anéanties au moindre demi-pas en avant!
 
-Une fois son regard passé, sa voix froide retentit: « Disparaissez! »
+Une fois son regard passé, sa voix froide retentit: « Dégagez! »
 
 Sa voix n'était pas forte, mais lorsqu'elle frappa près d'un millier d'ombres sanguines, elle eut la puissance des cieux. Leurs corps tremblèrent et elles reculèrent instinctivement.
 

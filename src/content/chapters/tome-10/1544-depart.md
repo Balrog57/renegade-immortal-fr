@@ -70,7 +70,7 @@ Wang Lin utilisa *Invoquer le Vent*, *Appeler la Pluie*, *Arsenal Magique* et *M
 
 « Vieux fantôme, vous êtes si avare! Ne pouvez-vous pas simplement me donner un sort convenable? Vous... vous dépassez les bornes! »
 
-Wang Lin fixa le fou. Après une profonde inspiration, il lui montra le *Sceau de la Révolution Céleste*, le *Bouclier de Lumière et d'Ombre* ainsi que le sort de fusion de Dao.
+Wang Lin fixa le fou. Après une profonde inspiration, il lui montra le *Sceau de la Révolution Céleste*, le *Bouclier de Lumière et d'Ombre* ainsi que le sort de fusion de Dao, tous transmis par le Maître du Dao Rêve Bleu.
 
 « Qu'est-ce que c'est que ce truc? Comment peut-on appeler cela la Révolution Céleste? Je n'apprendrai pas! »
 « Un corps couvert de lumière? Quel genre de sort est-ce là? Je n'apprendrai pas! »

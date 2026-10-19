@@ -94,7 +94,7 @@ Les trois corps de la vieille femme fusionnèrent pour n'en former qu'un et s'é
 
 Wang Lin s'était totalement dissimulé dès son entrée dans la fissure. Il s'était caché à proximité, guettant l'opportunité. Cet endroit était singulier; il était impossible d'étendre son sens divin trop loin à l'intérieur de la restriction de lumière noire, ce qui lui avait offert la chance parfaite de se camoufler.
 
-À présent, tenant le flacon de jade, il traversait rapidement la brume. Les étranges murmures continuaient de lui parvenir aux oreilles. Des silhouettes ténébreuses passaient près de lui en flottant vers l'origine du bruit.
+À présent, tenant le flacon de jade, il traversait rapidement la brume. Les étranges murmures continuaient de lui parvenir aux oreilles. Des silhouettes ténébreuses flottaient vers lui et le croisaient au passage.
 
 La vieille femme en vert le talonnait, mais grâce à deux talismans de vitesse, la vélocité de Wang Lin était devenue inimaginable. À mesure qu'ils progressaient, l'écart entre eux s'élargissait progressivement.
 

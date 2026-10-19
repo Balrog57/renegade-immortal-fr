@@ -72,7 +72,7 @@ Li Muwan rit: « Je t'ai attendu pendant trois ans à l'époque. Je ne m'attenda
 
 Wang Lin se frotta le nez et sourit sans dire un mot.
 
-Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin traça un sceau de la main droite et projeta une restriction sur la montagne, puis, prenant Li Muwan par la main, ils volèrent vers la Cité des Rebelles Démoniaques.
+Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin traça un sceau de la main droite et projeta une restriction sur la montagne, puis, avec Li Muwan, ils volèrent vers la Cité des Rebelles Démoniaques.
 
 Ce voyage dans la Mer des Diables avait rendu Wang Lin heureux; l'aura mortelle de Li Muwan avait nettement diminué.
 
@@ -136,7 +136,7 @@ L'homme prit une profonde inspiration et entra rapidement.
 
 Après un long moment, il ressortit. Son expression était redevenue normale et il retourna en bas pour reprendre ses conversations. Tous tentèrent d'obtenir des informations sur Wang Lin, mais l'homme se contentait d'esquiver les questions.
 
-À ce même instant, à 10 000 kilomètres de la Cité des Rebelles Démoniaques, dans une grotte souterraine, un vieil homme était assis. Alors qu'il était plongé dans sa culture, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
+À ce même instant, à 10 000 kilomètres de la Cité des Rebelles Démoniaques, dans une grotte souterraine d'une plaine, un vieil homme était assis. Alors qu'il était plongé dans sa culture, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
 
 Cette jeune fille possédait une grâce singulière et des yeux d'un charme irrésistible.
 
@@ -144,4 +144,4 @@ Elle adressa quelques paroles respectueuses avant de s'éclipser.
 
 « Un cultivateur de la Formation de l'Âme suspect? » Les yeux du vieil homme s'illuminèrent, puis il disparut brusquement.
 
-Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite dans les Étoiles Brisées du Chaos. C'était le cultivateur accompagné d'un taotie.
+Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite dans les Étoiles Brisées du Chaos. C'était le cultivateur qui chevauchait un taotie.

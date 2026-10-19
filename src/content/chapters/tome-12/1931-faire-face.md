@@ -40,7 +40,7 @@ Pourtant, la puissance ne se dissipa pas; elle s'abattit de plein fouet sur son 
 
 Mais ce n'était pas encore fini. Tandis que Wang Lin était blessé et repoussé par le choc, la paume de tonnerre qui retenait le visage s'effondra soudainement, dispersant l'éclair.
 
-Cette paume ne contenait qu'une fraction du tonnerre de la boucherie, car si l'avatar de Wang Lin en avait utilisé trop, il se serait effondré avant même d'avoir pu agir. Après tout, ce tonnerre de la boucherie recelait une puissance que Wang Lin lui-même redoutait.
+Cette paume ne contenait qu'une fraction du tonnerre de la boucherie, car si ce Corps Véritable en avait utilisé trop, il se serait effondré avant même d'avoir pu agir. Après tout, ce tonnerre de la boucherie, né par hasard du ciel et de la terre, recelait une puissance que Wang Lin lui-même redoutait.
 
 À cet instant, bien que la paume se soit brisée, le tonnerre de la boucherie ne fut pas dissipé; il retourna intact dans le corps de Wang Lin.
 

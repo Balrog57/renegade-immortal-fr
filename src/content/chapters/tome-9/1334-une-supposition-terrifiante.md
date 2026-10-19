@@ -10,7 +10,7 @@ Grâce au puissant Sens Divin de Wang Lin, il ne lui fallut pas longtemps pour t
 
 Par exemple, Grand Rouge pouvait comprimer le tonnerre de son corps dix fois pour obtenir une explosion de puissance. C’était une pratique courante au sein du Clan Tonnerre Dispersé, mais si cela se produisait dans le Royaume Intérieur sur la planète Suzaku, il serait l'un des cultivateurs les plus puissants.
 
-Cependant, cela n'était que secondaire. Pour véritablement maîtriser le Grand Sceau du Tonnerre, il fallait atteindre la seconde étape. On pouvait alors rassembler le tonnerre du vide et provoquer une compression de 1 000, voire de 10 000 fois du tonnerre dans son propre corps.
+Cependant, cela n'était que secondaire. Pour véritablement maîtriser le Sceau de Rassemblement du Tonnerre, il fallait atteindre la seconde étape. On pouvait alors puiser le tonnerre entre ciel et terre et provoquer une compression de 1 000, voire de 10 000 fois du tonnerre dans son propre corps.
 
 En conséquence, sa puissance serait capable de faire trembler les cieux!
 
@@ -20,7 +20,7 @@ Wang Lin retira son Sens Divin du jade. Son expression était calme tandis qu'il
 
 « L'être le plus puissant du Clan Tonnerre Dispersé est l'Ancêtre, qui se trouve au cinquième niveau de la Calamité Céleste et n'est qu'à un pas de la troisième étape. Bien que cet écart soit aussi vaste que le fossé entre le ciel et la terre, sa force est incontestable. S'il utilise ce sortilège, je me demande combien de dizaines de milliers de fois il pourrait le compresser... Il pourrait même être capable de tenir tête à des cultivateurs de la troisième étape pendant un instant... »
 
-Tout en réfléchissant, Wang Lin mémorisa le Grand Sceau du Tonnerre. Tandis que ses mains formaient un sceau, des grondements tonitruants résonnèrent et d'innombrables éclairs apparurent. Tels des serpents argentés, ils chargèrent vers sa main pour former une sphère de tonnerre de la taille d'un poing.
+Tout en réfléchissant, Wang Lin mémorisa le Sceau de Rassemblement du Tonnerre. Tandis que ses mains formaient un sceau, des grondements tonitruants résonnèrent et d'innombrables éclairs apparurent. Tels des serpents argentés, ils chargèrent vers sa main pour former une sphère de tonnerre de la taille d'un poing.
 
 Des craquements incessants émanaient de cette sphère qui subissait une compression constante. Dix fois, cent fois, mille fois, dix mille fois. En un clin d'œil, la sphère de tonnerre avait été compressée près de 30 000 fois.
 
@@ -94,6 +94,6 @@ Wang Lin réfléchit un instant, puis regarda Grand Rouge avec un sourire qui n'
 
 En voyant l'accord de Wang Lin, Grand Rouge fut transporté par l'excitation. Il avait délibérément choisi de revenir avant Xu Liguo afin de se retrouver seul avec Wang Lin pour utiliser son art invincible. Il avait aussi décidé d'emmener Wang Lin au Temple du Cristal de Tonnerre pour que Xu Liguo ne puisse pas le trouver à son retour.
 
-« Humph, humph! Moi, Grand Rouge, je suis sur le point de lancer ma guerre contre vous. Je ne crois pas être incapable de vous battre! Tant que l'Aîné m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de l'Aîné, je gagnerai énormément de bénéfices! Il semble que l'Aîné ait l'intention d'intégrer le Classement Tonnerre Dispersé. Une fois que l'Aîné aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Grand Rouge, au sein du Clan Tonnerre Dispersé! »
+« Humph, humph! Moi, Grand Rouge, je suis sur le point de lancer ma guerre contre Xu Liguo. Je ne crois pas être incapable de vous battre! Tant que l'Aîné m'accepte, que sont ces simples cristaux de tonnerre? Si je reste aux côtés de l'Aîné, je gagnerai énormément de bénéfices! Il semble que l'Aîné ait l'intention d'intégrer le Classement Tonnerre Dispersé. Une fois que l'Aîné aura gravi les échelons, ce sera aussi le jour où je me ferai un nom! Peut-être y aura-t-il une place pour moi, Grand Rouge, au sein du Clan Tonnerre Dispersé! »
 
 Grand Rouge avait de l'ambition. C’était là sa plus grande différence avec Xu Liguo.

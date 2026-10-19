@@ -32,7 +32,7 @@ Yang Sen fut stupéfait. Il observa Wang Lin un instant, puis dit: « Préserver
 
 Pendant qu'ils discutaient, l'expression de Wang Lin changea soudainement. Il leva la tête vers la forêt qui se dressait devant eux. Il étendit son Sens Divin et découvrit deux individus cachés là, observant la caravane avec insistance.
 
-Même après le passage du convoi, ces deux-là ne firent rien; Wang Lin décida donc de ne rien dire et les ignora.
+Même après le passage du convoi, ces deux-là ne firent rien; Wang Lin réfléchit un instant, puis n'y prêta plus attention.
 
 Après une journée de voyage, le soleil commençait à décliner et la nuit approchait. Liu San cria depuis l'avant: « Les gars! Nous atteindrons la région de Tian Shui demain, et notre employeur enverra quelqu'un pour nous accueillir. Comme nous ne trouverons pas d'auberge aujourd'hui, nous allons camper ici pour nous reposer un peu avant de repartir tôt demain matin. Une fois à la ville, je vous emmènerai à la Maison Binhong pour vous trouver de jolies filles avec qui vous amuser! »
 

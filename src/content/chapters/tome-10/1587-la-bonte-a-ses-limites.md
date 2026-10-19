@@ -78,15 +78,15 @@ Cet homme était Qing Shui. Il laissa échapper un soupir et s'apprêtait à rep
 
 « Wang Lin! » Après avoir ressenti l'aura imminente dans le Royaume Intérieur, Qing Shui ne songea plus à ses propres affaires. Le froid et l'intention meurtrière envahirent son regard alors qu'il chargeait vers le Vide Brillant.
 
-Dans la Rivière Invoquée, le jeune homme qui s'était échappé lors de la divine rétribution de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de rôder dans la zone suspectée. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Vide Brillant.
+Dans la Rivière Invoquée, le jeune homme qui s'était échappé lors de la divine rétribution de Wang Lin ne parvenait toujours pas à localiser l'endroit. Il avait décidé de s'asseoir en tailleur dans la zone suspectée pour y réfléchir. Soudain, ses yeux s'illuminèrent et il tourna son regard vers le Vide Brillant.
 
 « Oh? » Ses yeux se rétrécirent et, dans un fracas d'ondulations, il disparut.
 
-Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérieux Vieux Fantôme Zhan sortit de l'ombre et chargea vers le Vide Brillant.
+Dans le Royaume Céleste du Tonnerre, un grondement sourd retentit. Le mystérieux Vieux Fantôme Zhan sortit et chargea vers le Vide Brillant.
 
 De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Maître Âme Écarlate et convergèrent tous de toutes parts.
 
-Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux qui l'avait gravement blessé par un rugissement auparavant pouvaient apparaître instantanément, il n'allait pas laisser Wang Lin s'échapper!
+Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux qui l'avait gravement blessé par un rugissement auparavant pouvaient le sentir instantanément, il n'allait pas laisser Wang Lin s'échapper!
 
 « Rêve Bleu! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
 

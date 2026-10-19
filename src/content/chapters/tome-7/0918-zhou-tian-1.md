@@ -92,7 +92,7 @@ Une aura capable de bouleverser l'esprit émana de cette sphère et enveloppa la
 
 Le cultivateur aux six doigts rit et agita sa main droite. Un impact puissant se produisit près de l'âme originelle, qui fut immédiatement projetée au loin par le choc. En un éclair, elle était sur le point de disparaître parmi les étoiles.
 
-« Personne ne peut tuer quelqu'un que moi, le Serviteur des Âmes Zhou Tian, je souhaite sauver! »
+« Celui que moi, Zhou Tian, Serviteur des Âmes, veux sauver, nul ne peut le tuer! »
 
 L'expression de Wang Lin resta impassible et il ne daigna même pas regarder Zhou Tian. Il fit un pas en avant; des ondulations apparurent sous ses pieds, puis il disparut.
 
@@ -126,6 +126,6 @@ Zhou Tian ricana, ses mains formèrent un sceau et il pointa le vide. Une masse 
 
 Wang Lin fit un pas en avant et lança un coup de poing. Un grondement retentit alors que la grande hache s'effondrait instantanément, se transformant en d'innombrables ombres. Celles-ci se dispersèrent avant de charger Wang Lin de toutes parts.
 
-L'expression de Wang Lin resta neutre alors qu'il pointait le ciel. Le tonnerre fut aspiré du vide sur un rayon de 5 000 kilomètres pour converger instantanément en ce point.
+L'expression de Wang Lin resta neutre alors qu'il pointait le ciel. Le tonnerre fut aspiré du vide sur un rayon de dizaines de milliers de kilomètres pour converger instantanément en ce point.
 
 Les environs devinrent un lac de tonnerre!

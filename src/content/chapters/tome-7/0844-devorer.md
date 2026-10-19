@@ -72,4 +72,4 @@ L'expression de Wang Lin changea, frappé par sa propre intuition. Il prit une p
 
 Wang Lin ferma les yeux. Après un court instant, il les rouvrit brusquement, affichant un regard résolu alors qu'il fixait Yao Bingyun. Il murmura: « Le dao du karma est trop illusoire. Selon la troisième étape que j'ai observée, tous les daos des cieux doivent retourner à leur origine véritable. J'ignore quelle est l'origine du dao du karma, mais pour que mon domaine existe réellement, je dois... dévorer! »
 
-« Dévorer le domaine d'autrui pour comprendre le karma de son domaine. Comprendre son domaine... puis le convertir en mon propre domaine de karma! » Les yeux de Wang Lin devinrent froids alors qu'il pressait son doigt entre les sourcils de Yao Bingyun.
+« Dévorer le domaine d'autrui, percevoir son karma, comprendre son dao... puis le convertir en mon propre domaine de karma! » Les yeux de Wang Lin devinrent froids alors qu'il pressait son doigt entre les sourcils de Yao Bingyun.

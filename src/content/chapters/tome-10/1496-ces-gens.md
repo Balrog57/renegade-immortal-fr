@@ -90,7 +90,7 @@ Il y avait une statue de pierre dans le royaume céleste de la Pluie. Cette stat
 
 L'expression glaciale de cet homme était presque identique à celle que Wang Lin arborait à ses débuts!
 
-Il avait personnellement créé sa terre interdite, et même Situ Nan n'était pas autorisé à s'y aventurer. Même la fille de Qing Lin, Qing Shui, ainsi que Zhou Yi, n'étaient pas autorisées à monter ici!
+Il avait personnellement créé sa terre interdite, et même Situ Nan n'était pas autorisé à s'y aventurer. Même la fille de Qing Lin, Qing Shuang, ainsi que Zhou Yi, n'étaient pas autorisées à monter ici!
 
 Même si Qing Lin venait, cet homme en noir oserait l'attaquer!
 
@@ -108,7 +108,7 @@ Au pied de la montagne se trouvait une demeure, et un homme en vert se tenait da
 
 Bien que son corps fût présent, il ressemblait à un corps spirituel, dépourvu de consistance physique.
 
-Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux laissaient voir une passion vieille de milliers d'années, sans l'ombre d'un regret... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais briser ce monde! »
+Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux laissaient voir une passion vieille de milliers d'années, sans l'ombre d'un regret... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais commettre un massacre qui ébranlera le ciel! »
 
 Dans le système stellaire de l'Alliance, là où se trouve la Secte des Cadavres, un regard semblant pouvoir se matérialiser, capable de faire s'effondrer les étoiles, se tourna vers Luotian.
 

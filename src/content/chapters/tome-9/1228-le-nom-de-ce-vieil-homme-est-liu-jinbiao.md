@@ -20,9 +20,9 @@ Cette méthode brutale servait à garantir que les sectes de rang 8 continuent d
 
 La rumeur disait que la Secte Brise-Ciel et la Secte Fantôme s'étaient élevées de cette manière même.
 
-Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte du Vent Ombrageux, la Secte du Chemin Arc-en-ciel, la Secte Répondant aux Cieux et la Secte de l'Âme Silencieuse. La Secte de l'Origine et la Secte du Dao Violet appartenaient à la grande secte de rang 8, la Secte Éternelle.
+Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte du Vent Ombrageux, la Secte du Chemin Arc-en-ciel, la Secte Répondant aux Cieux et la Secte de l'Âme Silencieuse. La Secte de l'Origine et la Secte du Dao Pourpre appartenaient à la grande secte de rang 8, la Secte Éternelle.
 
-Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte du Dao Violet défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Éternelle de rang 8.
+Ce festival sacré n'était pas une bataille chaotique et totale. Les sectes étaient divisées par régions, et les plus puissantes des régions de rang quatre à sept étaient sélectionnées. Bien sûr, elles pouvaient également défier des sectes de rang supérieur; ce fut le cas il y a 1 000 ans, lorsque la Secte du Dao Pourpre défia une secte de rang 6. Bien qu'elles aient échoué, leur défaite fut glorieuse, car elle avait attiré l'attention de la Secte Éternelle de rang 8.
 
 Chaque grande compétition des sectes de rang 8 se déroulait en présence d'un membre d'une secte de rang 9. Si des disciples les enchantaient, ils les recrutaient directement sur-le-champ. Bien que les sectes de rang 8 s'en sentent impuissantes, elles ne pouvaient rien refuser.
 
@@ -42,7 +42,7 @@ Tous les escrocs ne pouvaient pas évoluer comme des poissons dans l'eau durant 
 
 Les sectes escroquées, soucieuses de leur face, ne le dénonçaient jamais ouvertement. Même en menant des enquêtes secrètes, elles n'aboutissaient à rien. De plus, cet individu choisissait soigneusement ses victimes: il ciblait des sectes comme la Secte de l'Origine, celles qui étaient sur le point d'être dissoutes et n'avaient aucun espoir de victoire.
 
-Ces sectes allaient de toute façon disparaître, alors comment pourraient-elles causer le moindre problème à l'escroc? Même si elles tentaient de prévenir quelqu'un, on ne leur accorderait que des rires; autant s'en tenir au silence.
+Ces sectes allaient de toute façon disparaître, alors comment pourraient-elles causer le moindre problème à l'escroc? Même si elles tentaient de prévenir quelqu'un, même si on les croyait, on finirait par s'en moquer; autant s'en tenir au silence.
 
 La Secte de la Grande Ourse était une faible branche de rang 5, dont la secte principale était la Secte Répondant aux Cieux de rang 8. Sa situation ressemblait à celle de la Secte de l'Origine: elle finissait toujours dernière. Si elle échouait encore, il lui serait difficile d'échapper à la dissolution.
 

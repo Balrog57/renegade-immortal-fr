@@ -62,7 +62,7 @@ Une fois la vallée quittée, Wang Lin fendit l'air comme un éclair. Son expres
 
 Initialement, Treize était sorti pour attaquer une autre tribu. S'il avait échoué et péri, cela n'aurait pas affecté Wang Lin. La vie et la mort sont les deux faces d'une même pièce, et en tant que cultivateur du domaine de la vie et de la mort, Wang Lin en avait parfaitement conscience.
 
-Cependant, la situation était différente ici. Treize était sur le chemin du retour lorsqu'il fut attaqué par une autre tribu. L'ennemi ne l'avait pas tué, mais avait implanté un démon en lui. Si cela s'était arrêté là, cela aurait pu servir de leçon, mais ils avaient également pris les drapeaux d'âmes et lancé ce défi de venir les récupérer.
+Cependant, la situation était différente ici. Treize, qui ramenait des captifs, était sur le chemin du retour lorsqu'il fut attaqué par une autre tribu. L'ennemi ne l'avait pas tué, mais avait implanté un démon en lui. Si cela s'était arrêté là, cela aurait pu servir de leçon, mais ils avaient également pris les drapeaux d'âmes et lancé ce défi de venir les récupérer.
 
 Désormais, la signification changeait: c'était une provocation, ou pour mieux dire, une lettre de défi! Treize était devenu la lettre de défi vivante de quelqu'un!
 
@@ -92,7 +92,7 @@ Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Et 
 
 L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient plus d'une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
 
-L'homme en robe blanche rit: « Je suis un diacre sous les ordres du général de l'aile gauche de la Cité de l'Ancien Démon. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité de l'Ancien Démon pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler! »
+L'homme en robe blanche rit: « Je suis un diacre sous les ordres du général de l'aile gauche de la Cité de l'Ancien Démon. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité de l'Ancien Démon pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, dès demain matin, je suivrai la marque que j'ai laissée sur le jeune homme jusqu'à sa tribu pour la lui voler! »
 
 L'Ancien en robe grise demanda: « L'incantation dans l'esprit du jeune homme est-elle un leurre? »
 

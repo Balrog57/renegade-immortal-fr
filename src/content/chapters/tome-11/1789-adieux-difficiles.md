@@ -116,7 +116,7 @@ Il contemplait le même visage, mais une personne différente. Cette sensation i
 
 Au cours des trois derniers jours, Zhou Ru, Shengong Hu et d'autres prirent leur décision et vinrent voir Wang Lin. Le nombre de partants restait infime, moins de vingt personnes.
 
-Lors des derniers instants, une fine pluie commença à tomber sur le Royaume Céleste. Mu Bingmei, vêtue de blanc, s'avança sous l'averse, légère comme les fleurs de saule qui dansent dans la pluie. Wang Lin ouvrit les yeux et leva la tête pour contempler cette femme d'une beauté transcendante tenant un parapluie.
+Le dernier jour, une fine pluie commença à tomber sur le Royaume Céleste. Mu Bingmei, vêtue de blanc, s'avança sous l'averse, légère comme les fleurs de saule qui dansent dans la pluie. Wang Lin ouvrit les yeux et leva la tête pour contempler cette femme d'une beauté transcendante tenant un parapluie.
 
 Ses longs cheveux noirs encadraient son visage comme dans une peinture, et sa splendeur surnaturelle semblait suspendre le monde, ne laissant subsister que le bruit de la pluie. Une force étrange semblait effacer toute pensée, tandis que sa silhouette magnifique se dessinait à travers la brume de l'averse.
 

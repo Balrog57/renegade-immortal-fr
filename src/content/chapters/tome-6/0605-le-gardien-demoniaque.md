@@ -94,7 +94,7 @@ Puis, il tendit violemment sa main droite.
 
 Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Chanson du Vent apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
 
-La lame en croissant la suivit de près pour l'empaler. Chanson du Vent agita la main et un poignard d'argent apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Chanson du Vent fut elle aussi projetée en arrière de quelques pas.
+La lame en croissant la suivit de près pour l'empaler. Chanson du Vent agita la main et un poignard apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Chanson du Vent fut elle aussi projetée en arrière de quelques pas.
 
 Elle venait d'arriver pour contrer la lame et l'explosion du cocon l'avait contrainte à se dévoiler. Elle ignorait si Wang Lin l'avait pressenti depuis longtemps ou si ce n'était qu'une coïncidence.
 

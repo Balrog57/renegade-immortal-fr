@@ -24,7 +24,7 @@ Au loin, un jeune homme d'environ trente ans se tenait là. Il portait une chemi
 
 Au sein de la Secte du Destin Céleste, tous ceux qui connaissaient Wang Lin étaient plongés dans leurs pensées. Cependant, nul ne croyait qu'il puisse repartir vivant s'il se présentait ici aujourd'hui.
 
-Alors que tous les regards convergeaient vers l'horizon, une silhouette blanche apparut et s'avança lentement. Ses cheveux noirs flottaient au gré du vent et, sous les éclats du soleil, on y devinait des reflets violets. Sa robe blanche lui conférait l'allure d'un être céleste; c'était comme si la neige blanche arrivait à grands pas.
+Alors que tous les regards convergeaient vers l'horizon, une silhouette blanche, seule, apparut et s'avança lentement. Ses cheveux noirs flottaient au gré du vent et, sous les éclats du soleil, on y devinait des reflets violets. Sa robe blanche lui conférait l'allure d'un être céleste; c'était comme si la neige blanche arrivait à grands pas.
 
 Une sensation de crépuscule solitaire, vieille de mille ans, émanait de sa silhouette. Il avançait ainsi, tranquillement, avec le soleil rougeoyant pour seul arrière-plan. Cela projetait une ombre sur son visage, ne laissant apparaître que ses yeux brillants qui révélaient une sagesse millénaire.
 
@@ -66,7 +66,7 @@ L'expression de Ling Tianhou devint extrêmement sombre alors qu'il fixait la ma
 
 Tout en réfléchissant, Ling Tianhou agita ses manches, faisant trembler l'homme qui criait sur Wang Lin et le repoussant brutalement dans la foule des cultivateurs. La voix de Ling Tianhou fut glaciale lorsqu'il déclara lentement: « Il n'a effectivement pas la qualification pour vous parler ainsi! Être capable d'atteindre le stade initial du Scruteur du Nirvana à votre âge... si nous faisions abstraction de notre inimitié, même ce vieil homme vous admirerait! »
 
-Ses paroles provoquèrent une onde de choc immense. C'était comme verser de l'eau sur des braises ardentes. Les expressions de tous les cultivateurs alentour changèrent radicalement!
+Ses paroles provoquèrent une onde de choc immense. C'était comme verser de l'eau dans de l'huile bouillante. Les expressions de tous les cultivateurs alentour changèrent radicalement!
 
 Bai Wei eut un souffle coupé et fixa Wang Lin, l'esprit vide. Il ne pouvait croire que Wang Lin, qui n'était qu'au stade de la Transformation de l'Âme il y a quelques siècles, soit devenu un cultivateur du Scruteur du Nirvana, une figure qu'il ne considérait jusqu'alors que comme une légende!
 

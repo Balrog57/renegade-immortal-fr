@@ -90,7 +90,7 @@ Et maintenant, il avait déjà atteint le sommet du dernier stade de l'Établiss
 
 Wang Lin lui jeta un regard et répondit: « Aucun problème! »
 
-Une lueur de malveillance passa dans les yeux de l'homme d'âge mûr, mais il la dissimula rapidement derrière un sourire. « Qing Mu, si tu parviens au stade de la Formation du Noyau, tu auras de sérieuses chances lors de la compétition pour devenir disciple central dans quelques mois. Une fois devenu disciple central, n'oublie pas de revenir nous voir de temps en temps. »
+Une lueur de malveillance passa dans les yeux de l'homme d'âge mûr, mais il la dissimula rapidement derrière un sourire. « Qing Mu, si tu parviens au stade de la Formation du Noyau, tu auras de sérieuses chances lors de la compétition pour devenir disciple interne dans quelques mois. Une fois devenu disciple interne, n'oublie pas de revenir nous voir de temps en temps. »
 
 Wang Lin esquissa un léger sourire: « Bien sûr... Mais l'énergie spirituelle dans ma grotte n'est pas suffisante. Je me demandais s'il était possible d'en changer? »
 

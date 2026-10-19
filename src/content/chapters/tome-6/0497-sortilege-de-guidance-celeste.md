@@ -12,7 +12,7 @@ Cependant, au moment où l'âme résiduelle du Qilin à l'intérieur du drapeau 
 
 Le Saint de l'Épée, Ling Tianhou, fronça les sourcils.
 
-À cet instant, alors que l'épée serpentine était tenue par l'Omniscient et que la bête Qilin était pétrifiée, le sortilège céleste de qualité moyenne, la Guidance Céleste, libéra toute sa puissance.
+À cet instant, alors que l'épée serpentine était tenue par l'Omniscient et que la bête Qilin était immobilisée, le sortilège céleste de qualité moyenne, la Guidance Céleste, libéra toute sa puissance.
 
 Des éclats de lumière aux sept couleurs jaillirent de la brèche dans le ciel. Simultanément, des chants naturels résonnèrent à travers les nuages.
 
@@ -20,7 +20,7 @@ Une à une, des illusions apparurent soudainement et se mirent à danser dans le
 
 Flottant dans les airs, elle regarda vers le bas, et son regard se posa sur les plus de 10 000 disciples de la Secte de l'Épée Da Luo. Elle n'ouvrit pas la bouche, mais une voix puissante fit vibrer le ciel.
 
-« Je suis le corps illusionnaire du messager éternel du Royaume Céleste. Je suis venu pour guider les cultivateurs du royaume inférieur! » Cette phrase semblait avoir été prononcée d'innombrables fois. Le messager leva alors la main et l'agita. À cet instant, l'espace où flottaient les disciples de la Secte de l'Épée Da Luo trembla, puis fut scellé par une lumière dorée!
+« Je suis le corps illusionnaire du messager éternel du Royaume Céleste. Je suis venu pour guider les cultivateurs du royaume inférieur! » Cette phrase semblait avoir été prononcée d'innombrables fois. Le messager abaissa alors une main immense. À cet instant, l'espace où flottaient les disciples de la Secte de l'Épée Da Luo trembla, puis fut scellé par une lumière dorée!
 
 Cette scène provoqua la stupeur de tous les cultivateurs environnants venus pour la célébration. Les plus puissants d'entre eux affichèrent des expressions de choc.
 
@@ -44,7 +44,7 @@ Le visage de Ling Tianhou restait sombre alors qu'il se tenait là, fixant froid
 
 Ce n'est que lorsque le dernier disciple de la Secte de l'Épée Da Luo eut disparu dans la brèche que la scène étrange dans le ciel s'estompa lentement pour revenir à la normale.
 
-L'Omniscient leva la tête vers les cieux et sourit doucement. « Bien que ce sortilège céleste de qualité moyenne n'ait aucun pouvoir d'attaque, il peut toujours transporter des êtres, même après l'effondrement du Royaume Céleste. Quant à savoir où ils sont envoyés, je n'en ai aucune idée! »
+L'Omniscient leva la tête vers les cieux et sourit doucement. « Bien que ce sortilège céleste de qualité moyenne n'ait aucun pouvoir d'attaque, il peut toujours transporter des êtres, même après la disparition du Royaume Céleste. Quant à savoir où ils sont envoyés, je n'en ai aucune idée! »
 
 « VOUS!!! » Le Saint de l'Épée Ling Tianhou fixa l'Omniscient, le visage plus livide encore.
 
@@ -54,7 +54,7 @@ Le Saint de l'Épée Ling Tianhou réfléchit un instant, puis laissa échapper 
 
 Il savait très bien que l'Omniscient n'agirait pas personnellement contre ses disciples dans une telle situation, sous peine de perdre tout le respect qu'il inspirait. Si l'Omniscient affirmait qu'ils seraient de retour dans trois jours, alors ils le seraient.
 
-L'Omniscient avait fait tout cela pour humilier le Saint de l'Épée Ling Tianhou.
+Cette mise en scène ne faisait qu'embarrasser l'Omniscient lui-même.
 
 À ce moment, certains des plus talentueux observaient le ciel, plongés dans leurs pensées, tandis que quelques-uns tentaient secrètement d'imiter le sortilège céleste.
 
@@ -80,7 +80,7 @@ Parmi les deux restants, Wang Lin n'avait qu'un vague souvenir de l'un d'eux: ce
 
 C'était Yundao Zi, le plus ancien disciple de la Division Jaune; il avait détenu le titre de véritable disciple pendant huit cents ans avant que leur Troisième Frère ne le lui ravisse. Cependant, cet homme n'avait aucun esprit de compétition et menait une vie très paisible.
 
-À ce moment, il regarda l'Omniscient, fit un pas en avant et dit respectueusement: « Cette disciple renonce également. La personne la plus apte à recevoir le titre de véritable disciple de la Division Jaune est le Deuxième Frère, qui a reçu le trésor céleste du Maître. »
+À ce moment, il regarda l'Omniscient, fit un pas en avant et dit respectueusement: « Ce disciple renonce également. La personne la plus apte à recevoir le titre de véritable disciple de la Division Jaune est le Deuxième Frère, qui a reçu le trésor céleste du Maître. »
 
 L'Omniscient lança un regard significatif à Yundao Zi. Ce regard fit baisser précipitamment la tête de ce dernier, qui resta silencieux.
 

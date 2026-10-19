@@ -138,7 +138,7 @@ Il se sentait légitimé dans ce mépris: il était vice-commandant, proche de l
 
 Il ne considérait même pas Mo Lihai comme un égal, alors pourquoi s'intéresserait-il à son suivant?
 
-S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité du Démon Céleste, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les vénérait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il s'attirait son courroux!
+S'il n'avait pas su que l'Empereur Démon portait un intérêt particulier à Mo Lihai, il ne l'aurait même pas rencontré, car il le jugeait indigne. Il aurait préféré profiter de ses fleurs. Dans la Cité du Démon Céleste, tout le monde savait à quel point le vice-commandant Xuan chérissait les fleurs exotiques. Il ne se contentait pas de les aimer, il les chérissait. Si un serviteur effleurait accidentellement une fleur, il était expulsé du manoir. Si quelqu'un osait en endommager une, il s'attirait son courroux!
 
 Une pointe d'impatience traversa le cœur de l'homme en pourpre, bien qu'il ne l'eût pas manifestée.
 

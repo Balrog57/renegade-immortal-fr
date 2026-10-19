@@ -110,7 +110,7 @@ Wang Lin monta dans le ciel et s'arrêta brusquement. Il regarda le sol comme s'
 
 Soudain, le ciel s'obscurcit. Divers flux d'énergie convergèrent sous lui pour former une paume gigantesque juste en dessous de lui.
 
-Cette paume s'abattit violemment vers le sol.
+Cette paume s'abattit violemment sur Papillon Rouge.
 
 Pour la première fois, l'expression de Papillon Rouge changea. Elle voulut esquiver, mais la main était immense et frappait avec une rapidité fulgurante. Elle passa à travers le corps de Papillon Rouge pour s'écraser sur le sol dans un fracas de poussière.
 

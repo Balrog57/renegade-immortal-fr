@@ -8,7 +8,7 @@ slug: lanterne
 ---
 Vie et mort, karma, vrai et faux, feu, eau, tonnerre! Six essences se rassemblèrent pour initier ce massacre.
 
-Le volcan s'effondra, le tonnerre explosa, et l'essence d'eau issue du sang se mua en un souffle de vapeur. Les trois épées d'essence éthérées s'élancèrent tandis que le rugissement de Xu Decai résonnait.
+Le volcan s'effondra, le tonnerre explosa, et l'essence d'eau issue du sang se mua en une onde de choc. Les trois épées d'essence éthérées s'élancèrent tandis que le rugissement de Xu Decai résonnait.
 
 Dans le fracas des grondements, Xu Decai fut enveloppé d'une lumière alors qu'il recrachait du sang. Dans un état pitoyable et le visage livide, il recula précipitamment.
 
@@ -26,7 +26,7 @@ D'un seul mot, une vague colossale déferla dans le corps de Wang Lin. L'écart 
 
 Sous l'effet du sort « Arrêt », au moment même où Xu Decai levait la main droite, tout son corps trembla. Il sentit vaguement d'innombrables fils l'envelopper de toutes parts et pénétrer son corps pour entraver ses mouvements.
 
-Même la lanterne au-dessus de lui s'obscurcit. Même la connexion entre la lanterne et Xu Decai fut rompue par le sort!
+Même la lanterne au-dessus de lui s'obscurcit. Même la connexion entre la lanterne et Xu Decai fut figée par le sort!
 
 Cependant, la culture de Xu Decai étant bien supérieure à celle de Wang Lin, le sort ne put l'immobiliser que quelques instants. Mais ce laps de temps permit à Wang Lin d'interrompre l'incantation et la résistance de son adversaire, lui offrant ainsi la chance de lancer une seconde vague d'attaques!
 
@@ -38,19 +38,19 @@ Même la neige sombre au sol fut soulevée par le vent vers lui. Cette neige noi
 
 Tout cela se produisit en un éclair. Xu Decai retrouva soudainement ses esprits. Ses pupilles se rétractèrent, remplies de terreur.
 
-« C'est... quel genre de sort est-ce là?! Il peut geler mes actions et mes intentions; même la plupart de mes pensées sont figées! Je n'ai jamais vu un tel sort! » Une fois ses mouvements retrouvés, il recula précipitamment et leva la main droite.
+« C'est... quel genre de sort est-ce là?! Il peut geler mes actions et mes intentions; une bonne partie de mes pensées sont figées! Je n'ai jamais vu un tel sort! » Une fois ses mouvements retrouvés, il recula précipitamment et leva la main droite.
 
 « Arrête! » rugit Wang Lin en pointant à nouveau son doigt!
 
 Cette fois, Wang Lin cracha une bouchée de sang; son visage était pâle mais d'une férocité extrême. Xu Decai, qui venait tout juste de recouvrer sa liberté, se figea de nouveau. Pour la première fois, la peur apparut dans ses yeux.
 
-La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantôme de Wang Lin. Si la Voile Fantôme était le trésor le plus puissant de la Secte de la Grande Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
+La neige noire tombait des nuages sombres, lesquels étaient formés par la Voile Fantôme de Wang Lin. Si la Voile Fantôme était la technique la plus puissante de la Secte de la Grande Âme, c'était grâce à sa capacité à ignorer le niveau de culture et à perturber l'esprit.
 
 À cet instant, les nuages sombres dans le ciel grondèrent et descendirent rapidement pour former la silhouette, vue de dos, d'une femme en blanc.
 
 La femme pleurait. Le son de ses sanglots perçait le cœur et faisait frissonner la peau. Cette femme n'était pas une humaine, mais un fantôme!
 
-Wang Lin invoqua ainsi le fantôme qui avait pris forme humaine. Tandis que Xu Decai retrouvait sa liberté, il vit les nuages sombres se métamorphoser en cette femme blanche. La silhouette de la femme s'imprima également dans son esprit.
+Wang Lin invoqua ainsi le fantôme qui avait pris forme humaine. Immobilisé une seconde fois, Xu Decai vit les nuages sombres se métamorphoser en cette femme blanche. Au moment où ses entraves se dissipèrent, la silhouette de la femme s'imprima également dans son esprit.
 
 Le regard de Xu Decai devint confus. À ce moment précis, Wang Lin agita sa manche et la terre trembla. Les 30 millions d'âmes du Dao qui s'étaient fusionnées avec le sol jaillirent comme des filaments de gaz noir vers Xu Decai.
 
@@ -72,7 +72,7 @@ Le corps véritable de l'essence de feu de Wang Lin apparut derrière lui alors 
 
 « Empreinte de l'Esprit Guerrier! » La voix de Wang Lin était rauque alors qu'il poussait sa paume vers le ciel. Une empreinte de paume géante apparut, suivie d'une autre empreinte de feu. Les deux volèrent vers Xu Decai!
 
-« Ombre du Parapluie Ancien de Feu! » Wang Lin rugit et ses mains s'agitèrent, formant d'innombrables restrictions. Un immense parapluie ancien de feu ouvert apparut, suivi d'un second derrière lui. Les deux se refermèrent simultanément, libérant une double dose de feu destructeur.
+« Parapluie Ancien de Feu! » Wang Lin rugit et ses mains s'agitèrent, formant d'innombrables restrictions. Un immense parapluie ancien de feu ouvert apparut, suivi d'un second derrière lui. Les deux se refermèrent simultanément, libérant une double dose de feu destructeur.
 
 « Invoque le vent, appelle la pluie! »
 
@@ -106,7 +106,7 @@ Trois directions, trois sources d'attaque convergeaient vers Xu Decai, qui en é
 
 Xu Decai poussa un cri déchirant. Son corps retrouva sa mobilité, mais il éclata en morceaux, brisé net par ce coup longuement préparé d'Yi Si.
 
-L'âme originelle de Xu Decai s'envola rapidement, emportée par la lanterne. Cependant, le roi moustique était prêt depuis longtemps. À cet instant, il se rapprocha et perça l'âme originelle de Xu Decai avec sa trompe pour l'aspirer. Les hurlements de Xu Decai devinrent plus intenses encore. S'il n'avait pas été repoussé par la lanterne, il aurait été totalement dévoré.
+L'âme originelle de Xu Decai s'envola rapidement, emportée par la lanterne. Cependant, le roi moustique était prêt depuis longtemps. À cet instant, il se rapprocha, fouetta l'âme originelle de Xu Decai de sa trompe, puis l'aspira. Les hurlements de Xu Decai devinrent plus intenses encore. S'il n'avait pas été repoussé par la lanterne, il aurait été totalement dévoré.
 
 Alors que la lumière de la lanterne se diffusait, Yi Si fut enveloppée par l'éclat. Son corps libéra des gaz noirs, mais la douleur ne la fit pas reculer. Au contraire, elle la rendit plus féroce; ignorant la souffrance, elle prolongea son assaut de ses griffes.
 

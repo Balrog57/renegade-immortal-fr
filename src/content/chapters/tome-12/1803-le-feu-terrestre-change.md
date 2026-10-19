@@ -12,7 +12,7 @@ C'était la première fois qu'il voyait le Continent Astral Immortel de ses prop
 
 À son réveil, Wang Lin vérifia le Cercueil d'Évitement Céleste derrière lui. Après s'être assuré que tout était en ordre, il examina le feu terrestre qui l'entourait.
 
-Comment un simple feu terrestre pourrait-il oser brûler Wang Lin?
+Comment un simple feu terrestre pourrait-il brûler Wang Lin, et même oserait-il le tenter?
 
 Le feu terrestre qui avait été extrait était insignifiant. Puisqu'il possédait l'essence du feu, non seulement ce feu ne lui causait aucun mal, mais il accélérait également son éveil. De plus, comme ce feu provenait du Continent Astral Immortel, un changement stupéfiant se produisit lorsqu'il fusionna avec l'essence de feu de Wang Lin issue du monde des grottes!
 
@@ -28,7 +28,7 @@ Une puissance étrange émanait de la formation, cherchant à pénétrer son cor
 
 Bien qu'il fût dans le coma et ignorât ce qui s'était passé, sa sagesse lui permit de formuler immédiatement une hypothèse.
 
-« Pendant mon inconscience, cette personne m'a amené ici pour être raffiné... À en juger par la formation, cela semble lié aux marionnettes... Essaie-t-il de me transformer en marionnette? » Un éclat de froideur passa dans les yeux de Wang Lin.
+« Pendant mon inconscience, cette personne m'a trouvé et amené ici pour être raffiné... À en juger par la formation, cela semble lié aux marionnettes... Essaie-t-il de me transformer en marionnette? » Un éclat de froideur passa dans les yeux de Wang Lin.
 
 Dans le monde des grottes, nul n'avait osé tenter de le raffiner en marionnette. Même des êtres comme le Souverain ne l'avaient pas fait, et ils le craignaient!
 
@@ -50,7 +50,7 @@ Le Sens Divin de Wang Lin s'étendit une nouvelle fois, et il fut stupéfait de 
 
 À cet instant, toute la Secte du Dragon Bleu trembla et le feu sous cette chaîne de montagnes sembla s'emballer. Il déferla comme un fou de toutes les directions pour s'engouffrer dans la grotte de Kang Ren.
 
-Ce changement soudain surprit Kang Ren qui allait et venait en traçant des sceaux, recula précipitamment en érigeant d'innombrables couches de protection autour de lui. Les neuf marionnettes gardant l'entrée et les deux marionnettes de bois se précipitèrent devant lui pour le protéger du brasier qui venait d'éclater.
+Ce changement soudain surprit Kang Ren qui allait et venait en traçant des sceaux, recula précipitamment en érigeant d'innombrables couches de protection autour de lui. Les neuf marionnettes placées derrière lui et les deux marionnettes de bois se précipitèrent devant lui pour le protéger du brasier qui venait d'éclater.
 
 Dès que Kang Ren eut reculé, une mer de feu déferla dans la formation et s'éleva en un pilier ardent. Elle consuma toute la brume et obstrua toute visibilité dans un embrasement furieux.
 
@@ -62,7 +62,7 @@ Le cuir chevelu de Kang Ren devint engourdi et ses yeux se remplirent de désesp
 
 Pourtant, après avoir frôlé la mort, Kang Ren s'effondra au sol, terrifié. Il contemplait le feu qui remplissait la grotte, le cœur pétrifié par la peur.
 
-« Je... Quel genre d'être ai-je ramené ici... »
+« Je... Quelle sorte de personne ai-je ramenée ici... »
 
 Alors que le feu terrestre faisait rage, Nuage Virtuel et son maître arrivèrent devant la grotte de Kang Ren. À cet instant, l'expression du vieil homme aux cheveux blancs changea radicalement. Il saisit rapidement son disciple et recula de plusieurs milliers de pieds.
 
@@ -80,7 +80,7 @@ Parmi eux se trouvaient deux hommes et une femme. L'un des hommes et la femme é
 
 Leurs niveaux de culture étaient élevés. L'homme d'âge moyen se trouvait au stade avancé du Vide Spirituel. Dès son apparition, il poussa un rugissement vers le ciel.
 
-« Disciples de la Secte du Dragon Bleu, écoutez mes ordres! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas! Vite, déployez la Formation de l'Eau Céleste! » Ses paroles résonnèrent comme le tonnerre.
+« Disciples de la Secte du Dragon Bleu, écoutez mes ordres! Le feu terrestre subit une mutation tous les 10 000 ans. Cette fois, c'est prématuré, mais ne paniquez pas! Vite, déployez la Formation de l'Eau Céleste! » Ses paroles résonnèrent comme le tonnerre, portées sur des dizaines de milliers de kilomètres.
 
 L'esprit de tous les disciples qui entendirent cet ordre trembla, et ils s'assirent immédiatement dans les airs. Leurs mains tracèrent des sceaux tandis que d'innombrables nuages émanaient de leurs corps. Des dizaines de milliers de disciples créèrent rapidement une vaste formation!
 
@@ -88,7 +88,7 @@ La formation gronda lors de son apparition. De loin, elle ressemblait à un imme
 
 Au même moment, outre l'homme d'âge moyen et le maître de Nuage Virtuel, les deux autres cultivateurs du troisième pas s'élancèrent dans le nuage sombre sans attendre d'ordres. Utilisant un sort inconnu, ils se transformèrent en deux longs dragons au sein de la masse nuageuse.
 
-Ces deux dragons mesuraient plusieurs centaines de milliers de pieds de long. Un instant plus tard, ils déployèrent leurs têtes gigantesques et ouvrirent les gueules vers la montagne en flammes. Une pluie torrentielle s'abattit du ciel, et d'immenses quantités d'eau jaillirent de la bouche des deux dragons.
+Ces deux dragons mesuraient plusieurs centaines de milliers de pieds de long. Un instant plus tard, ils déployèrent leurs têtes gigantesques et ouvrirent les gueules vers la montagne en flammes. Une pluie torrentielle s'abattit du ciel, et d'immenses flots de vapeur jaillirent de la gueule des deux dragons, poussés comme un vent violent sur la terre.
 
 « Ancien Li, vous êtes le premier arrivé. Que s'est-il passé? » Tandis que la pluie luttait contre l'incendie, l'homme d'âge moyen regarda sombrement le vieillard aux cheveux blancs à ses côtés.
 

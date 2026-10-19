@@ -12,13 +12,13 @@ La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellair
 
 À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques grands puissants avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, ouvrant un monde pour accueillir le peuple des Flammes Joss, afin de rassembler ces flammes et de s'en servir pour leur culture!
 
-Cependant, après la mise en place de la Formation de Scellement du Royaume, toutes les Flammes Joss furent extraites du Royaume Intérieur jusqu'à ce qu'il n'en reste plus aucune. Cela créa un cycle vicieux pendant des dizaines de milliers d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
+Cependant, après la mise en place de la Formation de Scellement du Royaume, toutes les Flammes Joss furent extraites du Royaume Intérieur jusqu'à ce qu'il n'en reste plus aucune. Cela créa un cycle vicieux pendant des millions d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
 
 Pourtant, aujourd'hui, l'aura disparue depuis si longtemps revenait dans le Royaume Intérieur, tel un enfant errant qui se retrouve devant sa porte close. Un jour, la porte s'ouvrirait et l'enfant reviendrait!
 
 Cette aura aussi étrangère que familière enveloppa les quatre grands systèmes stellaires. Dire qu'elle revitalisait tout serait une exagération, mais son existence permettait aux cultivateurs du Royaume Intérieur, qui venaient de remporter une victoire tragique, de ressentir un espoir!
 
-Des couches de filets de formation continuèrent de se désintégrer jusqu'à disparaître complètement. Durant ces heures, des grondements résonnèrent à travers l'espace.
+Des couches de filets de formation continuèrent de se désintégrer pendant plusieurs heures, jusqu'à disparaître complètement. Durant ces heures, des grondements résonnèrent à travers l'espace.
 
 Alors que la formation s'effondrait, le son se propagea vers le Système Stellaire Antique, faisant trembler l'esprit des cultivateurs du Royaume Extérieur. Les plus puissants et quelques grands puissants s'élancèrent pour regarder en direction du Royaume Intérieur.
 
@@ -36,7 +36,7 @@ Ce son ressemblait à un coup de tonnerre éternel, mais quiconque l'entendait p
 
 Alors que les paroles de Wang Lin se propageaient, il déploya ses bras. Le gigantesque disque des trois essences s'élança et se tint devant lui.
 
-Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de plus d'un million de pieds à des dizaines de millions, puis des centaines de millions, jusqu'à devenir infini!
+Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de plus de cent mille pieds à un million, puis à des dizaines de millions, jusqu'à devenir infini!
 
 Il remplacerait la Formation de Scellement du Royaume pour devenir la nouvelle formation!
 
@@ -48,13 +48,13 @@ La voix de Wang Lin portait la puissance de l'essence ainsi que toute une vie de
 
 Alors que sa voix résonnait après le passage de l'onde, des ombres colorées apparurent de nulle part. Ces ombres prenaient la forme d'épées, de lames et de divers trésors.
 
-Ces trésors étaient tous brisés; ils avaient déjà été détruits et s'étaient dissipés, mais ils possédaient un esprit. Ces esprits, entendus la promesse d'éternité de Wang Lin, se manifestèrent tous. Après un instant de réflexion, ils s'envolèrent vers le disque des trois essences.
+Ces trésors étaient tous brisés; ils avaient déjà été détruits et s'étaient dissipés, mais ils possédaient un esprit. Ces esprits, ayant entendu la promesse d'éternité de Wang Lin, se manifestèrent tous. Après un bref silence, ils s'envolèrent vers le disque des trois essences.
 
 En fusionnant avec lui, ils insufflèrent au disque en expansion une majesté puissante. Après que des millions d'esprits de trésors eurent fusionné avec lui, la roue dégagea une force vitale colossale.
 
 Les maîtres de tous ces trésors étaient morts et les esprits auraient dû disparaître. Cependant, un cycle de réincarnation régnait dans ce monde, et ces esprits de trésors s'étaient extirpés du cycle de la réincarnation. Ils surgirent des anciens champs de bataille des quatre grands systèmes stellaires, sous forme de fleuves d'étoiles, pour fusionner avec le disque.
 
-À mesure qu'ils s'intégraient, le disque en rotation rapide acquit une sagesse extrême!
+À mesure qu'ils s'intégraient, le disque en rotation rapide acquit une majesté extrême!
 
 « Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels! Âmes des étoiles, vivez à jamais! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
 
@@ -80,9 +80,9 @@ Sur ce, une tempête s'abattit sur le Royaume Intérieur. Cette tempête était 
 
 Des fragments d'âmes déformés apparurent parmi les étoiles, arborant des expressions féroces et luttant désespérément. Cependant, ils poussèrent immédiatement des cris de terreur alors que la tempête d'âme de Wang Lin les capturait pour les fusionner au disque!
 
-Certains de ces fragments d'âmes étaient morts durant les cent dernières années, mais la plupart appartenaient à ceux qui avaient péri lors des guerres précédentes contre le Royaume Extérieur.
+Certains de ces fragments d'âmes étaient morts durant les cent dernières années, mais une grande partie appartenait à des hommes de la haute Antiquité et des temps les plus reculés, tombés lors des guerres passées entre les Royaumes Intérieur et Extérieur.
 
-La tempête fit rage, balayant Mu Bingmei et ses compagnons. Elle traversa la Mer des Nuages, emplit Luotian, puis franchit la Rivière Invoquée avant de traverser le Vide Brillant pour revenir sur ses pas. Les fragments d'âmes affligés rugissaient de peur tandis qu'ils étaient capturés et scellés dans le disque.
+La tempête fit rage, balayant Mu Bingmei et ses deux compagnes. Elle traversa la Mer des Nuages, emplit Luotian, puis franchit la Rivière Invoquée avant de traverser le Vide Brillant pour revenir sur ses pas. Les fragments d'âmes affligés rugissaient de peur tandis qu'ils étaient capturés et scellés dans le disque.
 
 En particulier, sur le champ de bataille de la première bataille dans la Mer des Nuages, plus de 100 000 fragments d'âmes furent tous scellés dans le disque!
 

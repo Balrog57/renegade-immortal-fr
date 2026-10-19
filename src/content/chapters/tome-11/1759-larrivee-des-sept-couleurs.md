@@ -14,7 +14,7 @@ Dans ce mélange de statisme et de mouvement, une pression écrasante émanait d
 
 Cette force était comparable à celle d'une montagne, contraignant le Général Tigre Blanc à céder. Il tremblait en baissant la tête.
 
-L'homme d'âge mûr de la Planète des Cinq Éléments était dans un état encore pire. Bien qu'il n'ait pas prêté de serment de sang, son avatar de Sens Divin avait été dévoré par Wang Lin. À mesure que la pression se propageait, il ressentit une vague d'effroi l'envahir comme une lame de fond océanique.
+L'homme d'âge mûr de la Planète des Cinq Éléments était dans un état encore pire. Bien qu'il n'ait pas prêté de serment de sang, son avatar de Sens Divin avait été dévoré par Wang Lin. À mesure que la pression se propageait, il ressentit une vague de crainte révérencielle l'envahir comme une lame de fond océanique.
 
 Wang Lin n'avait nul temps à accorder à ces deux êtres. Il concentrait toute son attention sur sa lame. Il ferma lentement les yeux et cessa de regarder le ciel; il investit tout son être dans son arme.
 
@@ -28,7 +28,7 @@ Dès son entrée, le Daoïste aux Sept Couleurs perçut clairement l'aura de Wan
 
 « Wang Lin, ce seigneur t'a trouvé. Je veux voir comment tu vas échapper à ma poigne cette fois! »
 
-À cet instant précis, sur la troisième planète, Wang Lin ouvrit soudainement les yeux et la lame dans sa main émit une lueur monstrueuse. Il poussa un rugissement, bondit vers le ciel et asséna son coup de lame le plus puissant!
+À cet instant précis, sur la troisième planète, Wang Lin ouvrit soudainement les yeux et la lame dans sa main émit une lueur monstrueuse haute de cent mille pieds. Il poussa un rugissement, bondit vers le ciel et asséna son coup de lame le plus puissant!
 
 Après son assaut, il recula promptement.
 
@@ -38,7 +38,7 @@ Le Général Tigre Blanc cracha du sang et son expression se voila d'ombre.
 
 L'énergie de la lame s'élança vers le ciel et disparut. Lorsqu'elle réapparut, elle se trouvait précisément là où se tenait le Daoïste aux Sept Couleurs. Tout s'était passé à une vitesse fulgurante. À l'instant même où le Daoïste arrivait, Wang Lin frappait déjà.
 
-L'énergie de la lame perça le vide et s'étendit sur plus de 100 000 pieds. Elle ne paraissait plus illusoire mais bien tangible alors qu'elle fonçait sur le Daoïste aux Sept Couleurs!
+L'énergie de la lame perça le vide et s'étendit sur près de 100 000 pieds. Elle ne paraissait plus illusoire mais bien tangible alors qu'elle fonçait sur le Daoïste aux Sept Couleurs!
 
 Cette énergie était façonnée par la Loi locale et fusionnée avec l'intégralité de la culture de Wang Lin. Manier une telle lame revenait à utiliser toute la puissance d'un monde dévasté pour assassiner un être!
 
@@ -84,7 +84,7 @@ Alors que le Daoïste pointait son doigt, les cinq pétales restants de la plate
 
 Le Daoïste aux Sept Couleurs bondit dans les airs et poursuivit Wang Lin, suivant la course des cinq couleurs.
 
-À ce moment-là, le corps de Wang Lin fusionnait déjà avec le vortex et il était sur le point de s'échapper. Cependant, l'attaque du Daoïste avait combiné la force de sa culture de la Tribulation du Vide à l'effondrement de la troisième planète. Les cinq pétales se refermèrent, et un sentiment de vie ou de mort envahit le cœur de Wang Lin.
+À ce moment-là, le corps de Wang Lin fusionnait déjà avec le vortex et il était sur le point de s'échapper. Cependant, l'attaque du Daoïste avait combiné la force de sa culture de la Tribulation du Vide à l'effondrement de la troisième planète. Les cinq pétales se refermèrent, et un sentiment de vie ou de mort envahit l'esprit de Wang Lin.
 
 Pourtant, puisque Wang Lin avait osé rester pour lancer cet assaut, il était évidemment préparé. Bien qu'il agisse parfois par impulsion, chaque mouvement qu'il posait avait un dessein. Alors que les pétales se refermaient sur lui, sa main gauche tendit vers le vide et une mer de feu l'enveloppa. Elle prit la forme d'un immense parapluie flamboyant.
 
@@ -96,13 +96,13 @@ Cependant, Wang Lin avait déjà prévu une voie de retraite. Sa main gauche ava
 
 À cet instant, le parapluie, niché dans sa main gauche, s'ouvrit brusquement pour recouvrir son corps!
 
-Dès l'ouverture de l'ombrelle, les flammes jaillirent. Les cinq pétales se refermèrent mais furent bloqués par le brasier. Chaque pétale heurtant le parapluie provoquait une secousse qui faisait trembler le cœur de Wang Lin. Cependant, il utilisa cette force pour reculer de trois pas.
+Dès l'ouverture de l'ombrelle, les flammes jaillirent. Les cinq pétales se refermèrent mais furent bloqués par le brasier. Chaque pétale heurtant le parapluie provoquait une secousse qui ébranlait l'esprit de Wang Lin. Cependant, il utilisa cette force pour reculer de trois pas.
 
 Après ces trois pas, son corps fusionna totalement avec le vortex. Tandis que les flammes occultaient toute vue sur lui, Wang Lin quitta ce monde.
 
-Au moment où Wang Lin disparut, il entendit un rugissement de rage. Le Daoïste aux Sept Couleurs suivit les pétales et se précipita dans le vortex. Il leva la main droite et une griffe septicolore tenta de lacérer Wang Lin!
+Au moment où Wang Lin disparut, il entendit un rugissement de rage. Le Daoïste aux Sept Couleurs suivit les pétales et se précipita dans le vortex. Il leva la main droite et une empreinte de paume septicolore fondit sur Wang Lin pour le saisir!
 
-Mais la griffe ne rencontra que le vide, car Wang Lin s'était déjà évaporé!
+Mais la paume ne rencontra que le vide, car Wang Lin s'était déjà évaporé!
 
 « Même si tu fuis jusqu'aux confins de l'univers, tu ne pourras échapper à ce seigneur! » Le Daoïste aux Sept Couleurs ne daigna même pas regarder le Général Tigre Blanc ou l'homme de la Planète des Cinq Éléments. Il s'engouffra dans le vortex à la poursuite de Wang Lin.
 
@@ -110,4 +110,4 @@ Une fois Wang Lin et le Daoïste disparus, la troisième planète s'effondra et 
 
 Il devait s'y soumettre. Il lutta pour se redresser et chargea le cultivateur de la Planète des Cinq Éléments au visage livide.
 
-« Capture-le, il me sera d'une grande utilité! » C'était le premier et unique ordre que Wang Lin avait laissé au Général Tigre Blanc avant son départ.
+« Capture-le, il me sera d'une grande utilité! » C'était le premier ordre que Wang Lin avait laissé au Général Tigre Blanc avant son départ.

@@ -24,7 +24,7 @@ S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine e
 
 « La seconde étape de la culture comprend les stades Scruteur du Nirvana, Purificateur du Nirvana et Briseur du Nirvana... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
 
-« Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes...? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et son œil droit contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrange beauté!
+« Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes...? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et son œil droit contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrangeté saisissante!
 
 À l'ouverture de ses yeux, les poissons yin et yang se mirent à tourner encore plus vite.
 
@@ -48,7 +48,7 @@ C'est ainsi qu'après une demi-lune, il arriva au pied du Pic Heng Yun. Le vieil
 
 Il grimpa étape par étape. Même lorsque ses genoux se brisèrent et que le sang coula, il continua de gravir la montagne sans s'arrêter. Dans son cœur, une foi inébranlable le portait vers l'avant.
 
-« Je pensais avoir tout compris des relations humaines et avoir atteint l'illumination dans le monde des savoirs. Je m'étais donné pour mission de civiliser le monde. Pourtant, à l'approche du crépuscule de ma vie, j'ai soudainement eu une révélation. Je ne suis qu'un poisson dans l'eau... »
+« Je pensais avoir tout compris du ciel, de la terre et des relations humaines et avoir atteint l'illumination dans le monde des savoirs. Je m'étais donné pour mission de civiliser le monde. Pourtant, parvenu à l'âge de connaître le mandat du Ciel, j'ai soudainement eu une révélation. Je ne suis qu'un poisson dans l'eau... »
 
 Le visage du vieil homme Xie était marqué par l'amertume, mais ses yeux brillaient d'un éclat nouveau.
 
@@ -66,7 +66,7 @@ Cependant, son corps était déjà vieux et ne pouvait supporter la force de l'�
 
 Wang Lin dit calmement: « Il ne vous reste plus beaucoup de temps à vivre. Cultiver le dao n'est pas une chose qui s'obtient aisément. Y avez-vous mûrement réfléchi? »
 
-Le vieil homme Xie regarda Wang Lin, les yeux empreints de détermination: « À trois ans, j'apprenais les caractères. À six ans, je composais des poèmes. Mon nom fit trembler la capitale à mes quatorze ans. Pourtant, mon cœur a toujours été dans le brouillard. Je me disais comprendre l'humain, mais je ressentais toujours ce sentiment d'être opprimé par le monde. Vieux, j'ai quitté mes fonctions officielles et je m'étais résigné à instruire les élèves. J'étais prêt à passer le reste de mes jours dans la confusion et l'oppression. »
+Le vieil homme Xie regarda Wang Lin, les yeux empreints de détermination: « À trois ans, j'apprenais les caractères. À six ans, je composais des poèmes. Mon nom fit trembler la capitale à mes quatorze ans. Pourtant, mon cœur a toujours été dans le brouillard. Je me disais comprendre l'humain, mais je ressentais toujours ce sentiment d'être opprimé par le monde. Vieux, j'ai quitté mes fonctions officielles et je m'étais résigné à instruire les élèves. J'étais prêt à passer le reste de mes jours dans la confusion et l'oppression, et à disparaître dans le néant. »
 
 « Cependant, ce vent qui a pénétré ma chambre m'a permis de trouver la source de ce brouillard. Qu'est-ce que le dao...? L'illumination au bord de la rivière a fait lutter en moi une force qui me poussait à venir ici, même si je devais mourir, pour... trouver le dao! Veuillez m'enseigner le dao! Acceptez-moi comme disciple! »
 

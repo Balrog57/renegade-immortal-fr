@@ -18,7 +18,7 @@ Wang Lin avait utilisé le Doigt Céleste immédiatement car il voulait choquer 
 
 La terre tremblait encore et l'onde de choc résonnait. Le sifflement du vent hurlait toujours aux oreilles des spectateurs. L'odeur du sang rappelait aux quelque 100 000 cultivateurs cette scène terrifiante.
 
-Wang Lin avait détruit le corps du maître de branche de la Secte Éternelle et avait tué l'Ancien et le disciple principal de la branche. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
+Wang Lin avait détruit le corps du maître de la Secte de la Musique Céleste, tué le Grand Ancien de cette branche et son disciple principal. Tout cela s'était produit au sein même de la Secte Éternelle, et lorsque l'Ancien Feng Hai tenta de prendre la parole, Wang Lin trancha d'une voix sans détour:
 
 « Quiconque tentera de les sauver subira le même sort! »
 
@@ -34,7 +34,7 @@ Pourtant, Lu Yanfei pouvait compter sur sa présence derrière elle, tandis qu'e
 
 Li Qianmei gardait un visage serein tout en observant Wang Lin en silence. Un sourire flottait sur ses lèvres, identique à celui d'il y a cent ans.
 
-Wang Shanshan fronça les sourcils en pensant au doigt de lumière, semblant plongée dans une profonde réflexion.
+Wang Shanshan fronça les sourcils en pensant au doigt qu'il venait de lancer, semblant plongée dans une profonde réflexion.
 
 Les vieux monstres de la Secte Éternelle possédaient des niveaux de culture élevés et étaient tous extrêmement rusés. À cet instant, il était impossible de déceler leurs émotions, mais leurs regards vers Wang Lin semblaient glacials.
 
@@ -78,7 +78,7 @@ L'expression de Feng Hai était sombre. En tant qu'Ancien de la Secte Éternelle
 
 Les sectes de la région de rang 7 étaient précieuses pour leurs membres. Les autres se moquaient éperdument de savoir si Zhao Long vivait ou mourait; ils n'avaient pas à se soucier de sa réputation déchue. Mais lui, Feng Hai, s'en souciait, car il était issu de la Secte Recherchant la Montagne avant de devenir un Ancien de la Secte Éternelle.
 
-Si Li Qianmei avait tué quelqu'un, cela aurait été toléré car elle bénéficiait du soutien de la Secte Briseur de Cieux, et il n'aurait pu rien dire. Mais en ce moment, la situation était tout autre!
+Si Li Qianmei avait tué quelqu'un, cela aurait été toléré car elle bénéficiait du soutien de la Secte Brise-Ciel, et il n'aurait pu rien dire. Mais en ce moment, la situation était tout autre!
 
 « Cher compagnon de culture, je vous prie d'accorder un peu de dignité à ce vieil homme et de ne pas attaquer les membres de la Secte Recherchant la Montagne. » Les paroles de Feng Hai étaient empreintes de gravité alors qu'il dégageait une aura glaciale pour charger vers Wang Lin.
 

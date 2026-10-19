@@ -28,7 +28,7 @@ Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort,
 
 Un fracas assourdissant retentit et, grâce à leur attaque combinée, l'éclair éternel finit par se briser!
 
-Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, l'Ancien en chef apparut non loin de là.
+Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, le Grand Ancien apparut non loin de là.
 
 Dès son apparition, son expression changea!
 
@@ -36,7 +36,7 @@ Dès son apparition, son expression changea!
 
 Il vit immédiatement le Daoïste Esprit Dispersé, et ses pupilles se rétractèrent.
 
-Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Ancien en chef du Clan du Tonnerre Dispersé, vous vous souvenez encore de moi? »
+Le Daoïste Esprit Dispersé fixa l'Ancien et dit d'une voix lente: « Grand Ancien du Clan du Tonnerre Dispersé, vous vous souvenez encore de moi? »
 
 L'Ancien affichait une expression extrêmement grave; grâce à son intelligence, il comprit instantanément la situation. Wang Lin avait voulu l'attirer ici, mais craignant ses soupçons, il avait provoqué un combat pour ensuite s'échapper au moment crucial, espérant qu'il le poursuive dans les 7 Millions de Mondes afin d'en finir avec lui.
 

@@ -26,7 +26,7 @@ Cette aura ne se contentait pas de les faire trembler; elle vidait leurs esprits
 
 « Le Seigneur du Royaume Scellé! »
 
-Comparés au Domaine Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre royaumes furent touchées. Dans la Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des éternités.
+Comparés au Royaume Extérieur, les habitants du Royaume Scellé ne ressentirent pas un impact aussi violent. Seules les figures les plus puissantes des quatre royaumes furent touchées. Dans la Secte Divine, au sein d'une chambre, était assis un garçon. Il avait l'apparence d'un enfant, mais ses cheveux étaient gris. Il restait là, comme s'il n'avait pas bougé depuis des dizaines de milliers d'années.
 
 Cependant, à cet instant précis, ses paupières tremblèrent et il ouvrit soudainement les yeux.
 
@@ -124,6 +124,6 @@ Wang Lin prit une profonde inspiration pour réprimer l'étoile et fronça les s
 
 Il avait déployé des efforts colossaux pour briser cette formation. Finalement, au prix de l'effondrement d'une étoile et du sacrifice des cultivateurs du troisième pas scellés dans ses astres, il avait à peine réussi à franchir la formation de scellement pour dévorer Wang Lin. Pourtant, maintenant, malgré tous ses efforts, il ne parvenait pas à trouver l'aura de ce dernier.
 
-« Il n'est ni dans le Royaume Scellé, ni dans le Domaine Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut au loin un champ stellaire où semblaient vivre de nombreux membres du peuple antique. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
+« Il n'est ni dans le Royaume Scellé, ni dans le Royaume Extérieur, et pourtant son aura était présente dans la formation de scellement. Pourrait-il se cacher à l'intérieur de la formation elle-même? Mais c'est impossible avec son niveau de culture! » Il rugit vers les cieux, les yeux injectés de sang. Il perçut au loin un champ stellaire où semblaient vivre de nombreux membres du peuple antique. N'ayant aucun moyen d'exprimer sa rage, il serra le poing et se précipita dans cette direction.
 
 « Maudit Wang Lin, ce Dieu te retrouvera un jour! Je te dévorerai pour apaiser la colère qui me consume! »

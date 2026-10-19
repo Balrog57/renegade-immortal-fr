@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 494 - Elder Sun!"
 slug: lancien-sun
 ---
-L'Omniscient ne dispensait son enseignement qu'une fois tous les dix mille ans, et la durée de cette leçon variait à chaque occurrence. C'était une opportunité inestimable pour quiconque venait en quête du Dao. Il s'agissait d'un événement unique à la planète Tian Yun, apparu dès que l'Omniscient entra en existence.
+L'Omniscient ne dispensait son enseignement qu'une fois tous les dix mille ans, et la durée de cette leçon variait à chaque occurrence. C'était une opportunité inestimable pour quiconque venait en quête du Dao. Il s'agissait d'un événement unique à la planète Tian Yun, apparu après que l'Omniscient eut atteint le Dao.
 
 Parmi les immenses foules venues de tous horizons, certains étaient des cultivateurs extrêmement puissants. Cependant, même eux écoutaient attentivement l'Omniscient et gardaient ses paroles précieusement en mémoire.
 
@@ -52,7 +52,7 @@ Une fois les disciples principaux des sept divisions arrivés, les disciples ord
 
 Un par un, les disciples ordinaires des sept divisions apparurent pour se tenir derrière les disciples principaux. Leur nombre était immense, formant un vaste éventail derrière les membres de l'élite.
 
-Par conséquent, la disparité de force entre les divisions devint flagrante. La Division Rouge était la plus puissante; elle possédait le plus grand nombre de disciples et comptait parmi eux de nombreux cultivateurs de haut rang.
+Par conséquent, la disparité de force entre les divisions devint flagrante. La Division Rouge était la plus puissante; elle comptait parmi ses disciples de nombreux cultivateurs de haut rang.
 
 Quant à la Division Violette, les disciples derrière Wang Lin étaient nettement en retrait.
 
@@ -94,7 +94,7 @@ Un long rire, semblant émaner du néant, résonna dans ce silence.
 
 Simultanément, d'innombrables rayons de lumière dorée apparurent soudainement dans un rayon de dix mille kilomètres. Une fois apparus, ces rayons convergèrent frénétiquement vers un point unique.
 
-Alors que la lumière dorée se déplaçait, le ciel entier ressembla à une immense restriction. Cette restriction n'était pas immobile; elle se contractait rapidement.
+Alors que la lumière dorée se déplaçait, le ciel entier ressembla à une immense formation. Cette formation n'était pas immobile; elle se contractait rapidement.
 
 Finalement, lorsque toute la lumière dorée s'était rassemblée en un seul point, le soleil perdit son éclat. Le ciel et la terre semblèrent également perdre leurs couleurs. La seule chose qui subsistait au monde était cette lueur dorée.
 

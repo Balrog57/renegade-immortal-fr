@@ -37,7 +37,7 @@ Hu Pao hurla avec fureur: « Quand tu m'as abandonné, moi et Treize, sais-tu co
 
 « J'ai subi la torture et l'humiliation dans la prison obscure. Où étais-tu alors?
 
-« Quand j'ai appelé d'innombrables fois pour que tu me sauves, où étais-tu? À tes yeux, Treize et moi n'étions que des pions. Malheureusement, Treize est toujours un idiot qui ne connaît pas ton vrai visage! »
+« Quand j'ai appelé d'innombrables fois pour que tu me sauves, où étais-tu? À tes yeux, Treize et moi n'étions que des pions. Ridicule, Treize est toujours dans l'ignorance et ne connaît pas ton vrai visage! »
 
 Les fragments d'âmes au-dessus de lui semblaient ressentir cette exaltation et rugirent avec lui.
 

@@ -44,7 +44,7 @@ Tôt le matin, le premier rayon de soleil tomba sur la planète Qing Ling. Les m
 
 Les cultivateurs, eux, puisaient l'énergie spirituelle sous le soleil levant! Sauf qu'aujourd'hui, cette énergie semblait particulièrement active et plusieurs fois plus riche qu'auparavant. Presque tous les cultivateurs le remarquèrent et furent agréablement surpris. Ils cherchèrent immédiatement des lieux propices à la culture.
 
-Certains découvrirent progressivement que lorsqu'ils se tournaient vers le nord-est, l'énergie spirituelle qu'ils absorbaient était bien plus dense; ils volèrent donc tous en direction du nord-est.
+Certains découvrirent progressivement que lorsqu'ils se tournaient vers le nord-est, l'énergie spirituelle qu'ils absorbaient était bien plus dense; ils volèrent donc en direction du nord-est.
 
 Le nord-est de la planète Qing Ling abritait le pic Heng Yun. À cet instant, d'innombrables cultivateurs se trouvaient à cinq mille kilomètres du pic Heng Yun. C'était comme s'ils vénéraient la montagne tout en cultivant.
 

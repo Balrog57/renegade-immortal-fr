@@ -8,7 +8,7 @@ slug: la-garde-et-la-pointe-de-lepee
 ---
 « Je veux votre méthode des 18 Pruniers Restrictifs! » La voix de Wang Lin était calme, mais ses paroles étaient un choc.
 
-Wang Lin savait que la méthode des 18 Pruniers Restrictifs était très célèbre dans l'Antiquité, mais qu'elle avait été gardée secrète. Les étrangers ne pouvaient jamais l'apprendre et, quant aux disciples, selon leur statut, ils ne pouvaient apprendre que jusqu'aux 9 Pruniers Restrictifs! Seul le maître pouvait maîtriser l'intégralité des 18 Pruniers Restrictifs!
+Wang Lin savait que la méthode des 18 Pruniers Restrictifs était très célèbre dans l'Antiquité, mais qu'elle avait été gardée secrète. Les étrangers ne pouvaient jamais l'apprendre et, quant aux disciples, selon leur statut, ils ne pouvaient apprendre que jusqu'aux 9 Pruniers Restrictifs! Seul le maître de secte pouvait maîtriser l'intégralité des 18 Pruniers Restrictifs!
 
 De nos jours, cette méthode de restriction était perdue depuis longtemps, et de nombreux maîtres des restrictions la regrettaient amèrement.
 
@@ -26,9 +26,9 @@ Cependant, ce Li Yuan était trop mystérieux. Wang Lin n'était pas certain que
 
 Wang Lin n'agirait qu'une fois arrivés à destination!
 
-Li Yuan réfléchit un instant avant de sourire. « Seulement les 18 Pruniers Restrictifs? Si le Frère Xu les désire, je me ferai un plaisir d'obtempérer. » Il tapota son sac et en sortit une pierre de jade. Il plaça le jade entre ses sourcils pendant quelques instants avant de le lancer à Wang Lin.
+Li Yuan réfléchit un instant avant de sourire. « Seulement les 18 Pruniers Restrictifs? Si le Frère Xu les désire, je les lui cède volontiers. » Il tapota son sac et en sortit une pierre de jade. Il plaça le jade entre ses sourcils pendant quelques instants avant de le lancer à Wang Lin.
 
-« Voici la méthode des 13 Pruniers Restrictifs. Je te donnerai naturellement les cinq restants après que nous serons entrés dans la montagne. »
+« Voici la méthode des 13 Pruniers Restrictifs. Je vous donnerai naturellement les cinq restants après que nous serons entrés dans la montagne. »
 
 Wang Lin attrapa le jade et l'examina. Bien que son expression fût neutre, son cœur se mit à battre la chamade. Il n'y avait aucune incantation à l'intérieur, seulement 13 grandes statues et un total de 13 fleurs de prunier, sous les pieds de chacune des statues. Elles s'accordaient entre elles de façon extrêmement subtile, avec un naturel parfait, et recelaient une certaine loi.
 

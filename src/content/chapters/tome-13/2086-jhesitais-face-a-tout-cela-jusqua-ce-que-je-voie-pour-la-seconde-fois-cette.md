@@ -24,7 +24,7 @@ slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cett
 
 « Et dans le monde de la grotte, lorsque j'ai tenté d'atteindre la troisième étape, la Porte du Vide est apparue... ainsi que la voix émanant de derrière la porte. Plus tard, je découvris que cette voix était très similaire à celle de la Perle Défiant le Ciel qui me disait que quelque chose manquait.
 
-« Cela a persisté jusqu'à ce que l'idée folle me traverse l'esprit, jusqu'à ce que je trouve le crâne de Ji Qiong et le Sens Divin qu'il contenait. » Après avoir parlé, Wang Lin leva la main droite et le crâne de Ji Qiong apparut.
+« Cela a persisté jusqu'à ce que je développe cette idée folle, jusqu'à ce que je trouve le crâne de Ji Qiong et le Sens Divin qu'il contenait. » Après avoir parlé, Wang Lin leva la main droite et le crâne de Ji Qiong apparut.
 
 Des caractères étaient gravés sur ce crâne, émettant une lueur froide et une intention meurtrière.
 
@@ -48,7 +48,7 @@ Wang Lin fixa calmement l'Omniscient.
 
 « Ma méthode est très simple. Je maîtrise le Temps Fluide, vous devriez le savoir... Une fois mon avatar de massacre achevé, j'ai utilisé mon sortilège de Temps Fluide avec toute ma puissance pour inverser le temps et le renvoyer dans le passé!
 
-« Je l'ai renvoyé d'innombrables années en arrière pour imiter ma vie. Il a utilisé son Dao du Rêve pour diviner et calculer tout ce qui devait m'arriver!
+« Je l'ai renvoyé d'innombrables années en arrière pour imiter ma vie. Il a utilisé son Dao du Rêve pour diviner et calculer tout ce qui m'était arrivé!
 
 « Je lui ai donné de l'autonomie, j'ai offert la liberté à mon avatar!
 
@@ -62,7 +62,7 @@ Wang Lin fixa calmement l'Omniscient.
 
 « Le Sens Divin m'a clairement révélé que, dans le passé, l'avatar de massacre avait inversé le monde et emprunté une boussole. Cette boussole était la clé pour ressusciter Wan Er.
 
-« Il a placé la boussole sur le Continent Astral Immortel et y est entré à plusieurs reprises. Cependant, à chaque fois, le continent se dissipait rapidement après son entrée.
+« Il a placé la boussole sur le Continent Astral Immortel et y est entré à plusieurs reprises. Cependant, à chaque fois, il se dissipait rapidement après y être entré.
 
 « Ce n'est que lorsqu'il est arrivé, une dernière fois et tel une réincarnation, dans le Royaume Divin Immémorial qu'il a pu accomplir la tâche que je lui avais assignée: il a brisé la boussole avant de se dissiper. Cela a rendu la boussole incomplète et a libéré l'esprit du trésor qui y résidait!
 
@@ -80,7 +80,7 @@ Wang Lin fixa calmement l'Omniscient.
 
 « Une fois la réincarnation comprise, on voit qu'elle n'est qu'un cercle. On peut s'y déplacer librement et saisir n'importe quel point. » Wang Lin secoua la tête et regarda calmement l'Omniscient.
 
-« Vous avez comploté contre moi, mais vous ignoriez qu'en fin de compte, c'est moi qui complotais contre vous... C'est comme chercher quelque chose et le trouver soudainement au moment même où l'on se retourne. »
+« Vous avez comploté contre moi, mais vous ignoriez qu'en fin de compte, c'est moi qui complotais contre vous... C'est comme chercher quelque chose et le trouver soudain, là où les lumières s'estompent, au moment même où l'on se retourne. »
 
 « Impossible, ce ne peut pas être ainsi!! J'ai personnellement vu votre vie antérieure! J'ai personnellement vu comment vous avez emprunté ma boussole! J'ai personnellement vu comment vous êtes entré dans le Dao du Rêve avec elle!
 

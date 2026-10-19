@@ -44,7 +44,7 @@ Il commença à méditer. Parmi les sorts qu'il maîtrisait, le plus puissant é
 
 Vient ensuite le sort d'Arrêt. Ce sort n'était pas moins puissant que le Coup Céleste. S'il était utilisé au moment opportun, il jouerait un rôle décisif.
 
-Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Forme du fleuve des enfers, la Formation de l'âme du fleuve et la Puissance du fleuve des enfers.
+Outre ces deux sorts, il y avait le Doigt de la Mort, le Doigt Démoniaque et le Doigt des Enfers! Il y avait aussi les trois pensées du Dao issues du domaine de vie, de mort et de réincarnation: la Forme de la Rivière des Enfers, la Formation de l'âme de la rivière et la Puissance de la Rivière des Enfers.
 
 Ce qu'il devait ajuster, c'étaient les trois doigts! S'il continuait à les utiliser ainsi, cela lui porterait grand préjudice sur son chemin vers la troisième étape. Ces trois sorts étaient incomplets et nuiraient à son corps. Quant à savoir pourquoi ils entraveraient son ascension vers la troisième étape, Wang Lin ne le savait pas précisément, mais il en avait l'intuition.
 
@@ -58,7 +58,7 @@ La roue du temps tourna de nouveau et deux années s'écoulèrent. Durant cette 
 
 Wang Lin comprit qu'il faisait preuve de trop d'impatience.
 
-Pourtant, il ne renonça pas et fit de son mieux pour améliorer lentement ses techniques. Si quelqu'un du deuxième stade voyait cela, il en serait stupéfait. Un tel perfectionnement revenait à déduire le sort céleste originel à partir du sort actuel. Pour lui, c'était une tâche d'une difficulté extrême, même pour des êtres comme l'Omniscient.
+Pourtant, il ne renonça pas et fit de son mieux pour améliorer lentement ses techniques. Si quelqu'un du deuxième stade, Purificateur ou Briseur du Nirvana, voyait cela, il en serait stupéfait. Un tel perfectionnement revenait à déduire le sort céleste originel à partir du sort actuel. Pour lui, c'était une tâche d'une difficulté extrême, même pour des êtres comme l'Omniscient.
 
 Pendant ces deux années, le crapaud tonnerre et la Bête du Tonnerre furent très hostiles l'un envers l'autre, sans toutefois en venir aux mains. Le crapaud était trop faible et la Bête du Tonnerre le méprisait, bien qu'elle sentît que ce dernier pourrait potentiellement représenter une menace à l'avenir.
 
@@ -118,9 +118,9 @@ Quant à Xu Liguo, il fut placé en résidence surveillée par Wang Lin! Si ce n
 
 Confiné dans un rayon de mille pieds autour de Wang Lin, Xu Liguo affichait une mine injustement affligée. Il n'osait plus sortir en douce. Tout ce qu'il faisait consistait à regarder au loin et à soupirer intérieurement: « Je ne faisais que prendre le contrôle de leurs corps physiques pour profiter de la sensation d'avoir de la chair. Ce n'est pas si grave, hélas... »
 
-Wang Lin n'avait pas le temps de se soucier de Xu Liguo. Après l'avoir contraint à rester près de lui, il se concentra de nouveau sur la perfection de ses sorts. Durant ce temps, il absorba lentement la rancune dans son fleuve des enfers.
+Wang Lin n'avait pas le temps de se soucier de Xu Liguo. Après l'avoir contraint à rester près de lui, il se concentra de nouveau sur la perfection de ses sorts. Durant ce temps, il absorba lentement la rancune dans sa Rivière des Enfers.
 
-Après avoir absorbé cette rancune, le fleuve des enfers n'était plus le même; l'âme du fleuve commença progressivement à prendre forme.
+Après avoir absorbé cette rancune, la Rivière des Enfers n'était plus la même; l'âme de la rivière commença progressivement à prendre forme.
 
 Le temps passa rapidement. L'amélioration des sorts coûtait trop d'énergie à Wang Lin. Bien qu'il ne fût pas encore parvenu au but, ce perfectionnement constant lui permettait de continuer à comprendre la direction de la troisième étape, et le domaine de Wang Lin devenait progressivement plus puissant.
 

@@ -114,7 +114,7 @@ Cependant, « Invoque le Vent » était un sort céleste créé par un Empereur 
 
 Au moment où le corps du serpent vola en éclats, le dragon dévoré se reforma. Les deux dragons chargèrent alors Xu Ting.
 
-La main droite de Xu Ting traça un sceau et pointa entre ses sourcils en criant: « Esprit de Montagne! » La brume noire jaillit de l'arrière de sa tête pour former un épais nuage devant lui. Cette brume remplit rapidement le ciel et la terre avant de se transformer en une montagne gigantesque!
+La main droite de Xu Ting traça un sceau et pointa entre ses sourcils en criant: « La montagne descend! » La brume noire jaillit de l'arrière de sa tête pour former un épais nuage devant lui. Cette brume remplit rapidement le ciel et la terre avant de se transformer en une montagne gigantesque!
 
 Cette montagne recouvrait le ciel comme si elle l'avait remplacé, puis elle s'abattit sur Wang Lin avec une fureur folle!
 
@@ -148,7 +148,7 @@ Cette scène étrange fit recracher son vin à Nangong Han, dont les yeux étaie
 
 « Je ne peux pas le battre... »
 
-Shengong Hu prit une profonde inspiration en regardant Wang Lin. Cette lumière rouge venait de faire réapparaître l'image de la figure respectée qu'il avait vue dans le lac du tonnerre.
+Shengong Hu prit une profonde inspiration en regardant Wang Lin. Cette lumière rouge venait de faire réapparaître l'image de la figure respectée qu'il avait vue dans le lac de tonnerre.
 
 Alors que les yeux du cultivateur aux six doigts étaient remplis de terreur, ils brillèrent aussi d'une lueur de férocité. Il se rua sur Wang Lin!
 

@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 13 - The Elder
 slug: lancien
 ---
-Il s'approcha. Après un examen attentif, il remarqua que même les fleurs violettes situées face à l'herbe bleue avaient flétri, bien que moins sévèrement que cette dernière.
+Il s'approcha. Après un examen attentif, il remarqua que même les fleurs de nuit pourpres situées face à l'herbe bleue avaient flétri, bien que moins sévèrement que cette dernière.
 
 Il se souvenait pourtant très bien que ces herbes étaient encore saines et vigoureuses à midi. Comment avaient-elles pu en arriver là en un seul après-midi? Il ramassa l'herbe bleue pour l'inspecter. À l'examen, elle semblait avoir perdu toute son humidité, ce qui avait causé son flétrissement. Il toucha le sol, mais celui-ci présentait pourtant une humidité idéale pour la croissance des herbes. Il était profondément perplexe.
 

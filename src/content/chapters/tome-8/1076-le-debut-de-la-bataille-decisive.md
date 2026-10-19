@@ -26,7 +26,7 @@ Le vieil homme qui avait crié auparavant joignit les mains en signe de respect 
 
 « La Secte Divine de l'Oiseau Vermillon... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
 
-Pourtant, bien qu'entouré par les membres de la Secte Divine de l'Oiseau Vermillon, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression extrêmement étrange.
+Pourtant, bien qu'entouré par les membres de la Secte Divine de l'Oiseau Vermillon, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression sinistre et extrêmement étrange.
 
 La Concubine Impériale des Fleurs, Situ Nan, Wang Wei, Hu Juan et les autres se dirigèrent vers la Secte Divine de l'Oiseau Vermillon, traçant une ligne de démarcation nette entre eux et l'Omniscient ainsi que l'Ancien Démon Ta Jia.
 
@@ -64,7 +64,7 @@ Simultanément, les quelque cent disciples de la Secte Divine de l'Oiseau Vermil
 
 Dès que leurs âmes originelles apparurent, une chaleur intense se fit sentir. Ce qui stupéfia Da Tou et les autres, fut qu'aussitôt manifestées, ces âmes commencèrent à fusionner.
 
-Il faut savoir que l'âme originelle est l'essence même de la culture d'un individu. En raison des différences de domaines, une telle fusion était normalement impossible; toute tentative de fusion ne serait qu'une dévoration. À moins de posséder un trésor défiant les cieux, deux âmes originelles ne pouvaient coexister.
+Il faut savoir que l'âme originelle est l'essence même de la culture d'un individu. En raison des différences de convictions du Dao, une telle fusion était normalement impossible; toute tentative de fusion ne serait qu'une dévoration. À moins de posséder un trésor défiant les cieux, deux âmes originelles ne pouvaient coexister.
 
 Pourtant, ces cent âmes fusionnèrent rapidement pour former un géant de flammes de plusieurs centaines de pieds de haut. Le géant poussa un rugissement et chargea l'Ancien Démon Ta Jia!
 
@@ -90,10 +90,10 @@ L'être sans tête fut contraint de reculer de trois pas. Son armure noire brill
 
 Profitant de ce bref recul, Wang Lin ouvrit la bouche pour expulser un objet.
 
-C'étaient les 18 Sceaux Célestes de l'Enfer!
+C'était le Sceau Céleste des 18 Enfers!
 
 Sans hésiter, la main droite de Wang Lin plongea dans le vide et une lumière cristalline apparut dans sa paume. Il projeta violemment cette lumière vers l'avant et, tandis qu'elle scintillait devant lui, il hurla: « Arsenal Magique! »
 
-À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers gagnèrent en puissance, libérant une déflagration d'énergie Yin.
+À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers gagnèrent en puissance, dégageant des effluves d'énergie Yin.
 
 Le plus terrifiant fut de voir l'âme du Maître du Vide surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.

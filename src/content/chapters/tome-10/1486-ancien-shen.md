@@ -38,11 +38,11 @@ Tout cela se produisit en un instant. Un instant plus tard, Wang Lin saisit la t
 
 Wang Lin ne perdit pas une seconde en paroles. Son énergie originelle s'activa et il commença une recherche d'âme pour obtenir les réponses qu'il cherchait!
 
-« Tu oses me tuer?! Ma famille Xiang est une branche de l'ancienne famille Dong Ling! Je suis issu de cette lignée, je m'appelle Dong Lingtai! Comment oses-tu me tuer?! »
+« Tu oses me tuer?! Ma famille Xiang est une branche de l'ancienne famille Dong Lin! Je suis issu de cette lignée, je m'appelle Dong Lintai! Comment oses-tu me tuer?! »
 
 Une folie désespérée brûlait sous la peur dans ses yeux. Il hurlait tandis que Wang Lin procédait à la recherche d'âme.
 
-« Tu as détruit la planète Dong Ling et massacré des dizaines de milliers de personnes! Tu as enfreint l'édit de la famille Dong Ling de jadis, tu vas mourir!!! Pas seulement toi, mais tous tes proches seront anéantis!! Comment oses-tu me tuer?! »
+« Tu as détruit la planète Dong Lin et massacré des dizaines de milliers de personnes! Tu as enfreint l'édit de la famille Dong Lin de jadis, tu vas mourir!!! Pas seulement toi, mais tous tes proches seront anéantis!! Comment oses-tu me tuer?! »
 
 « Trop bruyant! » L'expression de Wang Lin resta de marbre. Au moment où il parla, une force colossale s'engouffra dans le corps de l'ancêtre de la famille Xiang. Tout ce qui soutenait son corps s'effondra.
 
@@ -54,15 +54,15 @@ Des rayons de lumière dorée apparurent de nulle part et se propagèrent dans t
 
 Deux caractères anciens ornaient cette porte dorée. Ces deux mots formaient un nom!
 
-Le nom d'une famille qui existait dans Luotian depuis bien trop longtemps, bien avant que les quatre grands domaines stellaires ne soient séparés!
+Le nom d'une famille qui existait dans Luotian depuis bien trop longtemps, bien avant que les quatre grands systèmes stellaires ne soient séparés!
 
-Dong Ling!
+Dong Lin!
 
 Dès l'apparition de la porte, une puissance écrasante s'en dégagea. La porte s'ouvrit lentement sous le regard de Wang Lin, laissant jaillir une lumière éclatante. Une ombre dorée gigantesque de plusieurs dizaines de milliers de pieds de haut sortit de l'ouverture!
 
 Cette silhouette étincelait intensément. À première vue, elle ressemblait à un géant en armure d'or. Son corps semblait d'une solidité absolue, comme s'il était réel!
 
-« Monsieur, vous avez détruit la planète Dong Ling. C'est un crime passible de la mort par mille coupures. Vous avez massacré le peuple de cette planète, commettant un crime qui mérite la destruction de votre âme. Vous avez nui à un membre du clan Dong Ling, ce qui est un crime odieux. Réunissant ces trois fautes, neuf générations de votre famille seront exterminées! » rugit le géant doré avant de lever la main droite. Dans un éclair de lumière, une épée dorée de dix mille pieds apparut et fonça sur Wang Lin!
+« Monsieur, vous avez détruit la planète Dong Lin. C'est un crime passible de la mort par mille coupures. Vous avez massacré le peuple de cette planète, commettant un crime qui mérite la destruction de votre âme. Vous avez nui à un membre du clan Dong Lin, ce qui est un crime odieux. Réunissant ces trois fautes, neuf générations de votre famille seront exterminées! » rugit le géant doré avant de lever la main droite. Dans un éclair de lumière, une épée dorée de dix mille pieds apparut et fonça sur Wang Lin!
 
 « Tuer est tuer, à quoi bon tout ce baratin? Aujourd'hui, je tue. Quiconque osera résister mourra! » Wang Lin serra le poing droit et broya la tête de l'ancêtre de la famille Xiang. Il s'élança ensuite dans les airs et pointa l'épée descendante de son doigt!
 
@@ -84,9 +84,9 @@ Cet homme avait surpassé le Cinquième Ciel de la Calamité et se trouvait à u
 
 Wang Lin agita ses manches et ses cheveux blancs flottèrent au vent. Une aura de maître émana de lui lorsqu'il déclara lentement: « J'ai assez tué aujourd'hui. Je m'en vais. Allez-vous m'en empêcher? »
 
-Le vieil homme afficha une expression complexe en observant Wang Lin. Après un long silence, il joignit les mains et dit: « Votre Excellence est puissante et ce vieil homme n'a pas la capacité de vous arrêter. Cependant, vous avez détruit la planète Dong Ling et enfreint les lois du clan. Je me dois de rapporter cela au clan, et le sort qui vous attend sera décidé par les Anciens! »
+Le vieil homme afficha une expression complexe en observant Wang Lin. Après un long silence, il joignit les mains et dit: « Votre Excellence est puissante et ce vieil homme n'a pas la capacité de vous arrêter. Cependant, vous avez détruit la planète Dong Lin et enfreint les lois du clan. Je me dois de rapporter cela au clan, et le sort qui vous attend sera décidé par les Anciens! »
 
-Wang Lin resta impassible. Si les cultivateurs de la planète Dong Ling n'avaient pas tenté de l'entraver, il ne les aurait pas tués. Devait-il simplement les laisser l'attaquer sans riposter?
+Wang Lin resta impassible. Si les cultivateurs de la planète Dong Lin n'avaient pas tenté de l'entraver, il ne les aurait pas tués. Devait-il simplement les laisser l'attaquer sans riposter?
 
 « Si les autres ne m'offensent pas, je ne les offense pas. Soyez prudents! » Le regard glacial de Wang Lin balaya le vieillard. Ses paroles n'étaient pas destinées à lui, mais à la porte dorée à moitié ouverte derrière lui.
 
@@ -100,7 +100,7 @@ Un soupir retentit derrière lui. Tandis que la lumière se distordait, un homme
 
 « Pourquoi n'avez-vous pas attaqué? » Le vieillard pressa sa main contre sa poitrine et se tourna vers l'homme d'âge mûr.
 
-« L'Ancêtre a dit qu'une fois la planète Dong Ling détruite, notre clan réapparaîtrait... Ce sera une calamité pour le clan Dong Ling... Cet homme n'a pas seulement été capable de me détecter, il m'a aussi lancé un avertissement. Il n'est pas ordinaire! »
+« L'Ancêtre a dit qu'une fois la planète Dong Lin détruite, notre clan réapparaîtrait... Ce sera une calamité pour le clan Dong Lin... Cet homme n'a pas seulement été capable de me détecter, il m'a aussi lancé un avertissement. Il n'est pas ordinaire! »
 
 L'homme d'âge mûr secoua la tête en fixant la direction où Wang Lin s'était volatilisé.
 

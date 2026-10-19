@@ -30,7 +30,7 @@ Certains cultivateurs manquaient de connaissances et d'expérience. Lorsqu'ils v
 
 Pourtant, malgré ces morts, certains refusèrent de croire aux rumeurs et tentèrent de s'emparer des épées par la force.
 
-À cet instant précis, huit cultivateurs étaient éparpillés dans le vide, chacun activant sa propre technique. Au loin, ils voyaient un groupe d'épées célestes foncer vers eux.
+À cet instant précis, sept ou huit cultivateurs étaient éparpillés dans le vide, chacun activant sa propre technique. Au loin, ils voyaient un groupe d'épées célestes foncer vers eux.
 
 Parmi ces hommes, certains possédaient des techniques puissantes. Cependant, dès que les épées arrivèrent, cinq explosions retentirent et cinq d'entre eux furent instantanément tués, les lames leur transperçant le cœur. Les survivants réussirent à contenir trois des épées célestes qui étaient restées à la traîne.
 
@@ -122,7 +122,7 @@ Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une perso
 
 Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il avait vu la pierre apparaître et hocha la tête.
 
-Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Papillon Rouge, surtout son domaine de mort. Même Papillon Rouge devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture augmentera grâce à ces jades célestes.*
+Wang Lin pensa intérieurement: *La culture de cet homme est un peu plus élevée que celle de Papillon Rouge, surtout son domaine de mort. Même Papillon Rouge devrait déployer d'énormes efforts pour le contenir. Je me demande simplement si mon corps original serait capable de supporter une telle attaque. Je me demande également quelle quantité d'énergie spirituelle supplémentaire mon corps originel nécessite pour franchir la troisième transformation. Une fois revenu à Suzaku, je me demande si sa culture progressera plus vite grâce à ces jades célestes.*
 
 La boussole stellaire était extrêmement rapide. Elle fit demi-tour et reprit la poursuite des épées célestes. Au loin, un fragment de royaume céleste apparut enfin.
 

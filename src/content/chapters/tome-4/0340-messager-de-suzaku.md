@@ -18,7 +18,7 @@ Trois jours plus tard, lui et son corps original ouvrirent les yeux simultanéme
 
 Wang Lin se leva. Au même moment, son corps original s'envola silencieusement vers l'immense crevasse créée durant la bataille. Il atterrit au fond du gouffre et sombra. Tandis qu'il s'enfonçait, la terre environnante l'emporta avec lui. Bientôt, le trou fut comblé, comme s'il n'avait jamais existé.
 
-À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière pourpre émanait de son corps, formant une petite sphère lumineuse à ses côtés.
+À des milliers de kilomètres sous la surface, le corps original était assis en pleine culture. Les deux étoiles violettes sur son front tournaient rapidement. Une faible lumière violette émanait de son corps, formant une petite sphère lumineuse à ses côtés.
 
 La blessure infligée au corps original était bien plus lourde que celle de Wang Lin. Surtout lors de cette ultime attaque, où le corps original avait encaissé 70 % des dégâts. Cependant, compte tenu de la puissance de son essence physique, ce n'était pas mortel, bien qu'une culture fermée fût également nécessaire.
 
@@ -33,7 +33,7 @@ La nuit, la lune arrivait discrètement, apportant avec elle la fraîcheur noctu
 Les jours de pluie, l'eau tombait du ciel et imprégnait Wang Lin presque instantanément.
 Les jours de neige, les flocons descendaient lentement, recouvrant tout d'un manteau blanc. Partout où le regard se posait, la blancheur régnait. Un bonhomme de neige s'était même formé à côté de la pagode.
 
-Que ce soit de jour ou de nuit, sous la pluie ou la neige, le corps de Wang Lin restait immobile. Il ressemblait à un vieux moine mort; aucune trace de vitalité n'émanait de lui.
+Que ce soit de jour ou de nuit, sous la pluie ou la neige, le corps de Wang Lin restait immobile. Il ressemblait à un vieux moine en pleine quiétude; aucune trace de vitalité n'émanait de lui.
 
 Six mois après la bataille, le printemps revint. Dans la maison du vieux Zhou, au village d'Apricot, un bébé naquit. Elle s'appelait Zhou Ru.
 

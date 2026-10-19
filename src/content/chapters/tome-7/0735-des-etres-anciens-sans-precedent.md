@@ -12,13 +12,13 @@ Quant à savoir pourquoi il en est ainsi, nul ne le savait. C’était comme si 
 
 Avec le temps, les gens cessèrent de s'interroger sur l'origine de ce phénomène. Ils savaient tous que tant qu'ils détenaient un fourneau de tonnerre, ils pourraient pénétrer dans le Royaume Céleste du Tonnerre.
 
-À cet instant précis, le tonnerre céleste arriva au moment même où Wang Lin rangeait son fourneau. Bien que l'éclair ne fût pas encore tombé, son grondement se faisait déjà entendre.
+À cet instant précis, le tonnerre céleste arriva au moment même où Wang Lin rangeait son fourneau. Bien que l'éclair ne fût pas encore tombé, chargé d'une énergie céleste dense, son grondement se faisait déjà entendre.
 
 Les yeux de Wang Lin laissèrent poindre une lueur étrange et son âme originelle s'activa avec frénésie. Des décharges de tonnerre jaillirent de son corps, se propageant jusqu'au monde extérieur. À cet instant, il semblait être le maître absolu du tonnerre et de la foudre.
 
 Au moment où le tonnerre descendit, le corps de Wang Lin jaillit vers l'avant tel un météore. Il ouvrit la bouche et dévora l'éclair sans la moindre hésitation!
 
-C’était un spectacle magnifique.
+C'était comme s'il avalait fleuves et montagnes!
 
 Après qu'il l'eut dévoré, les vents et les nuages changèrent et le monde entier sembla s'obscurcir. Le tonnerre, autrefois éclatant, avait été englouti par Wang Lin.
 
@@ -64,7 +64,7 @@ Ce tonnerre descendit avec un fracas capable de fendre les cieux. Au moment de s
 
 De loin, cela ne ressemblait pas à un simple éclair, mais plutôt à un immense vortex. Ce tourbillon était formé par les nuages de tonnerre, avec le troisième éclair niché au fond!
 
-Un grondement colossal retentit sur toute la planète. Aucun cultivateur n'osait déployer son Sens Divin à cet instant. Tous les mortels — même les tyrans des marchés et les experts du monde martial qui ne croyaient pas aux cultivateurs — s'agenouillèrent au sol, priant comme des fidèles dévots.
+Un grondement colossal retentit sur toute la planète. Aucun cultivateur n'osait déployer son Sens Divin à cet instant. Tous les mortels — même les tyrans des marchés et les experts du monde martial qui ne croyaient pas aux cultivateurs — s'agenouillèrent chez eux, priant comme des fidèles dévots.
 
 L'âme originelle de Wang Lin flottait dans le ciel, fixant ce tonnerre terrifiant. Il ne put s'empêcher d'esquisser un sourire amer: « Il semble que... cela soit allé trop loin... »
 
@@ -110,7 +110,7 @@ C'était le premier fourneau de tonnerre à se désintégrer depuis l'ouverture 
 
 C'était la première fois qu'un tel événement se produisait en des millénaires. Quant à la suite, nul ne pouvait le savoir.
 
-Les fourneaux de tonnerre étaient originellement indestructibles; en briser un était une tâche quasi impossible, même pour des experts du second niveau. Et même si quelqu'un y parvenait, il ne le ferait pas, car cela n'apporterait aucun avantage et aurait un impact extrêmement négatif sur l'équilibre du système.
+Les fourneaux de tonnerre étaient originellement indestructibles; en briser un était une tâche quasi impossible, même pour des experts du second niveau. Et même si quelqu'un y parvenait, il ne le ferait pas, car cela n'apporterait aucun avantage, ni au Royaume Céleste du Tonnerre ni à soi-même, et aurait un impact extrêmement négatif.
 
 Le sourire amer de Wang Lin s'accentua.
 

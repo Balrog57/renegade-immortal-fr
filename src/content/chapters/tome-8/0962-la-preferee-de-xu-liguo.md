@@ -18,7 +18,7 @@ Wang Lin ignora les paroles de Xu Liguo; d'un mouvement de son âme originelle, 
 
 Wang Lin fronça les sourcils, puis se rasseit sur sa chaise. Il dit: « Quatrième Sœur Aînée, je vais réfléchir à votre demande. »
 
-Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit doucement: « Bien que mon niveau de culture ne soit pas élevé, j'ai préservé ma virginité durant mes mille ans de culture. Si vous pouvez renforcer mon sceau, je... je peux vous donner mon Yin d'Origine millénaire. » Le visage de Zhao Xinmeng rougit alors qu'elle faisait face à Wang Lin. Elle écarta sa manche, révélant un petit point rouge.
+Zhao Xinmeng regarda Wang Lin et, après avoir hésité un instant, elle dit doucement: « Bien que mon niveau de culture ne soit pas élevé, j'ai préservé ma virginité durant mes mille ans de culture. Si vous pouvez renforcer mon sceau, je... je peux vous donner mon yin originel millénaire. » Le visage de Zhao Xinmeng rougit alors qu'elle faisait face à Wang Lin. Elle écarta sa manche, révélant un petit point rouge.
 
 Elle mordit sa lèvre inférieure, rabattit sa manche, puis regarda Wang Lin avant de s'en aller.
 
@@ -46,7 +46,7 @@ Du point de vue de Wang Lin, il fallait parfois mater Xu Liguo; sinon, ce dernie
 
 Avant que Xu Liguo ne soit raffiné en démon, il nourrissait beaucoup de ressentiment, et sa personnalité s'était intensifiée après sa transformation. Comme doté d'un os rebelle de naissance, la seule façon de le dompter était d'être toujours plus fort que lui.
 
-Lorsqu'ils étaient dans la Bête des Abysses, le vieil homme pensait que Xu Liguo était quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
+Lorsque Xu Liguo était dans la Bête des Limbes, l'ancien du Clan Immortel Élu le croyait quelqu'un de loyal, mais en réalité, il n'avait aucune loyauté. Au mieux, c'était une habitude acquise après avoir été sous le contrôle de Wang Lin pendant près de mille ans.
 
 Des pensées rebelles apparaissaient parfois dans le cœur de Xu Liguo. Wang Lin en était parfaitement conscient.
 

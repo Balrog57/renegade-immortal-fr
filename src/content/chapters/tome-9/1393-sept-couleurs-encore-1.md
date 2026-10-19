@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1393 - Seven Colors Again (1)
 slug: sept-couleurs-encore-1
 ---
-Son cri était rauque et déchirant, empreint d'une terreur immense. C'était comme si cet homme lui avait infligé tant de maux que, même si ses souvenirs n'étaient pas encore totalement revenus, elle ne pouvait s'empêcher de pousser un tel cri de désespoir.
+Son cri était perçant et strident, empreint d'une terreur immense. C'était comme si cet homme lui avait infligé tant de maux que, même si ses souvenirs n'étaient pas encore totalement revenus, elle ne pouvait s'empêcher de pousser un tel cri de désespoir.
 
 Le changement soudain de la femme en argent était une réaction imprévue pour Wang Lin, une facette d'elle qu'il n'avait jamais vue auparavant. Il se leva rapidement et rangea la statue.
 
-La femme en argent s'était déjà repliée vers l'entrée de la grotte. Son corps était parcouru par une peur monstrueuse et elle tremblait violemment. Son visage était livide; à première vue, elle ressemblait à une barque solitaire en pleine mer déchaînée, d'une tristesse infinie.
+La femme en argent s'était déjà repliée vers le fond de la grotte. Son corps était parcouru par une peur monstrueuse et elle tremblait violemment. Son visage était livide; à première vue, elle ressemblait à une barque solitaire en pleine mer déchaînée, d'une tristesse infinie.
 
 Wang Lin s'apprêtait à faire un pas vers elle lorsque la femme leva soudainement la tête. La terreur qui brillait dans ses yeux était d'une intensité inimaginable lorsqu'elle s'écria: « Ne t'approche pas! »
 
@@ -42,7 +42,7 @@ Il reprit doucement: « Je sais que ce n'est pas toi qui as ouvert la porte, ne 
 
 La femme sembla ne pas entendre ses paroles. Son regard oscillait entre confusion et effroi tandis qu'elle continuait de murmurer: « Tous morts... Tous ont été tués... »
 
-« Nuage de Pêche est morte... Chute Pourpre est également morte... Tous sont morts... »
+« Tao Yun est morte... Zi Luo est également morte... Tous sont morts... »
 
 « Il était certain que nous avions ouvert la porte... Tous sont morts, moi aussi... »
 
@@ -68,11 +68,11 @@ Dès l'apparition de la faille, un gaz vert s'en échappa et fondit sur la grott
 
 Bien que tout cela semble lent, l'action fut instantanée. Dès que la femme leva la main, le gaz vert frappa!
 
-« Ce n'est ni de l'énergie spirituelle, ni de l'énergie spirituelle céleste, ni de l'énergie originelle, ni du pouvoir démoniaque ancien, ni un pouvoir de démon ou de dieu ancien!!! » Les pupilles de Wang Lin se rétractèrent alors qu'il battait en retraite à toute vitesse.
+« Ce n'est ni de l'énergie spirituelle, ni de l'énergie spirituelle céleste, ni de l'énergie originelle, ni du souffle des anciens diables ou des anciens démons, ni de la puissance des anciens dieux!!! » Les pupilles de Wang Lin se rétractèrent alors qu'il battait en retraite à toute vitesse.
 
 La main droite de la femme descendit brusquement et le gaz vert se concentra pour former une paume émeraude qui poursuivit Wang Lin!
 
-En un clin d'œil, l'attaque fut sur lui. La main droite de Wang Lin traça un sceau et l'énergie originelle de son corps jaillit pour former un vortex gigantesque afin de percuter la paume.
+En un clin d'œil, l'attaque fut sur lui. Les deux mains de Wang Lin traçèrent des sceaux et l'énergie originelle de son corps jaillit pour former un vortex gigantesque afin de percuter la paume.
 
 Un fracas tonitruant retentit et le vortex s'effondra. La paume ne fut nullement endommagée et passa au travers.
 
@@ -90,9 +90,9 @@ La lumière sanglante brilla intensément, comme si une mer de sang s'était dé
 
 L'empreinte de la paume se désintégra soudainement, mais le gaz vert ne disparut pas. Il se condensa en une sphère et tenta de retourner dans la faille céleste.
 
-Wang Lin ouvrit brusquement les yeux. Un goût salé envahit sa bouche alors que du sang s'écoulait de ses lèvres et de ses yeux, mais il parvint à contenir le flux. Son expression devint glaciale tandis qu'il s'élançait dans les airs, l'épée de sang en main. Alors que la sphère de gaz vert dérivait vers la faille, Wang Lin tendit la main avec férocité!
+Wang Lin ouvrit brusquement les yeux. Un goût salé envahit sa bouche alors que du sang lui remontait dans la gorge, mais il parvint à contenir le flux. Son expression devint glaciale tandis qu'il s'élançait dans les airs, l'épée de sang en main. Alors que la sphère de gaz vert dérivait vers la faille, Wang Lin tendit la main avec férocité!
 
-« Reviens ici! »
+« Redescends! »
 
 Le monde trembla et une paume gigantesque et illusoire apparut pour saisir la sphère verte!
 

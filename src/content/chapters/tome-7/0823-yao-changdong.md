@@ -16,13 +16,13 @@ Il la secoua immédiatement. Le son de la cloche provoqua une immense onde de ch
 
 « Il en reste encore 22! » Le corps de Wang Lin vacilla et apparut derrière un cultivateur Ascendant au sommet du stade avancé. Alors que les pupilles du cultivateur se rétractaient, Wang Lin leva la main et utilisa le Coup Céleste. Sans aucune énergie d'épée, le corps du cultivateur fut tranché en deux avant de s'effondrer.
 
-Quant à son âme originelle, elle n'était pas assez puissante pour attirer l'attention de Wang Lin, mais elle fut tout de même capturée par le drapeau des âmes. Simultanément, Wang Lin lança un regard sombre vers le vieil homme qui faisait sonner la cloche. Ce trésor était singulier; il était capable de perturber l'énergie originelle environnante. Bien que cela n'affectât pas beaucoup Wang Lin, si cela persistait, cela pourrait finir par le ralentir.
+Quant à son âme originelle, elle n'était pas assez puissante pour attirer l'attention de Wang Lin, mais elle fut tout de même capturée par le drapeau des âmes. Simultanément, Wang Lin lança un regard sombre vers le vieil homme qui faisait sonner la cloche. Ce trésor était singulier; il était capable de perturber les forces naturelles environnantes. Bien que cela n'affectât pas beaucoup Wang Lin, si cela persistait, cela pourrait finir par le ralentir.
 
 Avec un froid reniflement, une ombre vacilla derrière Wang Lin et Ta Shan surgit. Ce dernier ignora totalement les cultivateurs aux alentours et chargea le vieil homme.
 
 En s'élançant, Ta Shan ferma le poing et lança un coup de poing qui brisa la barrière du son pour s'abattre sur l'homme.
 
-Le combat entre les deux fut d'une férocité extrême, et des explosions retentirent de toutes parts. Le vieil homme ne cessait de reculer en utilisant divers sorts, le visage empreint d'une amertume profonde.
+Le combat entre les deux fut d'une férocité extrême, et des explosions retentirent de toutes parts. Le vieil homme ne cessait de reculer en utilisant divers sorts, le visage sombre comme l'eau.
 
 Tout sort ou trésor qui frappait Ta Shan restait sans effet sur lui. C'était comme s'il était insensible à la douleur et doté d'un corps d'acier; il continuait d'attaquer sans relâche!
 
@@ -52,7 +52,7 @@ Au loin, Wang Lin marqua une pause et se lécha les lèvres. Ses yeux étaient d
 
 Le visage des treize survivants devint pâle et lugubre. Ils fixèrent tous Wang Lin, qui leur apparaissait désormais comme un loup.
 
-La légende de Xu Mu hantait leurs esprits. L'un des cultivateurs Yin Illusoire serra les dents et ses mains formèrent immédiatement un sceau. L'énergie originelle circula dans son corps et une lumière blanche apparut devant lui. En un instant, cette lumière se transforma en une grande épée avant qu'il n'expulse de l'essence originelle. La lame devint féroce, comme capable de déchirer le vide.
+La légende de Xu Mu hantait leurs esprits. L'un des cultivateurs Yin Illusoire serra les dents et ses mains formèrent immédiatement un sceau. L'énergie originelle circula dans son corps et une lumière blanche apparut devant lui. En un instant, cette lumière se transforma en une grande épée avant qu'il n'expulse une bouffée d'essence de son âme originelle. La lame devint féroce, comme capable de déchirer le vide.
 
 La majorité des cultivateurs autour de lui poussèrent également des rugissements. En particulier, le dernier cultivateur Corporel Yang frappa sa sacoche, faisant apparaître d'innombrables aiguilles noires qu'il projeta vers Wang Lin.
 
@@ -90,7 +90,7 @@ La Paire Dao Fanée se lança également après un autre.
 
 Simultanément, Wang Lin frappa sa sacoche et l'Épée Céleste apparut. Xu Liguo surgit et, sans qu'aucun ordre ne soit donné par Wang Lin, il poussa un cri étrange et, caché dans l'épée, se lança à la poursuite de l'un des fuyards.
 
-Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention d'épée antique, il n'avait jamais combattu de cultivateur Yin Illusoire. En cet instant, il pleurait intérieurement: « Maudit soit, je dois y aller à fond, à fond... »
+Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention d'épée antique, il n'avait jamais combattu de cultivateur Yin Illusoire. En cet instant, il hurlait intérieurement: « Maudit soit, je dois y aller à fond, à fond... »
 
 Trois trésors poursuivaient trois cibles différentes. Wang Lin fit un pas en avant et disparut.
 

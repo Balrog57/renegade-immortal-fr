@@ -16,7 +16,7 @@ Alors qu'il cultivait, il ouvrit soudainement les yeux et regarda devant lui. De
 
 « Grand Vide de la Secte Fantôme, je suis prêt à offrir 500 millions de disciples Yin et Yang au Saint Démon, en échange d'une intervention de votre Seigneur Saint Démon de la Secte Fantôme! »
 
-Au même moment, le sixième ensemble de jade du Shui Daozi déclencha une vague monstrueuse à l'intérieur du Royaume Intérieur!
+Au même moment, les six jades de décret de Shui Daozi déclenchèrent une vague monstrueuse à l'intérieur du Royaume Intérieur!
 
 Tous les puissants cultivateurs des quatre systèmes stellaires qui se préparaient pour la bataille reçurent l'information contenue dans le jade. Certains connaissaient son nom, d'autres l'entendaient pour la première fois, mais son nom se répandit instantanément dans tout le Royaume Intérieur!
 
@@ -40,7 +40,7 @@ Dans la Rivière Invoquée, un homme vêtu de vert se déplaçait parmi les éto
 
 « Cette chose dont l'Oncle-Maître a parlé devrait être dans la Rivière Invoquée, mais où exactement... »
 
-Juste à ce moment, l'expression de l'homme d'âge moyen changea comme s'il avait ressenti quelque chose, et une expression étrange apparut sur son visage.
+Juste à ce moment, l'expression du jeune homme changea comme s'il avait ressenti quelque chose, et une expression étrange apparut sur son visage.
 
 « N'est-ce pas ce petit gars, Wang Lin, de l'époque... Intéressant, très intéressant! »
 
@@ -64,7 +64,7 @@ Dans la Mer des Nuages, dans la vallée où se trouvait l'homme en rouge, Maîtr
 
 L'homme en rouge écoutait attentivement Maître Lu Fu. Bien qu'il restât calme, une lueur de froideur brillait dans ses yeux.
 
-« Quel magnifique Domaine aux Sept Couleurs! Quel grand Souverain!! »
+« Quel magnifique Royaume aux Sept Couleurs! Quel grand Souverain!! »
 
 Cependant, à cet instant précis, tout le monde dans la vallée entendit le message de Sens Divin de la Secte Divine qui se propageait dans tout le Royaume Intérieur!
 

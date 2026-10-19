@@ -8,7 +8,7 @@ slug: le-grand-celeste-jin
 ---
 Au nord du Continent de l'Est se trouvait un continent nommé le Grand Sage!
 
-Le Continent du Grand Sage était extrêmement reculé et plus désolé encore que le Continent du Taureau Céleste, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent du Grand Sage y menaient une vie paisible.
+Le Continent du Grand Sage était extrêmement reculé et plus désolé encore que le Continent du Taureau Céleste, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent du Grand Sage y menaient une vie paisible et aisée.
 
 Depuis des millénaires, des rumeurs concernant les êtres célestes circulaient parmi les mortels, de sorte que presque tout le monde les vénérait. Tous aspiraient à devenir des êtres célestes.
 
@@ -16,7 +16,7 @@ Cependant, les sectes de ce continent sortaient rarement de leurs domaines. Cela
 
 Le secret entourant la Secte Dong Lin les rendait très discrètes parmi les neuf sectes et treize factions. Leurs disciples sortaient rarement, la plupart d'entre eux se consacrant exclusivement à leur culture au sein de la secte.
 
-Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque toute l'année. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
+Des nuages blancs parsemaient le ciel au-dessus du Continent du Grand Sage, le couvrant presque en permanence depuis des années. Ces nuages semblaient faire partie intégrante de l'azur; si un jour le ciel se dégageait, les mortels en étaient profondément surpris.
 
 À cet instant précis, aux abords d'une cité mortelle sur le Continent du Grand Sage, près d'une centaine de personnes se tenaient debout. Elles étaient guidées par trois ou quatre vieillards à l'apparence maladive, vêtus de façon fastueuse, qui s'efforçaient de garder leur énergie. Leurs serviteurs les soutenaient tandis qu'ils attendaient depuis déjà deux heures.
 
@@ -32,9 +32,9 @@ Un vieillard à l'allure maladive situé devant lui entendit le fonctionnaire et
 
 Après s'être fait réprimander, l'homme afficha un sourire servile et s'apprêta à se justifier.
 
-« Hmph! Le Grand Céleste a accepté de venir après que ce vieil homme et quelques amis l'ont supplié de longues heures durant. Même à mon âge, je reste ici sans oser montrer la moindre marque de manque de respect, et un individu comme toi refuse d'attendre? Si le Grand Céleste venait à être offensé, toute ta famille pourrait bien être bannie de cette ville! » Le vieillard lança un regard féroce à l'homme avant de prendre un mouchoir imprégné de glace pour s'essuyer le front.
+« Hmph! Le Grand Céleste a accepté de venir après que ce vieil homme et quelques amis l'ont supplié de longues heures durant. Même à mon âge, je reste ici sans oser montrer la moindre marque de manque de respect, et un petit marchand de tissus comme toi refuse d'attendre? Si le Grand Céleste venait à être offensé, toute ta famille pourrait bien être bannie de cette ville! » Le vieillard lança un regard féroce à l'homme avant de prendre un mouchoir imprégné de glace pour s'essuyer le front.
 
-« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Qui ne connaît pas son nom? J'ai entendu dire que la ville voisine avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
+« Le Grand Céleste est bienveillant; il accepte de sacrifier son temps de culture pour parcourir le Continent du Grand Sage. Son nom céleste est immortel : qui ne le connaît pas? J'ai entendu dire que la ville voisine avait invité le Grand Céleste, et que sept enfants avaient été choisis par la suite. Bien que trois d'entre eux aient été renvoyés, quatre ont intégré une secte céleste. Une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! »
 
 « C'est exactement ce que l'être céleste a dit: une fois qu'on devient un être céleste, même les poulets et les chiens peuvent s'élever vers les cieux! Si mon petit-fils peut entrer dans une secte céleste, je suis prêt à donner toute ma fortune! » grommela un autre vieil homme, l'expression exaltée.
 
@@ -48,7 +48,7 @@ Alors que la foule discutait avec enthousiasme, oubliant presque la chaleur, une
 
 Au loin, un parasol rouge d'une envergure de plusieurs centaines de pieds s'ouvrit, révélant en dessous un siège de bambou pourpre. Quatre hommes robustes vêtus de robes dorées portaient le siège.
 
-Autour de ces quatre colosses défilaient une douzaine d'enfants qui transportaient des fioles précieuses, des éventails ou des jades étincelants.
+Autour de ces quatre colosses défilaient une douzaine d'enfants qui transportaient des vases précieux, des chasse-mouches ou des jades étincelants.
 
 Sur le siège trônait un vieil homme aux cheveux blancs. Il dégageait une aura si pure qu'il ressemblait à un véritable être céleste au premier coup d'œil!
 
@@ -97,7 +97,7 @@ Devant la cité, alors que le siège descendait lentement du ciel, le vieil homm
 
 Il paraissait habitué à l'exaltation de la foule. Il souriait, le cœur empli d'une pointe de fierté.
 
-« Moi, Jin Biaozi, j'ai quitté mon village à l'âge de six ou sept ans et j'ai escroqué les gens tout au long de mon chemin. Tant d'années ont passé et j'ai dupé tant de personnes... Moi, Jin Biaozi, je suis né différent des autres. Non seulement je suis talentueux, mais même sans maître ni secte, j'ai appris la culture par moi-même! »
+« Moi, Jin Biaozi, j'ai quitté mon village à l'âge de six ou sept ans et j'ai escroqué les gens tout au long de mon chemin. Tant d'années ont passé et j'ai dupé tant de personnes... Moi, Jin Biaozi, je suis né différent des autres. Non seulement j'ai un talent naturel pour la duperie, que j'ai développé sans maître, mais même sans rejoindre de secte, j'ai appris la culture par moi-même! »
 
 « Les gens comme moi sont rares! Mais cela valait la peine de tromper quelqu'un pour être transporté jusqu'au Continent du Grand Sage. Les habitants ici sont simples et aspirent à devenir des êtres célestes, ce qui fait de cet endroit un véritable trésor pour les opportunistes comme moi! »
 

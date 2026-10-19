@@ -20,17 +20,17 @@ La joie et l'animation se dissipèrent, laissant place à un silence de mort. Se
 
 « Cet individu... ose-t-il proférer des paroles aussi arrogantes dans la cité impériale du Dao Antique? » Après un bref instant de silence, la zone touchée par le hurlement de Wang Lin fut envahie par des cris de stupeur.
 
-À l'intérieur du Temple du Dao Antique, les neuf disciples sous les ordres de Xuan Luo étaient les plus proches de lui. Ils ouvrirent les yeux, choqués, et levèrent le regard vers la vallée située derrière le temple!
+À l'intérieur du Temple du Dao Antique, les neuf disciples sous les ordres de Xuan Luo étaient les plus proches de ce hurlement. Ils ouvrirent les yeux, choqués, et levèrent le regard vers la vallée située derrière le temple!
 
 Au centre du Temple du Dao Antique se trouvait un espace totalement scellé. Xuan Luo y était assis calmement, les yeux clos. Il sentait que l'heure de sa réincarnation approchait. Il voulait raffiner pour Wang Lin un puissant trésor de foi avant de partir!
 
-Devant lui flottait une épée aux cinq couleurs. Cette arme était très étrange: elle possédait quatre lames. Elle ne ressemblait pas à une épée, mais plutôt à une sorte de fourche. Même sur ses bords, une cinquième lame invisible semblait prête à surgir à tout instant.
+Devant lui flottait une épée aux cinq couleurs. Cette arme était très étrange: elle possédait quatre lames. Elle ne ressemblait pas à une épée, mais plutôt à une sorte de fourche. Même sur ses bords, une cinquième lame, à peine visible, semblait prête à surgir à tout instant.
 
 De temps à autre, Xuan Luo recrachait une bouffée de gaz vert qui enveloppait l'épée multicolore.
 
 « J'ai raffiné cette épée pendant très longtemps, et quatre lames sont désormais apparues. C'est un moment critique, mais une fois que la cinquième lame apparaîtra, ce sera un trésor surpuissant pour Wang Lin. » Xuan Luo ouvrit les yeux et sourit, une pointe de fierté brillant dans son regard.
 
-Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Antique, il s'était retiré en culture fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'arme puissante et se sentait redevable envers lui. En raison de sa culture intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
+Après avoir demandé à Wang Lin d'envoyer le présent à l'Empereur du Dao Antique, il s'était retiré en culture fermée pour lui forger ce trésor de foi. Il estimait qu'après être devenu le maître de Wang Lin, il ne lui avait pas encore offert d'objet de valeur et se sentait redevable envers lui. En raison de sa culture intensive, la majeure partie de son Sens Divin était concentrée sur l'épée, ce qui l'empêchait de le retirer rapidement.
 
 Cependant, à peine eut-il ouvert les yeux qu'un rugissement dément, semblant vouloir briser le monde, jaillit de la demeure en bois dans la vallée!
 
@@ -42,7 +42,7 @@ Il se leva brusquement et regarda derrière lui. Son regard semblait capable de 
 
 Pris d'anxiété, Xuan Luo envoya rapidement un message à ses neuf subordonnés dans le Temple du Dao Antique.
 
-« Allez trouver Wang Lin et découvrez la cause de ce tumulte. Vous devez le stabiliser jusqu'à mon arrivée! Ne laissez pas cette affaire prendre des proportions démesurées! »
+« Allez trouver Wang Lin et découvrez la cause de ce tumulte. Vous devez le stabiliser jusqu'à mon arrivée! Que cette affaire ne s'ébruite pas! »
 
 À l'intérieur de la maison en bois, alors que le rugissement de Wang Lin résonnait, d'innombrables ondes de choc se propagèrent dans la zone. Ces ondulations transportaient le hurlement fou de Wang Lin, sa détermination farouche à tuer l'Empereur du Dao Antique, ainsi que la puissance destructrice qui bouillonnait en lui!
 
@@ -58,7 +58,7 @@ Devant lui, l'essence métallique de son Corps Véritable des Cinq Éléments s'
 
 Dès que son corps d'essence métallique apparut, il s'élança dans les airs, suivi par les autres éléments du Corps Véritable des Cinq Éléments. Les cinq éléments fusionnèrent devant Wang Lin pour former un Corps Véritable des Cinq Éléments complet!
 
-Ce corps était enveloppé d'une lumière multicolore. Ses yeux étaient clos, mais ils s'ouvrirent soudainement, empreints de la même folie que son maître.
+Ce corps était enveloppé d'une lumière multicolore. Ses yeux étaient clos, mais ils s'ouvrirent soudainement, empreints de la même folie.
 
 Wang Lin bondit dans les airs, ses cheveux ondulant sans qu'aucun vent ne soit présent. Sa main droite s'élança vers son Corps Véritable des Cinq Éléments, qui fusionna avec lui dans un élan. À cet instant, Wang Lin poussa un nouveau rugissement.
 
@@ -80,7 +80,7 @@ D'un coup d'œil, ils virent que l'endroit était en ruines. Ils aperçurent la 
 
 Les neuf étaient sous le choc et joignirent les mains devant Wang Lin en signe de respect.
 
-Au sein de la tempête, le regard de Wang Lin était glacial. Sa main droite s'abattit à nouveau vers le sol. Il poussa un autre rugissement et la fissure s'élargit davantage. Un rayon de lumière noire et blanche jaillit, fusionnant instantanément avec lui. La tête de l'Ancêtre Céleste s'envola telle une traînée dorée pour être rangée dans l'espace de stockage de Wang Lin.
+Au sein de la tempête, le regard de Wang Lin était glacial. Sa main droite s'abattit à nouveau vers le sol. La fissure s'élargit davantage. Un rayon de lumière noire et blanche jaillit, fusionnant instantanément avec lui. La tête de l'Ancêtre Céleste s'envola telle une traînée dorée pour être rangée dans l'espace de stockage de Wang Lin.
 
 Une fois cela fait, Wang Lin se tourna brusquement vers la cité impériale du Dao Antique.
 
@@ -96,7 +96,7 @@ La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux
 
 Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Serrant les dents, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres du Seigneur Xuan pour vous retenir. Une décision pourra être prise une fois que le Seigneur Xuan sera arrivé. »
 
-« Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante à la tête. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
+« Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante au cœur. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 
 « Écartez-vous de mon chemin!! » Les yeux de Wang Lin brillaient d'une détermination inflexible. Il devait tuer l'Empereur du Dao Antique avant l'arrivée de Xuan Luo pour ne pas compliquer la situation de son maître!
 
@@ -110,4 +110,4 @@ Les visages des neuf se décomposèrent lorsqu'un Grand Soleil Empyréen apparut
 
 « Il... il est en réalité un Grand Empyréen!! » Les neuf étaient plongés dans l'incrédulité alors que Wang Lin levait la main droite et l'agitait. Le monde gronda et la formation entourant le Temple du Dao Antique s'effondra. Les neuf subordonnés crachèrent du sang, repoussés par l'onde de choc. Wang Lin ne les tua pas; il se transforma en un rayon de lumière et jaillit hors de la vallée!
 
-Un éclair de lumière rouge s'élança, massacrant tout sur son passage vers le palais!
+Un long arc de lumière s'élança dans un grondement vers le palais!

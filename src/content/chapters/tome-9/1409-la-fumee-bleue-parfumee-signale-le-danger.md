@@ -28,7 +28,7 @@ Le regard sous les flammes noires s'éloigna de plus en plus de Li Muwan.
 
 Le corps de Li Muwan s'affaissa au sol tandis qu'elle contemplait ce regard apparemment éternel dans le ciel, l'esprit tremblant.
 
-Li Muwan lutta pour rugir: « Qui es-tu, bon sang?! » Une douleur inconnue lui lacéra le cœur. Elle ne savait pas d'où venait cette souffrance, mais elle ne faisait que croître.
+Li Muwan lutta pour rugir: « Qui es-tu, au juste?! » Une douleur inconnue lui lacéra le cœur. Elle ne savait pas d'où venait cette souffrance, mais elle ne faisait que croître.
 
 Le feu du karma s'embrasa et détruisit tout, mais il ne put détruire ni le cœur dao de Wang Lin, ni ses souvenirs!
 
@@ -38,7 +38,7 @@ Le feu du karma s'embrasa et détruisit tout, mais il ne put détruire ni le cœ
 
 « Si ce feu du karma veut brûler mon corps, si ce feu du karma veut me détruire, je ne l'arrêterai pas! Ce feu est l'obsession de ma vie, ceci est mon dao! »
 
-« Quel est l'intérêt de cultiver le dao impitoyable des cieux? J'ai cultivé avec mon obsession et j'ai utilisé cette obsession pour former le cycle du karma. Alors, si je n'atteins pas le paradis? Et alors si je vais en enfer? Tant que l'enfer est libre, qu'y a-t-il de mal à cela?! »
+« Quel est l'intérêt de cultiver le dao impitoyable des cieux? J'ai cultivé avec mon obsession et j'ai utilisé cette obsession pour former le cycle du karma. Alors, si je n'atteins pas le paradis? Et alors si je vais en enfer, dans les neuf tours des dix-huit enfers? Tant que l'enfer est libre, qu'y a-t-il de mal à cela?! »
 
 Juste au moment où le feu du karma allait l'anéantir, un cri de Oiseau Vermillon retentit, fracassant le silence!
 
@@ -112,7 +112,7 @@ Cette pause sembla fusionner avec l'esprit de tous les cultivateurs environnants
 
 Le Maître Simo fixait intensément le bâton d'encens humain.
 
-Le visage de la Grande Maîtresse Yun Luo était blême, et une ombre de mélancolie perçait dans ses yeux.
+Le visage de la Grande Maîtresse Yun Luo était blême, et une ombre sinistre perçait dans ses yeux.
 
 À l'intérieur de l'Épreuve Humaine, Wang Lin contemplait le ciel, debout sur l'Oiseau Vermillon noir. Son corps dégageait d'infinies flammes noires et il prit une profonde inspiration. Il baissa les yeux vers la silhouette délicate affalée au sol sur le sommet de la montagne et murmura doucement:
 

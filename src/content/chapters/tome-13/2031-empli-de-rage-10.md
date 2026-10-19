@@ -12,7 +12,7 @@ La tristesse dans les yeux de Xuan Luo s'intensifia. Il comprenait Wang Lin.
 
 « La bonté de Maître est aussi pesante qu'une montagne, et le Disciple ne l'oubliera jamais... » soupira Wang Lin avant de se lever. Il épousseta ses vêtements. En balayant la poussière, c'était comme s'il balayait ses sentiments et sa passée tolérance.
 
-Pour ne pas décevoir son maître, il aurait pu s'agenouiller, offrir des trésors, ou endurer l'impossibilité de tuer l'Empereur Dao Antique... Il aurait pu tout faire. Il voulait simplement récupérer l'âme de Wan Er sans infliger trop de chagrin à son maître. Il cherchait un équilibre car il ne voulait pas que ceux qui lui avaient fait du bien souffrent. Il ne voulait pas blesser son maître.
+Pour que son maître ne meure pas, il aurait pu s'agenouiller, offrir des trésors, ou endurer l'impossibilité de tuer l'Empereur Dao Antique... Il aurait pu tout faire. Il voulait simplement récupérer l'âme de Wan Er sans infliger trop de chagrin à son maître. Il cherchait un équilibre car il ne voulait pas que ceux qui lui avaient fait du bien souffrent. Il ne voulait pas blesser son maître.
 
 Cependant, cette pensée n'était qu'un luxe, un rêve irréel.
 
@@ -58,17 +58,17 @@ Xuan Luo contempla cette silhouette devenue un chaos de chair et de sang, et ver
 
 « Mort? » L'Empereur Dao Antique fut stupéfait, une ombre de mélancolie traversant son visage. Les autres membres du clan Antique qui s'apprêtaient à charger s'arrêtèrent également, le regard suspicieux.
 
-C'est à cet instant qu'une scène étrange se produisit. Les débris de chair et de sang issus de l'explosion du corps de Wang Lin se rassemblèrent rapidement. En un clin d'œil, un nouveau Wang Lin fut formé!
+C'est à cet instant qu'une scène étrange se produisit. Le brouillard de sang issu de l'explosion de son corps et de son âme se rassembla rapidement. En un clin d'œil, un nouveau Wang Lin fut formé!
 
 Il cracha une bouffée de sang, le visage extrêmement pâle. Aujourd'hui, il avait utilisé une fois son précieux sort des Trois Vies!!
 
 Il était déjà mort une fois!!!
 
-Après sa résurrection, il n'était plus le disciple de Xuan Luo, et il n'avait plus aucun lien avec l'Empereur Dao Antique. Il n'avait plus à tenir compte de la position de quiconque, ni à se réprimer sans cesse. Il allait faire ce qu'il voulait et reprendre Wan Er, qui lui appartenait!!
+Après sa résurrection, il n'était plus le disciple de Xuan Luo, et il n'avait plus aucun lien avec l'Empereur Dao Antique. Il n'avait plus à tenir compte des sentiments de quiconque, ni à se réprimer sans cesse. Il allait faire ce qu'il voulait et reprendre Wan Er, qui lui appartenait!!
 
 « Ye Dao!! » Wang Lin lâcha un rugissement qui déchira les cieux. Ce cri était l'éruption de toute la colère qu'il avait refoulée. C'était un rugissement venu des profondeurs de son âme!
 
-À cet instant, une intention meurtrière monstrueuse jaillit du corps de Wang Lin sans aucune retenue. Cette intention fit basculer le monde, comme s'il venait de surgir des enfers. Il s'élança avec férocité, folie et soif de sang.
+À cet instant, une intention meurtrière monstrueuse jaillit du corps de Wang Lin sans aucune retenue. Le vent et les nuages changèrent de couleur, le ciel et la terre s'assombrirent, comme s'il venait de surgir des enfers. Il s'élança avec férocité, folie et soif de sang.
 
 L'expression de l'Empereur Dao Antique changea; il recula de quelques pas avant de rugir: « Tuez-le!! » Les quelque mille personnes devant le palais et les milliers qui avaient chargé s'élancèrent tous sur Wang Lin. Même s'il ne s'agissait que d'utiliser leurs corps comme boucliers, ils devaient défendre le pouvoir impérial. On ignorait si c'était là leur gloire ou leur tragédie.
 
@@ -96,7 +96,7 @@ Wang Lin ne voulait pas que Xuan Luo devienne un criminel pour le Dao Antique, n
 
 Même à cet instant, son disciple pensait encore à lui. Un tel disciple plongea Xuan Luo dans un profond sentiment de culpabilité.
 
-« Qu'ai-je fait pour lui... En réalité, pas grand-chose... » Xuan Luo regarda le massacre et la mort des membres de son clan. Pour la première fois, il ne ressentit aucune tristesse pour les siens.
+« Le bienfait que je lui ai accordé... n'était, en réalité, pas grand-chose... » Xuan Luo regarda le massacre et la mort des membres de son clan. Pour la première fois, il ne ressentit aucune tristesse pour les siens.
 
 Wang Lin poussa un rugissement et l'aura meurtrière autour de lui se propagea. Elle se mua en un rayon de lumière rouge qui jaillit, ouvrant un sentier sanglant devant lui. Simultanément, il pointa le ciel.
 

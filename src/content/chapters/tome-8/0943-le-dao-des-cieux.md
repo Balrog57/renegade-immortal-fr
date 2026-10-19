@@ -8,7 +8,7 @@ slug: le-dao-des-cieux
 ---
 Luo Chen ressentait la douleur du Serpent aux yeux de lune de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
 
-Ce coup se transforma en un grondement surpuissant, décuplant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Luo Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.
+Ce coup se transforma en un grondement surpuissant, multipliant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Luo Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.
 
 Un fracas assourdissant retentit et une onde de choc terrifiante se propagea. Les gaz aux sept couleurs furent brièvement repoussés, avant de s'étendre plus violemment encore pour dévorer l'éléphant géant.
 
@@ -32,7 +32,7 @@ Le rugissement du Serpent aux yeux de lune devint plus intense encore tandis qu'
 
 La moitié du corps colossal du Serpent aux yeux de lune avait déjà été aspirée, et le processus se poursuivait. Grâce à ces gaz, la créature avait perdu toute capacité de résistance; malgré ses efforts, elle ne manifestait plus qu'un désespoir terrifiant.
 
-Luo Chen, assimilé au Serpent aux yeux de lune, fut transpercé par ce rugissement. Alors qu'il s'élançait, les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
+Luo Chen, assimilé au Serpent aux yeux de lune, fut transpercé par ce rugissement. Alors qu'il s'élançait, son regard restait limpide et les cinq étoiles tournèrent violemment et l'une d'elles fut expulsée avant de se briser!
 
 L'étoile brisée d'un ancien dieu!
 
@@ -80,7 +80,7 @@ L'attaque combinée des trois provoqua la panique chez le jeune homme, dont les 
 
 « Maître! » Aussitôt que le jeune homme parla, le vieil homme hurla: « Silence! Qui t'a permis d'ouvrir le royaume scellé?! » Tout en parlant, sa main traça un sceau, puis il ordonna: « Demande l'activation de la Hache Brisant les Cieux par la formation! »
 
-Dès que le vieillard eut parlé, des particules de lumière apparurent sur des centaines, des milliers, des dizaines de milliers de kilomètres. Ces éclats convergèrent frénétiquement vers le groupe de Wang Lin.
+Dès que le vieillard eut parlé, des particules de lumière apparurent sur des centaines de milliers, des millions, puis des dizaines de millions de kilomètres. Ces éclats convergèrent frénétiquement vers le groupe de Wang Lin.
 
 Ils étaient d'une rapidité inouïe! Leur vitesse transcendait les lois de la nature; ils étaient plusieurs fois plus rapides que les attaques combinées du groupe de Wang Lin.
 

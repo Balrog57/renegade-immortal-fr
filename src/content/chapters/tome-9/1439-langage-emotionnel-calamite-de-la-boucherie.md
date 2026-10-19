@@ -40,7 +40,7 @@ Wang Lin fonça comme un rayon de lumière vers l'homme d'âge mûr. Voyant Wang
 
 Wang Lin ne révéla ni son sort d'Arrêt, ni son épée de sang pour achever l'homme avant qu'il n'entre dans le brouillard. Ce n'étaient pas des atouts qu'il dévoilerait sans précaution.
 
-Alors qu'il avançait, Wang Lin leva la main droite et frappa violemment l'homme d'âge mûr qui s'apprêtait à sombrer dans le brouillard. Le monde trembla et l'Empreinte de l'Esprit de la Guerre apparut!
+Alors qu'il avançait, Wang Lin leva la main droite et frappa violemment l'homme d'âge mûr qui s'apprêtait à sombrer dans le brouillard. Le monde trembla et l'Empreinte de l'Esprit Guerrier apparut!
 
 Les grondements tonitruants attirèrent l'attention de la plupart des cultivateurs environnants.
 
@@ -86,7 +86,7 @@ Le monde entier ressemblait à une chambre secrète dont la fenêtre aurait ét�
 
 La Tombe de l'Ordre Ancien était close!
 
-À l'instant même où la faille se referma, Wang Lin ressentit soudain un puissant sentiment de danger. Une colonne de brume jaillit brusquement du bas. Un cultivateur ne réagit pas assez vite et fut frappé par le courant. Il poussa un cri déchirant et mourut aussitôt, tandis que la marque numérotée entre ses sourcils se changeait en une rune scintillante qui s'envolait sur le côté.
+À l'instant même où la faille se referma, Wang Lin ressentit soudain un puissant sentiment de danger. Une colonne de brume tourbillonnante, large de cent pieds, jaillit brusquement du bas. Un cultivateur ne réagit pas assez vite et fut frappé par le courant. Il poussa un cri déchirant et mourut aussitôt, tandis que la marque numérotée entre ses sourcils se changeait en une rune scintillante qui s'envolait sur le côté.
 
 Ce changement soudain provoqua un tollé parmi les centaines de cultivateurs présents. Certaines plateformes flottantes portant des têtes perdirent leur force protectrice!
 

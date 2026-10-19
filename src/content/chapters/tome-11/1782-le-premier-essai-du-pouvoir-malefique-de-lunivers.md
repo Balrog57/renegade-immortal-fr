@@ -10,7 +10,7 @@ Une demi-heure plus tard, Wang Lin quitta la jungle. Il paraissait calme, mais i
 
 « Cinq fleurs, huit portes. Si je vérifie les portes une à une, je finirais par la trouver. Cependant, même si je cultivais pleinement l'Art Céleste du Dao des Nuages, cela ne provoquerait pas de changement suffisant dans la mémoire de la troisième âme... Dans ce cas, je serais incapable de chercher les huit portes. »
 
-« Pour l'instant, je ne peux qu'attendre la compétition dans quelques mois. Le Souverain Céleste aux Sept Couleurs possédait des souvenirs profonds de cette épreuve. Si je parviens à subvertir suffisamment ces souvenirs durant la compétition, cela suffira à le confondre et à révéler la vraie porte! » Wang Lin flotta dans les airs, plongé dans ses pensées.
+« Pour l'instant, je ne peux qu'attendre la compétition dans quelques mois. Le Souverain Céleste aux Sept Couleurs possédait des souvenirs profonds de cette épreuve. Si je parviens à subvertir suffisamment ces souvenirs durant la compétition, je pourrai trouver la vraie porte au moment où sa mémoire sera confuse! » Wang Lin flotta dans les airs, plongé dans ses pensées.
 
 Sa silhouette se changea en un nuage et s'envola vers la Secte Dong Lin.
 
@@ -22,7 +22,7 @@ La Secte Dong Lin faisait partie des Neuf Sectes et Treize Factions. Tous les tr
 
 De plus, la possibilité de cultiver pendant quelques jours au sein du Bassin de Dong Lin rendait chaque compétition extrêmement féroce.
 
-Le monde des cultivateurs était aussi un lieu où les forts se nourrissaient des faibles. Bien que la règle fût de ne pas tuer, des blessures et des morts survenaient toujours. Tant qu'il n'y avait pas de massacre délibéré, la secte ne s'en souciait guère.
+Le monde des cultivateurs était aussi un lieu où les forts se nourrissaient des faibles. Bien que la règle exigeât de s'arrêter au premier coup, des blessures et des morts survenaient toujours. Tant qu'il n'y avait pas de massacre délibéré, la secte ne s'en souciait guère.
 
 La Secte Dong Lin comptait 321 lignées, et chaque lignée envoyait trois à cinq représentants. La lignée victorieuse obtenait d'immenses récompenses. Par conséquent, la compétition était particulièrement acharnée.
 
@@ -42,11 +42,11 @@ C'était Qin Mei, qui lui adressait un sourire malicieux en le regardant. Ses pa
 
 Wang Lin esquissa un léger sourire. Il restait très calme et ne dit mot.
 
-Pourtant, ce sourire fit trembler le cœur de Qin Mei. Dans ses souvenirs, Su Dao avait toujours été timide; si elle lui parlait, il rougissait sans savoir comment réagir.
+Pourtant, ce sourire surprit Qin Mei. Dans ses souvenirs, Su Dao avait toujours été timide; si elle lui parlait, il rougissait sans savoir comment réagir.
 
-Cependant, la sensation émanant de son sourire était bien différente de celle d'autrefois, comme si elle contenait un sentiment inexplicable. Su Dao était très beau, et combiné au sourire de Wang Lin, cela dégageait un charme unique.
+Cependant, l'aisance qui émanait de son sourire était bien différente de celle d'autrefois, comme si elle contenait un sentiment inexplicable. Su Dao était très beau, et combiné au sourire de Wang Lin, cela dégageait un charme unique.
 
-Non loin de là, Zhou Li observait la scène, le regard sombre. Bien qu'il n'ait pas changé en cinq mois, les yeux injectés de sang et la fatigue trahissaient son trouble intérieur.
+Non loin de là, Zhou Li observait la scène, le regard sombre. Bien qu'il n'ait pas changé en cinq mois, les yeux injectés de sang et la fatigue trahissaient le tourment qu'il endurait depuis cinq mois.
 
 Qin Mei s'apprêtait à parler, mais son maître agita la main et un nuage enveloppa les trois disciples. Ils s'envolèrent vers le siège principal de la Secte Dong Lin.
 
@@ -54,7 +54,7 @@ La compétition des disciples de bas niveau se déroulait sur la place principal
 
 Ce n'était que lors de la compétition que les membres des diverses lignées pouvaient s'y rassembler. Pour beaucoup, ce serait l'unique fois de leur vie qu'ils mettraient les pieds ici.
 
-La place n'était pas immense, mais elle était assez vaste pour accueillir plusieurs milliers de cultivateurs. Toutefois, si la compétition devait s'y tenir, elle risquait d'être étroite. Mais puisque la Secte Dong Lin avait réussi à devenir l'une des Neuf Sectes et Treize Factions, leurs méthodes étaient imprévisibles.
+La place n'était pas immense, mais elle était assez vaste pour accueillir plusieurs milliers de cultivateurs. Toutefois, si la compétition devait s'y tenir, elle risquait d'être étroite. Mais puisque la Secte Dong Lin avait réussi à devenir l'une des Neuf Sectes et Treize Factions, leur héritage était insondable.
 
 Les Maîtres de secte et les Anciens de chaque génération ajoutaient constamment des formations et des restrictions à la place. Lors de chaque compétition, une partie de ces restrictions était activée, ouvrant ainsi une faille vers le Rift de Dong Lin créé par la secte.
 
@@ -90,7 +90,7 @@ Quant à Su Dao, bien qu'il reçît quelques regards, son cœur tremblait sous l
 
 À l'inverse, malgré sa nervosité, Zhou Li redressa la poitrine et ne recula pas. Avec son talent et sa qualification pour apprendre l'Art Céleste du Dao des Nuages, c'était son heure de briller.
 
-Cependant, tout allait changer.
+Mais à présent, tout avait changé.
 
 Les regards passèrent également devant Zhou Li, mais peu importait ses efforts pour tenir bon: presque tous ces yeux le traversaient pour se concentrer sur Wang Lin.
 

@@ -14,7 +14,7 @@ Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retou
 
 « Omniscient, Ling Tianhou… Moi, Wang Lin, suis de retour! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque; il s'était assuré de la garder en lieu sûr.
 
-Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire de Luotian, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
+Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire de Luotian, il suffirait à attirer l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
 
 Toutefois, Wang Lin savait parfaitement que l'Alliance ne pouvait être comparée à Luotian. Les eaux de l'Alliance étaient bien trop profondes.
 
@@ -34,7 +34,7 @@ Des ondulations apparurent sous ses pieds alors que Wang Lin fusionnait avec le 
 
 Lorsqu'il réapparut, il se trouvait sur une planète de culture désolée. Elle ne possédait que peu d'énergie spirituelle, mais la terre était débordante de vitalité. En regardant autour de lui, il constata que la planète abandonnée était recouverte d'une végétation dense.
 
-Lorsqu'il comprit qu'il avait besoin de force vitale pour sauver Li Muwan, il n'hésita pas et choisit d'échanger sa propre force vitale contre le sort du Qi Xi. Toutes ces centaines d'années d'attente n'avaient servi que pour cette unique opportunité; il ne pouvait la laisser passer. Cette fois-ci, ce serait à la fois un succès et un échec.
+Lorsqu'il comprit qu'il avait besoin de force vitale pour sauver Li Muwan, il n'hésita pas et choisit d'échanger sa propre force vitale contre le sort du Qixi. Toutes ces centaines d'années d'attente n'avaient servi que pour cette unique opportunité; il ne pouvait la laisser passer. Cette fois-ci, ce serait à la fois un succès et un échec.
 
 Le succès résidait dans le fait que, bien que Li Muwan n'ait pas été ressuscitée, elle avait retrouvé son corps, laissant ainsi planer l'espoir.
 
@@ -50,7 +50,7 @@ Après avoir laissé échapper un grand soupir, Wang Lin leva la main droite et 
 
 Cependant, après avoir entendu Xiang Yundong dire qu'il lui faudrait une immense quantité de vitalité pour sauver Li Muwan, Wang Lin pensa immédiatement au Doigt de la Mort!
 
-Ce sort utilisait une méthode extrêmement tyrannique pour dévorer toute forme de vie et la transformer en énergie spirituelle pour l'utilisateur. Une fois que le doigt touchait sa cible, toute vie s'effondrait.
+Ce sort utilisait une méthode extrêmement tyrannique pour dévorer toute forme de vie et en faire sa propre force vitale, qu'il répand dans tout son corps avant de la concentrer en un coup fulgurant. Une fois que le doigt touchait sa cible, toute vie s'effondrait.
 
 Les yeux de Wang Lin brillèrent alors qu'il abaissait son index et le pressait contre le sol. En un instant, la lumière noire se propagea en cercle, prenant Wang Lin pour centre.
 
@@ -106,7 +106,7 @@ Les cultivateurs sur ces rayons d'énergie n'étaient pas de haut niveau; il ne 
 
 Peu de temps après, un rayon d'énergie d'épée s'échappa de la planète de culture. La personne à bord était une vieille femme. Bien que son visage fût marqué par les rides, on devinait qu'elle avait été très belle dans sa jeunesse. Si Wang Lin avait été présent, il l'aurait trouvée familière.
 
-Les yeux de la vieille femme étaient empreints d'inquiétude. Lorsqu'elle s'approcha, un cultivateur se rapprocha et dit respectueusement: « Salutations, Maître Bai Xue! »
+Les yeux de la vieille femme étaient empreints d'inquiétude. Lorsqu'elle s'approcha, un cultivateur se rapprocha et dit respectueusement: « Salutations, Tante Bai Xue! »
 
 La vieille femme hocha la tête en regardant au loin et déclara lentement: « Soyez prudents. Si une anomalie survient, signalez-la immédiatement. La guerre fait rage et ma planète Suzaku est trop proche des cultivateurs de Luotian. C'est un moment de vie ou de mort! »
 

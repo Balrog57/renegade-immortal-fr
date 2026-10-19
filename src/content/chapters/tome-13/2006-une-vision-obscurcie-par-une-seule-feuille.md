@@ -64,7 +64,7 @@ Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et
 
 Cette voix était celle du Prince Ji Du!
 
-Le Pays Sombre des Shi Antique. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, scellée par l'Ancêtre Ancien pour former ce royaume.
+Le Pays Sombre des Shi Antique. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, capturée puis scellée par l'Ancêtre Ancien pour former ce royaume.
 
 Au cœur de la brume se dressait une montagne en forme de fer à cheval, sur laquelle trônait un immense palais dégageant une aura puissante. De nombreux serviteurs et gardes y résidaient. Ce jour-là, le brouillard au-dessus du palais se fendit, révélant le ciel nocturne. Une immense faille apparut, et un géant démon ancien en sortit!
 
@@ -80,7 +80,7 @@ Wang Lin descendit calmement. Derrière lui marchaient le Prince et la femme, la
 
 Une fois au sol, Wang Lin observa le démon géant soumis. « Ce démon ancien est plutôt remarquable. »
 
-« C'est un honneur pour lui de recevoir les éloges du Senior. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un guerrier de mon clan Shi Antique, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
+« C'est un honneur pour lui de recevoir les éloges du Senior. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un garde impérial de mon clan Shi Antique, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
 
 Wang Lin acquiesça. Son regard balaya une nouvelle fois la créature avant de se tourner vers le palais.
 
@@ -102,7 +102,7 @@ Le palais était luxueux, mais dégageait une aura écrasante. Dès que Wang Lin
 
 L'Ascendant Empyréen aux cheveux blancs!!
 
-Les clans Anciens espionnaient sans relâche les mouvements du clan céleste, particulièrement l'émergence de nouveaux cultivateurs puissants. Le clan Ancien avait naturellement porté une attention toute particulière à Wang Lin, bien plus qu'aux cinq Grands Empyréens. Après tout, ces derniers étaient des figures connues, tandis que le premier des Ascendants Empyréens restait un mystère!
+Les trois lignées des clans Anciens espionnaient sans relâche les mouvements du clan céleste, particulièrement l'émergence de nouveaux cultivateurs puissants. Le clan Ancien avait naturellement porté une attention toute particulière à Wang Lin, bien plus qu'aux cinq Grands Empyréens. Après tout, ces derniers étaient des figures connues, tandis que le premier sous les Grands Empyréens restait un mystère!
 
 Une lueur de surprise traversa les yeux de Wang Lin, et son regard envers le Prince Ji Du se fit progressivement glacial.
 

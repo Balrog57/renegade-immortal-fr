@@ -10,7 +10,7 @@ Dans le vide, la vitesse de Wang Lin devenait de plus en plus rapide à mesure q
 
 C'était bien trop différent de ses expériences passées. À cet instant, Wang Lin manquait encore de coordination et son corps tremblait légèrement.
 
-Il avait même l'impression vague d'être devenu un avec le monde. S'il y mettait toute sa volonté, il pourrait véritablement l'atteindre.
+Il avait même l'impression vague de ne faire qu'un avec le monde, comme si ce qu'il pensait pouvait se réaliser.
 
 Ce sentiment ne cessa de croître jusqu'à ce qu'une impulsion surgisse dans son cœur. Finalement, cette impulsion devint irrésistible. Il regarda le vide et eut la sensation qu'il allait réellement fusionner avec l'univers.
 
@@ -34,9 +34,9 @@ Tous les cultivateurs du second pas n'étaient pas capables de comprendre cette 
 
 L'Ancêtre Sanguin fuyait rapidement, parcourant d'innombrables kilomètres depuis le point de disparition de Wang Lin. Son niveau de culture ayant été réduit au stade du Yang Corporel, il ne pouvait plus utiliser beaucoup de sorts. De plus, son âme originelle était endommagée, ce qui le rendait encore plus vulnérable.
 
-« Wang Lin, une fois que je me serai rétabli, je jure que je te tuerai! » L'Ancêtre Sanguin se déplaçait à une vitesse extrême, telle une ombre fendant le vide. Après un long moment, il finit par se détendre et murmura: « Ce petit morveux de Wang Lin ne devrait plus être capable de me rattraper maintenant. Je dois trouver un endroit pour utiliser une méthode secrète afin de restaurer ma culture au stade du Scruteur du Nirvana le plus vite possible. »
+« Wang Lin, une fois que je me serai rétabli, je jure que je te tuerai! » L'Ancêtre Sanguin se déplaçait à une vitesse extrême, telle une ombre fendant le vide. Après un long moment, il finit par se détendre et murmura: « Ce petit morveux de Wang Lin ne devrait plus être capable de me rattraper maintenant. Je dois vite trouver quelqu'un à posséder, puis utiliser une méthode secrète afin de restaurer ma culture au stade du Scruteur du Nirvana le plus vite possible. »
 
-Après avoir réfléchi un instant, l'Ancêtre Sanguin prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma derrière lui et la silhouette de Wang Lin en émergea.
+Après avoir réfléchi un instant, l'Ancêtre Sanguin prit sa décision. Cependant, à cet instant, son expression changea radicalement et il recommença à fuir sans la moindre hésitation. Une ondulation se forma à environ 330 mètres derrière lui et la silhouette de Wang Lin en émergea.
 
 Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Ancêtre Sanguin avait presque perdu la raison, totalement terrassé par le choc.
 
@@ -46,7 +46,7 @@ Lorsque le pied droit de Wang Lin se posa, ses yeux s'ouvrirent. Au loin, l'Anc�
 
 D'après ses connaissances, même Ling Tianhou ne comprenait pas totalement cette technique. Pour des gens comme eux, ce sort était infiniment proche d'une maîtrise du troisième pas!
 
-C'était la première fois que l'Ancêtre Sanguin ressentait une trace de peur envers Wang Lin, et cette peur naissait de ce qu'il avait vu de ses propres yeux. Il avait été témoin des transformations subies par Wang Lin; il l'avait vu passer d'un cultivateur de l'Ascendant au sommet du stade tardif à son niveau actuel!
+C'était la première fois que l'Ancêtre Sanguin ressentait une trace de peur envers Wang Lin, et cette peur naissait de ce qu'il avait vu de ses propres yeux. Il avait été témoin des transformations subies par Wang Lin; il l'avait vu passer d'un cultivateur au sommet du stade avancé de l'Ascendant à son niveau actuel!
 
 « Ce petit morveux doit être chanceux. Oui, il a dû avoir une chance inouïe pour pouvoir utiliser la Distorsion Spatiale! » L'Ancêtre Sanguin se sentait extrêmement amer. Il ne daigna même pas se retourner et s'enfuit à toute vitesse.
 
@@ -72,7 +72,7 @@ Ce sentiment d'intégration avec le monde réapparut dans le cœur de Wang Lin. 
 
 Lorsque la sensation commença à s'estomper, Wang Lin poussa un soupir. L'image de l'Ancêtre Sanguin lui revint à l'esprit et, d'un pas, il disparut à nouveau.
 
-L'Ancêtre Sanguin, en pleine fuite, ressentit une inquiétude profonde. Ce sentiment n'était même pas aussi intense lorsqu'il avait affronté l'ancêtre de la famille Yao.
+L'Ancêtre Sanguin, en pleine fuite, ressentit une inquiétude profonde. Ce sentiment n'était même pas aussi intense lorsqu'il avait affronté l'ancêtre de la famille Yao, le Dieu du Sang.
 
 À cet instant précis, son expression changea radicalement et il recula sans réfléchir. Pourtant, à cet instant même, l'ombre d'un fouet surgit du vide et s'abattit impitoyablement sur lui.
 
@@ -114,6 +114,6 @@ La rivière des enfers commença à s'effondrer sous l'assaut de l'Ancêtre Sang
 
 Au moment où il émergea, Wang Lin se dressa devant lui, le drapeau des âmes à la main. Des nuages noirs jaillirent du drapeau et encerclèrent immédiatement l'Ancêtre Sanguin en pleine course.
 
-Le Fouet Karmique pénétra dans les nuages noirs, et les bruits de déchirement résonnèrent continuellement.
+Le Fouet du Karma pénétra dans les nuages noirs, et les bruits de déchirement résonnèrent continuellement.
 
 Wang Lin hurla: « Rassemblement! » Tous les nuages noirs se contractèrent avec frénésie, mais l'Ancêtre Sanguin résistait encore au cœur du tourbillon. Même dans cet état, il demeurait le fier Ancêtre Sanguin!

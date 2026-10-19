@@ -34,7 +34,7 @@ Une douleur intense envahit son corps alors qu'il arrachait l'armure qui avait d
 
 « Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle pas encore entièrement ouverte! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
 
-Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant l'azur, elle s'apprêtait à percuter l'ombrelle antique.
+Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant le firmament, elle s'apprêtait à percuter l'ombrelle antique.
 
 Des grondements tonitruants retentirent frénétiquement alors que la paume transperçait le feu. Celle-ci se dissipait rapidement tout en bombardant l'ombrelle.
 
@@ -62,9 +62,9 @@ Le rugissement du Souverain retentit de l'intérieur alors qu'il surgissait de l
 
 En chargeant, le Souverain leva la main et frappa impitoyablement vers l'avant. Une autre empreinte de paume apparut et fonça sur sa cible. Elle rattrapa instantanément Wang Lin et s'apprêtait à l'anéantir!
 
-Face au danger imminent, du sang coula du coin de la bouche de Wang Lin tandis qu'il battait en retraite. Ses mains formèrent des sceaux et le Domaine du Vent et de la Pluie apparut autour de lui. La paume percuta le Domaine du Vent et de la Pluie.
+Face au danger imminent, du sang coula du coin de la bouche de Wang Lin tandis qu'il battait en retraite. Ses mains formèrent des sceaux et le Monde du Vent et de la Pluie apparut autour de lui. La paume percuta le Monde du Vent et de la Pluie.
 
-Le Domaine du Vent et de la Pluie se brisa dans un fracas assourdissant!
+Le Monde du Vent et de la Pluie se brisa dans un fracas assourdissant!
 
 Wang Lin cracha du sang et une lumière blanche émana de son corps. Une lueur blanche infinie jaillit de la planète de culture et se condensa autour de Wang Lin pour former une immense silhouette lumineuse!
 
@@ -102,7 +102,7 @@ L'expression de Wang Lin devint féroce alors qu'il levait la main gauche pour p
 
 La puissance d'Ancien Dieu à l'intérieur de Wang Lin se précipita dans le gantelet à une vitesse fulgurante. Tandis que ses paroles résonnaient, une puissante aura d'Ancien Dieu apparut parmi les étoiles!
 
-Au loin, un Ancien Dieu de la taille d'une planète de culture surgit soudainement devant Wang Lin!
+Un Ancien Dieu de la taille d'une planète de culture surgit soudainement devant Wang Lin!
 
 Cet Ancien Dieu était illusoire et dégageait une aura antique. Son corps était couvert de blessures, témoignant de multiples batailles passées! Son dos faisait face à la paume et ses bras enveloppaient Wang Lin. Il protégeait Wang Lin avec son propre corps, tel un parent protégeant son enfant!
 

@@ -16,7 +16,7 @@ Une fourmi qu'il pourrait écraser d'innombrables fois d'un simple point de doig
 
 Dans un ricanement froid, Wang Lin fit un pas en avant et disparut de Luotian. Dès sa disparition, la porte de lumière s'évanouit comme si elle n'avait jamais existé.
 
-Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Âme Écarlate, mais au sein du familier Royaume Céleste. Personne dans le Royaume ne remarqua son arrivée.
+Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Âme Écarlate, mais au sein du nouveau Royaume Céleste. Personne dans le Royaume ne remarqua son arrivée.
 
 Il n'était plus question de Maître Âme Écarlate à l'extérieur.
 
@@ -34,7 +34,7 @@ Pour lui, que ce soit sur le Continent Astral Immortel ou dans le monde des grot
 
 À l'inverse, Liu Jinbiao et Xu Liguo affichaient des expressions étranges. Après avoir inspecté les lieux, ils se lancèrent des regards malicieux. Wang Lin pouvait voir que les deux se sentaient extrêmement fiers et hautains.
 
-C'était comme le sentiment d'un homme rentrant dans sa ville natale après avoir voyagé dans de grandes cités.
+C'était comme le sentiment d'un homme rentrant dans son petit village natal après avoir voyagé dans de grandes villes.
 
 Il était clairement écrit sur leurs visages: « Regardez, je suis allé sur le Continent Astral Immortel! Là-bas, c'est moi le patron. »
 
@@ -54,9 +54,9 @@ En observant cette femme à la fois familière et étrangère, Wang Lin ressenti
 
 La Secte Heng Yue lui apparut en mémoire, ainsi que la jeune fille radieuse. Puis, dans la Tombe du Suzaku, cette silhouette d'une beauté suffocante.
 
-Cette image changeait sans cesse. Du moment passé dans le système stellaire de Luotian au rugissement amer de Wang Ping, jusqu'à l'instant précis où Wang Lin avait quitté le monde des grottes. Ses souvenirs défilaient comme une fresque picturale.
+Cette image changeait sans cesse. Du moment passé dans le système stellaire de Luotian au cri déchirant de Wang Ping, jusqu'à l'instant précis où Wang Lin avait quitté le monde des grottes. Ses souvenirs défilaient comme une fresque picturale.
 
-Ce jour-là, une pluie légère tombait sur le Royaume Céleste. Dans cette averse, une femme en blanc flottait telle une feuille de saule.
+Ce jour-là, une pluie légère tombait sur le Royaume Céleste. Dans cette averse, une femme en blanc flottait tel un duvet de saule.
 
 Une femme magnifique, un parapluie à la main. Ses longs cheveux noirs lui donnaient l'air d'une créature émanant d'un autre monde. Son arrivée avait plongé le monde dans le silence, ne laissant que le murmure de la pluie. Une force étrange imprégnait l'air, semblant faire oublier tout le reste pour ne laisser place qu'à cette silhouette éthérée dans la brume légère.
 
@@ -64,11 +64,11 @@ Une femme magnifique, un parapluie à la main. Ses longs cheveux noirs lui donna
 
 Mu Bingmei n'osait croire ce qu'elle voyait. Elle était totalement stupéfaite. Dans un état de transe, la silhouette blanche de Wang Lin devint plus profonde encore, jusqu'à s'ancrer dans sa mémoire et se fondre dans son âme.
 
-En un instant, elle sembla revoir la Secte Heng Yue d'il y a des millénaires. Parmi la foule, il n'y avait qu'un seul jeune homme qui ne s'était pas laissé éblouir par sa beauté.
+En un instant, elle sembla revoir la Secte Heng Yue de la planète Suzaku, d'il y a des millénaires. Parmi la foule, il n'y avait qu'un seul jeune homme qui ne s'était pas laissé éblouir par sa beauté.
 
 Elle vit l'homme qui l'avait arrêtée dans la Tombe du Suzaku et qui l'avait fixée avec froideur.
 
-Et à Luotian, l'homme qui avait poussé un cri déchirant en apprenant la mort de son avatar, le regard empli de chagrin.
+Et à Luotian, l'homme qui avait poussé un cri déchirant en apprenant tout ce qu'avait fait l'avatar de Mu Bingmei, le regard empli de chagrin.
 
 Enfin, les images s'arrêtèrent sur l'instant où l'homme quitta le monde des grottes. La pluie tombait ce jour-là, empreinte d'une mélancolie de séparation.
 
@@ -92,9 +92,9 @@ Sa main droite serrait l'épée tandis que sa main gauche agrippait inconsciemme
 
 « Ne le dis pas, je ne veux pas l'entendre! » Le corps de Mu Bingmei trembla et elle pâlit instantanément. L'épée lui échappa des mains alors qu'elle reculait. À cet instant, elle paraissait si impuissante et fragile, comme si une simple bourrasque pouvait l'emporter.
 
-Son visage exprimait une tristesse profonde et, mêlées aux larmes, une fragilité à couper le souffle.
+Son visage, d'une beauté poignante et baigné de larmes, dégageait une fragilité qu'on ne pouvait ignorer.
 
-« Je ne veux pas savoir. Wang Lin, je... je ne veux pas entendre... » Les larmes redoublèrent au coin de ses yeux, coulant sur ses joues pour imbiber ses vêtements.
+« Je ne veux pas l'entendre. Wang Lin, je... je ne veux pas entendre... » Les larmes redoublèrent au coin de ses yeux, coulant sur ses joues pour imbiber ses vêtements.
 
 Wang Lin observa Mu Bingmei, son apparence si frêle et la confusion dans son regard désemparé. Il poussa un soupir.
 
@@ -118,4 +118,4 @@ Wang Lin l'enlaça tendrement. Le parfum qui émanait de son corps était enivra
 
 C'était la première fois qu'ils s'étreignaient véritablement, la première fois qu'ils mettaient de côté leurs sentiments complexes pour consacrer cent ans à résoudre cette relation tragique et malheureuse.
 
-Ils restèrent ainsi enlacés sur la montagne sous le ciel rouge sang, tandis que le temps s'écoulait. Après un jour, l'éclat écarlate du ciel s'intensifia. À ce moment, de fines fissures apparurent sur la formation, signalant son effondrement imminent. Wang Lin quitta alors la montagne, accompagné de Mu Bingmei.
+Ils restèrent ainsi enlacés sur la montagne sous le ciel rouge sang, tandis que le temps s'écoulait. Après un jour, l'éclat écarlate du ciel s'intensifia. À ce moment, de fines fissures apparurent dans le ciel, signalant l'effondrement imminent de la formation. Wang Lin quitta alors la montagne, accompagné de Mu Bingmei.

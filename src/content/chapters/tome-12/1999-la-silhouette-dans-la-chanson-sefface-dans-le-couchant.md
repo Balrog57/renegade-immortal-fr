@@ -46,7 +46,7 @@ Le visage de Wang Lin pâlit instantanément, ses yeux tourmentés par un confli
 
 « Wang Lin... Laisse Lian Daofei ici. » C'était la troisième fois que Gémeaux formulait cette requête.
 
-Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une lame. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyréen Gémeaux l'en empêcherait, et Jiu Di interviendrait également. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
+Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une grande vague. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyréen Gémeaux l'en empêcherait, et Jiu Di interviendrait également, et Hai Zi aussi. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
 
 De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Gémeaux qui l'avait tant aidé... La Secte du Yang Pourpre pourrait même être anéantie.
 
@@ -60,7 +60,7 @@ Mais en fin de compte, il ne pouvait toujours pas emmener le fou...
 
 S'il avait eu le choix, Wang Lin aurait rendu toutes ces richesses pour pouvoir l'emporter, mais tout cela était scellé depuis le début.
 
-« Avec la divination de l'ancêtre du clan Dao Wang, il a probablement vu l'Empereur Céleste posséder le fou... Peut-être faisait-il partie du plan, mais je l'ai brisé... »
+« Avec la divination de l'ancêtre du clan Dao Wang, il avait probablement prévu que l'Empereur Céleste tente de posséder le fou... Cette possession faisait peut-être partie de son plan, mais je l'ai brisée sans le vouloir... »
 
 « Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
 
@@ -72,7 +72,7 @@ Le Grand Empyréen Gémeaux regarda Lian Daofei, plongé dans son coma, et soupi
 
 Une fois sorti du ciel brisé du palais interdit, Wang Lin ne put s'empêcher de regarder en bas.
 
-Il vit Hai Zi utiliser le sort secret de son clan. Le fou inconscient projeta une lumière dorée éclatante. Tandis que cette lueur se répandait, un soleil d'or enveloppa l'homme. Dans cette expansion lumineuse, Wang Lin sentit les fluctuations d'un Grand Empyréen émaner du corps de ce dernier.
+Il vit Hai Zi utiliser le sort secret de son clan. Le fou inconscient projeta une lumière dorée éclatante. Tandis que cette lueur se répandait, un soleil d'or enveloppa l'homme. Dans cette expansion lumineuse, Wang Lin sentit les fluctuations d'un Grand Empyréen émaner de ce soleil.
 
 Cette puissance de Grand Empyréen n'était pas une simple esquisse comme le soleil de Wang Lin, mais un astre pleinement formé. Lian Daofei était devenu le cinquième Grand Empyréen du clan céleste après la chute de l'Empereur Céleste.
 
@@ -86,7 +86,7 @@ Le ciel se rétablit, et peu à peu, le monde entier retrouva son aspect origine
 
 Le regard de Wang Lin resta un instant suspendu sur la montagne dorée avant qu'il ne se détourne. Se souvenant du serment qu'il avait prêté, il s'éclipsa brusquement!
 
-Après avoir quitté le palais interdit pour traverser le palais effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait dans le palais impérial de la cité ancestrale.
+Après avoir quitté le palais interdit pour traverser le palais souterrain effondré, Wang Lin fit un pas en avant et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait dans le palais impérial de la cité ancestrale.
 
 Le palais était en ruines; à première vue, seule la statue se dressait là, solitaire. C'était celle de l'Ancêtre Céleste, les bras tendus vers le ciel comme s'il lançait un sortilège.
 

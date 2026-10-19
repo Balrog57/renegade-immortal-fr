@@ -10,7 +10,7 @@ slug: le-troisieme-oiseau-vermillon-traitre
 
 Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un cultivateur. Elle semblait plutôt avoir été façonnée à partir d'un Oiseau Vermillon.
 
-Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Le disciple de la sixième génération de l'Oiseau Vermillon salue l'Ancêtre. »
+Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Ce junior, de la sixième génération de l'Oiseau Vermillon, salue l'Ancêtre. »
 
 À peine eut-il prononcé ces mots que le feu aux neuf couleurs entre les sourcils de la statue rugit violemment et jaillit vers le ciel. Une lumière émana des yeux clos de la statue.
 
@@ -36,7 +36,7 @@ Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il para
 
 À l'instant même où la Tombe de l'Ordre Antique s'ouvrit et que la tempête se forma, le vieil homme ouvrit les yeux. Son regard était profond, comme si ses yeux étaient l'océan lui-même.
 
-« Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il est impossible d'agir contre la Perle Défiant le Ciel sur la Planète du Grand Empereur, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
+« Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il m'est impossible de mettre la main sur la Perle Défiant le Ciel sur la Planète du Grand Empereur, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
 
 Ce vieil homme était l'un des cinq maîtres, le corps original du Maître du Dao Miao Yin. Le jeune homme sur la Planète du Grand Empereur n'était que l'un de ses trois avatars principaux!
 
@@ -78,7 +78,7 @@ Dans l'Épreuve Céleste, le visage de Wang Lin était livide. Son expression n'
 
 Des grondements tonitruants résonnèrent dans la paume géante. Quatre respirations, cinq respirations!
 
-Sur la Planète du Grand Empereur, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé la moitié de sa longueur.
+Sur la Planète du Grand Empereur, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé près de la moitié de sa longueur.
 
 Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan de l'Oiseau Vermillon réside dans le Système Stellaire Antique, alors pourquoi le Clan des Moineaux de Feu existe-t-il? »
 
@@ -92,7 +92,7 @@ Témoin de cette scène, le Vieux Oiseau Vermillon prit un air grave et son expr
 
 « L'Ancêtre de la première génération a-t-il perdu la raison pour utiliser la Flamme Infinie de l'Oiseau Vermillon pour une épreuve?! Le but de l'Épreuve Céleste devrait être d'offrir une grande fortune; quel est le sens d'un tel comportement?! »
 
-Les yeux du Maître Simo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grand-Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
+Les yeux du Maître Simo s'illuminèrent d'une pointe de surprise. Il ne put s'empêcher de regarder la Grande Maîtresse Yun Luo. Elle mordit sa lèvre inférieure et plissa les yeux. Elle voulut tenter une divination, mais en se rappelant le regard de Wang Lin, son esprit vacilla et elle n'osa point essayer.
 
 Sixième respiration... septième... huitième... Sous l'encens céleste, du sang s'écoula de la bouche de Wang Lin et sa peau se flétrit, devenant sèche; même son sang commença à bouillir. C'était comme si son essence vitale s'évaporait sous la chaleur émanant de son âme.
 

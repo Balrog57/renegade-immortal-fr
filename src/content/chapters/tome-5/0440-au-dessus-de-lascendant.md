@@ -36,7 +36,7 @@ Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous
 
 Situ Nan eut un sourire amer et dit: « Comment cela pourrait-il être aussi facile? Il existe deux seuils entre le stade d'Ascendant et l'accès au rang de Scruteur du Nirvana, qui sont les étapes du Nettoyage Yin-Yang.
 
-Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Scruteur du Nirvana.
+Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Le Dao de chacun étant différent, je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Scruteur du Nirvana.
 
 Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Scruteur du Nirvana. »
 
@@ -54,7 +54,7 @@ Cependant, les techniques offertes par l'Alliance de la Culture sont classées a
 
 Malheureusement, le Sceau de Suzaku ne peut être utilisé qu'après avoir hérité du Cœur de la Planète de Culture; sinon, si vous l'appreniez, votre force augmenterait sans aucun doute.
 
-La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cristal Planétaire de Culture, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
+La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cœur de la Planète de Culture, il accroît la compatibilité entre vous et ce cœur, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
 
 Wang Lin réfléchit un moment. Ses yeux s'animèrent et il demanda: « Vous avez dit plus tôt que les trésors célestes étaient également classés par rang? »
 
@@ -66,7 +66,7 @@ En voyant l'épée céleste, les yeux de Situ Nan s'illuminèrent. D'un geste de
 
 Wang Lin resta très calme. Il faisait une immense confiance à Situ Nan, sans quoi il ne lui aurait pas permis d'examiner cette épée céleste.
 
-Peu après, Situ Nan ouvrit soudainement les yeux. Il imprégna l'épée d'énergie spirituelle céleste, ce qui la fit rayonner. Cette lueur était plusieurs fois plus intense que lorsque Wang Lin l'avait utilisée.
+Peu après, Situ Nan ouvrit soudainement les yeux. Il imprégna l'épée d'énergie spirituelle céleste, ce qui la fit rayonner. Cette lueur était bien des fois plus intense que lorsque Wang Lin l'avait utilisée.
 
 Situ Nan murmura: « Belle épée! »
 
@@ -74,7 +74,7 @@ Il effectua un mouvement désinvolte de la main droite.
 
 Boum! Boum! Boum!
 
-Une série d'explosions fracassantes déchira l'air. Puis, une immense faille s'ouvrit dans le ciel. Un vent glacial jaillit de la déchirure et, en un clin d'œil, le sol entier fut gelé.
+Une série d'explosions fracassantes déchira l'air. Puis, une immense faille s'ouvrit dans le ciel. Un vent glacial jaillit de la déchirure et, en un clin d'œil, le sol fut presque transformé en océan de glace.
 
 « Belle épée!! » Situ Nan caressa la lame. Il tourna la tête vers Wang Lin et demanda: « Où avez-vous trouvé cette épée? »
 
@@ -90,7 +90,7 @@ Belle épée! » Situ Nan l'appréciait tellement qu'il hésita presque à la re
 
 Les yeux de Situ Nan s'écarquillèrent et il dit avec dépit: « Quoi? Un trésor de qualité moyenne ne vous suffit pas? Dans tout l'univers, les trésors de qualité moyenne ne sont pas si nombreux, et les cultivateurs ne peuvent affiner que des trésors de qualité inférieure. Presque tous les trésors de qualité moyenne qui existent aujourd'hui datent d'avant l'effondrement du Royaume Céleste.
 
-La grande majorité des trésors célestes dont disposent les cultivateurs sont de qualité inférieure; il y en a très peu de qualité moyenne. Une fois que vous aurez quitté cet endroit, vous verrez à quel point ils sont rares. Un seul suffit pour déclencher une guerre! »
+La grande majorité des trésors célestes dont disposent les cultivateurs sont de qualité inférieure; il y en a très peu de qualité moyenne. Une fois que vous aurez quitté cet endroit, vous verrez à quel point ils sont rares. Un seul pourrait presque déclencher une guerre! »
 
 L'expression de Wang Lin changea légèrement. Il repensa au Royaume Céleste lorsqu'il avait vu le saint épéiste Ling Tianhou et quelques vieux détraqués se battre comme des fous pour des épées célestes. Les niveaux de culture de ces individus étaient certainement au-delà du stade d'Ascendant, les paroles de Situ Nan étaient donc tout à fait logiques.
 
@@ -118,7 +118,7 @@ Les yeux de Wang Lin s'illuminèrent et il dit avec un sourire qui n'en était p
 
 « Non seulement tous les trésors de Zhu Quezi sont de qualité inférieure, mais la plupart ont été rassemblés par la première génération de Suzaku. Je me sentirais trop mal à l'aise de les voler. » Situ Nan affichait un air de pitié.
 
-« Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de portage et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Charriot de Guerre qui Tue les Dieux.
+« Situ, quelle qualité donneriez-vous à ce trésor? » Wang Lin réfléchit un instant, puis frappa son sac de portage et le piège à bêtes apparut. Il lança le piège, faisant apparaître devant lui le Char de Guerre Divin.
 
 L'esprit du charriot apparut rapidement, ses yeux féroces grands ouverts, et commença à rugir.
 

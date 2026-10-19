@@ -18,7 +18,7 @@ En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'épo
 
 C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture!
 
-L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et à l'intervention de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et à le départ de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -46,7 +46,7 @@ L'expression de Wang Lin resta impassible. Après avoir stoppé le vortex d'un g
 
 « Fourmis du Royaume Intérieur, vous cherchez la mort! »
 
-« Haha, le calme régnait depuis tant d'années, quelqu'un tente enfin une intrusion. Ce vieil homme veut voir combien de prétendants sont venus! »
+« Haha, le calme régnait depuis tant d'années, quelqu'un tente enfin une intrusion. Ce vieil homme veut voir combien de gens sont venus! »
 
 À leur apparition, ces individus affichaient des visages empreints de cruauté, mais plus flagrante encore était leur soif de sang. Ils n'avaient pas combattu depuis longtemps, et l'intention de tuer, jusqu'alors réprimée, éclata soudainement. La tentative d'intrusion les avait galvanisés.
 

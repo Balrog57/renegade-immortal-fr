@@ -22,11 +22,11 @@ Tout au long du trajet, Wang Lin se sentait plutôt satisfait. Sa vengeance éta
 
 À mesure que leurs voix résonnaient, elles alertèrent le pays de culture situé en dessous d'eux. Plusieurs sens divins vinrent vérifier l'origine du bruit, mais dès qu'ils remarquèrent le niveau de culture de Wang Lin ainsi que la bête qui l'accompagnait, ils se retirèrent immédiatement, n'osant pas les déranger.
 
-À ce moment-là, dans une ville humaine du pays de culture situé sous Wang Lin, un vieil homme aux allures négligées, un sourire aux lèvres, dit à un jeune cultivateur au stade de l'Établissement des Fondations: « Petit frère, je vois que tu es très talentueux et plein d'énergie. Tu n'es certainement pas une personne ordinaire. Cependant, sans guide, j'ai bien peur que tu n'aies aucune chance d'atteindre le stade de la Formation du Noyau. »
+À ce moment-là, dans une ville humaine du pays de culture situé sous Wang Lin, un vieil homme aux allures négligées, un sourire aux lèvres, dit à un jeune cultivateur au stade de l'Établissement des Fondations: « Petit frère, ton front est large et une lueur violette irradie ton corps. Tu n'es certainement pas une personne ordinaire. Cependant, sans guide, j'ai bien peur que tu n'aies aucune chance d'atteindre le stade de la Formation du Noyau. »
 
 Le jeune cultivateur fixa le vieil homme et cria: « Dégage! Si tu continues à me barrer la route, ne me reproche pas d'être impitoyable! »
 
-Le vieil homme laissé pour compte fit un « tsk tsk » et pointa le ciel en direction de Wang Lin: « Tu le vois? Ce petit gars n'était qu'un cultivateur de l'Âme Naissante quand je lui ai donné quelques conseils, et maintenant il a atteint le stade de la Formation de l'Âme. Qu'en dis-tu? Veux-tu que je le fasse descendre pour te le prouver? »
+Le vieil homme fit un « tsk tsk » et pointa le ciel en direction de Wang Lin: « Tu le vois? Ce petit gars n'était qu'un cultivateur de l'Âme Naissante quand je lui ai donné quelques conseils, et maintenant il a atteint le stade de la Formation de l'Âme. Qu'en dis-tu? Veux-tu que je le fasse descendre pour te le prouver? »
 
 Le jeune cultivateur poussa un reniflement froid et regarda la petite tache noire qui s'était déjà éloignée vers l'horizon, avant de lâcher: « Dégage! »
 
@@ -42,7 +42,7 @@ C'était le fruit du travail acharné de Wang Lin ces derniers jours.
 
 Le temps passa rapidement et, en un clin d'œil, un mois s'était écoulé. Assis sur le dos de la bête moustique, Wang Lin traversa un réseau de transfert après l'autre avant de rejoindre enfin la Mer des Démons.
 
-Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques de plusieurs pays de culture et les représailles des cultivateurs démoniaques, le conflit était arrivé à une impasse.
+Au cours des dernières décennies, la guerre n'avait eu aucun répit dans la Mer des Démons. Entre les attaques de plusieurs pays de culture et les contre-attaques des cultivateurs démoniaques, le conflit était arrivé à une impasse.
 
 L'objectif de Wang Lin était la terre de l'Ancien Dieu. Après avoir obtenu l'héritage de la mémoire, il possédait une technique lui permettant d'entrer et de sortir de cet endroit à sa guise.
 
@@ -50,7 +50,7 @@ Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait acheve
 
 Il voulait tout mettre en œuvre pour se préparer à l'ouverture du royaume céleste de la Pluie. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes et de démons.
 
-Wang Lin prédisait que tant qu'il ne s'enfoncerait pas dans la première épreuve de l'Ancien Dieu, Tuo Sen ne pourrait pas le détecter. Et même si Tuo Sen y parvenait, avec son niveau de culture, il serait capable de s'éclipser avant d'être capturé.
+Wang Lin prédisait que tant qu'il ne s'enfoncerait pas dans la première épreuve de l'Ancien Dieu, Tuo Sen ne pourrait pas le détecter. Et même s'il était détecté, grâce à son niveau de culture, Wang Lin pourrait s'éclipser avant d'être rattrapé.
 
 Fort de cette résolution, il enfila le chapeau de paille obtenu auprès du vieil homme négligé et fonça droit vers la terre de l'Ancien Dieu. Sous l'effet protecteur du chapeau, les cultivateurs les plus faibles n'osaient même pas l'entraver et le laissaient passer.
 
@@ -64,11 +64,11 @@ La vitesse de Wang Lin était fulgurante. Si une bête osait barrer sa route, la
 
 Les Étoiles Brisées du Chaos se trouvaient à 50 000 kilomètres à l'est.
 
-Alors qu'il volait, il fronça soudainement les sourcils en apercevant un nuage rouge fonçant vers lui. Les yeux de Wang Lin s'illuminèrent. Il savait que dans la Mer des Démons, la force était reine. S'il montrait la moindre faiblesse, on le dévorerait tout cru. En y pensant, une aura froide commença à émaner de son corps.
+Alors qu'il volait, il fronça soudainement les sourcils en apercevant un nuage rouge fonçant vers lui, tel dix mille chevaux au galop. Les yeux de Wang Lin s'illuminèrent. Il savait que dans la Mer des Démons, la force était reine. S'il montrait la moindre faiblesse, on le dévorerait tout cru. En y pensant, une aura froide commença à émaner de son corps.
 
 En un instant, le nuage rouge se rapprocha. À l'intérieur se trouvait une créature mystérieuse. La bête ressemblait à une tortue-dragon, mais sans pointes sur sa carapace; elle arborait plutôt une corne recourbée qui diffusait une lueur noire. Le corps de la bête était immense. Sur son dos siégeait un vieil homme vêtu d'une robe grise, portant une grande gourde rouge à son côté.
 
-En voyant la créature et le vieil homme, Wang Lin se souvint immédiatement de qui il s'agissait. C'était l'homme qui lui avait imposé une restriction autrefois en lui ordonnant de se rendre au Pavillon de l'Affinement des Trésors.
+En voyant la créature et le vieil homme, Wang Lin se souvint immédiatement de qui il s'agissait. C'était l'homme qui lui avait imposé une restriction autrefois en lui ordonnant de se rendre au Pavillon de Raffinage des Trésors.
 
 Les yeux de Wang Lin brillèrent d'intérêt, mais il retrouva aussitôt son calme, fixant le vieil homme d'un regard glacial. Ce dernier arriva rapidement devant Wang Lin et, en le voyant, afficha une expression de surprise. Wang Lin sentit que le sens divin du vieil homme était repoussé par la lumière dorée émanant du chapeau de paille.
 

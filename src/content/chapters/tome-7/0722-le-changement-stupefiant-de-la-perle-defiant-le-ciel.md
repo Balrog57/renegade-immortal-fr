@@ -10,7 +10,7 @@ L'homme aux cheveux noirs caressa la grosse tête de la Bête du Tonnerre, et se
 
 Il afficha une expression sombre, puis la Bête du Tonnerre sous lui se transforma en un éclair et s'élança vers l'horizon.
 
-« La rumeur dit que la mystérieuse Perle Défiant le Ciel est apparue pour la première fois dans les profondeurs du champ d'astéroïdes du domaine sud. En raison de son apparition, le tonnerre ici a changé et a créé ce lac de tonnerre. C'est désormais le meilleur endroit pour cultiver des sorts liés au tonnerre! »
+« La rumeur dit que la mystérieuse Perle Défiant le Ciel est apparue pour la première fois dans les profondeurs du champ d'astéroïdes du domaine sud. En raison de son apparition, le tonnerre ici a changé et a fait de ce lieu une prison de tonnerre. C'est désormais le meilleur endroit pour cultiver des sorts liés au tonnerre! »
 
 Les yeux de l'homme s'illuminèrent et il accéléra encore sa course.
 
@@ -28,7 +28,7 @@ Peu après, les mains de Wang Lin se levèrent lentement pour former un sceau. D
 
 Ce mouvement contenait en réalité neuf sceaux différents produits à une vitesse extrêmement élevée. Ces sceaux créaient la capacité d'attirer le tonnerre.
 
-Sous le grondement assourdissant du lac de tonnerre, un filament de tonnerre sembla être attiré. Comme s'il avait enfin trouvé un point de libération, il se précipita immédiatement, tentant de dévorer tout sur son passage.
+Sous le grondement assourdissant du lac de tonnerre, un filament de tonnerre sembla être attiré. Comme s'il avait enfin trouvé un point de libération, il se précipita immédiatement sous la forme d'un dragon de tonnerre, tentant de dévorer tout sur son passage.
 
 Cependant, au moment où il toucha Wang Lin, il se dissipa pour pénétrer dans son corps.
 
@@ -82,7 +82,7 @@ La lumière violette devint aveuglante et se propagea soudainement. La mystérie
 
 Tout cela était d'une bizarrerie telle que Wang Lin en fut profondément ébranlé.
 
-Il ignorait que la perle céleste était apparue ici pour la première fois! Tous les changements mystérieux qui s'étaient produits dans ce lieu avaient été causés par l'apparition de la Perle Défiant le Ciel.
+Il ignorait que la Perle Défiant le Ciel était apparue ici pour la première fois! Tous les changements mystérieux qui s'étaient produits dans ce lieu avaient été causés par l'apparition de la Perle Défiant le Ciel.
 
 Wang Lin s'était retrouvé ici par inadvertance, ramenant la perle à son lieu d'origine. On pouvait dire que le karma était à l'œuvre.
 
@@ -100,9 +100,9 @@ Après cela, Wang Lin avait absorbé la Perle Défiant le Ciel et était venu ic
 
 Si l'un de ces facteurs avait manqué, la Perle Défiant le Ciel n'aurait pas changé ainsi. Depuis les innombrables années de son existence, Wang Lin était le seul à avoir atteint cette étape.
 
-La porte géante apparut de nouveau. La lumière violette fit que le monde entier et même le lac de tonnerre prirent une teinte pourpre. Le tonnerre lui-même devint un tonnerre violet!
+La porte géante apparut de nouveau. La lumière violette fit que le monde entier et même le lac de tonnerre prirent une teinte violette. Le tonnerre lui-même devint un tonnerre violet!
 
-L'apparition de la porte fit ressurgir ce sentiment d'effroi dans son corps. Bien qu'il l'eût déjà affronté une fois, son corps tremblait encore légèrement, mais son regard restait inflexible.
+L'apparition de la porte fit ressurgir ce sentiment de crainte révérencielle dans son corps. Bien qu'il l'eût déjà affronté une fois, son corps tremblait encore légèrement, mais son regard restait inflexible.
 
 Alors que la lumière violette inondait tout, le bras géant devant la porte réapparut. Mais cette fois, cela fit rater un battement au cœur de Wang Lin.
 

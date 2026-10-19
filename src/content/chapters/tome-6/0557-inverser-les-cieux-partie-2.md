@@ -86,7 +86,7 @@ L'homme d'âge moyen baissa la tête pour observer l'endroit où Wang Lin avait 
 
 La blessure grave de Wang Lin n'était pas une surprise pour Yao Xixue. Elle ne se souciait guère de la vie de cet homme; seule l'entrée dans la grotte comptait. L'avertissement de son père de ne pas se brouiller avec Wang Lin était totalement oublié.
 
-En vérité, elle estimait que le statut et la culture de Wang Lin n'étaient pas dignes d'une amitié, malgré ses capacités anormales!
+En vérité, elle estimait que le statut et la culture de Wang Lin n'étaient pas dignes d'une amitié, malgré ses capacités hors du commun!
 
 Elle déploya son Sens Divin et, ne trouvant aucune trace de lui, son dernier soupçon s'évanouit complètement.
 
@@ -110,7 +110,7 @@ Elle était plus confiante que jamais en sa capacité à supporter ce troisième
 
 « Cette grotte sera mienne! » Yao Xixue prit une profonde inspiration et commença à former des sceaux manuels. Alors que la lumière dorée approchait, elle cracha un large jet de sang qui s'écrasa sur le rayon avant qu'elle ne se mette à réciter des incantations, ses mains s'agitant avec une célérité accrue.
 
-La lumière dorée fut recouverte par le sang frais et émit des sifflements de grésillement. Le sang sembla bouillir avant de se transformer en symboles qui s'agrippèrent à la lueur.
+La lumière dorée fut recouverte par le sang frais et émit des sifflements de grésillement. Le sang sembla bouillir avant de se transformer en symboles qui s'agrippèrent à la lueur, s'y incrustant comme la moelle pénètre les os.
 
 L'éclat doré faiblit soudainement, mais les symboles de sang se mirent également à fondre. La lumière chargea alors directement vers Yao Xixue.
 

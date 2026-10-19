@@ -38,13 +38,13 @@ La chance peut frapper une fois, ou peut-être deux, mais trois fois consécutiv
 
 « Alors, pour cette seconde fois... » Wang Lin ferma les yeux et, après un long moment, les rouvrit. Son regard était déterminé.
 
-« La chance est importante, mais si l'on possède une volonté assez puissante pour surpasser la chance en tout point, alors cela convient également! » Wang Lin forma un sceau de la main et l'ombre apparut au-dessus de lui. Il ferma de nouveau les yeux!
+« La chance est importante, mais si l'on possède une volonté assez puissante pour surpasser la chance en tout point, alors il est possible de la renverser! » Wang Lin forma un sceau de la main et l'ombre apparut au-dessus de lui. Il ferma de nouveau les yeux!
 
 Dès qu'il les ferma, l'ombre au-dessus de sa tête trembla et de fines fissures apparurent à sa surface. La deuxième scission d'âme commençait!
 
 Dans le ciel de la ville impériale, Xuan Luo regardait vers le bas avec un sourire. Il s'assit et continua de veiller sur son disciple.
 
-Dans son cœur, il savait que si le Dao Antique avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
+Dans son cœur, il savait que si l'Ancien Dao avait besoin de sa protection, son disciple, qui serait affaibli durant cette scission, en avait tout autant besoin.
 
 En un éclair, trois ans passèrent.
 

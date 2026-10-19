@@ -10,7 +10,7 @@ Au 17e niveau du Cimetière des Immortels sur la planète Suzaku. Au moment où 
 
 « Le 18e niveau est interdit d'accès! »
 
-Ce son fut si puissant que le corps de Ta Shan fut repoussé de plusieurs dizaines de pieds. Comme frappé par un impact violent, il cracha une large bouffée de sang.
+Ce son fut si puissant que le corps de Ta Shan fut repoussé de plusieurs centaines de pieds. Comme frappé par un impact violent, il cracha une large bouffée de sang.
 
 Le garçon à la grosse tête fut également projeté en arrière. Quant à Lei Ji, il ressentit un bourdonnement et son esprit s'obscurcit; il comprit seulement qu'il était constamment repoussé.
 
@@ -48,7 +48,7 @@ Wang Lin réfléchit en silence. Il éprouvait beaucoup de regrets envers la Sec
 
 Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la première secte de Junior, et la planète Suzaku est ma patrie. »
 
-« Oh? » Les yeux du vieux cultivateur s'illuminèrent. « Alors, qu'en est-il de ton rôle de Céleste du Tonnerre du Temple du Céleste du Tonnerre? » Sa voix retentit comme le tonnerre, teintée d'une pointe de colère.
+« Oh? » Les yeux du vieux cultivateur s'illuminèrent. « Alors, qu'en est-il de ton rôle de Céleste du Tonnerre du Temple céleste du tonnerre? » Sa voix retentit comme le tonnerre, teintée d'une pointe de colère.
 
 « Diverses circonstances m'ont forcé dans cette situation! » Wang Lin fixa le vieux cultivateur avec un regard limpide.
 

@@ -38,11 +38,11 @@ Le regard du vieil homme balaya le groupe et se posa sur un homme âgé vêtu de
 
 L'homme en cyan leva la tête. Sans même regarder Wang Lin, il répondit: « Il ne pourra pas résister à mon domaine. »
 
-Le vieil homme arqua un sourcil. Il agita la main et lança: « Balivernes! Avec moi ici, même si l'ancêtre de votre Secte Nuage Blanc, le vieux Bai Yun, venait en personne, je serais capable de le tenir en respect. » Sur ce, il lança un regard malicieux vers les profondeurs de la Secte Nuage Blanc.
+Le vieil homme arqua un sourcil. Il agita la main et lança: « Balivernes! Avec moi ici, même si le vieux Bai Yun de votre Secte Nuage Blanc, venait en personne, je serais capable de le tenir en respect. » Sur ce, il lança un regard malicieux vers les profondeurs de la Secte Nuage Blanc.
 
 L'homme en cyan ne répondit plus et se tapota le front. Soudain, une ouverture noire apparut sur son front et une épée volante de la taille d'une paume en jaillit. L'épée se mua en un éclair et fendit l'air vers Wang Lin.
 
-Sa vitesse était telle que Wang Lin ne pouvait absolument pas la parer. Son visage se décomposa. S'il avait possédé le drapeau de restriction, il aurait pu la bloquer, mais il n'aurait pas pu la contenir longtemps.
+Sa vitesse était telle que Wang Lin ne pouvait absolument pas la parer. Son visage se décomposa. S'il avait déployé le drapeau de restriction, il aurait pu la bloquer, mais il n'aurait pas pu la contenir longtemps.
 
 Cependant, Wang Lin n'avait pas peur. Bien qu'il ne puisse résister à l'épée, si cela devenait un véritable combat, grâce à sa parcelle de rétribution divine, tous les cultivateurs de la Formation de l'Âme se méfieraient de lui, quelle que soit la puissance de leurs techniques.
 

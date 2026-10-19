@@ -12,7 +12,7 @@ La lueur des étoiles se répandait infiniment dans toutes les directions. Le sy
 
 Cependant, le système stellaire de Luotian était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre.
 
-Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. À l'exception de Wang Lin, presque chaque cultivateur pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
+Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. Wang Lin compris, la grande majorité des cultivateurs pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
 
 Le système stellaire de Luotian jouissait de beaucoup plus de liberté. Toutefois, certains secrets restaient étroitement gardés.
 
@@ -24,7 +24,7 @@ Plusieurs traînées de lumière passèrent rapidement. Ils étaient quatre, tro
 
 La femme semblait avoir une vingtaine d'années. Bien qu'elle fût belle, une certaine froideur émanait d'elle; pourtant, loin de toute arrogance, elle dégageait une aura de grande dame.
 
-Les trois cultivateurs masculins étaient tous très séduisants. Mais en cet instant, leurs visages étaient sombres et ils ne cessaient de regarder derrière eux.
+Les trois cultivateurs masculins étaient tous de belle prestance. Mais en cet instant, leurs visages étaient sombres et ils ne cessaient de regarder derrière eux.
 
 L'un des hommes s'exclama rapidement: « Jetons la Pierre Rouge Brillante! Sinon, ces Insectes de Brume Noire ne cesseront jamais de nous poursuivre. Une fois qu'ils nous auront piégés... »
 

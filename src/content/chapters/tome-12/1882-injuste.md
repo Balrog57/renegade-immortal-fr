@@ -12,13 +12,13 @@ Il chargea en avant et rejoignit instantanément Wang Lin.
 
 Tout en s'approchant, il leva sa main droite telle une lame. Une lueur dorée jaillit de sa paume et se transforma en une lame de lumière qui frappa Wang Lin!
 
-Cette lame possédait le pouvoir de fendre les cieux et fit changer les couleurs du monde. Le ciel fut inondé d'un éclat doré tandis que toute l'énergie céleste des environs convergeait vers elle. C'était comme si cette lame d'or avait le pouvoir d'engloutir le monde entier.
+Cette lame possédait le pouvoir de fendre les cieux et fit changer les couleurs du monde. Le ciel fut inondé d'un éclat doré, au point de sembler prêt à s'effondrer, tandis que toute l'énergie céleste des environs convergeait vers elle. C'était comme si cette lame d'or avait le pouvoir d'engloutir le monde entier.
 
 Ce changement soudain fit vaciller les expressions des cultivateurs qui suivaient Wang Lin, y compris celles de l'homme d'âge mûr. Sans hésiter, ils reculèrent rapidement pour s'écarter de Wang Lin.
 
-Les pupilles de Tang Jia se rétractèrent alors qu'elle fixait la silhouette du jeune homme dont la main droite était devenue une lame. Cette forme se superposait rapidement à l'image fière qu'elle gardait en mémoire.
+Les pupilles de Ta Jia se rétractèrent alors qu'elle fixait la silhouette du jeune homme dont la main droite était devenue une lame. Cette forme se superposait rapidement à l'image fière qu'elle gardait en mémoire.
 
-« Si je n'active pas l'armure d'âme du Taureau Céleste, je ne pourrai pas résister à ce coup! » Tang Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide!
+« Si je n'active pas l'armure d'âme du Taureau Céleste, je ne pourrai pas résister à ce coup! » Ta Jia n'était qu'au huitième niveau de la Tribulation Arcane. Une fois le neuvième niveau franchi, elle pourrait véritablement entrer dans le stade initial de la Tribulation du Vide!
 
 Il y avait également le vieil homme assis sous la cloche. Il ouvrit soudainement les yeux et tourna son regard vers eux. Sa culture était insondable et il dégageait l'aura d'un cultivateur au milieu de la Tribulation du Vide. Il ressemblait étrangement au Souverain Céleste aux Sept Couleurs d'autrefois: il était manifestement au sommet du stade intermédiaire de la Tribulation du Vide!
 
@@ -28,7 +28,7 @@ D'un seul geste, le monde entier sembla se figer, comme si une force étrange av
 
 La lame d'or, aussi massive qu'un éboulement, se brisa sans même que Wang Lin n'ait eu à attaquer! Tandis que le jeune homme restait pétrifié, Wang Lin passa calmement à côté de lui et se posa sur la place, sous la cloche.
 
-Tang Jia vit tout cela et son cœur trembla. Elle tourna soudain les yeux vers Wang Lin, une lueur mystérieuse dans le regard. Quant au vieil homme de la Tribulation du Vide, il fronça les sourcils et jeta un coup d'œil à Wang Lin.
+Ta Jia vit tout cela et son cœur trembla. Elle tourna soudain les yeux vers Wang Lin, une lueur mystérieuse dans le regard. Quant au vieil homme de la Tribulation du Vide, il fronça les sourcils et jeta un coup d'œil songeur à Wang Lin.
 
 Le sort d'immobilisation n'avait duré qu'un instant, et le jeune homme retrouva ses mouvements. Il afficha un sourire amer tandis que la lumière dorée autour de lui s'estompait. Il regarda Wang Lin d'un air complexe avant de laisser poindre un sourire sincère.
 
@@ -42,7 +42,7 @@ Yun Yifeng atterrit aux côtés de Wang Lin et rit. En voyant Wang Lin, il resse
 
 « Frère Wang, après être retourné à ma secte, j'ai immédiatement utilisé la puissance de ma secte pour te chercher, mais sans succès. Je ne m'attendais pas à ce que tu apparaisses ainsi. J'étais si heureux que je voulais naturellement poursuivre notre combat », dit sincèrement Yun Yifeng en ouvrant les bras vers Wang Lin.
 
-Wang Lin marqua un temps d'arrêt et observa Yun Yifeng. Après une courte réflexion, il s'avança et lui serra chaleureusement la main dans une étreinte fraternelle.
+Wang Lin marqua un temps d'arrêt et observa Yun Yifeng. Après une courte réflexion, il s'avança et l'étreignit fraternellement.
 
 Yun Yifeng fut ravi. Il entraîna Wang Lin sur le côté pour pouvoir discuter plus tranquillement. Cependant, à cet instant précis, une voix empreinte de majesté résonna depuis la grande salle qui se dressait devant eux.
 
@@ -52,11 +52,11 @@ Yun Yifeng s'interrompit et regarda Wang Lin. Son expression devint immédiateme
 
 « La personne qui vient de parler est le Maître de notre Secte Gui Yi, un expert au stade avancé de la Tribulation du Vide. »
 
-Wang Lin écouta Yun Yifeng sans dire mot, les yeux fixés sur la grande salle qui ressemblait à une bête gigantesque.
+Wang Lin écouta Yun Yifeng, dont la voix résonnait dans son esprit, sans dire mot, les yeux fixés sur la grande salle qui ressemblait à une bête gigantesque.
 
 « Vous trois, dites-moi vos noms. » La voix majestueuse retentit de nouveau.
 
-Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Sheng, Tang Jia! »
+Ta Jia prit un air sérieux et déclara doucement: « Secte Xiu Sheng, Ta Jia! »
 
 « Cultivateur errant, Bord-des-Nuages! » Le vieil homme se leva et joignit les mains en direction de la salle.
 
@@ -70,21 +70,21 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Présent! » Le vieil homme nommé Bord-des-Nuages s'avança.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près de Bord-des-Nuages et se mua en une armure dorée exsudant une pression terrifiante. Bord-des-Nuages, loin d'être calme, était transporté par l'excitation.
+« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près de Bord-des-Nuages et se mua en une armure dorée exsudant une pression terrifiante. Bord-des-Nuages, loin d'être calme, ressentit une pointe d'excitation.
 
 « Merci, Maître de Secte! » Bord-des-Nuages prit une profonde inspiration et inclina la tête. Au moment où il s'inclinait, la lumière dorée se fragmenta en d'innombrables fils qui pénétrèrent son corps.
 
-« Tang Jia! » La voix résonna à nouveau.
+« Ta Jia! » La voix résonna à nouveau.
 
 « Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ta Secte Xiu Sheng de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
 
-Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Senior Maître de Secte. »
+Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Ta Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Senior Maître de Secte. »
 
 « Yun Yifeng! »
 
 Yun Yifeng devint solennel et fit un pas en avant avec une révérence.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire de la secte, je t'enseignerai l'un de mes quatre sorts et te remettrai l'un de mes trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
+« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire de la secte, je t'enseignerai l'une des quatre techniques héritées de notre secte et te remettrai l'un de nos trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
 
 « Merci, Maître de Secte! » Yun Yifeng, ravi, accepta les deux objets en s'inclinant devant la grande salle.
 
@@ -96,16 +96,16 @@ Wang Lin resta serein alors qu'il avançait vers la grande salle.
 
 « Les récompenses ont été distribuées, maintenant je vous confie une mission top secrète! » La voix retentit. Yun Yifeng voulut dire quelque chose, mais après avoir jeté un regard à la grande salle, il se tut pour réfléchir.
 
-Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger; Tang Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Bord-des-Nuages, doté d'une culture élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Tang Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
+Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger; Ta Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Bord-des-Nuages, doté d'une culture élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Ta Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
 
 « Votre mission est de... » La voix commença, mais avant qu'elle ne puisse terminer, un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Attendez! » Wang Lin fixa la grande salle et fit un pas en avant, interrompant le Maître de la Secte Gui Yi.
 
-À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Tang Jia regarda elle aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
+À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Ta Jia regarda elle aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
 
 « Votre mission est de vous rendre sur le Continent du Démon Vert, d'infiltrer le Temple du Démon Vert et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent du Taureau Céleste! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
 
-À ces mots, le visage de Bord-des-Nuages se crispa, tout comme celui de Tang Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
+À ces mots, le visage de Bord-des-Nuages se crispa, tout comme celui de Ta Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
 
 « Le Continent du Démon Vert est pratiquement désert pour l'instant. Quant aux ancêtres qui y résident, il y aura naturellement des êtres pour les contenir... Maintenant que la mission a été énoncée, que voulais-tu dire, Wang Lin? » La voix demeurait calme et posée, comme si rien ne pouvait troubler sa sérénité.

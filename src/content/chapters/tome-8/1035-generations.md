@@ -20,17 +20,17 @@ Six étoiles tournaient dans l'œil gauche de chaque démon démoniaque.
 
 Au moment où Wang Lin vit ces trois ombres, ses pupilles se rétractèrent brusquement.
 
-Le démon du vent se tenait devant les trois fantômes. Ses mains formèrent un sceau tandis qu'elle fixait Wang Lin et hurlait: « Peu importe que tu sois un dieu ancien! Tu deviendras l'un des emblèmes principaux du trésor sacré de mon clan des démons anciens! »
+Le démon du vent se tenait devant les trois fantômes. Ses mains formèrent un sceau tandis qu'elle fixait Wang Lin et hurlait: « Peu importe que tu sois un dieu ancien! Tu deviendras l'un des principaux drapeaux du trésor sacré de mon clan des démons anciens! »
 
 Un éclair d'intention meurtrière traversa les yeux du démon du vent et sa main droite pointa vers l'avant. Les trois fantômes derrière elle s'élancèrent. Le dieu ancien à six étoiles fit un pas en avant et lança un coup de poing vers Wang Lin.
 
 Les deux fantômes des démons démoniaques chargèrent Wang Lin depuis les flancs avec une aura sanguinaire, comme s'ils voulaient le dévorer.
 
-Bien que Bei Lou ne fût pas un démon ancien royal, son statut n'était pas ordinaire au sein du clan des démons anciens. Ce Drapeau de Scellement des Âmes lui avait été offert par un démon ancien royal. Bien qu'il ne soit pas aussi puissant qu'un trésor royal, il possédait néanmoins une force immense.
+Bien que Bei Luo ne fût pas un démon ancien royal, son statut n'était pas ordinaire au sein du clan des démons anciens. Ce Drapeau de Scellement des Âmes lui avait été offert par un démon ancien royal. Bien qu'il ne soit pas aussi puissant qu'un trésor royal, il possédait néanmoins une force immense.
 
-Lorsque Bei Lou était encore intact, il possédait le véritable Drapeau de Scellement des Âmes. Une fois invoqué, les quarante-neuf petits drapeaux s'envolaient. Ceux qui y étaient scellés n'avaient pas tous été tués par lui; ils avaient été emprisonnés là par des générations de maîtres successifs.
+Lorsque Bei Luo était encore intact, il possédait le véritable Drapeau de Scellement des Âmes. Une fois invoqué, les quarante-neuf petits drapeaux s'envolaient. Ceux qui y étaient scellés n'avaient pas tous été tués par lui; ils avaient été emprisonnés là par des générations de maîtres successifs.
 
-Bei Lou n'était que le septième propriétaire. La rumeur prétendait que le premier propriétaire était d'une puissance telle qu'il pouvait affronter directement les dieux anciens des générations suivantes. C'était un démon ancien de quatrième génération, une rareté absolue!
+Bei Luo n'était que le septième propriétaire. La rumeur prétendait que le premier propriétaire était d'une puissance telle qu'il pouvait affronter directement les dieux anciens des générations suivantes. C'était un démon ancien de quatrième génération, une rareté absolue!
 
 L'Ordre Ancien était un clan qui avait défié les cieux avant de se scinder en trois lignées distinctes. Les dieux anciens, les démons anciens et les démons démoniaques de la première génération contenaient l'essentiel du sang et de l'héritage de l'Ordre Ancien.
 
@@ -40,7 +40,7 @@ Cependant, au fil du temps, le sang et l'héritage de l'Ordre Ancien se firent d
 
 Le prétendu clan royal était celui qui conservait la plus grande part du lignage de l'Ordre Ancien; ils étaient les descendants directs de la première génération des trois clans.
 
-Bei Lou était un démon ancien de la 79e génération, mais son trésor avait une histoire séculaire et était extrêmement célèbre.
+Bei Luo était un démon ancien de la 79e génération, mais son trésor avait une histoire séculaire et était extrêmement célèbre.
 
 Toutefois, le démon du vent ayant renoncé à son identité de démon ancien, son corps d'origine s'était dissipé; elle ne pouvait donc plus utiliser le véritable trésor. À cet instant, les trois drapeaux étaient formés en condensant son énergie démoniaque pour créer des fantômes. C'était un processus semblable à celui par lequel Wang Lin invoquait la Lance Tueuse de Dieux.
 
@@ -60,7 +60,7 @@ Alors que le tonnerre résonnait à travers le monde, un rayon de lumière noire
 
 Wang Lin, tenant la Lance Tueuse de Dieux dans sa main droite, la balaya vers l'avant. Le corps du dieu ancien à six étoiles trembla en fixant la lance, et son regard terne s'illumina soudainement.
 
-Il n'était qu'un ordinaire dieu ancien à six étoiles; en termes de génération, il était même inférieur à Bei Lou. Mais face au trésor sacré de son propre clan, son corps fut pétrifié par l'émotion.
+Il n'était qu'un ordinaire dieu ancien à six étoiles; en termes de génération, il était même inférieur à Bei Luo. Mais face au trésor sacré de son propre clan, son corps fut pétrifié par l'émotion.
 
 Si le Drapeau de Scellement des Âmes avait été réellement présent, il n'aurait pas agi ainsi, mais ce que le démon du vent avait invoqué n'était qu'un fantôme. Il était bien plus faible que l'original, et même les âmes scellées à l'intérieur en étaient considérablement affaiblies.
 
@@ -68,7 +68,7 @@ Le démon du vent maudit intérieurement Yao Xixue d'avoir provoqué une existen
 
 « Damnation! Dans les souvenirs de Yao Xixue, il était si faible qu'on pouvait le tuer d'un simple revers de main. Comment peut-il être un dieu ancien, et même de lignée royale?! »
 
-Le démon du vent savait que la lignée royale était devenue si rare qu'elle frôlait l'extinction parmi les trois clans; il était presque impossible d'en trouver un. Bei Lou n'avait rencontré un démon ancien royal que par pur hasard.
+Le démon du vent savait que la lignée royale était devenue si rare qu'elle frôlait l'extinction parmi les trois clans; il était presque impossible d'en trouver un. Bei Luo n'avait rencontré un démon ancien royal que par pur hasard.
 
 En vérité, avec sa force, tant qu'elle n'aurait pas rencontré Wang Lin, elle aurait pu agir à sa guise grâce à ses divers sorts et sa vitesse inégalée, même face à des êtres comme Situ Nan.
 

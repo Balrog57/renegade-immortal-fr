@@ -8,7 +8,7 @@ slug: teng-trois
 ---
 Teng Trois ne paraissait pas jeune. Ses cheveux étaient déjà blancs et il semblait avoir entre quarante et cinquante ans. En y regardant de plus près, on pouvait voir que l'épouse de Wang Zhuo lui ressemblait.
 
-Il était très beau. Sur son visage impeccable, ses yeux brillaient comme des gemmes noires.
+Il était très beau. Sur son visage impeccable, ses yeux brillaient plus que des gemmes scintillant au fond d'un océan d'un noir profond.
 
 Teng Trois dit doucement: « Xiu Xiu, pour l'instant, la famille Teng fait face à un ennemi puissant et l'Ancêtre ne sortira pas. Toute cette situation est bien trop étrange. Une fois que tu auras atteint la Ville de la Famille Teng en toute sécurité, reste avec ta petite sœur et ne sors pas. »
 
@@ -24,7 +24,7 @@ Le regard de Teng Trois semblait capable de percer les cœurs lorsqu'il fixa Wan
 
 Une vague d'émotions déferla en lui tandis qu'il caressait les cheveux de Teng Xiu Xiu.
 
-Il savait que depuis l'époque où l'Ancêtre l'avait contraint à se séparer de sa femme, il vivrait éternellement sous l'ombre de ce dernier. Tout cela parce que son épouse était une mortelle et parce qu'il était l'arrière-arrière-petit-fils de l'Ancêtre. Un membre aussi important de la famille Teng ne pouvait prendre une mortelle pour épouse.
+Il savait que depuis l'époque où l'Ancêtre l'avait contraint à se séparer de sa femme, il ne pourrait plus que survivre dans l'ombre de ce dernier. Tout cela parce que son épouse était une mortelle et parce qu'il était l'arrière-arrière-petit-fils de l'Ancêtre. Un membre aussi important de la famille Teng ne pouvait prendre une mortelle pour épouse.
 
 Car ses descendants devaient posséder les aptitudes nécessaires à la culture.
 

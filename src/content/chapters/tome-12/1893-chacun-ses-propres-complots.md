@@ -50,7 +50,7 @@ Après un long moment, la main se retira et une voix rauque s'éleva de la bouch
 
 Ce n'est qu'une fois le maître parti que le vieil homme en robe verte contempla Wang Lin avec une excitation manifeste.
 
-« La famille de ce vieil homme a attendu si longtemps... Des générations de mortels ont servi de Ji Si pendant d'innombrables années, jusqu'à ce qu'apparaisse enfin un corps venu d'au-delà du ciel, semblable à celui du Seigneur Démon Vert! »
+« La famille de ce vieil homme a attendu si longtemps... Des générations de mortels ont servi de Ji Si pendant des dizaines de milliers d'années, jusqu'à ce qu'apparaisse enfin un corps venu d'au-delà du ciel, semblable à celui du Seigneur Démon Vert! »
 
 « Seul un corps de ce genre peut être possédé par le Seigneur Démon Vert pour lui permettre de renaître!! Cependant, la volonté du maître de la Secte du Dao Démoniaque doit être effacée du corps véritable d'essence de tonnerre... » murmura l'homme en fixant Wang Lin avec exaltation. Sa voix résonna dans l'espace vert, empreinte d'une étrange folie.
 
@@ -96,7 +96,7 @@ Ce n'est qu'à ce moment que le vieil homme en robe verte se détendit complète
 
 « Bien qu'il possède huit essences, il lui manque la terre... L'essence du Seigneur Démon Vert est la terre... Je dois l'ajouter... »
 
-« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée du Seigneur Démon Vert. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central et apporter la fortune à mon lignage... »
+« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée du Seigneur Démon Vert. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central rendre compte de ma mission et apporter la fortune à mon lignage... »
 
 « Cette affaire est trop cruciale, je dois encore me préparer davantage... »
 

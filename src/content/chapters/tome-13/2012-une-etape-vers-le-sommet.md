@@ -10,13 +10,13 @@ Xuan Luo se tenait là, calme en apparence, mais son cœur était tourmenté. Il
 
 Il savait aussi que la source de ce mécontentement résidait dans le fait que son disciple, Wang Lin, possédait une culture céleste et des essences!
 
-Le Grand Empyréen Gu Dao était un homme attaché aux traditions. Il se souciait du lignage de l'Ancêtre, des générations d'anciens empereurs et du sang de l'Ancêtre lui-même!
+Le Grand Empyréen Gu Dao était un homme attaché aux traditions. Il se souciait du lignage de l'Ancêtre Ancien, des générations d'anciens empereurs et du sang d'âme de l'Ancêtre Céleste!
 
 Mais il ne pouvait manifestement pas tolérer que quelqu'un possédant le sang de l'âme contienne également l'aura du clan céleste.
 
 Le corps de Wang Lin tremblait. Durant ces trois jours, les sons des cloches avaient pénétré son esprit et résonnaient en lui comme un grondement. Ils supprimaient sa culture et tentaient de l'effacer.
 
-« Que ce soit le pouvoir des Anciens ou celui des Célestes, ils m'appartiennent tous deux et ont été obtenus par mes propres efforts. Je refuse de perdre ma culture céleste! » Les yeux de Wang Lin étaient injectés de sang. Sa détermination était inébranlable et il continuait de lutter contre les cloches!
+« Que ce soit le pouvoir des Anciens ou celui des Célestes, ils m'appartiennent tous deux et ont été obtenus par mes propres efforts. Je refuse de perdre ma culture céleste, et je ne tolérerai jamais de ne plus posséder que le pouvoir des Anciens! » Les yeux de Wang Lin étaient injectés de sang. Sa détermination était inébranlable et il continuait de lutter contre les cloches!
 
 Le pouvoir céleste à l'intérieur de son corps continuait d'attaquer, tentant de disperser les échos des cloches dans son esprit.
 

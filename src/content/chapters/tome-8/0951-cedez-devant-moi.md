@@ -6,15 +6,15 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 951 - Yield for Me!"
 slug: cedez-devant-moi
 ---
-À cet instant précis, deux rayons de lumière violette jaillirent du sol. L'un d'eux fonça directement vers Wang Lin, tandis que l'autre transperça le vieil homme. Les yeux de ce dernier s'écarquillèrent alors que son corps et son âme originelle étaient annihilés par la lumière violette qui était initialement destinée à Qing Shui.
+À cet instant précis, deux rayons de lumière violette jaillirent des décombres de la tour effondrée. L'un d'eux fonça directement vers Wang Lin, tandis que l'autre transperça le vieil homme. Les yeux de ce dernier s'écarquillèrent alors que son corps et son âme originelle étaient annihilés par la lumière violette, qui fonça aussitôt vers Qing Shui.
 
 La lumière violette brilla intensément et envahit le monde, submergeant totalement la lueur bleue qui scellait le royaume. Une intention meurtrière traversa les yeux de Qing Shui alors qu'une lueur rouge apparaissait sur son index. Son Royaume Ji s'était partiellement rétabli, et il percuta la lumière violette.
 
 Une explosion assourdissante fit trembler le monde et la lumière violette fut contrainte de reculer avant de se transformer en une silhouette humaine: un homme d'âge moyen aux cheveux violets, dont le regard débordait d'une soif de sang monstrueuse.
 
-« Ce vieil homme est Ling Yunzi, le Maître du Royaume de la Boucherie! »
+« Moi, Ling Yunzi, Maître du Royaume de la Boucherie! »
 
-« Le Royaume Ji! Ainsi, les biens de mon épouse sont entre tes mains! » Qing Shui fut repoussé de plusieurs pas en fixant l'homme aux cheveux violets, ses yeux brûlant d'une intention meurtrière terrifiante.
+« Le Royaume Ji! Ainsi, les biens laissés par mon épouse sont entre tes mains! » Qing Shui fut repoussé de plusieurs pas en fixant l'homme aux cheveux violets, ses yeux brûlant d'une intention meurtrière terrifiante.
 
 « Qing Shui est un ancien Seigneur Céleste du Royaume Céleste du Tonnerre. La rumeur prétend qu'après sa résurrection, sa culture ne s'est pas rétablie. Bien qu'il soit encore très puissant, je possède un trésor de niveau Pseudo-Vide du Nirvana. Même s'il est endommagé, il me suffit pour l'affronter. Tuer Qing Shui serait un exploit mémorable! » L'homme aux cheveux violets laissa échapper un renâclement glacial et créa une immense brume violette. Alors qu'il chargeait, six clones apparurent et s'élancèrent également vers Qing Shui.
 
@@ -28,7 +28,7 @@ Quant à Wang Lin, son expression était de marbre; chaque fois qu'il fusionnait
 
 Il vit un rayon de lumière violette jaillir de la position de Qing Shui. Cette lueur était d'une rapidité fulgurante, et ce qui fit sombrer le cœur de Wang Lin, c'est qu'il y décelait une trace du Royaume Ji!
 
-« Le Royaume Ji! » Sans hésiter, Wang Lin recula alors que la lumière violette approchait. Simultanément, il tendit la main et les étoiles de Dieu Ancien situées entre ses sourcils se mirent à tourner. Rapidement, un rayon de lumière se concentra dans sa main droite.
+« Le Royaume Ji! » Sans hésiter, Wang Lin recula alors que la lumière violette approchait. Simultanément, il tendit la main et les étoiles de Dieu Ancien situées entre ses sourcils se mirent à tourner. Rapidement, d'innombrables rayons de lumière convergèrent vers sa main droite.
 
 « Arme du clan royal, la Lance Tueuse de Dieux! »
 
@@ -48,11 +48,11 @@ Il restait moins de cent cultivateurs du Royaume de la Boucherie. Aucun d'entre 
 
 Onze rayons de lumière jaillirent et fusionnèrent dans le vide en chantant. Un instant plus tard, la silhouette de Wang Lin surgit du néant, poursuivie par ces onze lueurs. Trop rapides pour lui, elles le rattrapèrent en un instant.
 
-Chacun des onze rayons renfermait une épée d'argent imprégnée d'une intention meurtrière monstrueuse. Ces onze épées avaient été forgées dans le métal céleste par le premier Maître du Royaume. Après avoir été affinées dans le Royaume de la Boucherie durant d'innombrables années, elles étaient devenues des armes de massacre inégalées!
+Chacun des onze rayons renfermait une épée d'argent imprégnée d'une intention meurtrière monstrueuse. Ces onze épées avaient été forgées par le premier Maître du Royaume dans du fer raffiné recueilli aux quatre coins du monde. Après avoir été affinées dans le Royaume de la Boucherie durant d'innombrables années, elles étaient devenues des armes de massacre inégalées!
 
 Les onze épées volantes qui traquaient Wang Lin émettaient les cris lugubres des âmes de ceux que le Royaume de la Boucherie avait massacrés. Ces âmes encerclaient les rayons de lumière et poursuivaient Wang Lin avec acharnement pour le dévorer, comme si elles voulaient l'aspirer à leur tour.
 
-« De bonnes épées! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Chacune commençait à manifester des signes de formation d'un esprit de trésor propre. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées créées par Ling Tianhou!
+« De bonnes épées! » Un éclat de froideur passa dans les yeux de Wang Lin. Ces onze lames étaient en effet exceptionnelles, d'autant plus qu'elles avaient toutes été forgées à la même époque et avaient subi le même processus d'affinage. Chacune commençait à manifester des signes de formation d'un esprit de trésor propre. Si l'on parvenait à les collecter et à les condenser, le résultat serait plusieurs fois plus puissant que les quatre épées d'âme originelle que Ling Tianhou avait condensées en affinant quatre petits mondes!
 
 « Si je peux m'emparer de ces 99 épées volantes, même si ma culture n'égale pas celle de Ling Tianhou, je devrais pouvoir résister grâce à la puissance de ce trésor! » Les yeux de Wang Lin s'illuminèrent et il se lécha les lèvres.
 
@@ -72,7 +72,7 @@ Les quatre gourdes se mirent soudain à pivoter devant lui pour faire face à Wa
 
 À peine eut-il parlé que les quatre gourdes tremblèrent, libérant une brume blanc laiteux. Cette brume prit la forme de quatre femmes magnifiques qui s'élancèrent vers Wang Lin.
 
-Les deux autres cultivateurs aux côtés du vieil homme utilisèrent leurs propres sorts et trésors. L'un d'eux se frappa le front, faisant jaillir un noyau noir entre ses sourcils. Le noyau tournoyait en dégageant une aura sinistre tandis que le cultivateur hurlait: « Eau des Dix Mille Seigneurs! »
+Les deux autres cultivateurs aux côtés du vieil homme utilisèrent leurs propres sorts et trésors. L'un d'eux se frappa le front, faisant jaillir du sommet de son crâne un noyau noir. Le noyau tournoyait en dégageant une aura sinistre tandis que le cultivateur hurlait: « Eau des Dix Mille Seigneurs! »
 
 Le noyau vacilla et se transforma instantanément en une eau noire qui s'étendit. En un instant, il recouvrit la moitié du ciel, telle une mer rugissante déferlant sur Wang Lin.
 

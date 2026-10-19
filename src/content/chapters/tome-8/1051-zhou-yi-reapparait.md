@@ -32,9 +32,9 @@ Wang Wei rit: « Il n'a pas été effrayé par moi, il a simplement une autre de
 
 Hu Juan regarda l'endroit où Wang Lin avait disparu avant de froncer légèrement les sourcils et de dire doucement: « Vu son âge, je préférerais croire qu'il connaît très bien cet endroit... »
 
-Wang Wei sourit à Hu Juan et éclata de rire: « Te sens-tu lésée par sa facilité à franchir ces restrictions? Mais je suis d'accord, il semble parfaitement connaître les lieux, et cela ne fait que rendre la situation plus intéressante. »
+Wang Wei sourit à Hu Juan et éclata de rire: « Tu as du mal à admettre qu'il ait franchi ces restrictions si facilement? Mais je suis d'accord, il semble parfaitement connaître les lieux, et cela ne fait que rendre la situation plus intéressante. »
 
-« Lésée? Oh, tu me taquines encore malgré ton âge », sourit Hu Juan. Ses yeux étaient semblables à des croissants de lune, d'une grande beauté.
+« Admettre? Quelle idée! Oh, tu me taquines encore malgré ton âge », sourit Hu Juan. Ses yeux étaient semblables à des croissants de lune, d'une grande beauté.
 
 Wang Wei sourit également, son expression empreinte de sagesse: « Auparavant, nous avons supposé que l'esprit de l'épée avait un compagnon. Si je ne me trompe pas, ce compagnon devrait être lui! »
 
@@ -46,7 +46,7 @@ Hu Juan regarda Wang Wei, les yeux emplis de tendresse. Elle accordait une confi
 
 Tandis que Wang Lin se retirait, il franchissait restriction après restriction. Celles du sixième étage étaient bien plus complexes, ce qui affectait sa vitesse. S'il pouvait passer instantanément certaines d'entre elles, d'autres exigeaient qu'il calcule soigneusement chaque mouvement avant de poser le pied.
 
-Après sept jours de progression, Wang Lin contourna la zone et se rapprocha du lieu de stockage des pilules.
+Après sept jours de progression, Wang Lin contourna la zone en décrivant un demi-cercle et se rapprocha du lieu de stockage des pilules.
 
 Selon la carte, il s'agissait d'une salle d'alchimie contenant une matrice de transfert menant au dépôt des pilules. Observant la salle d'alchimie de loin, Wang Lin s'en approcha.
 
@@ -74,7 +74,7 @@ C'était comme si une seule et même personne avait perfectionné sa propre cré
 
 « Serait-il possible que la personne qui a placé toutes les restrictions de la Grotte de l'Empereur Céleste soit la même que celle qui a modifié celles-ci? » Wang Lin haleta. Cette réponse expliquerait tout, mais elle était proprement inconcevable.
 
-Wang Lin fixa les sceaux, sentant que si ses soupçons étaient fondés, il venait de tomber dans un immense filet. Il ignorait seulement qui l'avait tendu.
+Wang Lin fixa les sceaux, sentant que si ses soupçons étaient fondés, il venait de découvrir un immense filet. Il ignorait seulement qui l'avait tendu.
 
 Sa première pensée se tourna vers le Couple de Culture du Nuage Céleste!
 
@@ -96,7 +96,7 @@ Une fois stabilisé, Wang Lin scruta immédiatement les environs pour s'assurer 
 
 Alors qu'il s'apprêtait à entrer, son expression changea et il recula brusquement. Au même instant, la porte s'ouvrit et un rayon d'énergie d'épée jaillit. L'énergie fonça vers lui, mais après avoir identifié Wang Lin, un son de surprise émana du flux tranchant.
 
-Peu après, l'énergie se dispersa, révélant une silhouette blanche. C'était Zhou Yi!
+Peu après, l'énergie se dispersa, révélant une silhouette blanche, élancée comme un arbre de jade. C'était Zhou Yi!
 
 En voyant clairement Zhou Yi, Wang Lin cessa de reculer et relâcha le sceau qu'il formait de la main droite. Il ne parla pas; il observa d'abord la salle d'alchimie. L'intérieur et l'extérieur semblaient être deux mondes distincts que le sens divin ne pouvait pénétrer. Cela expliquait pourquoi Zhou Yi n'avait pas senti l'arrivée de Wang Lin, et pourquoi ce dernier n'avait pas détecté Zhou Yi.
 

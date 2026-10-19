@@ -12,7 +12,7 @@ Les jeunes Poissons-Œil restaient souvent tapis dans les sédiments des rivièr
 
 Sur le Continent Astral Immortel, la plupart des Poissons-Œil étaient scellés par des sectes pour servir de bêtes protectrices, mais ils n'étaient guère aimés des cultivateurs. Lorsqu'ils pénétraient dans une montagne, ils fusionnaient avec elle; bien que cela dotât la montagne d'un esprit, celle-ci finissait bientôt par se transformer en sable jaune.
 
-Ces Poissons-Œil, qui dévoraient l'énergie céleste, devaient être scellés. En vérité, presque tous ceux que l'on trouvait sur le Continent Astral Immortel étaient immédiatement mis sous sceau.
+Ces Poissons-Œil, qui dévoraient l'énergie céleste, devaient être scellés. En vérité, tous ceux que l'on trouvait sur le Continent Astral Immortel étaient immédiatement mis sous sceau.
 
 Wang Lin était assis dans le désert de cette planète. Le vent hurlait, soulevant d'immenses tempêtes de sable qui enveloppaient le monde, rendant tout lugubre et terne.
 
@@ -36,7 +36,7 @@ L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant imposs
 
 C'était la première embuscade!
 
-La respiration de Wang Lin était légèrement haletante. Même avec sa culture avancée au stade du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
+La respiration de Wang Lin était légèrement haletante. Même avec sa culture au stade tardif du Vide Spirituel, l'utilisation de ce sort était éprouvante, surtout lorsqu'il cherchait à en libérer toute la puissance.
 
 « Je dois pouvoir en extraire davantage... » Wang Lin leva la main droite et pointa son œil gauche. L'essence de feu apparut dans son regard et les flammes rugirent. D'un geste du bras, une mer de feu jaillit de son œil gauche, se transformant en un Oiseau Vermillon de feu qui s'élança vers le ciel.
 

@@ -26,7 +26,7 @@ Après avoir longuement réfléchi, Wang Lin agita ses manches et collecta les d
 
 Son regard parcourut la première grotte. N'ayant rien trouvé d'autre, il en sortit.
 
-Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort qu'il avait utilisé pour invoquer l'esprit de la septième formation du Royaume Scellé était très similaire au sort que les étrangers utilisaient.
+Le fait de pénétrer et de quitter cette grotte fit peser sur Wang Lin une pression semblable à une montagne, et son expression devint extrêmement sombre. En particulier, il pensa à sa bataille précédente contre Maître Pin Cendré. Le sort que Maître Pin Cendré avait utilisé pour invoquer l'esprit de la septième formation du Royaume Scellé était très similaire au sort que les étrangers utilisaient.
 
 « Quelle est l'identité de ce Maître Pin Cendré? » Wang Lin s'éloigna de la grotte et leva les yeux vers le ciel aux sept couleurs. Il se souvenait qu'au sein du vide, là où il avait rencontré pour la première fois les gens du royaume extérieur, il y avait également une lumière aux sept couleurs provenant de ce dernier...
 
@@ -56,7 +56,7 @@ Fronçant les sourcils, Wang Lin s'assit. Sans examiner les autres grottes, il f
 
 Tenant le cristal, Wang Lin le pressa jusqu'à ce qu'il s'effondre. Tandis que l'énergie d'origine jaillissait, ses mains formèrent un sceau pour en prendre le contrôle total. Il pointa ensuite le bord de la formation, et l'énergie d'origine se déversa dans le sol.
 
-En agitant sa main dans les airs, Wang Lin fit prendre à l'énergie d'origine la forme d'une formation en diamant sur le sol. Puis, d'un mouvement de la main droite, il projeta une fine ligne depuis ce diamant pour la connecter à la formation située à l'intérieur de la grotte.
+En agitant sa main dans les airs, Wang Lin fit prendre à l'énergie d'origine la forme d'une formation en diamant d'environ dix pieds sur le sol. Puis, d'un mouvement de la main droite, il projeta une fine ligne depuis ce diamant pour la connecter à la formation située à l'intérieur de la grotte.
 
 Une fois cela accompli, les yeux de Wang Lin s'illuminèrent et sa main plongea rapidement dans la formation pour tenter de saisir les trois bouteilles.
 

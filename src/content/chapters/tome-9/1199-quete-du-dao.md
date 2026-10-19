@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1199 - Seeking Dao
 slug: quete-du-dao
 ---
-Au moment où les trois individus arrivèrent dans le Royaume aux Sept Couleurs, la brume multicolore qui entourait Maître Pin Cendré se referma lentement jusqu'à envelopper totalement son âme originelle.
+Au moment où les trois individus arrivèrent dans le Royaume aux Sept Couleurs, la brume multicolore qui entourait Maître Pin Cendré, assis en tailleur sur la tête d'une statue, se referma lentement jusqu'à envelopper totalement son âme originelle.
 
 Des filaments d'éclairs blancs jaillirent de la statue et pénétrèrent la brume aux sept couleurs pour fusionner avec son âme originelle.
 
@@ -24,7 +24,7 @@ Il était impossible de distinguer l'apparence de cet être, mais ses yeux étai
 
 Maître Pin Cendré interrogea la silhouette floue: « Où est-il? »
 
-La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer Maître Pin Cendré. Ce dernier trembla tandis que plusieurs images défilaient dans son esprit. En voyant ces visions, il fronça les sourcils!
+La silhouette ferma les yeux et, après un long moment, les rouvrit pour fixer Maître Pin Cendré. Ce dernier trembla, une seule image s'imposant de force à son esprit. En voyant cette image, il fronça les sourcils!
 
 « La grotte de Sima Mo! Il a réussi à briser les restrictions de la grotte alors qu'il était gravement blessé? » Un éclat de froideur passa dans les yeux de Maître Pin Cendré et il s'élança.
 
@@ -48,7 +48,7 @@ L'expression de Wang Lin restait calme tandis qu'il tendait la main droite. Le c
 
 Sous le contrôle de Wang Lin, le liquide vola vers lui et fut réparti dans trois petites bouteilles.
 
-Prenant une profonde inspiration, Wang Lin observa la restriction de lumière noire qui entourait la vallée, saisit une petite bouteille et en but une gorgée. Dès que le liquide pénétra son corps, une sensation de fraîcheur se propagea instantanément à travers lui. Il pouvait vaguement percevoir l'écho d'un rugissement bestial. Wang Lin ferma les yeux et commença à appréhender lentement la compréhension des cieux propre à la bête.
+Prenant une profonde inspiration, Wang Lin observa la restriction qui entourait la vallée, saisit une petite bouteille et en but une gorgée. Dès que le liquide pénétra son corps, une sensation de fraîcheur se propagea instantanément à travers lui. Il pouvait vaguement percevoir l'écho d'un rugissement bestial. Wang Lin ferma les yeux et commença à appréhender lentement la compréhension des cieux propre à la bête.
 
 Dans cet état étrange, Wang Lin perdit la notion du temps, son esprit étant totalement absorbé par cette compréhension céleste. C'était comme s'il s'était transformé en une bête féroce, vivant chaque lutte acharnée pour la survie entre la vie et la mort.
 

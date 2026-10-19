@@ -54,7 +54,7 @@ L'esprit de Chen Tianjun vacilla alors qu'il murmurait: « Lui... Qui est-il? »
 
 La peur ne quittait pas les yeux de Maître Pin Cendré lorsqu'il répondit d'une voix rauque: « Le Perdu. »
 
-« Maître Pin Cendré, qu'est-ce que cet endroit, par tous les diables?! » La vieille femme en vert affichait une expression de dégoût en fixant Maître Pin Cendré. Étant restée juste à côté du garçon, elle avait vécu la scène avec une clarté absolue.
+« Maître Pin Cendré, qu'est-ce que cet endroit, par tous les diables?! » La vieille femme en vert affichait une expression sombre en fixant Maître Pin Cendré. Étant restée juste à côté du garçon, elle avait vécu la scène avec une clarté absolue.
 
 « Le compagnon cultivateur Duanmu n'a pas écouté les conseils, hélas. » Le vieil homme nommé Pang, dont l'effroi persistait, secoua la tête.
 

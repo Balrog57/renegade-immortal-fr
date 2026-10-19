@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 339 (Title at bottom)
 slug: la-reincarnation
 ---
-Au moment où la main géante s'approcha, le sol se mit à trembler. Un jeune homme au visage impassible et aux cheveux roux jaillit du sol pour percuter la main de plein fouet.
+Au moment où la main géante s'approcha, le sol se mit à trembler. Un homme au visage impassible aux cheveux roux jaillit du sol, dégageant un froid glacial sans fin, pour percuter la main de plein fouet.
 
 Bang!
 
@@ -24,7 +24,7 @@ Cette fois, alors que la main approchait, ses cinq griffes ouvrirent cinq déchi
 
 Wang Lin poussa un rugissement. Il frappa son sac et en sortit le drapeau de restriction. Une lance se matérialisa rapidement et il la projeta contre la main.
 
-Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements sinistres parcoururent tout son être. Il se métamorphosa en un géant de près de dix mètres de haut, une lueur violette irradiant sous sa peau. Son corps dégageait une aura sauvage et primitive.
+Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements secs parcoururent tout son être. Il se métamorphosa en un géant de près de dix mètres de haut, une lueur violette irradiant sous sa peau. Son corps dégageait une aura sauvage et primitive.
 
 Le corps original commençait à ressembler à un Dieu Ancien.
 
@@ -62,7 +62,7 @@ Bang! Bang! Bang!
 
 À chaque impact, le sang coulait davantage du coin de sa bouche, mais sa volonté de combattre ne cessait de croître.
 
-« Je suis un Dieu Ancien, je suis donc par nature une existence qui défie les cieux! Si vous voulez appliquer la voie de la réincarnation, il faudra d'abord me tuer! »
+« Je suis un Dieu Ancien, et je défierai les cieux! Si vous voulez appliquer la voie de la réincarnation, il faudra d'abord me tuer! »
 
 Une silhouette apparut soudainement derrière le corps original. Ses pieds touchaient le sol, mais sa tête atteignait le ciel. La figure n'était pas debout, mais agenouillée sur une jambe, la tête inclinée comme en plein sommeil.
 
@@ -128,13 +128,13 @@ Ce coup était une punition pour avoir entravé la volonté céleste!
 
 Au moment où le poing s'élança, le corps original arriva. Un rayon de lumière rouge sang chargea depuis la distance et fusionna avec Wang Lin.
 
-Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de 3,3 mètres de haut aux longs cheveux.
+Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de 3,3 mètres de haut aux cheveux qui lui arrivaient aux pieds.
 
 L'œil gauche de cet être était semblable à la lune, et son œil droit à celui du soleil. Il était enveloppé d'une aura mêlant le pouvoir du Dieu Ancien et le domaine de la vie et de la mort.
 
 Le Wang Lin actuel n'était plus un simple cultivateur ni un Dieu Ancien, mais une combinaison inédite. Son corps possédait la puissance d'un Dieu Ancien, tout en étant porté par l'âme originelle d'un cultivateur.
 
-C'était l'union des méthodes de culture intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle plus grande qu'un homme dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
+C'était l'union des méthodes de culture intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle haute comme un homme, les bras tendus, dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
 
 Cette âme originelle était comme le cœur du Dieu Ancien.
 

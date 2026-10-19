@@ -14,11 +14,11 @@ D'un simple pincement, toutes les gouttes fusionnèrent instantanément. L'âme 
 
 « Merci infiniment, Senior. Ma famille Yao vous en sera redevable! » La voix de l'Ancêtre Sanguin émana de l'intérieur du sang. Aucune trace de joie ou de colère ne perçait dans son ton; il était d'un calme absolu.
 
-Le vieil homme joua avec le cercle de fer sur la corne argentée de la Bête du Tonnerre et déclara: « Ne joue pas la comédie; tu es manifestement rongé par la peur. Tu crains que ce vieil homme n'ait de mauvaises intentions et ne te raffine directement en pilule, au grand dam de la famille Yao. Même si le maître de la famille Yao, le Dieu du Sang, venait lui-même, penses-tu que ce vieil homme aurait peur?! »
+Le vieil homme joua avec le cercle de fer sur la corne argentée de la Bête du Tonnerre et déclara: « Ne joue pas la comédie; tu es manifestement rongé par la peur. Tu crains que ce vieil homme n'ait de mauvaises intentions et ne te raffine directement en pilule, et tu invoques la famille Yao. Même si le maître de la famille Yao, le Dieu du Sang, venait lui-même, penses-tu que ce vieil homme aurait peur?! »
 
 L'Ancêtre Sanguin réfléchit un instant, puis envoya un message: « Quoi qu'il en soit, je dois remercier Senior pour son aide... »
 
-Le vieil homme poursuivit: « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes; tu es désormais au stade avancé du Scruteur du Nirvana. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
+Le vieil homme poursuivit: « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la fusion forcée... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes; tu es désormais au stade avancé du Scruteur du Nirvana. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
 
 L'Ancêtre Sanguin réfléchit en silence et réprima de force la rage qui bouillonnait dans son âme originelle. Son sens divin projeta un message empreint de sérénité: « Aucun mal n'en est issu. Puisque Senior l'ignorait, c'est mon destin. Si Senior n'a rien d'autre à faire, je vous prie de lever votre sort et de me laisser partir. »
 
@@ -32,7 +32,7 @@ L'Ancêtre Sanguin restait silencieux, plongé dans ses pensées.
 
 Le bassin se mit à bouillonner avant de s'effondrer instantanément, se transformant en d'innombrables gouttelettes. L'Ancêtre Sanguin ne put même pas émettre un seul sens divin avant de sombrer dans l'inconscience.
 
-« Bien que le grand dessein de ce vieil homme soit voué au succès, posséder la moitié de l'âme et du corps de ce membre de la famille Yao augmentera mes chances. Après tout, n'est-ce pas toujours une bonne chose?! » Le vieil homme afficha un sourire malicieux. Sans même jeter un regard aux gouttes de sang, il s'envola au loin avec les Bêtes du Tonnerre.
+« Bien que le grand dessein de ce vieil homme soit voué au succès, posséder la moitié de l'âme et du corps de ce membre de la famille Yao augmentera mes chances. Après tout, n'est-ce pas toujours une bonne chose?! » Le vieil homme afficha un sourire malicieux. Sans même jeter un regard aux gouttes de sang, il s'envola au loin avec la Bête du Tonnerre.
 
 Dans le vide, l'expression de Wang Lin était sombre alors qu'il suivait de près l'aiguille rouge. Celle-ci brilla soudainement d'un éclat intense, dégageant une aura puissante qui brisa le sceau de Wang Lin.
 
@@ -50,7 +50,7 @@ Il avait tout oublié. Seule subsistait devant lui l'aiguille rouge, presque dé
 
 L'aiguille accélérait sans cesse; Wang Lin peinait à la suivre. Soudain, il s'arrêta net. Son regard devint glacial alors qu'il fixait l'horizon.
 
-Dix sphères de sang de tailles diverses flottaient à proximité, comme sur le point de fusionner. L'aiguille rouge plongea dans l'une d'elles.
+Plus de dix sphères de sang de tailles diverses flottaient à proximité, comme sur le point de fusionner. L'aiguille rouge plongea dans l'une d'elles.
 
 Une aura sanguine envahit soudainement la zone: la sphère pénétrée commença à bouger et à dévorer les autres.
 
@@ -60,7 +60,7 @@ L'âme de la montagne jaillit et s'écrasa devant les sphères de sang, dégagea
 
 Après avoir lancé l'âme de la montagne, Wang Lin recula d'un pas, dégaina l'épée céleste et la mania avec célérité.
 
-La coupe céleste jaillit comme un éclair, séparant instantanément deux sphères de sang qui étaient en train de fusionner.
+La Coupe Céleste jaillit comme un éclair, séparant instantanément deux sphères de sang qui étaient en train de fusionner.
 
 Wang Lin ne s'arrêta pas là. Le puissant tonnerre niché dans son âme originelle déferla, formant des éclairs dévastateurs qui frappèrent les sphères de sang.
 
@@ -100,7 +100,7 @@ Wang Lin sombra dans le coma. Les gouttes de sang qui avaient pénétré son cor
 
 Cependant, cette énergie était comme une épée de mort au sein du corps de Wang Lin. Mais la chance existe dans ce monde. Lorsque le vieil homme avait réclamé la Bête du Tonnerre à Wang Lin, il avait involontairement insufflé trop d'énergie en lui. Cette puissance allait exploser dès que la sensation de brûlure quitterait le corps de Wang Lin. On ignorait s'il survivrait, mais il était fort probable qu'il ne puisse le supporter et que son âme originelle s'effondre avec son corps.
 
-Pourtant, l'Ancêtre Sanguin était gravement blessé. Pour s'échapper et surtout pour tuer Wang Lin, il avait utilisé la moitié de son corps de sang pour se précipiter en lui. Son intention était meurtrière, mais il venait paradoxalement d'offrir à Wang Lin une opportunité si immense qu'elle n'avait d'égale que d'entrevoir la voie de la troisième étape!
+Pourtant, l'Ancêtre Sanguin était gravement blessé. Pour s'échapper et surtout pour tuer Wang Lin, il avait utilisé la moitié de son corps de sang pour se précipiter en lui. Son intention était meurtrière, mais il venait paradoxalement d'offrir à Wang Lin une opportunité si immense qu'elle ne le cédait qu'à celle d'entrevoir la voie de la troisième étape!
 
 Le corps de Wang Lin s'écrasa contre un fragment qui ne suivait aucune chaîne de tonnerre et dérivait librement dans le vide.
 

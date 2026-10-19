@@ -34,7 +34,7 @@ Alors qu'il entamait sa déduction, les deux yeux géants émettaient également
 
 De plus en plus de veines sanguines apparurent dans les yeux de Wang Lin, et il en fut de même pour les deux yeux géants derrière lui.
 
-Le temps s'écoulait lentement. En un éclair, une demi-heure s'était écoulée. Le Tigre Blanc et ses compagnons restaient solennels, surveillant attentivement les environs pour protéger Wang Lin. Leur espoir de s'en sortir dépendait entièrement de la capacité de Wang Lin à briser cette formation.
+Le temps s'écoulait lentement. En un éclair, une heure s'était écoulée. Le Tigre Blanc et ses compagnons restaient solennels, surveillant attentivement les environs pour protéger Wang Lin. Leur espoir de s'en sortir dépendait entièrement de la capacité de Wang Lin à briser cette formation.
 
 Après le passage d'une autre demi-baguette d'encens, les yeux de Wang Lin s'illuminèrent et il pointa le ciel à trois reprises. À chaque geste, une ligne de sang jaillissait des deux yeux géants situés derrière lui.
 
@@ -58,7 +58,7 @@ Wang Lin demeurait calme, l'esprit concentré sur les sept couches de restrictio
 
 Mais Wang Lin possédait l'essence de restriction; il ne comptait pas uniquement sur la déduction, mais aussi sur son regard d'essence. Sous son regard, toutes les restrictions du monde semblaient ne plus pouvoir se dissimuler.
 
-Après une autre demi-minute et après avoir percé les trois premières couches, les yeux de Wang Lin brillèrent et il effectua dix-sept mouvements! Dix-sept lignes de sang jaillirent des deux yeux géants derrière lui. Dans la quatrième couche, six lignes formèrent un petit cercle là où le brouillard était fin.
+Après encore sept minutes et demie, et après avoir percé les trois premières couches, les yeux de Wang Lin brillèrent et il effectua dix-sept mouvements! Dix-sept lignes de sang jaillirent des deux yeux géants derrière lui. Dans la quatrième couche, six lignes formèrent un petit cercle là où le brouillard était fin.
 
 Les fines lignes restantes formèrent également un cercle dans la cinquième couche. Désormais, un passage circulaire à travers le brouillard était ouvert dans les cinq premières couches.
 
@@ -72,7 +72,7 @@ Quelle était donc cette ligne? C'était manifestement une entaille causée par 
 
 La mer rugit. Dès que les ombres d'épées apparurent, l'océan gronda et se scinda complètement en deux. Un fracas tonitruant résonna, révélant clairement le fond marin sombre.
 
-Cette ombre d'épée mesurait des centaines de pieds de long. Elle jaillit de la mer et fonça sur Wang Lin et son groupe. En ressentant cette énergie, les visages du Tigre Blanc et de ses compagnons devinrent pâles. L'Oiseau Vermillon et la Tortue Noire, gravement blessés, crachèrent du sang, leurs yeux emplis de terreur.
+Cette ombre d'épée mesurait des centaines de milliers de pieds de long. Elle jaillit de la mer et fonça sur Wang Lin et son groupe. En ressentant cette énergie, les visages du Tigre Blanc et de ses compagnons devinrent pâles. L'Oiseau Vermillon et la Tortue Noire, gravement blessés, crachèrent du sang, leurs yeux emplis de terreur.
 
 « C'est le Dao de l'Épée! Ne pas cultiver le domaine du monde, mais uniquement l'épée. Fusionner sa volonté dans l'épée, fusionner son corps dans l'épée. Éliminer toutes les émotions jusqu'à ce que l'on se considère soi-même comme une épée! »
 

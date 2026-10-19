@@ -76,7 +76,7 @@ Après cet acte, le visage de Wang Lin pâlit légèrement et l'ombre de l'Ancê
 
 Celui qui était responsable du vol de l'âme de Wan Er n'était pas l'Empereur du Dao Antique, mais la silhouette enveloppée d'une lumière aux sept couleurs que Wang Lin avait aperçue grâce au jade de la Secte de la Grande Âme. Le mystérieux Maître Impérial du Dao Antique!
 
-C'était lui qui avait dérobé le fragment d'âme de Li Muwan pour le donner à l'Empereur du Dao Antique. C'était aussi lui qui avait conseillé à l'Empereur de trouver un être capable de fusionner avec cette âme.
+C'était lui qui avait dérobé le fragment d'âme de Li Muwan pour le donner à l'Empereur du Dao Antique. C'était aussi lui qui avait conseillé à l'Empereur de choisir sans cesse de nouvelles concubines, afin de trouver celles capables de fusionner avec cette âme.
 
 Le Maître Impérial était le cerveau de toute cette machination. L'Empereur du Dao Antique n'avait été qu'un pion dans son plan.
 

@@ -8,15 +8,15 @@ slug: la-première-bataille-destinee-2
 ---
 Le coup de poing de Tuo Sen, après avoir brisé une étoile, était d'une puissance extrême. Bien qu'il ne puisse utiliser que peu de sorts d'Ancien Dieu à cause de la loi de l'héritage, la seule puissance de son corps était capable de bouleverser les cieux.
 
-À cet instant, le coup de poing s'élança et percuta l'énergie de l'épée provenant de l'épée de sang de Wang Lin.
+À cet instant, le coup de poing s'élança et percuta l'éclat de l'épée de sang que Wang Lin abattait en reculant.
 
 Un grondement tonitruant secoua le monde, créant une puissante onde de choc qui se propagea dans les environs.
 
-Au même moment, l'aura de la Hache Brise-Ciel que Wang Lin avait arrachée de sa poitrine fut projetée par ce dernier vers Tuo Sen qui approchait.
+Au même moment, l'aura de la Hache Brise-Ciel que Wang Lin avait arrachée de sa poitrine fut projetée par ce dernier d'un coup de manche vers Tuo Sen qui approchait.
 
 L'aura de la Hache Brise-Ciel éclata, dégageant une aura d'Ancien Dieu capable de faire trembler les cieux et le pouvoir même de fendre l'univers. Elle s'approcha et percuta le coup de poing de Tuo Sen.
 
-Des bruits de craquements retentirent. Bien que Tuo Sen fût puissant, l'épée de sang avait blessé l'Empereur Céleste Antique et possédait une origine mystérieuse; depuis que Wang Lin l'avait obtenue, elle était devenue indestructible!
+Des bruits de craquements retentirent. Bien que Tuo Sen fût puissant, l'épée de sang avait blessé l'Empereur Céleste Antique et possédait une origine mystérieuse; depuis que Wang Lin l'avait obtenue, elle était devenue presque indestructible!
 
 Le corps de Tuo Sen ne pouvait rivaliser avec le tranchant de l'épée. Lorsque son poing la percuta, le sang jaillit de toutes parts, tandis que l'aura de la Hache Brise-Ciel s'engouffrait dans son bras. Une série de grondements résonna alors qu'elle entamait une destruction dévastatrice à l'intérieur du membre de Tuo Sen. Le fatigué Tuo Sen laissa paraître sa colère; son corps fut inopinément stoppé et marqua un léger arrêt!
 
@@ -30,11 +30,11 @@ Dès l'impact, le bras de Wang Lin se dressa pour bloquer l'attaque. Toute sa pu
 
 Des fissures commencèrent à se propager là où Wang Lin avait percuté la statue. Une immense quantité d'aura d'Ancien Dieu s'en échappa pour pénétrer le corps de Wang Lin, guérissant instantanément ses blessures physiques.
 
-Wang Lin eut un sourire sardonique et sa main gauche tapota la statue derrière lui. Il s'élança dans l'espace, sa main gauche se refermant en un poing. Tandis qu'il contractait son geste, sept sphères de lumière blanc laiteux jaillirent de son bras gauche.
+Wang Lin eut un sourire sardonique et sa main gauche tapota la statue derrière lui. Il s'élança dans l'espace, pointa la main gauche vers le ciel, puis la referma en un poing. Tandis qu'il contractait son geste, sept sphères de lumière blanc laiteux jaillirent de son bras gauche.
 
 Une aura antique emplissait le monde. C'étaient les sept âmes planétaires que Wang Lin avait extraites sur son chemin!
 
-« Tuo Sen! » rugit Wang Lin en lançant son coup de poing. Les sept âmes planétaires volèrent avec une force prodigieuse vers Tuo Sen, qui marqua un temps d'arrêt!
+« Tuo Sen! » rugit Wang Lin en abattant brusquement sa main gauche. Les sept âmes planétaires volèrent avec une force prodigieuse vers Tuo Sen, qui marqua un temps d'arrêt!
 
 En leur vol, sept fantômes géants de planètes de culture apparurent. C'était comme si Wang Lin contrôlait sept planètes massives pour les projeter sur Tuo Sen!
 
@@ -44,7 +44,7 @@ Logiquement, il ne devrait être qu'aussi fort que Wang Lin, mais il était Tuo 
 
 Tu Si avait vécu bien trop longtemps. Ce corps n'était pas celui d'un Ancien Dieu à 6 étoiles, mais était infiniment proche de celui d'un Ancien Dieu à 9 étoiles. Bien que ses étoiles fussent brisées, la puissance de son corps était terrifiante!
 
-De plus, Tuo Sen était un génie capable de sceller des cultivateurs du troisième pas dans ses étoiles pour en activer le pouvoir. Bien qu'il en eût explosé plusieurs, il lui en restait une ancienne et la femme qu'il venait de sceller; il demeurait donc extrêmement puissant!
+De plus, Tuo Sen était un génie capable de sceller des cultivateurs du troisième pas dans ses étoiles pour en activer le pouvoir. Bien qu'il en eût explosé plusieurs, il lui en restait une et la femme qu'il venait de sceller; il demeurait donc extrêmement puissant!
 
 En conséquence, il n'était pas un adversaire auquel Wang Lin pouvait simplement résister!
 

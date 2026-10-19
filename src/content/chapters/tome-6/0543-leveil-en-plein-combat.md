@@ -14,7 +14,7 @@ Ces trois sorts mortels ayant été créés par Situ Nan, ils étaient intrinsè
 
 De plus, le Dao de Wang Lin différait grandement de celui de Situ Nan. Ainsi, lorsque Wang Lin utilisait ces deux sorts, ils manquaient de variations et de flexibilité.
 
-En vérité, il existait des sorts de continuation pour accompagner ces deux techniques, mais comme Situ Nan avait perçu leurs divergences, il ne les avait pas enseignés à Wang Lin. Ce n'était pas par avarice, mais parce qu'avec le passage du temps, il était fort probable que le Dao de Wang Lin évolue.
+En vérité, il existait des sorts de continuation pour accompagner ces deux techniques, mais comme Situ Nan avait perçu leurs divergences, il ne les avait pas enseignés à Wang Lin. Ce n'était pas par avarice, mais parce qu'avec le passage du temps, il était fort probable que le Dao de Wang Lin soit transformé.
 
 Le dernier des trois sorts mortels, le Doigt des Enfers, était bien plus puissant que les deux autres, et sa puissance se rapprochait étrangement d'un sort céleste de qualité inférieure.
 
@@ -22,17 +22,17 @@ Lorsque Situ Nan l'enseigna à Wang Lin, il fut empreint d'une vive inquiétude.
 
 Ce dernier sort se distinguait des deux autres. Sans sorts de continuation, Wang Lin pouvait utiliser les premiers autant qu'il le souhaitait sans altérer son cœur taoïste. Mais le troisième sort était différent: il n'avait pas de suite, et toute sa puissance résidait dans l'acte même du sort.
 
-Situ Nan l'avait prévenu, et c'est pourquoi, au fil des années, Wang Lin ne l'avait utilisé qu'une seule fois, lors de son combat contre le sixième frère de la Division Pourpre, Chen Tao.
+Situ Nan l'avait prévenu, et c'est pourquoi, au fil des années, Wang Lin ne l'avait utilisé qu'une seule fois, lors de son combat contre le sixième frère de la Division Pourpre, Chen Tao, un cultivateur Ascendant de stade intermédiaire.
 
 Parmi les trois sorts mortels, ce dernier était le véritable sort de mort!
 
-L'Intention de Combat des Dix Effondrements naissait du vide et faisait partie intégrante des cieux. Incorporelle, elle se manifestait par un coup de poing contenant la force absolue du général démon. Son intention de poing était si puissante qu'elle pouvait déchirer le vide et terrasser n'importe qui.
+L'Intention de Combat des Dix Effondrements naissait du vide et faisait partie intégrante des cieux. Incorporelle, elle se manifestait par un coup de poing contenant toute l'essence du général démon. Son intention de poing était si puissante qu'elle pouvait déchirer le vide et tuer sans laisser de trace.
 
 Au moment où Wang Lin tendit l'index, l'énergie spirituelle céleste en son corps s'agita frénétiquement, avant de se muer en énergie spirituelle démoniaque pour se concentrer à la pointe de son doigt. En un instant, son index fut enveloppé d'une lumière noire si dense que même la lumière du soleil ne pouvait la percer.
 
 Ce noir était de l'énergie spirituelle démoniaque pure!
 
-Alors qu'il pointait son index vers le ciel, Wang Lin sentit l'intention de poing monstrueuse planer dans l'air; à cet instant précis, le premier effondrement survint.
+Alors que son index touchait le vide, Wang Lin sentit l'intention de poing monstrueuse planer dans l'air; à cet instant précis, le premier effondrement survint.
 
 C'était comme si le ciel tout entier s'écroulait, avec Wang Lin pour unique point focal!
 
@@ -54,7 +54,7 @@ La puissance du second effondrement était dix fois plus grande que celle du pre
 
 Wang Lin poussa un rugissement sourd; deux filaments de gaz gris apparurent sur sa main et ondulaient comme deux dragons. À cet instant, il utilisa l'Art du Massacre Céleste sans la moindre hésitation!
 
-Les deux brins de gaz gris s'élancèrent en brisant le mur du son, mais ils rencontrèrent immédiatement la puissance du second effondrement.
+Les deux brins de gaz gris s'élancèrent en déchirant le vide, mais ils rencontrèrent immédiatement la puissance du second effondrement.
 
 Cette force était colossale. Après une série de grondements sourds, les deux filaments de gaz gris ne furent pas détruits; au contraire, ils se rétractèrent pour former un vortex prenant Wang Lin pour centre.
 
@@ -74,7 +74,7 @@ Il ressemblait désormais à un démon de carnage. Tenant son épée de massacre
 
 Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux brillèrent: « Bien! Tu es l'un des rares à avoir décidé d'attaquer durant mon Intention de Combat des Dix Effondrements! Voyons si tu peux franchir les huit prochains effondrements et arriver jusqu'à moi! »
 
-Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Grande Muraille Antique il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
+Au loin, la femme en robe blanche, la fille de l'Ancêtre Sanguin Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Grande Muraille Antique il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
 
 Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche, touché par ses efforts, lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Grande Muraille Antique.
 
@@ -88,7 +88,7 @@ Les yeux de Wang Lin devinrent rouges et son intention meurtrière s'intensifia.
 
 L'épée de massacre émit une lueur grise inédite. Cette lumière s'étendit sur plus de 33 mètres pour envelopper Wang Lin, qui chargea alors comme une météorite.
 
-La puissance d'un seul coup d'épée pouvait faire trembler les cieux et terrasser les êtres surnaturels!
+La puissance d'un seul coup d'épée pouvait faire trembler les cieux et faire pleurer les esprits!
 
 Le troisième effondrement issu du vide fut brutalement tranché, permettant à Wang Lin de le transpercer pour charger directement vers le général démon.
 

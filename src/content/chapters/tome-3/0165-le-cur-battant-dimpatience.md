@@ -22,7 +22,7 @@ Et à en juger par le geste de ce gamin, Ma Liang, un peu plus tôt, celui-ci co
 
 Ceux qui pratiquaient les méthodes démoniaques étaient différents des gens ordinaires. Le Seigneur Démon des Huit Extrêmes estimait que les actions de Wang Lin étaient justes. S'il s'était trouvé à sa place, il aurait agi de la même manière.
 
-Après avoir entendu les paroles de Zhao Chuanliang, le Seigneur Démon des Huit Extrêmes fronça les sourcils. Il regarda Wang Lin et demanda d'un ton monocorde: « Comment avez-vous offensé la Secte des Cadavres? »
+Après avoir entendu les paroles de Zhao Chuanliang, le Seigneur Démon des Huit Extrêmes fronça les sourcils. Il regarda Wang Lin et demanda d'un ton neutre: « Comment avez-vous offensé la Secte des Cadavres? »
 
 Wang Lin jeta un regard aux membres sinistres de la Secte des Cadavres et répondit calmement: « Je l'ignore. »
 
@@ -50,11 +50,11 @@ Sur ces mots, il tendit la main gauche vers le haut pour saisir l'air, et elle s
 
 Hormis cinq cultivateurs de l'Âme Naissante au visage livide qui réussirent à l'esquiver, tous les cultivateurs de la Formation du Noyau furent réduits en cendres par ces vagues, avec les cercueils de bois noir qui flottaient derrière eux.
 
-Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement: « La culture de ce senior est très élevée, mais se faire l'ennemi de la Secte des Cadavres n'est pas une sage décision! Avec votre niveau, vous devriez connaître notre Secte, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau au senior de ne pas s'allier à la Secte des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort! »
+Le corps de Zhao Chuanliang trembla alors qu'il fixait le vieil homme et dit amèrement: « La culture de ce senior est très élevée, mais se faire l'ennemi de la Secte des Cadavres n'est pas une sage décision! Avec votre niveau, vous devriez connaître notre Secte, mais ce que vous en savez n'est que la partie émergée de l'iceberg. Je conseille à nouveau au senior de ne pas se dresser contre la Secte des Cadavres. Même si vous étiez le seigneur de l'une des Sept Cités de la Fleur de Prunier, il vous serait difficile d'échapper à la mort! »
 
 Le Seigneur Démon des Huit Extrêmes ne souhaitant pas offenser la Secte des Cadavres, il épargna ces cinq hommes. Quant aux cultivateurs de la Formation du Noyau, il les scruta de son Sens Divin pour s'assurer qu'aucun d'entre eux n'était possédé; il ne les acheva qu'après en avoir eu la certitude.
 
-Le vieil homme fronça les sourcils et dit lentement: « Cet individu est d'une grande utilité pour moi. Je ne me donnerais pas la peine de le protéger autrement. Vous feriez mieux de partir. Si ce n'était pas pour aujourd'hui, je ne me serais même pas encombré de cela. »
+Le vieil homme fronça les sourcils et dit lentement: « Cet individu est d'une grande utilité pour moi. Sans cela, je ne me serais pas encombré de ces ennuis. Partez maintenant: si vous laissez passer cette occasion, je ne vous retiendrai plus. »
 
 Wang Lin observait froidement la scène. Bien que son expression soit restée impassible lorsque le vieil homme brisa la formation de transfert, son cœur était bouleversé. Ce Seigneur Démon des Huit Extrêmes avait été capable de briser la formation de protection de l'Union Huo Fen d'un seul coup de paume et d'écraser sans effort la formation de transfert de la Secte des Cadavres. Wang Lin s'était interrogé sur le niveau exact de culture de ce vieillard, et il en tira une conclusion qui lui coupa le souffle.
 

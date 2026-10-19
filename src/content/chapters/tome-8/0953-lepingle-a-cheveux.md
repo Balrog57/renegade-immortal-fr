@@ -60,13 +60,13 @@ La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiateme
 
 « Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Purificateur du Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
 
-Quant au Maître Fantôme Vide, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées devant lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
+Quant au Maître Fantôme Vide, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées derrière lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
 
 Les yeux de Wang Lin s'illuminèrent et il cessa sa poursuite. Sa main droite s'étira et saisit instantanément les neuf épées, qui se mirent à se débattre violemment.
 
 Le regard de Qing Shui révéla une intention meurtrière monstrueuse; il tendit ses mains vers le haut en criant: « Montagne, premier effondrement! »
 
-À l'instant même, les flammes et le magma qui jaillissaient se mirent à trembler avant d'être projetés vers le ciel.
+À l'instant même, les flammes et le magma qui jaillissaient se mirent à bouillonner avant d'être projetés vers le ciel.
 
 Dans ce processus, ils s'effondrèrent soudainement pour créer une onde de choc inimaginable qui se propagea dans tout le Royaume de la Boucherie. Plus de dix cultivateurs furent frappés par les flammes et le magma; incapables de résister, ils furent instantanément réduits en cendres.
 

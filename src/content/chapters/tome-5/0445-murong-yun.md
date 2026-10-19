@@ -26,7 +26,7 @@ L'expression de Wang Lin devint plus sombre encore. Il regarda la flamme une der
 
 D'un geste de la main droite, il laissa le grain s'envoler vers la terre brûlée sans l'interrompre.
 
-« Situ Nan a dit que les fragments d'âme se trouvaient dans le Cristal de Planète de Culture, alors pourquoi en ai-je trouvé juste à l'entrée... Se pourrait-il que mon propre fragment d'âme soit également contenu dans ce genre de forme de vie... »
+« Situ Nan a dit que les fragments d'âme se trouvaient dans le Cristal de la Planète de Culture, alors pourquoi en ai-je trouvé juste à l'entrée... Se pourrait-il que mon propre fragment d'âme soit également contenu dans ce genre de forme de vie... »
 
 Wang Lin fronça les sourcils et s'élança vers l'avant.
 

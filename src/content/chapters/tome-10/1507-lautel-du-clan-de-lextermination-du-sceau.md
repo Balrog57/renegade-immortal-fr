@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1507 - Seal Extermination Clan Altar
 slug: lautel-du-clan-de-lextermination-du-sceau
 ---
-Même Wang Lin trouva inconfortable d'être ainsi observé par la Bête des Limbes. Il songea à ce pauvre homme qui avait été effrayé à mort deux fois par cette même créature.
+Même Wang Lin trouva inconfortable d'être ainsi observé par la Bête des Limbes. Il songea à ce pauvre homme qui avait deux fois effrayé cette même créature au point de la terrifier.
 
 Cet être pitoyable se trouvait toujours dans le royaume de la Bête des Limbes, et nul ne savait comment il allait... Wang Lin n'avait pas le temps de se soucier d'un inconnu. Sa main droite traça un sceau et pointa vers la Bête des Limbes. Celle-ci se transforma en un rayon de lumière spectrale et s'engouffra dans son corps.
 
@@ -24,7 +24,7 @@ Dans le Luotian, une planète maculée de sang flottait parmi les étoiles. Au m
 
 La silhouette de Wang Lin apparut aux abords de cette planète sanglante.
 
-Fixant l'astre pourpre, Wang Lin agita la main droite et son espace de stockage s'ouvrit. L'ancien démon apparut, et Wang Lin lui saisit le cou.
+Fixant l'astre pourpre, Wang Lin agita la main droite et son espace de stockage s'ouvrit. L'ancien démon, enfermé dans le corps du Dieu de Sang, apparut, et Wang Lin lui saisit le cou.
 
 « Parle! Quel est ce secret? »
 
@@ -114,4 +114,4 @@ Monde Extérieur, Système Stellaire Antique.
 
 L'ordre du Conseil Souverain fut diffusé dans tout le système stellaire, vers chaque clan et chaque membre de l'univers antique!
 
-« Ceci est la volonté du Royaume Céleste Antique! Des dizaines de milliers d'années ont passé, et le pouvoir du Royaume Scellé s'est de nouveau éveillé. La troisième bataille contre le Royaume Scellé va commencer. Que les différents clans du Système Stellaire Antique, dès aujourd'hui, obéissent à l'ordre du Conseil Souverain et se tiennent prêts: baignez le Royaume Scellé dans le sang! »
+« Ceci est la volonté du Royaume Céleste Antique! Des dizaines de milliers d'années ont passé, et le pouvoir du Royaume Scellé s'est de nouveau éveillé. La troisième bataille contre le Royaume Scellé va commencer. Que les différents clans du Système Stellaire Antique, dès aujourd'hui, obéissent à l'ordre du Conseil Souverain et se tiennent prêts: baignez le Royaume Scellé dans le sang et anéantissez les anciens qui s'y trouvent! »

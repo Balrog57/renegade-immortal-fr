@@ -20,7 +20,7 @@ Alors que la volonté s'estompait, une voix faible et antique résonna aux oreil
 
 « Toutes choses sont issues de moi, j'attends que tu me rendes ton dû... »
 
-Une fois la voix dissipée, une puissance encore plus grande jaillit du vortex pour pénétrer dans le gant de l'Ancien Dieu. Cela permit au gant de recouvrer rapidement ses forces.
+Une fois la voix dissipée, une puissance encore plus grande jaillit du vortex pour pénétrer dans le gant de l'Ancien Dieu. Cela permit au gant de retrouver aussitôt sa forme d'origine.
 
 Wang Lin leva la main droite et fouilla son espace de stockage pour en sortir un drapeau brisé. Outre la Perle Défiant le Ciel, c'était le trésor le plus précieux qu'il ait jamais reçu.
 
@@ -42,7 +42,7 @@ Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avai
 
 La Porte des Dix Mille Os du Vide ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nan Yunzi, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nan Yunzi semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
 
-À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la rétribution divine; il voulait voir quelle serait sa puissance cette fois!
+À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la rétribution divine; il voulait voir si cette rétribution serait plus redoutable que les précédentes!
 
 « Situ, nous en parlerons plus tard. La rétribution divine arrive. Une fois que je l'aurai brisée, nous nous enivrerons! »
 
@@ -62,7 +62,7 @@ Certains cultivateurs du Royaume Intérieur en vinrent même à saigner par les 
 
 Tandis que les nuages sans fin enveloppaient Wang Lin, une puissance céleste indescriptible sembla former d'innombrables mains invisibles géantes qui balayaient toutes les directions.
 
-Les milliers de cultivateurs du Royaume Intérieur, y compris Maître Nan Yunzi et Situ Nan, furent repoussés par cette force. Dix mille pieds, cent mille pieds, dix mille kilomètres, cent mille kilomètres...
+Les milliers de cultivateurs du Royaume Intérieur, y compris Maître Nan Yunzi et Situ Nan, furent repoussés par cette force. Dix mille pieds, cent mille pieds, cent kilomètres, dix mille kilomètres...
 
 Les grondements tonitruants se succédaient. Tandis que les nuages grondaient, il semblait même que la planète Suzaku soit délogée de son orbite et dérivait.
 
@@ -74,7 +74,7 @@ Devant cet événement inimaginable, tous les cultivateurs devinrent anxieux, pa
 
 Wang Lin devait affronter cela seul.
 
-« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il se dressera au-dessus de nous tous! » murmura Maître Nan Yunzi, comme s'il se parlait à lui-même autant qu'aux autres.
+« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il accédera à l'Ascendant, au-dessus de nous tous! » murmura Maître Nan Yunzi, comme s'il se parlait à lui-même autant qu'aux autres.
 
 Chacun resta plongé dans une réflexion silencieuse.
 
@@ -104,7 +104,7 @@ Il baissa la tête vers le puits, rendant son expression illisible. Après un lo
 
 « Maître a perdu la raison, il a réellement sauvé Wang Lin, malgré son tempérament... » Une voix rauque résonna dans l'obscurité avant de se déformer progressivement. C'était comme si le Souverain ne pouvait masquer la panique dans sa voix.
 
-« L'Arc et la Flèche de Li Guang... Il a dû être Maître qui a donné à Wang Lin le sang pour qu'il puisse l'utiliser sans rejet... Maître n'est pas mort... Il est fou actuellement, mais une fois rétabli... il ne manquera pas de me punir... Mais à ce moment-là, il était gravement blessé et a disparu après avoir été dévoré par le Dao Céleste. Que puis-je faire?! Que puis-je faire d'autre que de me soumettre à Sept-Couleurs?! »
+« L'Arc et la Flèche de Li Guang... Il a dû être Maître qui a donné à Wang Lin le sang pour qu'il puisse l'utiliser sans rejet... Maître n'est pas mort... Il est fou actuellement, mais une fois rétabli... il ne manquera pas de me punir... Mais à ce moment-là, il était gravement blessé et a disparu après avoir été dévoré par le Dao Céleste. Que puis-je faire?! Que puis-je faire d'autre que de me soumettre au Daoïste aux Sept Couleurs?! »
 
 Le corps du Souverain sous sa robe noire sembla trembler. Il leva la tête et poussa un rugissement dans la salle vide du palais.
 
@@ -112,7 +112,7 @@ La Rivière Invoquée avait été entièrement occupée par les cultivateurs du 
 
 Ce rocher était creux, et un vieil homme vêtu de blanc y était assis. Ce vieil homme dégageait une aura céleste et une goutte de sang se trouvait entre ses sourcils. Cette goutte semblait avoir fusionné complètement avec lui, ce qui était saisissant. Il ouvrit lentement les yeux et leva la main droite. Après un court calcul, son regard révéla une lumière étrange.
 
-« Wang Lin a enfin atteint le troisième niveau... Le plan que ce vieil homme mijote depuis des dizaines de milliers d'années est sur le point de commencer... Ce vieil homme a attendu cela très, très longtemps... Mon élève, ne déçois pas ton maître... » Le vieil homme en blanc sourit. Il était extrêmement calme, comme si tout se déroulait exactement comme il l'avait prédit.
+« Wang Lin a enfin atteint la troisième étape... Le plan que ce vieil homme mijote depuis des dizaines de milliers d'années est sur le point de commencer... Ce vieil homme a attendu cela très, très longtemps... Mon élève, ne déçois pas ton maître... » Le vieil homme en blanc sourit. Il était extrêmement calme, comme si tout se déroulait exactement comme il l'avait prédit.
 
 Il était l'Omniscient, qui avait disparu depuis de nombreuses années!
 

@@ -60,7 +60,7 @@ Wang Lin sortit 100 pilules d'âme et les lança au vieil homme. Puis, d'un pas,
 
 Lorsqu'il réapparut, Wang Lin se tenait déjà au sommet d'une montagne. D'un geste de la main, les 10 000 Pilules d'Effondrement du Dragon apparurent autour de lui.
 
-Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas ma cruauté! »
+Le regard de Wang Lin devint glacial et il eut un ricanement méprisant: « Bien que les pilules d'âme soient coûteuses, elles n'ont pas la même valeur que cent de ces pilules, chacune étant équivalente à l'attaque d'un cultivateur du Scruteur du Nirvana! Clan du Dragon Blindé, puisque vous voulez vous impliquer, ne me reprochez pas les dégâts collatéraux! »
 
 Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de feu dans son œil gauche s'élança et une mer de flammes enveloppa immédiatement les 10 000 pilules.
 
@@ -84,7 +84,7 @@ Au fur et à mesure de la fusion, le monde semblait changer de couleur et le ton
 
 « Six auras. En y ajoutant le sort du Clan du Tonnerre Dispersé, elle pourra blesser des cultivateurs du quatrième niveau de Fléau Céleste! » Les yeux de Wang Lin étaient empreints d'une intention meurtrière. Il mordit le bout de sa langue et cracha du sang. C'était le sang d'un Dieu Ancien, chargé de l'énergie originelle de son âme originelle.
 
-Le sang atterrit sur la pilule dorée, qui s'assombrit instantanément pour émettre une lueur rouge sang. Ce sang était saturé d'une volonté de mort!
+Le sang atterrit sur la pilule dorée, qui s'assombrit instantanément pour émettre une lueur rouge sang. Ce sang était saturé d'une aura meurtrière!
 
 « En y ajoutant mon sang de Dieu Ancien et mon essence, elle sera assez puissante pour menacer des cultivateurs du cinquième niveau de Fléau Céleste! »
 
@@ -102,15 +102,15 @@ L'intention meurtrière dans ses yeux s'intensifia. Il leva la main droite vers 
 
 Tandis qu'il parlait, le tonnerre gronda dans son corps et se concentra dans son index. La foudre forma un filet, produisant des craquements frénétiques.
 
-Un rayon, deux rayons, cent, mille, dix mille, un million... des millions de rayons d'énergie d'épée jaillirent du filet de tonnerre en une progression fulgurante. Finalement, les dix millions de rayons brisèrent la limite du filet.
+Un rayon, deux rayons, cent, dix mille, cent mille, un million... des millions de rayons d'énergie d'épée jaillirent du filet de tonnerre en une progression fulgurante. Finalement, les dix millions de rayons brisèrent la limite du filet.
 
 En un instant, le ciel fut saturé d'énergie d'épée et une intention meurtrière infinie se répandit. Dix millions, vingt millions... jusqu'à ce qu'elle s'arrête enfin à 39,99 millions!
 
-« Je ne peux pas encore briser totalement le sceau, mais j'en ai rompu une partie, augmentant considérablement la puissance de l'énergie d'épée! Maintenant, il est temps de combattre! » Wang Lin se redressa et poussa un rire tonitruant!
+« Je ne peux pas encore briser totalement le sceau, mais j'en ai rompu une partie, augmentant considérablement la puissance de l'énergie d'épée! Maintenant, il est temps de combattre! » Wang Lin se redressa et poussa un long cri retentissant!
 
 « Je vous attends ici, osez-vous me défier?! »
 
-Son rire, chargé d'un défi pur, fit trembler les cieux et se propagea dans toutes les directions. À cet instant précis, tous les cultivateurs de la planète l'entendirent distinctement!
+Son cri, chargé d'un défi pur, fit trembler les cieux et se propagea dans toutes les directions. À cet instant précis, tous les cultivateurs de la planète l'entendirent distinctement!
 
 Dans une demeure de la cité située sur le flanc est de la planète, le vieil homme du Clan des Moineaux de Feu se tenait là, l'expression solennelle. Sept autres membres du clan se tenaient à ses côtés, incapables de masquer leur stupeur.
 

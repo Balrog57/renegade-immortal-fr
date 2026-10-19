@@ -36,7 +36,7 @@ Dans un éclair, le moustique bougea à nouveau et planta sa trompe dans la têt
 
 Le moustique relâcha le cadavre sur le côté, jeta un regard à Zhou Ru et Petit Blanc, puis s'envola vers l'horizon.
 
-Zhou Ru cria aussitôt: « Petit Blanc, cours! Vite, cours! »
+Zhou Ru cria aussitôt: « Petit Blanc, poursuis-le! Vite, rattrape-le! »
 
 Petit Blanc n'hésita pas une seconde et se mit immédiatement à courir.
 
@@ -90,7 +90,7 @@ Les cultivateurs au stade de la Transformation de l'Âme sont de véritables pui
 
 L'ancêtre du Clan des Démons Géants n'était qu'au début du stade de la Transformation de l'Âme, mais cela lui suffisait pour contrôler un clan entier et en devenir le chef.
 
-Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la force, mais il était devenu le pilier de Xue Yue.
+Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la force, mais il était devenu le chef de Xue Yue.
 
 On pouvait ainsi mesurer la valeur d'un tel cultivateur.
 
@@ -110,7 +110,7 @@ Si l'Omniscient l'avait su, Wang Lin ne serait pas resté un simple disciple hon
 
 À l'intérieur de la Perle Défiant le Ciel, la grande âme de Situ Nan flottait. Wang Lin apparut à ses côtés et la contempla en silence.
 
-Après avoir absorbé les deux bras, l'âme de Situ Nan n'était plus transparente; elle était désormais plus dense. Son âme dégageait une pression colossale, plusieurs fois supérieure à celle de l'ancêtre Du Tian.
+Après avoir absorbé les deux bras, l'âme de Situ Nan n'était plus transparente; elle était désormais plus dense. Son âme dégageait une pression colossale, incomparablement supérieure à celle de l'ancêtre Du Tian.
 
 « Situ... » Wang Lin fixa silencieusement Situ Nan pendant un long moment avant de faire un pas et d'apparaître dans la partie est de la Perle Défiant le Ciel.
 

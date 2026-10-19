@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 219 - Two Months
 slug: deux-mois
 ---
-La vérité était que Wang Lin n'était pas aussi impitoyable qu'il le laissait paraître auprès de Li Muwan, mais son avatar devait impérativement atteindre le stade de l'Âme Naissante. S'il s'impliquait avec elle dès maintenant, cela entraînerait des changements inévitables dans son plan initial, des changements susceptibles d'avoir de graves conséquences.
+La vérité était que Wang Lin n'était pas aussi impitoyable qu'il le laissait paraître auprès de Li Muwan, mais son avatar devait atteindre le stade de l'Âme Naissante, et il ignorait combien de temps cela prendrait. S'il s'impliquait avec elle dès maintenant, cela entraînerait des changements inévitables dans son plan initial, des changements susceptibles d'avoir de graves conséquences.
 
 Par conséquent, Li Muwan risquerait d'être entraînée dans cette affaire, et c'était précisément ce que Wang Lin voulait éviter.
 
@@ -30,7 +30,7 @@ Il fronça légèrement les sourcils, puis s'élança dans les airs pour pénét
 
 Sous l'influence du Sens Divin de Wang Lin, les actes des deux jeunes filles étaient parfaitement visibles. L'une d'elles, haletante, murmura: « Sœur Tong, ce Cheng Xian... ah! » Au même instant, l'autre femme bougea, touchant un point sensible.
 
-Après un long moment, une voix langoureuse et tendre s'éleva de derrière le paravent: « Ling Er, es-tu encore préoccupée par ce Cheng Xian? Certes, je l'ai trompé, mais c'était uniquement parce qu'il te manquait des noyaux pour ta recette de pilule. Je n'avais d'yeux que pour ses singes spirituels. »
+Après un long moment, une voix langoureuse et tendre s'éleva de derrière le paravent: « Ling Er, es-tu encore préoccupée par ce Cheng Xian? Certes, je l'ai trompé, mais c'était uniquement parce qu'il te manquait des noyaux pour ta recette de pilule. Je n'avais d'yeux que pour son singe spirituel. »
 
 « Mais... et qu'en est-il de Lu Song? » La jeune fille appelée Ling Er était Cheng Ling.
 
@@ -38,9 +38,9 @@ Après un long moment, une voix langoureuse et tendre s'éleva de derrière le p
 
 Wang Lin ne pénétra pas dans la pièce, mais pointa son front. Xu Liguo en sortit, le regard exalté en fixant le paravent.
 
-« Peu importe comment tu t'en occupes, trouve simplement ce qui est arrivé au singe spirituel et récupère leurs deux âmes, puis viens me retrouver. » Wang Lin fit volte-face et quitta lentement la pièce.
+« Peu importe comment tu t'en occupes, découvre où se trouve le singe spirituel et prends leurs deux âmes, puis viens me retrouver. » Wang Lin fit volte-face et quitta lentement la pièce.
 
-Xu Liguo n'avait jamais été aussi excité. Il sentait que suivre Wang Lin était sans aucun doute la meilleure décision à prendre. En cet instant, il avait l'impression que son sang bouillonnait, bien qu'il n'en eût plus depuis qu'il était devenu un démon. Mais cela n'altérait en rien sa détermination.
+Xu Liguo n'avait jamais été aussi excité. Il sentait que suivre Wang Lin était sans aucun doute la meilleure décision à prendre. En cet instant, il avait l'impression que son sang bouillonnait, bien qu'il n'en eût plus depuis qu'il était devenu un démon. Mais cela n'altérait en rien ses sensations.
 
 Xu Liguo esquissa un sourire perfide et franchit le paravent.
 
@@ -66,7 +66,7 @@ Leur vitesse était fulgurante. Une fois reformés, les cercles de restriction s
 
 Wang Lin savait déjà que l'ensemble de cette cour était maintenu en lévitation par une gigantesque restriction. S'il avait eu le temps, il aurait pu la briser totalement; cependant, son but n'était pas de la détruire, mais d'en rompre l'équilibre.
 
-Normalement, des restrictions ordinaires ne pourraient même pas y parvenir, mais celles de Wang Lin étaient des restrictions anciennes. Conjuguées au fait qu'il avait déjà placé certaines protections au préalable, dès que les cercles touchèrent le sol, des secousses se propagèrent dans tout le patio oriental.
+Normalement, des restrictions ordinaires ne pourraient même pas y parvenir, mais celles de Wang Lin étaient des restrictions anciennes. Conjuguées au fait qu'il avait déjà placé certaines protections au préalable, dès que les cercles touchèrent le sol, un grondement roula au-dessus du patio oriental.
 
 La grande restriction perdit instantanément son équilibre, provoquant l'inclinaison de la cour. Des cris déchirants retentirent et une multitude de cultivatrices furent projetées hors de la zone, le regard égaré par la terreur.
 
@@ -74,7 +74,7 @@ Tandis qu'il orchestrait ce chaos, Wang Lin ne marqua aucun temps d'arrêt et s'
 
 Wang Lin quitta le patio oriental sans plus d'entraves, tout en sachant que les cultivateurs du stade intermédiaire de l'Âme Naissante de la Secte du Ciel Nuageux arriveraient bientôt.
 
-C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. En dépassant Wang Lin, ce sentiment divin laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, bien que limitée par le Royaume Ji et sa culture au point de ne pouvoir tuer un cultivateur de l'Âme Naissante ou au-dessus, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Formation de l'Âme. Bien qu'elle soit actuellement confinée dans son corps et ne puisse exprimer que le niveau de la fin de la Formation du Noyau, sa base restait intacte: comment pourrait-elle être blessée par un simple cultivateur du stade intermédiaire de l'Âme Naissante?
+C'est alors qu'un Sens Divin extrêmement puissant émana du lointain. Ce Sens Divin, en balayant Wang Lin, laissa échapper un ricanement méprisant. Wang Lin resta impassible. Si n'importe qui d'autre avait été ainsi frappé, son âme en aurait été endommagée, mais celle de Wang Lin était d'une ampleur prodigieuse. Si son âme sortait de son corps, bien que limitée par le Royaume Ji et sa culture au point de ne pouvoir tuer un cultivateur de l'Âme Naissante ou au-dessus, elle ne serait pas moins puissante que l'âme des cultivateurs du stade de la Formation de l'Âme. Bien qu'elle soit actuellement confinée dans son corps et ne puisse exprimer que le niveau de la fin de la Formation du Noyau, sa base restait intacte: comment pourrait-elle être blessée par un simple cultivateur du stade intermédiaire de l'Âme Naissante?
 
 Il poursuivit sa course sans ralentir.
 
@@ -94,7 +94,7 @@ Cela alerta même les quelques ancêtres de l'Âme Naissante qui se préparaient
 
 Tous les proches des défunts, tels que Cheng Xian et Lu Song, furent interrogés. Même Wang Lin fut soumis à un examen. Finalement, un cultivateur de l'Âme Naissante utilisa son Sens Divin pour vérifier si Wang Lin mentait. Cependant, comme l'âme de Wang Lin était bien plus vaste que la sienne, il ne put rien déceler. Pour une raison inconnue, l'affaire fut abandonnée.
 
-Quant à Li Muwan, elle ne fut impliquée dans rien. Tout cela était l'œuvre de son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte du Ciel Nuageux. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
+Quant à Li Muwan, elle ne fut impliquée dans rien. Elle le devait à son frère aîné. Ses stratagèmes étaient d'une profondeur abyssale. Il savait que le responsable était un ami de Li Muwan et la technique de cet individu l'effrayait. Même trois cultivateurs de l'Âme Naissante n'avaient pu empêcher cette personne de circuler à sa guise dans la Secte du Ciel Nuageux. Dès lors, comment oserait-il parler? S'il ouvrait la bouche, cet individu réapparaîtrait sans être remarqué pour l'exécuter.
 
 La vie de Wang Lin retrouva son calme, mais dans son esprit, le sourire triste de Li Muwan ne cessait de ressurgir. Chaque fois qu'elle lui apparaissait ainsi, il avait l'impression que son cœur était transpercé.
 
@@ -102,9 +102,9 @@ Ce sentiment atteignit son paroxysme lorsque la Secte du Ciel Nuageux annonça �
 
 Wang Lin restait assis tranquillement dans sa chambre. Après une journée et une nuit de réflexion, il poussa un soupir et son regard se fit déterminé. Une lueur froide traversa ses yeux alors qu'il se levait pour marcher vers le patio sud.
 
-Le chemin ne fut pas aisé, entravé par la brume blanche. Cependant, après avoir annoncé son nom, quelqu'un alla informer Li Muwan et un passage s'ouvrit. Wang Lin avança lentement; bien que ses pas fussent pesants, chaque mouvement était empreint d'une résolution inébranlable.
+Le chemin ne fut pas aisé, entravé par la brume blanche. Cependant, après avoir annoncé son nom, quelqu'un alla informer Li Muwan et un passage s'ouvrit. Wang Lin avança lentement; bien que ses pas fussent lents, chaque mouvement était empreint d'une résolution inébranlable.
 
-Arrivé devant la demeure de Li Muwan, la voix de celle-ci résonna: « L'entraînement en méditation de votre maître touche à sa fin. Si vous avez des questions, vous pourrez les lui poser à sa sortie. Désormais, à moins que je ne vous appelle, ne revenez plus ici. »
+Arrivé devant la demeure de Li Muwan, la voix de celle-ci résonna: « La retraite de porte fermée de votre maître touche à sa fin. Si vous avez des questions, vous pourrez les lui poser à sa sortie. Désormais, à moins que je ne vous appelle, ne revenez plus ici. »
 
 Wang Lin réfléchit un instant, puis dit d'une voix lente: « Je veux une pilule. Une pilule capable de porter mon niveau de culture au stade de l'Âme Naissante en deux mois. »
 
@@ -114,10 +114,10 @@ Wang Lin afficha un regard empreint d'une douceur rare. Mais cette trace de tend
 
 Li Muwan mordit sa lèvre inférieure. Ses yeux trahissaient un bonheur inédit tandis qu'elle contemplait Wang Lin. Malgré une pointe d'incertitude dans son cœur, son expression changea brusquement et son regard se glaça. Elle cria: « Qui diable êtes-vous? »
 
-Elle se souvint immédiatement que la goutte de sang sur son front n'avait pas réagi. Il était clair que cet homme n'était pas celui qu'elle espérait. Lentement, une haine envers cet individu refit surface et fut redirigée vers Wang Lin, dont la voix ressemblait presque trait pour trait à celle de l'être tant attendu.
+Elle se souvint immédiatement que la goutte de sang sur son front n'avait pas réagi. Il était clair que cet homme n'était pas celui qu'elle avait cru. Lentement, une haine envers cet individu refit surface et fut redirigée vers Wang Lin, dont la voix ressemblait presque trait pour trait à celle de l'être tant attendu.
 
 Wang Lin regarda Li Muwan et soupira. Il posa la main sur son sac de rangement et en sortit un morceau de jade. Après l'avoir examiné un instant, il le lança à Li Muwan.
 
-À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le mur tandis que des larmes de joie inondaient son visage.
+À l'instant où le jade apparut, les forces de Li Muwan l'abandonnèrent. Après avoir saisi le précieux objet, elle s'appuya contre le montant de la porte tandis que des larmes de joie inondaient son visage.
 
-« Tuer Sun Zhenwei est une tâche facile, mais cela devra attendre que ma culture soit assez élevée pour que personne dans la Secte du Ciel Nuageux n'ose dire un mot, assez élevée pour que je puisse t'emmener parcourir le pays de Chu en maître! » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'une arrogance absolue.
+« Tuer Sun Zhenwei est une tâche facile, mais cela devra attendre que ma culture soit assez élevée pour que personne dans la Secte du Ciel Nuageux n'ose dire un mot, assez élevée pour que je puisse t'emmener parcourir le pays de Chu en maître! » La voix de Wang Lin était monocorde, mais ses paroles étaient empreintes d'un léger dédain.

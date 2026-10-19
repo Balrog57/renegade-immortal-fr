@@ -44,11 +44,11 @@ Graduellement, la vitesse de Wang Lin s'accéléra tandis qu'il traversait l'esp
 
 Ce fourreau était celui qui appartenait à Wang Lin.
 
-Autour du fourreau se trouvaient quatre ombres à l'apparence humaine. Elles étaient assises en cercle autour de l'objet et cultivaient, tandis que des éclats d'énergie scintillante s'échappaient du fourreau pour être absorbés par les ombres.
+Autour du fourreau se trouvaient quatre ombres à l'apparence humaine. Elles étaient assises en tailleur autour de l'objet et cultivaient, tandis que des éclats d'énergie scintillante s'échappaient du fourreau pour être absorbés par les ombres.
 
 En voyant cela de loin, Wang Lin s'arrêta brusquement. Son regard restait calme alors qu'il agissait d'un geste de la main droite.
 
-Soudain, le fourreau d'épée trembla et l'intérieur du rocher noir commença à s'agiter. Cependant, les quatre ombres se tournèrent subitement vers Wang Lin, leurs yeux fantomatiques, où brillait une lueur bleue, fixés sur lui.
+Soudain, le fourreau d'épée trembla et la partie enfoncée dans le rocher noir commença à se desceller. Cependant, les quatre ombres se tournèrent subitement vers Wang Lin, leurs yeux fantomatiques, où brillait une lueur bleue, fixés sur lui.
 
 Le regard de Wang Lin demeura impassible; il ne prononça pas un mot.
 
@@ -62,7 +62,7 @@ Bien que cette énergie spirituelle ne fût pas démesurément puissante, elle c
 
 L'ombre poussa un cri misérable tandis qu'un gaz noir jaillissait de son corps. Si l'on regardait de près, on aurait pu voir une puissance mystérieuse entourer l'ombre, provoquant son rétrécissement. En quelques respirations, elle disparut complètement.
 
-Cependant, au moment même où elle allait s'évanouir, Wang Lin lança un second faisceau d'énergie spirituelle qui pénétra l'ombre en train de se dissiper, la forçant à se reformer pour se transformer en une statue de démon!
+Cependant, au moment même où elle allait s'évanouir, Wang Lin lança un second faisceau d'énergie spirituelle qui pénétra l'ombre en train de se dissiper, la forçant à se reformer pour se transformer en une immense statue de démon!
 
 Cette statue était basée sur un ennemi nommé « You » dans les souvenirs de Tu Si. Elle avait été façonnée par son domaine de vie et de mort. Dès son apparition, elle poussa un rugissement et chargea les trois ombres restantes.
 
@@ -94,7 +94,7 @@ En dévorant l'ombre, Wang Lin absorba également ses souvenirs. Cette ombre ava
 
 Ces obsessions manquaient d'intelligence. Elles avaient trouvé le fourreau d'épée par hasard en errant, ressentirent ses étranges fluctuations et commencèrent à cultiver autour de lui.
 
-Tenant le fourreau d'épée, la main droite de Wang Lin pointa vers la statue. Soudain, l'ombre qui avait pénétré la statue s'effondra et se transforma en énergie spirituelle avant de se dissiper.
+Tenant le fourreau d'épée, la main droite de Wang Lin pointa vers la statue. Soudain, la statue, qui avait absorbé l'ombre, s'effondra lentement, se transforma en énergie spirituelle et se dissipa.
 
 Quant à l'ombre cachée à l'intérieur du fourreau, elle fut expulsée par Wang Lin. Il la saisit, injecta un peu d'énergie spirituelle dans sa main, et l'ombre s'effondra.
 
@@ -106,12 +106,12 @@ Il apparut à l'extérieur de la vallée Jue Ming. Sans perdre un instant, il s'
 
 Un mois plus tard, Wang Lin sortit d'un ancien réseau de transfert loin de Zhao.
 
-Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade initial de la Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le premier cultivateur de Suzaku, il doit donc connaître le cristal planétaire de culture. Il devrait pouvoir m'aider à obtenir ce trésor. »
+Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade initial de la Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le plus fort cultivateur de Suzaku, il doit donc connaître le cristal de la planète de culture. Il devrait pouvoir m'aider à obtenir ce trésor. »
 
 « Reste à savoir si je pourrai également ressusciter maman et papa une fois que j'aurai atteint la Transformation de l'Âme... mais mon domaine est celui de la vie et de la mort. Plus je comprends le cycle de la réincarnation, plus je réalise à quel point il est difficile de s'y opposer. Cet objectif de ressusciter mes parents sera extrêmement ardu... » Wang Lin poussa un soupir.
 
-« Peu importe. Je m'en occuperai plus tard. S'il n'existe vraiment aucun moyen de les ressusciter, alors je leur trouverai une place pour réintégrer le cycle de la réincarnation. Ce lien d'affection de cette vie prend ainsi fin... »
+« Peu importe. Je m'en occuperai plus tard. S'il n'existe vraiment aucun moyen de les ressusciter, alors je leur trouverai un lieu parmi les mortels, où ils pourront réintégrer le cycle de la réincarnation. Ce lien d'affection de cette vie prend ainsi fin... »
 
 À cet instant, Wang Lin devait encore raffiner un autre drapeau de restriction. Il ne restait qu'une pierre d'encre; il devait donc l'utiliser avec précaution pour ne pas l'endommager. Wang Lin avait tenté de réparer le drapeau de restriction brisé, mais sans succès. Celui-ci ne pouvait désormais servir qu'à invoquer la rétribution divine.
 
-« En plus de tout cela, bien que j'aie atteint le stade de Formation de l'Âme, je possède beaucoup trop peu de trésors magiques. Le royaume céleste pourrait s'ouvrir à tout moment, je dois donc être prêt. Je dois obtenir cette énergie spirituelle céleste! »
+« En plus de tout cela, bien que j'aie atteint le stade de Formation de l'Âme, je possède beaucoup trop peu de trésors magiques. La porte céleste pourrait s'ouvrir à tout moment, je dois donc être prêt. Je dois obtenir cette énergie spirituelle céleste! »

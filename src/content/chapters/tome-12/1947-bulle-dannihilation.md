@@ -16,7 +16,7 @@ Plus une chose est belle, plus elle est illusoire.
 
 Dans la montagne arrière de cette illusion, les oiseaux chantaient et le parfum des fleurs flottait dans l'air. Des cris joyeux s'échappaient de petites bêtes, tandis qu'un imposant autel se dressait là.
 
-Cet autel ressemblait à une tour. Il mesurait 10 000 pieds de large pour 1 000 pieds de haut. Taillé dans la pierre bleue, il dégageait une sensation de froid intense.
+Cet autel ressemblait à une tour. Il mesurait 10 000 pieds de large pour 1 000 pieds de haut. Taillé dans la pierre bleue, il renvoyait des reflets froids et indistincts.
 
 Au sommet de l'autel se trouvait une plateforme d'environ 1 000 pieds de large, au centre de laquelle trônait un petit bassin. Le bassin semblait presque sec, mais une fine couche d'eau y persistait encore. Des ondulations se propageaient à la surface lorsque le vent soufflait.
 

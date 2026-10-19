@@ -65,7 +65,7 @@ Zhou Yi ouvrit soudainement les yeux et regarda la pagode. La tristesse dans son
 
 Le pas de Wang Lin se figea, mais il ne se retourna pas. Il déclara: « Son nom n'est pas Ting Er. Si mes soupçons sont exacts, elle s'appelle Qing Shuang! »
 
-Le corps spirituel de Zhou Yi trembla. Il leva la tête, et le vide qui habitait ses yeux disparut, remplacé par une étincelle d'énergie.
+Le corps spirituel de Zhou Yi trembla. Il leva la tête, et le vide qui habitait ses yeux disparut, remplacé par un éclat tranchant.
 
 « Qing Shuang? »
 

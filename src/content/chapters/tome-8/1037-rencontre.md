@@ -18,7 +18,7 @@ L'âme de l'Ancêtre de Sang brilla d'un éclat rouge avant de reprendre progres
 
 « Les événements passés sont révolus. Yao Xixue a comploté contre moi et a été scellée pendant des centaines d'années. Vous vouliez me tuer, et vous en avez fini ainsi. J'ai également eu ma part de responsabilité dans cette affaire, car Yao Xixue a perdu la mémoire pour devenir la marionnette du démon du vent afin de se venger. Maintenant que je l'ai sauvée, oublions le passé.
 
-À partir de maintenant, vous n'avez plus aucun lien avec moi. Notre karma est rompu. Si vous persistez à m'impliquer, ne me blâmez pas de vous tuer tous les deux et de refuser votre entrée dans le cycle de la réincarnation! »
+À partir de maintenant, vous n'avez plus aucun lien avec moi. Notre karma est rompu. Si vous persistez à m'impliquer, ne me blâmez pas de vous tuer tous les deux, de disperser vos âmes et de vous refuser à jamais le cycle de la réincarnation! »
 
 La voix calme de Wang Lin laissait transparaître une pointe de froideur. Il fit un revers de manches et s'éloigna vers l'horizon.
 

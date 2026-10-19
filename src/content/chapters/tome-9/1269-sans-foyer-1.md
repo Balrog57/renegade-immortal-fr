@@ -22,7 +22,7 @@ Lu Yanfei regarda Wang Lin et dit doucement: « Oncle-Maître, ma Secte de l'Ori
 
 Wang Lin réfléchit en silence en contemplant la Secte de l'Origine. Il éprouvait encore une certaine affection pour ce lieu. C'était ici qu'il avait passé ses premiers temps dans la Mer des Nuages et là qu'il avait forgé son identité.
 
-Après un moment de réflexion, Wang Lin dit lentement: « Partez tous les premiers, j'ai encore d'autres affaires à régler. Si l'occasion se présente, je vous retrouverai dans une secte de rang 7. »
+Après un moment de réflexion, Wang Lin dit lentement: « Partez tous les premiers, j'ai encore d'autres affaires à régler. Si l'occasion se présente, je vous retrouverai dans une région de rang 7. »
 
 Une pointe de tristesse passa dans les yeux de Lu Yanfei, mais elle comprit qu'avec le niveau de culture de Wang Lin, il ne pourrait jamais rester au sein de la modeste Secte de l'Origine. Elle ne s'attendait simplement pas à ce qu'il parte si tôt.
 
@@ -78,7 +78,7 @@ En réfléchissant, l'expression de Li Qianmei s'apaisa progressivement, mais un
 
 « Maître, Qianmei est une orpheline et c'est vous qui m'avez élevée. Vous m'avez témoigné votre bonté et m'avez appris à devenir une adulte. Bien que je vous appelle "Maître", dans le cœur de Qianmei, vous êtes comme un père! » La voix de Li Qianmei était calme, mais empreinte d'une gratitude sincère.
 
-Elle regarda son maître, s'agenouilla lentement et effectua une profonde révérence.
+Elle regarda son maître, s'agenouilla lentement et se prosterna.
 
 « Maître, si Qianmei avait une autre vie, je mourrais dix mille fois pour vous le rendre! »
 

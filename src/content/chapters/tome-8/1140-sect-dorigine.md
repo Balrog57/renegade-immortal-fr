@@ -26,7 +26,7 @@ Lu Yanfei n'avait pris que trois disciples, toutes des femmes. La seconde, Xu Yu
 
 Peu de temps après, quatre jeunes aux visages pâles et tremblants firent leur entrée. En pénétrant dans la pièce, ils n'osèrent même pas respirer. La tête basse, ils semblaient ne plus savoir comment agir.
 
-Le regard de Lu Yanfei balaya les quatre jeunes alors qu'elle disait d'une voix feutrée: « Première disciple, troisième disciple, chacune de vous en prendra deux. Leur talent est très ordinaire; que leur destin de partenaire spirituel soit accompli ou non dépendra de la chance. Dans un mois, s'ils ne sont pas reconnus par le python aux yeux violets laissé par mon maître, renvoyez-les chez eux. »
+Le regard de Lu Yanfei balaya les quatre jeunes alors qu'elle disait d'une voix feutrée: « Première disciple, troisième disciple, chacune de vous en prendra deux. Leur talent est très ordinaire; que leur destin de partenaire spirituel soit accompli ou non dépendra de la chance. Dans un mois, s'ils ne sont pas reconnus par le python aux yeux pourpres laissé par mon maître, renvoyez-les chez eux. »
 
 Les deux disciples féminines hochèrent respectueusement la tête, puis prirent les quatre jeunes et se retirèrent.
 

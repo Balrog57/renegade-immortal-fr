@@ -56,7 +56,7 @@ Alors que le rideau d'eau approchait, Wang Lin pressa sa main droite sur la mont
 
 Lorsque sa main redescendit, l'âme de la montagne s'était transformée en une sphère de brume dégageant une aura ancestrale.
 
-Le corps de Wang Lin fut aussi rapide que l'éclair, provoquant un rugissement tonitruant dans son élan. Tenant la brume, il chargea précisément au moment où le rideau d'eau allait le frapper. L'eau pénétra son corps avant de se transformer en une multitude de gouttes d'eau démoniaque glaciale qui l'encerclèrent aussitôt.
+Le corps de Wang Lin fut aussi rapide que l'éclair, provoquant un rugissement tonitruant dans son élan. Tenant la brume, il chargea précisément au moment où le rideau d'eau allait le frapper. L'eau pénétra son corps avant de se transformer en une énergie démoniaque glaciale, semblable à une immense goutte d'eau, qui l'enveloppa aussitôt.
 
 Cependant, dès qu'elles eurent entouré Wang Lin, la brume dans sa main émit une puissante fluctuation d'énergie spirituelle céleste qui lui permit de percer le rideau d'eau. Sans marquer de pause, il fonça et projeta la brume vers le jeune homme sur le fantôme.
 
@@ -78,7 +78,7 @@ Aux yeux du jeune homme, ce fut comme si Wang Lin s'était divisé en deux. Le c
 
 Un coup de poing fut décoché!
 
-La culture de Wang Lin ayant atteint le sommet du stade tardif de l'Ascendant, il n'était plus aussi simple de discerner que la garde céleste se cachait dans son ombre.
+La culture de Wang Lin ayant atteint le sommet du stade tardif de l'Ascendant, il n'était plus aussi simple de discerner que la garde céleste se cachait en lui.
 
 Tout cela se déroula en un laps de temps extrêmement court. La vitesse fut telle que le jeune homme n'eut même pas le temps de réfléchir. Il ne s'attendait pas à ce qu'un simple cultivateur au sommet du stade Ascendant puisse créer une sphère de tonnerre aussi puissante et invoquer l'âme d'une montagne. Ce qui le choqua le plus fut le coup de poing porté par la marionnette!
 

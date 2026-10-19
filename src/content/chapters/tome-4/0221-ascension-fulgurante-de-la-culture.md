@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 221 - Soaring Cultivation
 slug: ascension-fulgurante-de-la-culture
 ---
-Wang Lin fixait le fourneau à pilules, l'esprit tourné vers Yun Fei. Il tapota son sac de rangement et en sortit un morceau de jade; c'était celui que Yun Fei lui avait remis.
+Wang Lin fixait le fourneau à pilules, l'esprit tourné vers Yun Fei. Il tapota son sac de rangement et en sortit un morceau de jade; c'était celui qui se trouvait dans le sac de rangement de Yun Fei.
 
 Il posa le jade sur la table et dit: « Ce fragment était en possession de la personne qui détenait le fourneau. Voyez s'il existe un lien entre eux. »
 
@@ -14,7 +14,7 @@ Les yeux magnifiques de Li Muwan s'illuminèrent. Elle saisit le morceau de jade
 
 Wang Lin acquiesça.
 
-Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit: « Dans ce cas, il s'agit bien de la Secte Qi Huang. Elle était autrefois une secte issue d'un pays de rang 4, mais après des conflits avec une secte ennemie, elle s'est déplacée dans la Mer des Démons avant de disparaître sans laisser de trace. Il semble que ce fourneau appartenait à la Secte Qi Huang, ce qui signifie que la méthode pour briser le sceau est perdue. Wan Er sait seulement que ce sceau ne peut être ouvert n'importe comment; il nécessite une série de procédures et un timing précis. Si on le force, cela endommagera la qualité de la pilule qu'il contient, voire la réduira en cendres. De plus, Wan Er sent que la pilule n'est pas encore prête. Même si nous l'ouvrions correctement, elle n'aurait pas atteint son plein potentiel si nous ne la laissions pas scellée un peu plus longtemps. »
+Li Muwan mordilla discrètement sa lèvre inférieure et poursuivit: « Dans ce cas, il s'agit bien de la Secte Qi Huang. Elle était autrefois une secte issue d'un pays de rang 4, mais après des conflits avec une secte ennemie, elle s'est déplacée dans la Mer des Démons avant de disparaître sans laisser de trace. Il semble que ce fourneau appartenait à la Secte Qi Huang, mais la méthode pour briser le sceau est perdue. Wan Er sait seulement que ce sceau ne peut être ouvert n'importe comment; il nécessite une série de procédés, le bon moment et le bon lieu. Si on le force, cela endommagera la qualité de la pilule qu'il contient, voire la réduira en cendres. De plus, Wan Er sent que la pilule n'est pas encore prête. Même si nous l'ouvrions correctement, elle n'aurait pas atteint son plein potentiel si nous ne la laissions pas scellée un peu plus longtemps. »
 
 Wang Lin approuva intérieurement. C'était la seule explication pour laquelle Yun Fei ne l'avait pas ouverte elle-même, tentant plutôt de l'échanger contre la levée de sa restriction.
 
@@ -24,7 +24,7 @@ Li Muwan sortit plusieurs flacons de pilules et les tendit à Wang Lin. Après l
 
 Il quitta la cour sud sous le regard réticent de Li Muwan. Après tout, la culture de Wang Lin était encore trop faible; s'il restait trop longtemps auprès d'elle, cela finirait par attirer l'attention.
 
-Wang Lin décida donc de regagner sa chambre pour s'isoler en entraînement intensif. Lui et Li Muwan avaient déjà pris des dispositions en se laissant un jade de transmission: dès qu'elle briserait le sceau, elle lui enverrait la pilule.
+Wang Lin décida donc de regagner sa chambre pour entrer en retraite de porte fermée. Lui et Li Muwan avaient déjà pris des dispositions en se laissant un jade de transmission: dès qu'elle briserait le sceau, elle lui enverrait la pilule.
 
 Parallèlement, pour garantir la sécurité de Li Muwan, Wang Lin avait laissé le démon Xu Liguo et un second démon pour la protéger. Avec leur coopération, ils devraient être capables de tenir tête, ne serait-ce qu'un temps, à un cultivateur de l'Âme Naissante.
 
@@ -44,7 +44,7 @@ Zhenwei afficha un sourire amical et gloussa: « Venez-vous saluer l'ancêtre de
 
 Wang Lin ricana intérieurement, mais se contenta d'un hochement de tête serein.
 
-Sun Zhenwei regarda Wang Lin en souriant: « Dans deux mois, je serai moi aussi quelqu'un que l'on pourra considérer comme l'ancêtre de votre maître. Vous êtes très diligent, et c'est une bonne chose. Si vous avez des questions sur l'alchimie, vous pourrez les poser à l'ancêtre de votre maître, et si vous avez des questions sur la culture, vous pourrez me les poser à moi. »
+Sun Zhenwei regarda Wang Lin en souriant: « Dans deux mois, je serai moi aussi quelqu'un que l'on pourra considérer comme l'ancêtre de votre maître. Vous êtes très diligent, et c'est une bonne chose : continuez à bien cultiver. Si vous avez des questions sur l'alchimie, vous pourrez les poser à l'ancêtre de votre maître, et si vous avez des questions sur la culture, vous pourrez me les poser à moi. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il répondait froidement: « S'il n'y a rien d'autre, ce disciple doit encore s'occuper d'un lot de pilules. »
 
@@ -88,8 +88,8 @@ Une fois les Pilules Qi-Zuo épuisées, Wang Lin saisit le second flacon. La For
 
 Li Muwan n'avait pas nommé cette pilule, lui disant simplement qu'il la reconnaîtrait en la voyant. Il brisa le sceau et, en regardant à l'intérieur, un léger sourire étira ses lèvres.
 
-Le flacon contenait cinq pilules violettes. Wang Lin les identifia immédiatement: c'étaient les Pilules Tian Li qu'il avait utilisées auparavant.
+Le flacon contenait cinq pilules pourpres. Wang Lin les identifia immédiatement: c'étaient les Pilules Tian Li qu'il avait utilisées auparavant.
 
 Il semblait que Li Muwan ait consacré énormément de sang et de sueur ces deux cents dernières années pour raffiner à nouveau ces précieuses préparations. C'était le cas: la Pilule Tian Li était un remède de rang 3, niveau initial, dont les ingrédients s'étaient éteints avec le pays de Huo Fen. Ce n'est qu'en rejoignant la Secte Ciel Nuageux et en utilisant son statut d'Ancien que Li Muwan avait pu obtenir les composants nécessaires pour en produire davantage.
 
-Cependant, même la Secte Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, la grande majorité des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.
+Cependant, même la Secte Ciel Nuageux ne disposait que de peu de ces matériaux. Après avoir raffiné ces cinq pilules, toutes les réserves avaient été épuisées. En vérité, une grande partie des ingrédients utilisés par Wang Lin provenaient des stocks de la Secte Ciel Nuageux; on pouvait donc dire que le coût de cette avancée de culture était entièrement supporté par la secte.

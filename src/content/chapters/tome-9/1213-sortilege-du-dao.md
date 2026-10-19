@@ -72,7 +72,7 @@ Plus le vieil homme combattait, plus l'effroi le gagnait!
 
 « Si cet homme survit, il sera sans aucun doute un ennemi redoutable pour mes Hauts Anciens Clans!!! Cette sérénité qu'il dégage est terrifiante! »
 
-Le tatouage entre les sourcils de Wang Lin vacilla tandis que des images défilaient dans son esprit. La vie entière de Zhan Xingye était digne de son nom!
+Le tatouage entre les sourcils de Wang Lin vacilla tandis que des images défilaient dans son esprit. La vie entière de Zhan Xingye était digne du nom de famille qu'il s'était choisi!
 
 Tout au long de son existence, à travers d'innombrables combats, qu'ils fussent mineurs ou titanesques, il n'avait jamais reculé. Il avait accumulé une expérience immense qui s'était muée en domaine. Un seul mot le définissait: Bataille!
 
@@ -100,7 +100,7 @@ Même les bêtes féroces du royaume extérieur qui luttaient dans les flammes s
 
 Les innombrables âmes de Dao du Royaume aux Sept Couleurs se rassemblèrent devant le vieil homme. Elles fusionnèrent en une seule entité, puis une lumière jaune envahit le monde, enveloppant Wang Lin.
 
-« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus les mortels. C'est ce sort qui permit au Clan de l'Extermination Scellée de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
+« Dispersion du Dao! » La voix féroce du vieil homme résonna alors qu'il engageait toute sa puissance. Hormis le sceau céleste, c'était le sort qui terrifiait le plus. C'est ce sort qui permit au Clan de l'Extermination Scellée de diriger les Hauts Anciens Clans; ce clan n'était surpassé que par les anciens dieux, démons et monstres!
 
 Ce n'était pas un simple sort ou une capacité, mais le rare Sortilège du Dao!
 

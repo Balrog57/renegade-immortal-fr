@@ -34,7 +34,7 @@ Son corps fut projeté en arrière dans un arc de cercle et, tout en crachant du
 
 L'index de Wang Lin était toujours pointé vers le front de l'âme originelle du vieil homme lorsqu'il dit lentement: « Vas-tu encore essayer de fuir? »
 
-« Rien que l'aura de son doigt suffit à forcer mon âme originelle à sortir de mon corps et à m'infliger de graves blessures. Si j'avais été touché par ce doigt, je serais mort instantanément! Cet homme... cet homme n'est certainement pas seulement au stade du Quatrième Ciel du Fléau Céleste!! » Le vieil homme tremblait et secouait la tête. Il avait presque perdu la raison, et la puissance contenue dans ce doigt lui ôtait toute volonté de résister. Ce doigt n'avait même pas encore touché l'espace entre ses sourcils, mais cela le terrifiait d'autant plus.
+« Rien que l'aura de son doigt suffit à forcer mon âme originelle à sortir de mon corps et à m'infliger de graves blessures. Si j'avais été touché par ce doigt, je serais mort instantanément! Cet homme... cet homme n'est absolument pas au stade du Quatrième Ciel du Fléau Céleste!! » Le vieil homme tremblait et secouait la tête. Il avait presque perdu la raison, et la puissance contenue dans ce doigt lui ôtait toute volonté de résister. Ce doigt n'avait même pas encore touché l'espace entre ses sourcils, mais cela le terrifiait d'autant plus.
 
 « Désormais, votre Clan du Scorpion Noir m'appartient et obéira à tous mes ordres. Sinon, j'anéantirai votre clan tout entier! » Wang Lin retira son index et regarda froidement l'âme originelle du vieil homme.
 
@@ -60,7 +60,7 @@ Quant à Zhong Grand Rouge, il était devenu encore plus hardi; il était désor
 
 « Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Déchus qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
 
-« Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable lors du défi. »
+« Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable avant le défi. »
 
 « Si vous n'avez pas l'intention de devenir un Ancien Déchu, il n'y a pas lieu de craindre pour votre vie. » L'ancien du Clan du Scorpion Noir regarda Wang Lin à ce moment-là.
 
@@ -72,7 +72,7 @@ Quant à Zhong Grand Rouge, il était devenu encore plus hardi; il était désor
 
 « La rumeur dit que la méthode de fabrication des marionnettes a été transmise par le Grand Empereur. Quant au procédé lui-même, seuls les 13 anciens le connaissent. »
 
-« Parmi toutes les marionnettes du Clan du Scorpion Noir, la plus puissante est une marionnette Purificatrice du Nirvana, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
+« Parmi toutes les marionnettes du Clan du Scorpion Noir, la plus puissante est une marionnette Purificatrice du Nirvana de stade intermédiaire, qui coûte une fortune céleste. Si elle était transportée hors de la Terre Déchue, elle pourrait être échangée contre une multitude de trésors et de pilules. » Tout en parlant, l'ancien toucha sa marque de clan. Une lueur jaillit et une marionnette ressemblant à un homme d'âge moyen apparut.
 
 Cette marionnette avait une expression figée et, au premier coup d'œil, elle semblait être une personne réelle. Cependant, en y regardant de plus près, on s'apercevrait qu'elle était dépourvue de toute vitalité et recouverte de sceaux, rendant son intérieur invisible.
 
@@ -86,7 +86,7 @@ L'ancien réfléchit encore plus longtemps avant de répondre: « Ce petit ne pe
 
 Les yeux de Wang Lin brillèrent intensément. Il ne s'attendait pas à trouver une chose aussi inimaginable dans la Terre Déchue. Une marionnette de niveau Fléau Céleste était un choc absolu!
 
-« Puisque des cultivateurs au stade du Fléau Céleste existent, pourrait-il y avoir des marionnettes du troisième niveau? » Wang Lin ne posa pas cette question, car une telle chose était trop absurde et il ne croyait pas qu'elles existent.
+« Puisqu'il existe même des marionnettes du stade du Fléau Céleste, pourrait-il aussi y avoir des marionnettes du troisième niveau? » Wang Lin ne posa pas cette question, car une telle chose était trop absurde et il ne croyait pas qu'elles existent.
 
 Un instant plus tard, Wang Lin demanda: « Quelle est l'influence du Clan des Moineaux de Feu ici? »
 

@@ -18,7 +18,7 @@ Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la
 
 « Le Senior Qing Lin a dit autrefois que le Cercueil d'Évitement du Ciel lui appartenait... Cette femme est une concubine impériale céleste, elle doit donc connaître certains secrets de cet endroit... » Les yeux de Wang Lin s'illuminèrent et il agita sa main droite. L'épée de sang s'élança, et d'un pas, il disparut.
 
-L'épée de sang était anormale; loin d'être silencieuse, elle émit un hurlement aigu et perçant qui déchira l'air. Elle fonça vers la silhouette qui se dessinait progressivement dans le vortex en pleine dissipation.
+L'épée de sang était anormale; loin d'être silencieuse, elle émit un hurlement aigu et perçant qui déchira l'air. En un instant, elle franchit dix mille li et fonça vers la silhouette qui se dessinait progressivement dans le vortex en pleine dissipation.
 
 Ce hurlement intense et violent pouvait choquer l'esprit et pousser n'importe qui à reculer instinctivement de quelques pas!
 
@@ -32,7 +32,7 @@ Lorsque le phénix pourpre et l'épée de sang entrèrent en collision, un grond
 
 Le phénix pourpre se désintégra, mais l'épée de sang ne put progresser et fut repoussée. Le vortex qui se dissipait derrière Zi Xia recommença à tourbillonner. Elle savait que Wang Lin avait utilisé l'Arc Li Guang plusieurs fois, mais elle ignorait combien de fois il pourrait encore s'en servir. Après un moment d'hésitation, elle leva la main droite pour sortir un jade. Elle comptait partir et envoyer un message pour faire venir du renfort.
 
-Elle était consciente du sortilège d'Arrêt de Wang Lin. Par conséquent, elle décida de fuir dès qu'elle aurait saisi le jade. Avec l'aide du vortex pour bloquer le sortilège et grâce à sa propre culture, elle pourrait y résister!
+Elle était consciente du sortilège d'Arrêt de Wang Lin. Par conséquent, elle décida de fuir avant même de saisir le jade. Avec l'aide du vortex pour bloquer le sortilège et grâce à sa propre culture, elle pourrait y résister!
 
 Cette femme était très rusée et extrêmement prudente; elle ne prendrait aucun risque inutile.
 

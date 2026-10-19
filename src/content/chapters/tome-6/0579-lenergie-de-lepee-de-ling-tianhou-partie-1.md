@@ -20,7 +20,7 @@ Peu après, un vieil homme sortit du palais, un parchemin à la main. Il secoua 
 
 Le jour du concours des généraux démons approchait à grands pas. Toute la Cité du Démon Céleste était enveloppée d'une atmosphère oppressante, et d'innombrables combats éclataient chaque jour.
 
-Wang Lin, assis au bord de la rivière, reposa sa cruche de vin, leva les yeux vers le ciel et murmura pour lui-même: « C’est un jeu! »
+Wang Lin, assis au bord de la rivière, reposa sa cruche de vin, leva les yeux vers le ciel quelque peu sombre et murmura pour lui-même: « C’est un jeu! »
 
 « Un jeu aux yeux de l'Empereur Démon... De son point de vue, les étrangers s'entretuent dans le seul but d'aider les généraux démons à obtenir des positions plus élevées. C'est là le plus parfait des jeux... » Wang Lin prit une gorgée. Son regard était empreint d'une clarté absolue.
 
@@ -46,7 +46,7 @@ L'inconnu laissa échapper un son de surprise et afficha un léger sourire. Sans
 
 Alors que les débris volaient, deux gémissements déchirants retentirent. Une immense quantité de brouillard sanguin jaillit de deux gardes, projetés au plus profond de la demeure.
 
-« Le douzième épéiste de la Secte de l'Épée Da Luo, Mo Yang, souhaite saluer le Seigneur Mo Lihai! »
+« L'un des Douze Épées de la Secte de l'Épée Da Luo, Mo Yang, souhaite saluer le Seigneur Mo Lihai! »
 
 Une voix calme s'échappa de sa bouche. Il continua d'avancer sans s'arrêter, pénétrant dans la demeure de Mo et se dirigeant vers la chambre secrète où Mo Lihai était en pleine culture de porte close.
 
@@ -122,7 +122,7 @@ L'expression de Wang Lin restait sereine; il ne daigna même pas regarder les so
 
 Le visage de l'homme changea radicalement, empreint d'incrédulité. Bien que ces soixante-quatre rayons ne constituent pas son attaque la plus puissante, ce n'était pas un sort faible pour autant. Voir Wang Lin les repousser si aisément ébranla profondément son cœur.
 
-« Quel est ce sort?! Cet homme n'a utilisé aucun trésor, et pourtant, lorsque mon énergie d'épée a approché son corps, elle s'est effondrée. Même l'Épée Dragon des Douze Épées ne pourrait faire cela! »
+« Quel est ce sort?! Cet homme n'a utilisé aucun trésor, et pourtant, lorsque mon énergie d'épée a approché son corps, elle s'est effondrée. Même le Dragon, l'un des Douze Épées, ne pourrait faire cela! »
 
 Alors que Wang Lin continuait de marcher, l'homme de la Secte de l'Épée Da Luo recula inconsciemment de quelques pas. Il prit une grande inspiration et posa la main sur sa grande épée.
 

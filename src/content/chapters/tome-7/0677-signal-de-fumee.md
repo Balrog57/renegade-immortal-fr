@@ -64,7 +64,7 @@ Tandis que le dragon argenté fendait les étoiles, Wang Lin restait assis sur s
 
 « Tant pis. J'ai déjà attendu plus de huit cents ans, je ne m'opposerai pas à attendre un peu plus longtemps. Dès que j'aurai assez de Fruits de l'Ascension Céleste pour les raffiner, je reviendrai. »
 
-« Cependant, je ne m'attendais pas à tomber sur un Serpent aux yeux de lune aussi colossal... Combien d'étoiles cet Ancien Dieu a-t-il dû porter pour soutenir une telle créature? Et cette chose a manifestement dormi durant des éons, car l'on trouve même des ruines de cités à sa surface. »
+« Cependant, je ne m'attendais pas à tomber sur un Serpent aux yeux de lune aussi colossal... Combien d'étoiles devait avoir cet Ancien Dieu pour posséder une telle créature? Et cette chose a manifestement dormi durant des éons, car l'on trouve même des ruines de cités à sa surface. »
 
 L'expression de Wang Lin se détendit alors qu'il poursuivait sa réflexion.
 

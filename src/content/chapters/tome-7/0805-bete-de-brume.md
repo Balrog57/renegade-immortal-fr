@@ -54,7 +54,7 @@ En chargeant, il projeta son poing droit. Ce coup était plus puissant que les d
 
 Lorsque le coup fut lancé, il créa un bang sonique et une aura terrifiante fonça vers Wang Lin. Parallèlement, le gaz noir de l'illusion prit la forme d'un crâne qui esquissa un sourire sinistre, tentant d'engloutir Wang Lin.
 
-L'expression de Wang Lin resta sereine alors qu'il fixait calmement l'homme. Il ouvrit la bouche et un grain de sable s'en échappa. Ce dernier se transforma en un sceau fragmentaire de 330 mètres de large qui s'abattit sur l'homme.
+L'expression de Wang Lin resta sereine alors qu'il fixait calmement l'homme. Il ouvrit la bouche et un grain de sable s'en échappa. Ce dernier se transforma en un sceau fragmentaire de 330 mètres de large qui s'abattit sur l'homme. La pression qui émanait de ce fragment était extrêmement dense, et sa chute forma un verrou attracteur.
 
 C'était la première fois que le sceau fragmentaire céleste apparaissait hors du Royaume Céleste. À son apparition, une riche énergie spirituelle céleste emplit l'air. En voyant cela, le vieillard s'agenouilla et commença à vénérer le fragment.
 
@@ -66,7 +66,7 @@ Le coup fut décoché et retentit avec fracas. Le fragment ne bougea absolument 
 
 Ses yeux étaient pétris de stupeur. Il ne s'attendait pas à ce que cet objet soit aussi robuste. Non seulement sa pleine puissance n'avait causé aucun dommage, mais le contrecoup avait déchaîné l'énergie et le sang dans ses veines.
 
-L'illusion démoniaque sur le poing de l'homme se dissipa également sous le choc. Le regard de Wang Lin était glacial alors qu'il pointait la main droite; le fragment s'éleva dans les airs et s'abattit impitoyablement.
+L'illusion démoniaque sur le poing de l'homme se dissipa également sous le choc. Le regard de Wang Lin était glacial alors qu'il pointait la main droite; le fragment s'éleva dans les airs en tournoyant comme une tempête et s'abattit impitoyablement.
 
 Un cri strident résonna à travers le monde. Au moment où le fragment descendait, l'homme poussa un rugissement et leva ses deux mains vers le ciel, tentant de bloquer la chute.
 
@@ -82,7 +82,7 @@ La condensation fut extrêmement rapide et, en un instant, les particules de bru
 
 La brume finit par se condenser et plus de cent bêtes noires féroces apparurent dans le ciel. Ces créatures avaient toutes des apparences distinctes et dégageaient une aura lugubre. Bientôt, de bas rugissements capables de transpercer l'âme retentirent.
 
-L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun prenne position et nettoie cette brume en moins de quinze minutes! Ne laissez aucune bête de brume de forme humaine apparaître! »
+L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun combatte de son côté et nettoie cette brume en moins de quinze minutes! Ne laissez aucune bête de brume de forme humaine apparaître! »
 
 Son corps vacilla et il se précipita aussitôt vers une bête qui venait de surgir. Sa main frappa le pot, et une puissante force d'aspiration jaillit de l'ouverture.
 

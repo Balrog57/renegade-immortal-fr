@@ -70,7 +70,7 @@ Les huit dragons géants conservèrent leur posture de combat, flottant immobile
 
 Non seulement eux, mais tous les cultivateurs touchés par les ondulations subirent le même sort. Leur force vitale se changea en aura de mort, entraînant leur décès immédiat!
 
-« Dieu, Démon, Diable, Dao Ancien sans Céleste! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
+« Dieu, Démon, Diable, Ancien Dao, aucun Céleste! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
 
 Dieu Ancien à 9 étoiles!
 Démon Ancien à 9 étoiles!
@@ -106,7 +106,7 @@ Elle pénétra par l'orbite gauche pour ressortir de l'autre côté.
 
 On pouvait distinctement voir un œil gauche ensanglanté au bout de la flèche alors qu'elle traversait le palais et le vide, avant de disparaître sans laisser de trace.
 
-Une douleur intense déferla sur l'esprit de Wang Lin telle une marée, comme si elle cherchait à lui arracher ses propres souvenirs. Le sang coula de son œil gauche et les neuf étoiles démoniaques anciennes qu'il avait empruntées s'effondrèrent soudainement.
+Une douleur intense déferla sur l'esprit de Wang Lin telle une marée, comme si elle cherchait à lui arracher ses propres souvenirs. Le sang coula de son œil gauche et les neuf étoiles de Démon Ancien qu'il avait empruntées s'effondrèrent soudainement.
 
 « Dao Ji Li Guang a abattu mon œil gauche. Mon œil gauche contenait la moitié de mes souvenirs et mes pensées pour ma terre natale... »
 

@@ -12,7 +12,7 @@ slug: cur-mort
 
 Dans l'Abîme des Marées où Zhou Yi était scellé, les vêtements de Wang Lin étaient balayés par un vent violent et flottaient violemment. Ses cheveux flottant dans les airs, il fut contraint de reculer de plusieurs pas, puis son regard devint glacial.
 
-L'attaque précédente avait détruit la troisième conscience divine laissée par Ling Tianhou. Cependant, le prix à payer était lourd: la bête de tonnerre s'était brisée et ses fragments devaient être retournés au Char de Guerre de l'Extermination des Dieux.
+L'attaque précédente avait détruit la troisième conscience divine laissée par Ling Tianhou. Cependant, le prix à payer était lourd: la bête de tonnerre s'était brisée et ses fragments devaient être retournés au Char de Guerre Divin.
 
 Une brèche s'était ouverte dans la conscience divine de Ling Tianhou, mais elle commençait déjà à se refermer et était sur le point de disparaître.
 

@@ -34,9 +34,9 @@ Wang Lin représentait la Secte de l'Origine. Après cet événement, une chose 
 
 Les gens préféreraient traverser le Monde de la Brume Animale plutôt que de provoquer la Secte de l'Origine!
 
-Le Maître de la Secte Éternelle poussa un soupir. Bien qu'il ait tenté de surestimer la force de Wang Lin, il était, en fin de compte, resté bien trop loin de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
+Le Maître de la Secte Éternelle poussa un soupir. Bien qu'il ait surestimé la force de Wang Lin, il était, en fin de compte, resté bien en deçà de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Brisée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
-« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre des Grands Anciens! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternelle doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser... Cependant, avec lui, ma Secte Éternelle s'élèvera lors de la compétition avec les autres sectes de rang 8! »
+« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre un Grand Ancien! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternelle doit absolument traiter un tel cultivateur avec les plus grands égards, et ne pas l'offenser... Cependant, avec lui, ma Secte Éternelle s'élèvera lors de la compétition avec les autres sectes de rang 8! »
 
 Lu Yanfei regarda la silhouette de Wang Lin, sous le choc. Même elle ne s'attendait pas à ce qu'il soit aussi puissant. En repensant aux paroles de son maître avant sa mort, les yeux de Lu Yanfei s'embuèrent d'un éclat de larmes.
 

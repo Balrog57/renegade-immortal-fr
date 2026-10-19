@@ -42,7 +42,7 @@ Cupidité récupéra la feuille et reprit sa course effrénée. Un instant plus 
 
 Dès qu'elle s'arrêta, des ondulations résonnèrent à nouveau. Cupidité avait utilisé une méthode inconnue pour détecter l'instant précis où Wang Lin arriverait, ainsi que sa position exacte!
 
-« Les sorts d'évasion de ce vieil homme sont les plus puissants, et peu de gens peuvent en rivaliser! Sans ces techniques, j'aurais déjà été tué plusieurs fois par mes propres trésors! » Cupidité laissa échapper un froid reniflement avant de s'enfuir prestement.
+« Les sorts d'évasion de ce vieil homme sont les plus puissants, et peu de gens peuvent en rivaliser! Sans ces techniques, ceux qui convoitent mes trésors m'auraient déjà tué plusieurs fois! » Cupidité laissa échapper un froid reniflement avant de s'enfuir prestement.
 
 Cependant, à cet instant précis, un rayon de lumière sanglante apparut au loin. À première vue, il semblait distant, mais l'instant d'après, il occupait tout le vide infini. La lueur rouge fondit sur lui avec une rapidité fulgurante!
 

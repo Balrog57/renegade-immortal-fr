@@ -16,13 +16,13 @@ En vérité, même s'ils avaient osé jouer ce coup, Wang Lin disposait encore d
 
 Bien que Wang Lin eût été blessé lors de ce voyage sur la planète des Cinq Éléments, ses gains étaient tout aussi considérables. Il pressa plusieurs points de son corps pour réprimer la douleur. La Bête des Limbes se retira lentement, quittant l'espace entourant la planète des Cinq Éléments pour réapparaître dans le Vide Brillant.
 
-« Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade du Tribulant du Vide, il doit avoir traversé plusieurs Tribulations Arcanes... »
+« Le niveau de culture de ce vieil homme nommé Ma est encore plus puissant que celui du Souverain. Même s'il n'a pas atteint le stade de la Tribulation du Vide, il doit avoir traversé plusieurs Tribulations Arcanes... »
 
 « De plus, le premier étage de la tour ne contenait qu'une armure au lieu d'un être humain... La culture de cette Secte Gui Yi est très étrange, ils dépendent en fait de l'armure... Cette armure du premier étage appartient probablement à ce vieil homme nommé Ma... »
 
 « Si elle lui appartient vraiment, quel niveau de culture atteindrait-il en la revêtant? » songea Wang Lin.
 
-Après le départ de Wang Lin, le vieil homme nommé Ma prit un air sombre et fixa le ciel. Il hésita, incapable de décider s'il devait retenir ses coups ou attaquer.
+Après le départ de Wang Lin, le vieil homme nommé Ma prit un air sombre et fixa le ciel. Il hésita, incapable de décider s'il devait attaquer ou abandonner.
 
 Il n'était pas certain que Wang Lin dispose réellement de tels atouts. Cependant, puisque Wang Lin avait osé s'aventurer dans un lieu aussi périlleux et l'avait même contraint à lui rendre l'épée de sang, il devait forcément être venu préparé!
 

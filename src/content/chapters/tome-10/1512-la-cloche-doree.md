@@ -84,7 +84,7 @@ Puis, la tempête formée par les innombrables trésors heurta le poing et se d�
 
 Tout cela se produisit en un instant. Après avoir tout anéanti, le poing de Wang Lin percuta le Shui Daozi! La poitrine de ce dernier explosa, projetant une brume de sang partout. Son corps fut enfoncé dans la terre par l'impact!
 
-La planète entière trembla. Le Shui Daozi s'appuya sur ses pieds contre le sol, les mains agrippées à sa poitrine. Du sang coulait du coin de sa bouche, teignant ses vêtements de rouge.
+La planète entière trembla. Le Shui Daozi s'appuya sur ses pieds contre le sol, les mains levées pour retenir ce poing gigantesque. Du sang coulait du coin de sa bouche, teignant ses vêtements de rouge.
 
 Ses yeux étaient empreints de démence. Alors qu'il rugissait, une lumière dorée jaillit de sa bouche et une cloche apparut au cœur de cette lueur!
 
@@ -94,7 +94,7 @@ Une énergie spirituelle céleste d'une pureté extrême se répandit à travers
 
 Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis la Secte Divine comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
 
-La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois!
+La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois depuis des dizaines de milliers d'années!
 
 Dans le Système Stellaire de la Mer des Nuages, des groupes de cultivateurs voyageaient à travers la brume. Lorsque l'onde dorée se propagea, elle dissipa le brouillard, révélant l'immense formation qui surplombait le système!
 

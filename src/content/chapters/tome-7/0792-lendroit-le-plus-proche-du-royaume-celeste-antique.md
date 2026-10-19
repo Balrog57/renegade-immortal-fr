@@ -36,13 +36,13 @@ Cet état était d'une douleur extrême, mais il offrait des bénéfices inimagi
 
 Si d'autres cultivateurs avaient connu l'état actuel de Wang Lin, ils en auraient été transportés d'enthousiasme. Pour les cultivateurs du deuxième niveau, outre l'énergie originelle, un autre point crucial résidait dans la compréhension, le contrôle et la manipulation des lois, bien que cela soit trop vague pour être expliqué. Ainsi, la fusion avec le monde devenait une voie pour explorer les lois.
 
-En s'intégrant étroitement au monde, on pouvait mieux explorer ses lois fondamentales.
+Plus on s'intègre étroitement au monde, plus on acquiert le droit d'explorer ses lois fondamentales.
 
 À cet instant, le vieil homme mystérieux aidait involontairement Wang Lin. C'était comme si une paire de mains gigantesques saisissait l'âme originelle de Wang Lin pour la forcer à fusionner avec l'univers.
 
 Malgré la douleur, les bienfaits étaient bien réels!
 
-Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin commença lui aussi à fusionner avec le monde; son domaine karmique se confrontait au Dao karmique de l'univers.
+Son âme originelle se fondait de plus en plus étroitement dans le monde, comme s'il en avait toujours fait partie. Simultanément, le domaine de Wang Lin commença lui aussi à fusionner avec le monde; son domaine karmique se confirmait mutuellement avec le Dao karmique de l'univers.
 
 Au-delà de son âme originelle, son corps physique en bénéficiait également. Après avoir subi le nettoyage précédent, son énergie originelle avait pleinement fusionné avec sa chair.
 

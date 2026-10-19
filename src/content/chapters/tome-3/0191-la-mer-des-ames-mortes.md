@@ -70,7 +70,7 @@ Les ondes commençaient à s'effondrer. Juste avant que l'ouverture ne soit scel
 
 S'il ne pouvait entrer dans la Mer des Âmes Mortes, il ne pourrait jamais quitter le corps du Dieu Ancien. Mais avec sa force actuelle, y pénétrer était impossible. Même le Seigneur Démon des Six Désirs et ses semblables n'en avaient pas la capacité.
 
-La seule personne capable d'entrer était celle qui possédait l'héritage du Dieu Ancien.
+La seule personne capable d'entrer était celle qui possédait l'héritage de puissance du Dieu Ancien.
 
 Wang Lin songea alors en observant l'autre moitié de la sphère géante: la Mer de Sang.
 
@@ -82,9 +82,9 @@ Wang Lin fixa la Mer de Sang, un léger sourire étirant ses lèvres. Il repensa
 
 Mais quelle en était la véritable raison? Il se remémora sa rencontre avec cette immense âme errante sur le point de muter en Dévoreur d'Âmes. L'apparition d'une telle entité n'était pas naturelle.
 
-En tant que Dévoreur d'Âmes, Wang Lin savait que dans le Monde en Décomposition, les territoires des dévoreurs étaient strictement délimités. Si une âme errante s'apprêtait à évoluer, un Dévoreur d'Âmes voisin stopperait net ce processus en la dévorant.
+En tant que Dévoreur d'Âmes, Wang Lin savait que dans le Monde de la Décomposition, les territoires des dévoreurs étaient strictement délimités. Si une âme errante s'apprêtait à évoluer, un Dévoreur d'Âmes voisin stopperait net ce processus en la dévorant.
 
-À moins qu'aucun prédateur ne soit à proximité, une âme errante pourrait-elle réussir sa mutation? Puisqu'un Dévoreur d'Âmes résidait déjà dans le troisième royaume, une telle entité ne devrait pas pouvoir exister. Il était fort probable que des circonstances exceptionnelles et l'aide de forces extérieures aient rendu cela possible.
+À moins qu'aucun prédateur ne soit à proximité, une âme errante pourrait-elle réussir sa mutation? Puisqu'un Dévoreur d'Âmes résidait déjà dans le troisième essai, une telle entité ne devrait pas pouvoir exister. Il était fort probable que des circonstances exceptionnelles et l'aide de forces extérieures aient rendu cela possible.
 
 D'autant plus que le dévoreur semblait être dans un état étrange, comme s'il dormait, inconscient de son environnement. Wang Lin en comprit la réponse.
 
@@ -96,7 +96,7 @@ C'était la seule explication au comportement frénétique des cultivateurs dém
 
 Une pensée traversa son esprit: pour qui tous ces cultivateurs démoniaques travaillaient-ils?
 
-Le retour de Meng le Bossu d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang Qingyue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
+Le retour de Bossu Meng d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang Qingyue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
 
 Wang Lin fixa la Mer de Sang, l'expression sereine. Quelqu'un au sein du corps du Dieu Ancien, capable de contrôler tous ces démoniaques, devait être l'héritier du pouvoir du Dieu Ancien. Il s'agissait sans doute de l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
@@ -168,7 +168,7 @@ Après réflexion, Wang Lin soupira. Il se demanda si les autres éprouvaient au
 
 Ses réserves de pilules s'amenuisaient et son énergie spirituelle liquide était presque épuisée. Après un moment de silence, il se leva et rejoignit Situ Nan et ses parents. Il se prosterna lourdement plusieurs fois devant ses parents, resta un instant hébété, puis, posant son doigt sur son front, quitta l'espace de la Perle Défiant le Ciel.
 
-À l'extérieur de la Mer de Connaissance, le corps de Wang Lin passa d'une forme illusoire à une consistance de plus en plus solide. Il fixa la Mer de Connaissance et soupira. Selon ses plans initiaux, s'il atteignait le stade de l'Âme Naissante, il aurait une chance d'entrer dans la Mer des Âmes Mortes. Peut-être qu'une fois l'héritage obtenu, il pourrait enfin quitter le corps du Dieu Ancien.
+À l'extérieur de la Mer de Connaissance, le corps de Wang Lin passa d'une forme illusoire à une consistance de plus en plus solide. Il fixa la Mer de Connaissance et soupira. Selon ses plans initiaux, s'il atteignait le stade de l'Âme Naissante, il aurait une chance d'entrer dans la Mer des Âmes Mortes. Peut-être que, grâce à l'héritage de mémoire, il pourrait enfin quitter le corps du Dieu Ancien dès son entrée.
 
 Mais pour l'instant, il manquait de certitude.
 
@@ -178,15 +178,15 @@ Sa main droite déchira le vide, créant une faille dans laquelle il s'engouffra
 
 Une fois apparu, il hésita un instant. Ses mains formèrent des sceaux et projetèrent plusieurs traits de lumière spirituelle tout autour de lui, faisant discrètement apparaître des fissures. Puis il déploya résolument son Sens Divin. Immédiatement, les cultivateurs démoniaques qui le traquaient ressentirent sa présence et chargèrent vers lui.
 
-Bientôt, les démoniaques apparurent un à un autour de Wang Lin, affichant des sourires carnassiers. Parmi eux se trouvait Meng le Bossu. En voyant Wang Lin, il laissa poindre un sentiment de dégoût. Sans un mot, sa main droite s'élança pour le saisir.
+Bientôt, les démoniaques apparurent un à un autour de Wang Lin, affichant des sourires carnassiers. Parmi eux se trouvait Bossu Meng. En voyant Wang Lin, il laissa poindre un sentiment de dégoût. Sans un mot, sa main droite s'élança pour le saisir.
 
 Wang Lin restait impassible et d'un calme olympien. Alors que la main de Meng tendait vers lui, il ricana: « Ne voulez-vous pas briser le sceau de votre maître? »
 
-À ces mots, bien que les visages des cultivateurs démoniaques fussent restés impassibles, leurs yeux trahirent une profonde surprise. Meng le Bossu fut frappé de stupeur et interrompit son mouvement.
+À ces mots, bien que les visages des cultivateurs démoniaques fussent restés impassibles, leurs yeux trahirent une profonde surprise. Bossu Meng fut frappé de stupeur et interrompit son mouvement.
 
 Wang Lin nota cette hésitation. Il avait la confirmation de ses soupçons. Il ne lui restait plus qu'à vérifier que leur maître était bien l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
-Le visage de Meng le Bossu devint sombre et incertain. Il laissa échapper un reniflement froid et sa main plongea vers Wang Lin avec une rapidité accrue.
+Le visage de Bossu Meng devint sombre et incertain. Il laissa échapper un reniflement froid et sa main plongea vers Wang Lin avec une rapidité accrue.
 
 Wang Lin affichait une expression d'acier, immobile. Il avait déjà préparé des pièges ici. Si l'un d'eux tentait de le capturer, une faille proche s'ouvrirait pour l'évacuer. Après tout, ils étaient dans le corps du Dieu Ancien, et personne n'en connaissait mieux les recoins que lui.
 
@@ -196,7 +196,7 @@ Au moment où la main de Meng allait s'abattre sur lui, une voix glaciale retent
 
 « Arrête! »
 
-À l'instant même, Meng le Bossu eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Dou Mu. »
+À l'instant même, Bossu Meng eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Après avoir craché plusieurs bouffées de sang noir, il mit un genou à terre. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Dou Mu. »
 
 Simultanément, tous les autres cultivateurs démoniaques mirent eux aussi un genou à terre.
 

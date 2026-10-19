@@ -80,7 +80,7 @@ Wang Lin attachait de l'importance aux liens!
 
 « À ce moment-là, la troisième âme s'éveillera complètement après mon décès. Elle ouvrira le cœur du monde caverneux, s'y rendra et en ouvrira la porte. Le Maître pourra alors quitter le monde caverneux... »
 
-« Les deux autres sceaux sont des préparatifs pour le Maître. Au moment où la porte du monde caverneux menant au Continent Astral Immortel sera poussée, en empruntant la force du Continent Astral Immortel qui s'engouffrera soudain, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la première et la deuxième âme! »
+« Les deux autres sceaux sont des préparatifs pour le Maître. Au moment où la porte du monde caverneux menant au Continent Astral Immortel sera poussée, en empruntant la force du Continent Astral Immortel qui s'engouffrera soudain, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la deuxième et la troisième âme! »
 
 « Alors, tout s'apaisera... » Tandis qu'il parlait, Xie Qing commença à tousser. Il cracha une bouffée de sang qui éclaboussa les orchidées devant lui. Le rouge macula les fleurs, créant un spectacle saisissant.
 

@@ -54,7 +54,7 @@ Bien que tout cela parût glorieux en apparence, cela différait grandement de l
 
 Avec l'intelligence de Shengong Hu, il avait ses propres conjectures.
 
-« Je crains que Xu Mu ne soit pas aussi puissant que je l'imaginais... Je redoute que son niveau de culture ne soit inférieur au mien... Peu importe sa diligence pour accroître sa puissance, il n'est au plus qu'au stade Corporel Yang, comme moi. Hélas. » Le cœur de Shengong Hu était lourd de sentiments complexes alors qu'il détournait son regard du vide.
+« Je crains que Xu Mu ne soit pas aussi puissant que je l'imaginais... Je redoute que son niveau de culture ne soit inférieur au mien... Peu importe sa diligence pour accroître sa puissance, il n'est au plus qu'au sommet du stade Corporel Yang, comme moi. Hélas. » Le cœur de Shengong Hu était lourd de sentiments complexes alors qu'il détournait son regard du vide.
 
 Zhan Konglie éprouvait une amertume similaire. Il était aussi perspicace que Shengong Hu et, lorsque la nouvelle de la traque de Wang Lin par la famille Yao lui parvint, il comprit progressivement la vérité.
 

@@ -18,21 +18,21 @@ Après plusieurs décennies, Wang Lin n'avait effleuré que l'essence du sort c�
 
 Pour être plus précis, les principes régis par ce sort céleste dépassaient largement la portée des cultivateurs ordinaires. C'était un savoir ésotérique qui exigeait une étude et une assimilation constantes avant de pouvoir enfin le maîtriser et l'utiliser.
 
-Wang Lin avait passé de nombreuses années à comprendre progressivement l'Art du Massacre Céleste, atteignant finalement un stade de petite maîtrise complète. Ce sort « Arrêt » suivait la même logique.
+Wang Lin avait passé de nombreuses années à comprendre progressivement l'Art du Massacre Céleste, atteignant finalement un stade de petite perfection. Ce sort « Arrêt » suivait la même logique.
 
 Wang Lin oubliait la notion même du temps, absorbé par ses recherches. Pendant les décennies passées en culture en isolement, la Tribu de l'Affinement de l'Âme avait envoyé de nombreux membres sur le front du Pays du Démon de Feu pour collecter des âmes et renforcer leur propre puissance.
 
-Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays du Démon du Ciel. Au lieu de sortir, les membres de la tribu se mirent à défendre le Pays du Démon du Ciel.
+Tout changea lorsque les troupes d'autres pays pénétrèrent dans le Pays du Démon Céleste. Au lieu de sortir, les membres de la tribu se mirent à défendre leur territoire.
 
 De nombreux membres de la tribu revinrent du Pays du Démon de Feu et commencèrent à combattre les soldats démons des autres nations démoniaques.
 
-Cependant, la puissance de la Tribu de l'Affinement de l'Âme était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité du Démon du Ciel car elle était scellée par le Ancien Démon, ils tournèrent leurs regards vers la Tribu de l'Affinement de l'Âme.
+Cependant, la puissance de la Tribu de l'Affinement de l'Âme était bien trop dérisoire. Ils ne pouvaient que défendre la zone située sous le nuage noir sans pouvoir en sortir. Finalement, lorsque les soldats des autres pays démoniaques réalisèrent qu'ils ne pourraient pas prendre la Cité du Démon Céleste car elle était scellée par l'Ancien Démon, ils tournèrent leurs regards vers la Tribu de l'Affinement de l'Âme.
 
 Après tout, quelque chose de singulier émanait de cette petite tribu. Le nuage noir qui surplombait la tribu et servait de protection naturelle était particulièrement étrange; il avait repoussé les assauts des soldats démons à plusieurs reprises.
 
 Bien entendu, tous les pays démoniaques n'avaient pas jeté leur dévolu sur la Tribu de l'Affinement de l'Âme. Seuls les dirigeants de deux pays l'avaient fait, tandis que les cinq autres concentrèrent leurs efforts sur le Pays du Démon de Feu.
 
-Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au Pays du Démon du Ciel.
+Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au Pays du Démon Céleste.
 
 À cet instant, le Pays du Démon de l'Eau et le Pays du Démon du Tonnerre envoyèrent chacun un vice-commandant en chef escorté de 100 000 soldats démons. L'un venait du nord et l'autre du sud. Les deux armées encerclèrent ainsi la Tribu de l'Affinement de l'Âme.
 
@@ -42,7 +42,7 @@ Quant au Pays du Démon du Tonnerre, son vice-commandant en chef était un homme
 
 « Cette petite tribu sauvage possède un trésor aussi incroyable... C'est intéressant! » Bien que l'homme semble se parler à lui-même, sa voix résonna comme un coup de tonnerre.
 
-« Ce voyage dans le Pays du Démon du Ciel n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
+« Ce voyage dans le Pays du Démon Céleste n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
 
 Le corps de l'homme s'élança rapidement vers le nuage noir. Sa vitesse était prodigieuse; il avait manifestement atteint le stade équivalent d'un cultivateur Ascendant au sommet du stade initial. En un seul bond, il franchit une immense distance pour arriver à la lisière du nuage noir qui entourait la tribu.
 
@@ -116,7 +116,7 @@ D'un seul mot, le monde cessa de bouger!
 
 Tous ceux qui se trouvaient à l'extérieur de la tribu furent figés sur place!
 
-Les membres de la Tribu de l'Affinement de l'Âme semblèrent recevoir un ordre et s'élancèrent pour massacrer! Simultanément, le nuage noir surplombant la tribu s'étira pour couvrir tout le ciel environnant.
+Les membres de la Tribu de l'Affinement de l'Âme semblèrent recevoir un ordre et s'élancèrent pour massacrer! Simultanément, le nuage noir surplombant la tribu descendit du ciel pour envelopper les alentours.
 
 La femme du Pays du Démon de l'Eau fut également pétrifiée. Cependant, après trois respirations, une lumière bleue l'enveloppa. Ses yeux étaient emplis de terreur et elle tenta de fuir sans hésitation.
 
@@ -136,11 +136,11 @@ Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres n
 
 Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays du Démon de Feu.
 
-C'était une lutte à mort entre le Pays du Démon du Ciel et le Pays du Démon de Feu! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que la puissance du Pays du Démon de Feu s'étiolait lentement.
+C'était une lutte à mort entre le Pays du Démon Céleste et le Pays du Démon de Feu! On pourrait même dire qu'il n'y avait ni vainqueur ni vaincu dans ce conflit. Chaque vie était échangée contre une autre, tandis que la puissance du Pays du Démon de Feu s'étiolait lentement.
 
 La capitale du Pays du Démon de Feu était totalement déserte. Même l'Empereur Démon était personnellement entré dans le combat. Hormis la terre sacrée de la Vallée Démoniaque, tout le reste était désert!
 
-L'Ancien Démon du Pays du Démon de Feu avait imité celui du Pays du Démon du Ciel: il avait scellé la capitale pour en interdire l'accès.
+L'Ancien Démon du Pays du Démon de Feu avait imité celui du Pays du Démon Céleste: il avait scellé la capitale pour en interdire l'accès.
 
 La Vallée Démoniaque n'était pas située à l'extérieur de la cité, mais dans ses profondeurs. Une énergie spirituelle démoniaque dense s'en dégageait, enveloppant toute la capitale. Vu de loin, la cité semblait entourée d'une brume démoniaque mêlée à une puissante aura de mort; elle ressemblait à une ville fantôme qui inspirait une profonde tristesse à quiconque la contemplait.
 

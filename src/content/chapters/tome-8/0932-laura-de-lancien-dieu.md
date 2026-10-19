@@ -20,11 +20,11 @@ Lorsqu'il avait décidé de se frayer un chemin par le massacre au sein de l'All
 
 Sous le pointage du doigt de l'Estimé Xuan Bao, la flèche de trois cents pieds trembla. Elle s'élança alors telle une flèche décochée d'un arc, fonçant droit sur le Serpent aux yeux de lune!
 
-Les yeux du Serpent aux yeux de lune révélèrent un froid infini. Dès qu'il aperçut la flèche de trois cents pieds, il ressentit un sentiment de danger. Voyant ce péril foncer sur lui, il ouvrit la gueule et poussa un rugissement. Des éclats de lumière apparurent devant lui et se condensèrent rapidement pour former un autre doigt d'ancien dieu.
+Les yeux du Serpent aux yeux de lune révélèrent un froid infini. Dès qu'il aperçut la flèche de trois cents pieds, il ressentit un sentiment de danger. Voyant ce péril foncer sur lui, il ouvrit la gueule et poussa un rugissement. Des éclats de lumière apparurent devant lui et se condensèrent rapidement pour former un autre doigt du dieu ancien.
 
-Une fois apparu, le doigt d'ancien dieu fonça immédiatement vers la flèche.
+Une fois apparu, le doigt du dieu ancien fonça immédiatement vers la flèche.
 
-Le Serpent aux yeux de lune laissa échapper un rugissement de rage et d'innombrables serpents aux yeux de lune jaillirent de son corps. Ils étaient des centaines, voire un millier, de tailles diverses. À leur apparition, le champ de bataille devint encore plus chaotique.
+Le Serpent aux yeux de lune laissa échapper un rugissement de rage et d'innombrables serpents aux yeux de lune jaillirent de son corps. Ils étaient des centaines, voire un millier, de tailles allant de dix mille à cent mille pieds. À leur apparition, le champ de bataille devint encore plus chaotique.
 
 Ce combat ne se jouait plus entre Luotian et l'Alliance, mais entre l'Alliance et le Serpent aux yeux de lune!
 
@@ -32,11 +32,11 @@ Lorsque ces innombrables serpents jaillirent, les expressions des cultivateurs d
 
 Au milieu du chaos, certains cultivateurs de Luotian furent touchés. Quant à Wang Lin, un serpent aux yeux de lune de trente mille pieds chargea vers lui. L'expression de ce dernier fut sombre alors qu'il l'évitait prestement, refusant de s'enliser dans le combat.
 
-Wang Lin savait que la seule raison pour laquelle ces petits serpents aux yeux de lune apparaissaient était de condenser le doigt d'ancien dieu le plus puissant!
+Wang Lin savait que la seule raison pour laquelle ces petits serpents aux yeux de lune apparaissaient était de condenser le doigt du dieu ancien le plus puissant!
 
-À cet instant, la flèche percuta le doigt d'ancien dieu formé par le Serpent aux yeux de lune. Un fracas tonitruant retentit dans toute la région nord de l'Alliance!
+À cet instant, la flèche percuta le doigt du dieu ancien formé par le Serpent aux yeux de lune. Un fracas tonitruant retentit dans toute la région nord de l'Alliance!
 
-Une aura ancienne émanant de la tache de sang rouge foncé qui recouvrait la flèche brisa directement le doigt d'ancien dieu, puis s'élança droit vers le Serpent aux yeux de lune!
+Une aura ancienne émanant de la tache de sang rouge foncé qui recouvrait la flèche brisa directement le doigt du dieu ancien, puis s'élança droit vers le Serpent aux yeux de lune!
 
 Cette scène fit écarquiller les yeux de Wang Lin sous le choc.
 
@@ -44,27 +44,27 @@ Pour la première fois, le Serpent aux yeux de lune marqua un temps d'arrêt ava
 
 Ce n'était pas le cri d'un seul serpent, mais les rugissements de centaines, voire d'un millier, de serpents aux yeux de lune répondant à l'appel de leur mère!
 
-Des doigts d'ancien dieu apparurent un à un jusqu'à ce que la zone en soit saturée. Tous les pores de Wang Lin s'ouvrirent et l'extase illumina ses yeux alors qu'il absorbait cette aura avec frénésie.
+Des doigts du dieu ancien apparurent un à un jusqu'à ce que la zone en soit saturée. Tous les pores de Wang Lin s'ouvrirent et l'extase illumina ses yeux alors qu'il absorbait cette aura avec frénésie.
 
-Il pouvait clairement sentir la force de son corps d'ancien dieu croître par bonds prodigieux. La quatrième étoile illusoire située entre ses sourcils devenait plus concrète à cet instant même.
+Il pouvait clairement sentir la force de son corps du dieu ancien croître par bonds prodigieux. La quatrième étoile illusoire située entre ses sourcils devenait plus concrète à cet instant même.
 
 Tout cela plongea Wang Lin dans l'allégresse.
 
 « L'aura d'un ancien dieu! Je ne pensais pas qu'une telle aura puisse se former ici. Bien qu'elle soit ténue, elle existe bel et bien! »
 
-D'innombrables doigts d'ancien dieu se formèrent dans la zone et, en un clin d'œil, un doigt presque tangible apparut sous les yeux des cultivateurs environnants!
+D'innombrables doigts du dieu ancien se formèrent dans la zone et, en un clin d'œil, un doigt presque tangible apparut sous les yeux des cultivateurs environnants!
 
 Les étranges fissures sur le doigt étaient extrêmement nettes. Cette scène fit même changer l'expression de l'Estimé Xuan Bao, dont le visage devint sombre.
 
 « Ce Serpent aux yeux de lune diffère légèrement de ce que racontent les anciens registres! Cependant, je possède la Flèche du Pseudo-Vide du Nirvana; peu importe sa puissance, il ne pourra échapper à cette flèche! » L'Estimé Xuan Bao était extrêmement confiant en la force de son arme.
 
-« Bien que ma Flèche du Pseudo-Vide du Nirvana ne soit que de rang 9, si je parviens à capturer ce Serpent aux yeux de lune et à le raffiner, il deviendra un autre trésor du Pseudo-Vide du Nirvana. En fusionnant les deux, grâce aux dizaines de milliers d'années de préparation, j'ai 80 % de chances de créer un trésor de rang 8 du Pseudo-Vide du Nirvana! De cette façon, ma position parmi les Anciens progressera et je pourrai enfin rivaliser avec Zhong Xuanzi! »
+« Bien que ma Flèche du Pseudo-Vide du Nirvana ne soit que de rang 9, si je parviens à capturer ce Serpent aux yeux de lune et à le raffiner, il deviendra un autre trésor du Pseudo-Vide du Nirvana. En fusionnant les deux, grâce aux dizaines de milliers d'années de préparation, j'ai 80 % de chances de créer un trésor de rang 8 du Pseudo-Vide du Nirvana! De cette façon, ma position parmi les Anciens progressera et je pourrai enfin rivaliser avec Zhong Xuan! »
 
-La Flèche du Pseudo-Vide du Nirvana chargea jusqu'à percuter le doigt d'ancien dieu qui venait de se reformer.
+La Flèche du Pseudo-Vide du Nirvana chargea jusqu'à percuter le doigt du dieu ancien qui venait de se reformer.
 
-Le rugissement du Serpent aux yeux de lune se mua en un impact, et son corps colossal s'élança à la suite du doigt d'ancien dieu. Pourtant, au moment où la flèche heurta le doigt, un changement terrifiant survint dans la région nord de l'Alliance!
+Le rugissement du Serpent aux yeux de lune se mua en un impact, et son corps colossal s'élança à la suite du doigt du dieu ancien. Pourtant, au moment où la flèche heurta le doigt, un changement terrifiant survint dans la région nord de l'Alliance!
 
-Le doigt d'ancien dieu s'effondra subitement! Un grondement de tonnerre retentit et tous les cultivateurs aux alentours, y compris Wang Lin, sentirent le sang bouillonner dans leurs veines avant de cracher violemment.
+Le doigt du dieu ancien s'effondra subitement! Un grondement de tonnerre retentit et tous les cultivateurs aux alentours, y compris Wang Lin, sentirent le sang bouillonner dans leurs veines avant de cracher violemment.
 
 Si Wang Lin en était réduit à cela, il n'en était rien autrement pour les autres: leurs corps s'écrasèrent instantanément en amas de chair et de sang. Ils furent terrassés par l'onde de choc!
 
@@ -72,7 +72,7 @@ Même le Dieu de Sang et ses compagnons virent leurs expressions changer radical
 
 Seuls les quatre gardes célestes dorés restaient accrochés au serpent, travaillant de concert avec les neuf papillons noirs pour perpétuer la tempête.
 
-À l'instant où le doigt d'ancien dieu s'effondra, plus de la moitié des petits serpents aux yeux de lune furent pulvérisés!
+À l'instant où le doigt du dieu ancien s'effondra, plus de la moitié des petits serpents aux yeux de lune furent pulvérisés!
 
 Des jaillissements de sang bleu éclatèrent, donnant l'impression que l'espace lui-même était teint de bleu!
 
@@ -82,7 +82,7 @@ Le Serpent aux yeux de lune était une créature vivant au sein du corps d'un an
 
 « À quel niveau de trésor appartient cette Flèche du Pseudo-Vide du Nirvana?! » Wang Lin essuya le sang sur sa bouche en contemplant la scène, l'esprit totalement embrumé.
 
-Parallèlement aux petits serpents et au doigt d'ancien dieu, la Flèche du Pseudo-Vide du Nirvana de l'Estimé Xuan Bao s'effondra également. D'innombrables fissures parcoururent l'arme sous l'impact inimaginable du doigt d'ancien dieu, jusqu'à ce qu'elle se brise morceau par morceau.
+Parallèlement aux petits serpents et au doigt du dieu ancien, la Flèche du Pseudo-Vide du Nirvana de l'Estimé Xuan Bao s'effondra également. D'innombrables fissures parcoururent l'arme sous l'impact inimaginable du doigt du dieu ancien, jusqu'à ce qu'elle se brise morceau par morceau.
 
 Les yeux de l'Estimé Xuan Bao brillèrent intensément. Bien que les événements aient légèrement dévié de ses prévisions, l'issue restait globalement conforme à ses attentes.
 

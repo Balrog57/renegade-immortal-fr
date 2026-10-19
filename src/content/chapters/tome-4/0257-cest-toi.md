@@ -88,7 +88,7 @@ L'homme sourit: « Les affaires ne vont pas fort ces derniers temps. Le fait d'a
 
 Wang Lin sourit sans dire un mot, se contentant d'observer la représentation. Cet homme s'appelait Li, mais Wang Lin ignorait son prénom. Deux ans auparavant, cet homme était venu voir Wang Lin et avait engagé sa boutique en gage pour emprunter vingt pièces d'or. À ce jour, il n'avait toujours pas remboursé la dette; la boutique appartenait donc désormais à Wang Lin.
 
-Durant l'année écoulée, il voyait Wang Lin venir chaque jour. Cela le rendait très nerveux, alors il venait souvent vérifier les intentions du propriétaire.
+Durant l'année écoulée, il voyait Wang Lin venir presque chaque jour. Cela le rendait très nerveux, alors il venait souvent vérifier les intentions du propriétaire.
 
 Alors que le regard de la jolie chanteuse balayait la foule sous les acclamations, une voix libertine s'éleva de l'extérieur: « Hé, cette petite merveille chante divinement! Elle m'a attiré depuis le nord de la ville! »
 
@@ -100,7 +100,7 @@ Le vieillard le fixa et rétorqua: « Tu oses me toucher? Si tu me touches, je m
 
 Quand Wang Lin vit le vieil homme, l'étincelle qui n'avait pas brillé dans ses yeux depuis des années s'enflamma soudainement. Ce vieillard n'était pas n'importe qui: c'était celui qui lui avait soutiré un repas six ou sept ans auparavant.
 
-Le propriétaire de l'auberge, assis près de Wang Lin, s'approcha. Il fouilla dans ses poches, en sortit une pièce de bronze et la lança au vieillard: « Voilà votre argent, partez vite, quelle malchance. »
+Le propriétaire de l'auberge, assis en face de Wang Lin, se leva et alla vers la porte. Il fouilla dans ses poches, en sortit une pièce de bronze et la lança au vieillard: « Voilà votre argent, partez vite, quelle malchance. »
 
 Le vieil homme ramassa la pièce et la mordit, s'en mettant du vert-de-gris plein la bouche. Il sourit au serveur: « C'est du vrai. Plus dur que l'or. Voyez-vous, votre patron sait comment faire. Humph, humph! » Il lança la pièce dans la main du serveur en ajoutant: « Une théière de thé! »
 

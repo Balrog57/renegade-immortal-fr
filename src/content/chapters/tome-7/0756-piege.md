@@ -58,7 +58,7 @@ Cependant, l'individu à l'origine de ce chaos n'en avait cure. Même si le Roya
 
 « Petit morveux de Wang Lin, tu ne pourras pas t'échapper la prochaine fois! » La silhouette rouge se retourna et disparut d'un seul pas.
 
-Cet homme était l'Ancêtre de Sang. Depuis son arrivée dans le Royaume Céleste du Tonnerre, il n'avait recherché aucun trésor, se déplaçant le plus rapidement possible à travers les divers fragments.
+Cet homme était l'Ancêtre Sanguin. Depuis son arrivée dans le Royaume Céleste du Tonnerre, il n'avait recherché aucun trésor ni sortilège céleste, se déplaçant le plus rapidement possible à travers les divers fragments.
 
 Chaque fois qu'il atteignait un fragment, il le scannait de son Sens Divin avant de repartir.
 
@@ -78,7 +78,7 @@ Wang Lin sortit, l'expression extrêmement sombre. Son humeur était encore affe
 
 S'il n'avait pas possédé le sort lié à son troisième œil, la situation aurait été désastreuse! De même, sans la Restriction d'Annihilation de Li Yuan, même avec le réseau de transfert devant lui, il n'aurait pu s'échapper.
 
-« L'Ancêtre de Sang... » Wang Lin fronça les sourcils.
+« L'Ancêtre Sanguin... » Wang Lin fronça les sourcils.
 
 À cet instant, Li Yuan sortit également du réseau de transfert. Du sang coulait de sa bouche lorsqu'il apparut. Il s'assit immédiatement et commença à cultiver.
 
@@ -88,9 +88,9 @@ Peu après, il retira son Sens Divin, le visage plus sombre encore. Les déchiru
 
 « Bien que la situation soit ainsi, au moins cet endroit est sûr! » Wang Lin observa silencieusement la vallée lointaine et commença à peser ses options.
 
-« L'Ancêtre de Sang est réellement venu dans le Système Stellaire Luotian... Lorsqu'il est apparu, il ne m'a même pas laissé le temps de parler avant de tenter de me capturer. Il était manifestement prêt à fouiller mon âme pour découvrir où se trouve Yao Xixue... » Wang Lin toucha son sac de rangement.
+« L'Ancêtre Sanguin est réellement venu dans le Système Stellaire Luotian... Lorsqu'il est apparu, il ne m'a même pas laissé le temps de parler avant de tenter de me capturer. Il était manifestement prêt à fouiller mon âme pour découvrir où se trouve Yao Xixue... » Wang Lin toucha son sac de rangement.
 
-« Si je livre Yao Xixue, l'Ancêtre de Sang viendra-t-il toujours à ma poursuite... » Après avoir réfléchi un instant, Wang Lin fit sortir le garde céleste pour monter la garde auprès de Li Yuan. Puis, d'un revers de main, il isola les environs. Il frappa ensuite son sac de rangement et une sphère de restriction en sortit. Elle grandit jusqu'à atteindre la taille d'un homme avant de s'ouvrir telle une fleur de lotus.
+« Si je livre Yao Xixue, l'Ancêtre Sanguin viendra-t-il toujours à ma poursuite... » Après avoir réfléchi un instant, Wang Lin fit sortir le garde céleste pour monter la garde auprès de Li Yuan. Puis, d'un revers de main, il isola les environs. Il frappa ensuite son sac de rangement et une sphère de restriction en sortit. Elle grandit jusqu'à atteindre la taille d'un homme avant de s'ouvrir telle une fleur de lotus.
 
 Lorsque la sphère s'ouvrit, Yao Xixue apparut, assise en position du lotus, ses longs cheveux couvrant ses épaules. Plus d'un siècle d'emprisonnement l'avaient rendue fragile. À cet instant, ses cils frémirent et elle ouvrit les yeux. En voyant Wang Lin, une lueur de confusion passa dans son regard, aussitôt remplacée par une parfaite clarté.
 
@@ -110,11 +110,11 @@ Alors que Wang Lin fixait Yao Xixue, son regard se glaça. Il forma rapidement q
 
 Il se leva ensuite, scruta l'horizon et se mit à réfléchir.
 
-« Te libérer... ou non... cela ne dépend pas de moi, mais de l'Ancêtre de Sang! » Les yeux de Wang Lin étaient féroces. Puis, d'une simple pensée, il leva les restrictions environnantes et se tourna vers Li Yuan.
+« Te libérer... ou non... cela ne dépend pas de moi, mais de l'Ancêtre Sanguin! » Les yeux de Wang Lin étaient féroces. Puis, d'une simple pensée, il leva les restrictions environnantes et se tourna vers Li Yuan.
 
 Un instant plus tard, Li Yuan ouvrit lentement les yeux en expulsant une bouffée d'air vicié. Ses yeux révélèrent une pointe de terreur lorsqu'il demanda: « Frère Xu, qui est cette personne?! »
 
-Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit: « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre de Sang. Sa culture est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
+Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit: « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre Sanguin. Sa culture est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
 
 Li Yuan esquissa un sourire amer: « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que, s'il n'est pas au stade du Briseur du Nirvana, il soit au moins un cultivateur du Purificateur du Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Luotian... Comment avez-vous pu provoquer un tel être? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
 
@@ -142,7 +142,7 @@ S'élevant toujours plus haut, Li Yuan scruta l'horizon. Ses yeux furent frappé
 
 L'expression de Li Yuan changea et de nouvelles fissures surgirent autour de lui. Face à une telle multiplication des failles, même le garde céleste n'était pas assez rapide. Ils se retrouvèrent soudain en situation critique.
 
-Wang Lin fit un pas en avant et frappa son sac de rangement, faisant apparaître le Paravent Montagne et Rivière. La peinture du paysage recouvrit le ciel et absorba instantanément la plupart des déchirures spatiales. Wang Lin profita de cette opportunité pour s'élancer et ramener Li Yuan de force.
+Wang Lin fit un pas en avant et frappa son sac de rangement, faisant apparaître l'Écran des Montagnes et des Rivières. La peinture du paysage recouvrit le ciel et absorba instantanément la plupart des déchirures spatiales. Wang Lin profita de cette opportunité pour s'élancer et ramener Li Yuan de force.
 
 Au moment où la faille sous Li Yuan tentait de les aspirer, les deux hommes et le garde céleste furent instantanément ramenés au sol.
 
@@ -158,4 +158,4 @@ Un éclat mystérieux traversa les yeux de Wang Lin alors qu'il demandait lentem
 
 Li Yuan fut surpris et acquiesça: « Oui, cet endroit n'est pas un fragment comme l'extérieur. Une fois qu'il s'effondre, une force dévastatrice provoquera instantanément la destruction de tout ce qu'il contient, ne laissant aucune trace. Cependant, Frère Xu peut être rassuré, car en l'absence d'interférences extérieures, cet endroit ne devrait pas s'effondrer. À moins que... vous... pourriez-vous...? » En parlant, Li Yuan eut une pensée soudaine et prit une inspiration glacée.
 
-Le regard de Wang Lin se fit glacial et il murmura doucement: « Si c'est le cas, alors peut-être pourrais-je tendre un piège pour me débarrasser de l'Ancêtre de Sang! »
+Le regard de Wang Lin se fit glacial et il murmura doucement: « Si c'est le cas, alors peut-être pourrais-je tendre un piège pour me débarrasser de l'Ancêtre Sanguin! »

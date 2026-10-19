@@ -10,11 +10,11 @@ Au moment où le gigantesque Ancien Dieu ouvrit les yeux, la faille spatiale dan
 
 Ses yeux étaient aussi calmes qu'une mer morte, révélant le passage éternel du temps. Sa peau rugueuse rappelait la terre d'une planète abandonnée et desséchée. Le géant fixa silencieusement le vide, et son expression devint progressivement féroce.
 
-Huit étoiles ternes ornaient son front; mais alors que ses yeux s'ouvraient et qu'il s'éveillait de son long sommeil, une lumière jaillit de la première étoile de l'Ancien Dieu.
+Huit étoiles ternes ornaient son front; mais alors que ses yeux s'ouvraient et qu'il s'éveillait de son long sommeil, une lueur apparut lentement sur la première étoile de l'Ancien Dieu.
 
 Un grondement tonnerreux résonna à travers toute la faille spatiale. Ce son était bien plus puissant que le tonnerre, mais si l'on tendait l'oreille, on percevrait qu'il s'agissait du bruit d'os se frottant les uns contre les autres.
 
-Son corps avait la taille de plusieurs planètes de culture, et une telle planète n'était qu'un jouet face à lui. L'Ancien Dieu se redressa lentement. La distance que ce géant parcourut simplement pour se lever aurait nécessité plusieurs heures à un cultivateur ignorant la Manipulation Spatiale pour être franchie...
+Son corps avait la taille de plusieurs planètes de culture, et une telle planète n'était qu'un jouet face à lui. L'Ancien Dieu se redressa lentement. La distance que ce géant parcourut simplement pour se lever aurait nécessité plusieurs heures à un cultivateur ignorant la Déformation Spatiale pour être franchie...
 
 Wang Lin fixait le gigantesque Ancien Dieu devant lui. À l'instant où celui-ci se redressa, une bourrasque de vent s'abattit sur lui, projetant Wang Lin et tous ceux qui l'entouraient en arrière. Seul le vieil homme en noir restait immobile, fixant l'horizon d'un regard empreint de mystère.
 
@@ -82,7 +82,7 @@ Seul Wang Lin fixait Tuo Sen, et plus particulièrement l'étoile située sur so
 
 « Enterrer le vide pour affiner les étoiles! »
 
-« Déchets! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Manipulation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
+« Déchets! » Un bourdonnement retentit alors que Tuo Sen agitait ses mains vers le vieil homme, provoquant une immense rafale de vent. Ses bras se déplacèrent avec la rapidité d'une Déformation Spatiale et encerclèrent instantanément le vieil homme. Ses deux mains étaient comme deux planètes de culture s'écrasant sur lui.
 
 Le visage du vieil homme devint à nouveau pourpre et ses vêtements gonflèrent. Il écarta ses bras gauche et droit dans un rugissement, faisant condenser une énergie originelle infinie devant lui. Des glaciers apparurent soudainement, suivis d'une mer de flammes. Puis, par-delà cela, d'innombrables montagnes surgirent, suivies d'un tonnerre infini...
 

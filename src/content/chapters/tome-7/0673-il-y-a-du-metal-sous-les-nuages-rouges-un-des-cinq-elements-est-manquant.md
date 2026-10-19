@@ -16,25 +16,25 @@ Après les avoir rangées, Wang Lin saisit le jeton et l'examina avec son sens d
 
 À première vue, ce jeton n'avait rien de spécial; c'était un simple objet d'identification. Peu importe le nombre de fois où Wang Lin le sondait, il restait identique.
 
-Pourtant, Wang Lin sentait que quelque chose clochait. Il réfléchit un instant avant de s'exclamer: « Gardien céleste! »
+Pourtant, Wang Lin sentait que quelque chose clochait. Il réfléchit un instant avant de s'exclamer: « Garde céleste! »
 
-L'ombre sous ses pieds s'étira rapidement hors de son corps, glissa le long de sa peau et s'enroula autour du jeton. Wang Lin ferma les yeux et emprunta la culture du gardien céleste pour voir immédiatement à travers l'objet!
+L'ombre sous ses pieds s'étira rapidement hors de son corps, glissa le long de sa peau et s'enroula autour du jeton. Wang Lin ferma les yeux et s'appuya sur les variations yin-yang et vide-plein du garde céleste pour voir immédiatement à travers l'objet!
 
 Peu après, Wang Lin ouvrit les yeux, affichant une expression sombre.
 
 « Ce jeton est fait de matériaux ordinaires, mais un sortilège est dissimulé en son sein. Ce sort est lié à l'âme; je présume donc que la famille Huan sait qu'un de ses membres est mort. »
 
-Après réflexion, Wang Lin posa le jeton et saisit le dernier objet: la pierre de jade. Celle-ci ne portait aucune trace de sens divin. La seule chose qu'elle contenait était un fragment du ressentiment du défunt.
+Après réflexion, Wang Lin posa le jeton et saisit le dernier objet: la tablette de jade. Celle-ci ne portait aucune trace de sens divin. La seule chose qu'elle contenait était un fragment du ressentiment du défunt.
 
-« Les trois d'entre eux devaient être terrifiés pour ne même pas oser l'examiner avec leur sens divin. Autrement, ce fragment de ressentiment aurait été instantanément détruit dès que leur sens divin aurait pénétré dans le trésor. » Les yeux de Wang Lin s'illuminèrent et son sens divin pénétra la pierre de jade. Le fragment de ressentiment fut aussitôt anéanti.
+« Les trois d'entre eux devaient être terrifiés pour ne même pas oser l'examiner avec leur sens divin. Autrement, ce fragment de ressentiment aurait été instantanément détruit dès que leur sens divin aurait pénétré dans le trésor. » Les yeux de Wang Lin s'illuminèrent et son sens divin pénétra la tablette de jade. Le fragment de ressentiment fut aussitôt anéanti.
 
 Au moment où son sens divin entra, une onde invisible se propagea en commençant à se dissiper. Alors qu'elle était sur le point de franchir les limites de la demeure de Wang Lin, ses yeux s'illuminèrent soudainement et des éclairs jaillirent de son regard.
 
-Parmi les crépitements de la foudre, l'onde émise par la pierre de jade fut totalement broyée par les éclairs et se dissipa.
+Parmi les crépitements de la foudre, l'onde émise par la tablette de jade fut totalement broyée par les éclairs et se dissipa.
 
-« J'ai effacé le sortilège de message qui était laissé sur la pierre de jade. » Wang Lin étudia attentivement les informations enregistrées dans le jade. Après un long moment, il retira son sens divin, ses yeux brillant de plus en plus intensément!
+« J'ai effacé le sortilège de message qui était laissé sur la tablette de jade. » Wang Lin étudia attentivement les informations enregistrées dans le jade. Après un long moment, il retira son sens divin, ses yeux brillant de plus en plus intensément!
 
-« C'est bel et bien le Domaine de l'Illusion Cruelle! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions! » Cette pierre de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
+« C'est bel et bien le Domaine de l'Illusion Cruelle! Ainsi, c'est ainsi que fonctionne la famille Huan de la planète des Mille Illusions! » Cette tablette de jade contenait la méthode de culture des sorts d'illusion de la famille Huan. Cependant, de nombreuses restrictions spéciales pesaient sur les parties clés, de sorte que même si un étranger s'en emparait, il ne pourrait pas l'apprendre.
 
 Le seul moyen de briser ces restrictions était le lignage.
 
@@ -42,7 +42,7 @@ Si cela avait été le seul cas, cela ne l'aurait pas autant troublé. Ce qui at
 
 « Sur la planète Yun Xia, j'ai découvert une veine de métal à flamme. J'en ai pris deux morceaux... »
 
-La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de pierres à feu de l'élément métal... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Quiconque la découvre s'empresse de s'en emparer et d'étouffer toute information à ce sujet. »
+La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de pierres à feu de l'élément métal... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Face à un tel trésor céleste et terrestre, quiconque le découvre s'empresse de s'en emparer et d'étouffer toute information à ce sujet. »
 
 « Cela confirme que les trois n'ont pas examiné cette pierre, sinon ils ne m'auraient pas laissé entrer ici... Bien sûr, je ne peux exclure l'éventualité que quelque chose d'autre se cache derrière tout cela. »
 
@@ -58,15 +58,15 @@ Wang Lin rangea ses affaires, les yeux brillants de réflexion.
 
 Sun Xi était assis en position de lotus dans le foyer ancestral de la famille Sun, prêt pour sa culture. Cependant, il sursauta et tourna brusquement la tête en entendant la voix de Wang Lin.
 
-« Gravez tout ce que vous savez sur la carte du système stellaire de Luotian et envoyez-la-moi. »
+« Gravez sur une tablette de jade tout ce que vous savez de la carte du système stellaire de Luotian et envoyez-la-moi. »
 
-Les yeux de Sun Xi s'illuminèrent et il hocha légèrement la tête. Il sortit un morceau de jade, se concentra un instant dessus, puis le lança immédiatement; l'objet disparut au loin.
+Les yeux de Sun Xi s'illuminèrent et il hocha légèrement la tête. Il sortit une tablette de jade, se concentra un instant dessus, puis le lança immédiatement; l'objet disparut au loin.
 
 Dix jours passèrent en un clin d'œil. Wang Lin avait déjà récupéré le jade et découvert la localisation de la planète Yun Xia. Cependant, cette planète était assez éloignée. Selon ses calculs, sans imprévu, un aller-retour lui prendrait plusieurs mois.
 
-Le jade contenait une note de Sun Xi: aucun cultivateur ne vivait sur la planète Yun Xia, car elle était saturée d'un poison capable de les tuer.
+Le jade contenait une note de Sun Xi: aucun cultivateur ne vivait sur la planète Yun Xia, planète abandonnée saturée de brouillards toxiques et de miasmes capables de les tuer.
 
-La pierre de jade en main, Wang Lin commença à réfléchir. Durant ces dix jours, il étudia minutieusement la carte et la mémorisa, tout en organisant ses trésors.
+La tablette de jade en main, Wang Lin commença à réfléchir. Durant ces dix jours, il étudia minutieusement la carte et la mémorisa, tout en organisant ses trésors.
 
 Ce jour-là, Wang Lin se leva et sortit de la maison. Il disparut pour réapparaître à des dizaines de milliers de kilomètres de la ville, avant de foncer droit vers l'atmosphère.
 
@@ -92,7 +92,7 @@ Wang Lin fronça les sourcils. Soudain, son expression changea et il leva la tê
 
 Les visages des trois autres changèrent également. Ils levèrent les yeux vers les cieux.
 
-À cet instant, à l'extérieur de la planète Ran Yun, Huan Dong approchait rapidement. Ses yeux étaient froids et empreints d'arrogance alors qu'il fonçait droit sur la planète.
+À cet instant, à l'extérieur de la planète Ran Yun, Huan Dong approchait rapidement, monté sur sa boussole stellaire. Ses yeux étaient froids et empreints d'arrogance alors qu'il fonçait droit sur la planète.
 
 « Mademoiselle m'a confié cette affaire; je dois donc le faire proprement pour qu'elle remarque mon mérite! Tous les impliqués seront éliminés! » Le fanatisme dans les yeux de Huan Dong s'intensifiait.
 

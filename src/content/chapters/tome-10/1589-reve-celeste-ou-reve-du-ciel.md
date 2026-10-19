@@ -12,7 +12,7 @@ Cette particule de poussière marquait le lieu de la calamité de Wang Lin...
 
 Après la disparition du Vieux Fantôme Zhan, des ondulations de plus en plus nombreuses résonnèrent autour de la planète Suzaku. Bientôt, ces ondes couvrirent tout le ciel et des silhouettes sortirent anxieusement des ombres. Maître Hong Shan, Maître Nan Yunzi, Qing Lin, Qing Shui... et bien d'autres.
 
-Ils n'apparurent pas tous d'un coup, mais l'un après l'autre. De puissants Sens Divins balayèrent la zone jusqu'à ce qu'ils se fixent sur la particule de poussière effondrée. Chacun médita silencieusement.
+Ils n'apparurent pas tous d'un coup, mais l'un après l'autre. De puissants Sens Divins balayèrent la zone jusqu'à ce qu'ils se fixent sur la particule de poussière effondrée. Tous restèrent silencieux.
 
 Ils ne parvenaient pas à ressentir l'aura de Wang Lin. Tout comme lorsqu'il avait disparu autrefois, c'était comme s'il était mort.
 
@@ -22,11 +22,11 @@ Les yeux de Maître Hong Shan étaient emplis de chagrin. Après un long moment,
 
 Qing Shui leva les yeux vers les étoiles lointaines et son regard devint glacial. Une aura d'essence meurtrière se dégagea de son corps et enveloppa la zone.
 
-« Je prendrai sa place... et je me posterai à la station de combat de la Mer des Nuages. » Qing Shui ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
+« Je prendrai sa place... et je me retirerai en culture fermée à la station de combat de la Mer des Nuages. » Qing Shui ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
 
 Qing Shui renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer des Nuages.
 
-« Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour obtenir ma vengeance! » Qing Shui ferma les yeux pour dissimuler sa douleur.
+« Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour te venger! » Qing Shui ferma les yeux pour dissimuler sa douleur.
 
 Beaucoup de ceux qui étaient présents savaient pertinemment que Wang Lin ne pouvait éviter cette calamité. Ils savaient que le Royaume Extérieur avait planifié cela depuis longtemps, agissant dans l'ombre pour échapper à leur détection et lancer son assaut.
 
@@ -42,7 +42,7 @@ Dans la ville impériale du pays de Zhao, la vieille maison et la cour étaient 
 
 Quelques cruches de vin vides reposaient sur le sol; il n'y avait plus une goutte du vin de la famille Ceng à l'intérieur.
 
-Seule subsistait la statue géante, tenant la hache fend-ciel et contemplant les astres. Elle semblait être devenue une existence éternelle...
+Seule subsistait la statue géante, tenant la hache fend-ciel et fixant le ciel. Elle semblait être devenue une existence éternelle...
 
 Quelques jours plus tard, un jeune homme au visage froid se tint silencieusement sous la statue. Il s'agenouilla lentement et se prosterna, des larmes coulant au coin de ses yeux.
 
@@ -68,7 +68,7 @@ Quelques jours plus tard, une femme vêtue d'une jupe rose aux motifs aquatiques
 
 Quelques jours plus tard, quelques mois plus tard... Le passage du temps semblait avoir été englouti par le vide. Il n'y avait ni commencement ni fin, seulement deux corps brisés...
 
-Cet endroit était un vide obscur, sans vie ni matière. Le silence y régnait depuis toujours. Dans ce néant, une faible lueur couleur sang formait un cercle. À l'intérieur de ce cercle, le corps de Wang Lin s'effondrait massivement, couvert de cicatrices.
+Cet endroit était un vide obscur, sans vie ni matière. Le silence y régnait depuis toujours. Dans ce néant, une faible lueur couleur sang, traversée d'un éclat doré, formait un cercle. À l'intérieur de ce cercle, le corps de Wang Lin s'effondrait massivement, couvert de cicatrices.
 
 À ses côtés, les yeux du fou étaient clos, mais son visage était livide. Son corps ne présentait aucune blessure, pourtant une lumière aux sept couleurs brillait entre ses sourcils. La lance aux sept couleurs ne pouvait blesser le corps immortel du fou, mais elle pouvait atteindre son âme, devenue vulnérable après la grave blessure du passé...
 

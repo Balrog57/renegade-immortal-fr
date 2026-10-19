@@ -8,7 +8,7 @@ slug: que-le-grand-empyrean-les-voie
 ---
 « Ne parle pas! » dit soudain Wang Lin, les yeux étincelants. Il leva les yeux vers le rideau de lumière où l'ombre formée par la paume brisée le fixait en retour.
 
-« Ce rideau de lumière va bientôt se rompre. Contrôle la formation pour qu'elle éclate, et utilise la force du chaos pour nous propulser dehors le plus vite possible!
+« Ce rideau de lumière va bientôt se rompre. Contrôle la formation pour qu'elle éclate, et utilise la force de l'effondrement pour nous propulser dehors le plus vite possible!
 
 « Au moment de notre sortie, nous utiliserons tous les deux nos sorts les plus puissants! Je suppose que tu as déjà deviné que ton maître est ici! » Wang Lin regarda la silhouette vague tout en envoyant soudain un message à l'Exalté Empyréen Hai Zi.
 
@@ -32,25 +32,25 @@ Malgré sa jeunesse, il était enveloppé d'une aura antique. Il dégageait un c
 
 Il s'agissait du Grand Empyréen Dao Yi!
 
-À quelques dizaines de pieds de lui se tenait la seconde figure: un homme d'âge moyen à la silhouette élancée, plus grand que le Grand Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
+À quelques dizaines de pieds de lui se tenait la seconde figure: un homme d'âge moyen à la carrure imposante, plus grand que le Grand Empyréen Dao Yi. Il portait de simples vêtements de lin et gardait les mains derrière le dos.
 
-Bien qu'il n'eût pas de cheveux, il ne paraissait pas pour autant chauve. Son expression était rude et ses traits peu gracieux, mais il dégageait l'allure d'une tempête imminente. Ses yeux révélaient une aura terrifiante qui faisait trembler le monde sous ses pieds.
+Bien qu'il n'eût pas de cheveux, il ne paraissait pas pour autant chauve. Son expression était rude et ses traits peu gracieux, mais il donnait l'impression d'affronter une tempête de poussière. Ses yeux révélaient une aura terrifiante qui faisait trembler le monde sous ses pieds.
 
 Quiconque croisait son regard en oubliait tout, ne gardant en mémoire que ce regard saisissant! Il restait serein, dégageant une puissance colossale sans jamais paraître colérique.
 
-Une aura indicible se propageait autour de lui. Elle semblait représenter la limite même du Dao Céleste, l'apogée des arts martiaux! C'était comme si cet homme avait atteint le Dao par les arts martiaux, utilisant ces derniers pour briser le monde et accéder au rang de Grand Empyréen!
+Une aura indicible se propageait autour de lui. Elle semblait représenter la limite même du Dao Céleste, l'apogée des arts martiaux! C'était comme si cet homme avait atteint le Dao par les arts martiaux, brisé la voie des immortels grâce au Dao, ouvert ciel et terre et accédé au rang de Grand Empyréen!
 
 Puis, dès son ascension, il avait scellé ses propres arts martiaux pour revenir à l'origine et ne faire qu'un avec le monde! Voilà pourquoi son nom était Wu Feng!
 
 Initialement, rien ne bougeait dans la zone entourant Dao Yi, mais les cheveux et les vêtements de cet homme flottaient comme sous l'effet d'un vent invisible. Il semblait que l'aura de Dao Yi n'avait aucune prise sur lui.
 
-La dernière figure était un vieil homme en robe bleue, debout, imperturbable. Rien d'extraordinaire ne se dégageait de lui; il ressemblait à un cultivateur ordinaire, l'apparence banale et le dos légèrement voûté.
+La dernière figure était un vieil homme en robe verte, debout, imperturbable. Rien d'extraordinaire ne se dégageait de lui; il ressemblait à un cultivateur ordinaire, l'apparence banale et le dos légèrement voûté.
 
-Son visage était sillonné de rides et ses yeux manquaient d'éclat. Il paraissait chétif et mélancolique, pourtant il demeurait indemne face à l'aura de Dao Yi qui gelait tout sur son passage, et c'était comme si l'aura unique de Wu Feng n'existait même pas à ses yeux.
+Son visage était sillonné de rides et ses yeux manquaient d'éclat. Il paraissait chétif et abattu, pourtant il demeurait indemne face à l'aura de Dao Yi qui gelait tout sur son passage, et c'était comme si l'aura unique de Wu Feng n'existait même pas à ses yeux.
 
-« Jiu Di, votre disciple s'est libérée », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyréens actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste régnait encore.
+« Jiu Di, votre disciple s'est libérée », sourit Dao Yi en regardant le vieil homme en vert. Bien que ce dernier paraisse banal, Dao Yi savait que Jiu Di était le plus ancien des cinq Grands Empyréens actuels. La rumeur disait qu'il était un cultivateur de l'époque où l'Ancêtre Céleste existait encore.
 
-Son nom d'origine était Jiu (Neuf) Di, et il était autrefois d'une beauté exceptionnelle. Cependant, après d'innombrables années et neuf réincarnations, le Jiu était devenu Jiu (Long)!
+Son nom d'origine était Jiu (Neuf) Di, et il était autrefois d'une allure héroïque et d'une grande prestance. Cependant, après d'innombrables années et neuf réincarnations, le Jiu était devenu Jiu (Long)!
 
 Le vieil homme à la robe verte déclara lentement: « Sans vous deux, mon disciple se serait déjà échappé depuis longtemps. »
 
@@ -98,9 +98,9 @@ La lumière franchit la couche d'encre à la surface et frappa de plein fouet le
 
 « Un sortilège de foi! » s'exclama le Grand Empyréen Dao Yi, les yeux brillants.
 
-« C'est un cultivateur de rang Exalté Empyréen, mais il possède une telle puissance de foi! » nota le Grand Empyréen Wu Feng, son regard trahissant une immense puissance.
+« Une telle conviction! » nota le Grand Empyréen Wu Feng, son regard se faisant acéré.
 
-Seul le vieil homme en robe bleue fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste très ordinaire, sans la moindre illusion, comme un mortel qui pointerait au hasard.
+Seul le vieil homme en robe verte fronça les sourcils. Il leva la main droite et pointa l'eau en contrebas d'un geste très ordinaire, sans la moindre illusion, comme un mortel qui pointerait au hasard.
 
 Alors que la mer était transpercée par cette lumière infinie, des grondements de tonnerre éclatèrent. L'océan semblait bouillir dans un tourbillon frénétique, tandis qu'un doigt gigantesque semblait s'abattre vers les profondeurs!
 
@@ -118,6 +118,6 @@ La paume brisée fut repoussée par le doigt, mais un rugissement féroce retent
 
 C'était comme si sa majesté ne souffrait pas d'être bafouée d'un simple doigt!
 
-Les yeux du vieil homme en robe bleue brillèrent et il fit un pas en avant. Il se posta entre l'Exalté Empyréen Hai Zi et la paume brisée, tout en levant la main droite!
+Les yeux du vieil homme en robe verte brillèrent et il fit un pas en avant. Il se posta entre l'Exalté Empyréen Hai Zi et la paume brisée, tout en levant la main droite!
 
 « Maître... » murmura l'Exalté Empyréen Hai Zi en regardant le vieil homme. Elle resta pensive un instant, incapable de détacher son regard de la direction prise par Wang Lin. Une expression complexe sur le visage, elle laissa échapper un soupir.

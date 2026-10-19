@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 215 - Lou Yue
 slug: lou-yue
 ---
-Le vin n'était pas épicé. Il possédait une certaine douceur sèche, bien différente des liquides spirituels. Cependant, dès que le vin atteignit son estomac, une sensation de chaleur envahit tout son corps.
+Le vin n'était pas épicé. Il possédait une certaine douceur, bien différente du liquide spirituel de la Perle Défiant le Ciel, qui n'a aucun goût. Cependant, dès que le vin atteignit son estomac, une sensation de chaleur envahit tout son corps.
 
 Wang Lin sentit clairement l'énergie spirituelle augmenter en lui, ce qui le surprit.
 
-Cheng Xian laissa échapper un rire et dit: « C'est de l'eau de source spirituelle que mon maître prépare spécialement pour raffiner des pilules. On n'en trouve pas souvent dans tout l'État de Chu. Je lui en ai volé pas mal, et j'ai fait ce vin en la faisant infuser avec des fruits que ces deux singes spirituels gardent précieusement depuis des années. Frère, si c'était quelqu'un d'autre, je ne lui aurais jamais servi quelque chose d'aussi bon. »
+Cheng Xian laissa échapper un rire et dit: « C'est de l'eau de source spirituelle que mon maître prépare spécialement pour raffiner des pilules. On n'en trouve pas souvent dans tout le pays de Chu. Je lui en ai volé pas mal, et j'ai fait ce vin en la faisant infuser avec des fruits que ces deux singes spirituels gardent précieusement depuis des années. Frère, si c'était quelqu'un d'autre, je ne lui aurais jamais servi quelque chose d'aussi bon. »
 
 Dès qu'il prononça ces mots, les deux singes laissèrent échapper quelques grognements de colère. Ils étaient manifestement très mécontents de ce que Cheng Xian venait de faire.
 

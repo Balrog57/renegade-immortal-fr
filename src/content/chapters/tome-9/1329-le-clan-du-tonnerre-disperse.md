@@ -14,7 +14,7 @@ Après un long moment, le jeune homme ouvrit lentement les yeux!
 
 Il n'y avait plus ni lâcheté ni tristesse; elles avaient été remplacées par la froideur et la sénescence. C’était comme si ces yeux avaient tout vu dans ce monde, avaient découvert le véritable sens de la vie et avaient survécu pendant d'innombrables années...
 
-Une aura glaciale émana de son corps dès qu'il se redressa. Le jeune homme s'était effondré dans une prairie, et à présent, toute l'herbe était courbée, comme si elle n'osait plus se tenir droite.
+Une aura glaciale émana de son corps dès qu'il ouvrit les yeux. Le jeune homme s'était effondré dans une prairie, et à présent, toute l'herbe était courbée, comme si elle n'osait plus se tenir droite.
 
 « Ce corps n'est pas mauvais... » Le jeune homme s'assit, fit bouger sa tête, puis se leva.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 559 - Reception Pavilion
 slug: le-pavillon-de-reception
 ---
-Il restait quelques marques au sol là où se trouvaient autrefois la table et les chaises. Ces traces étaient apparues car le sortilège mineur qui empêchait la poussière de s'accumuler avait été détruit en même temps que les sceaux de ce lieu.
+Il restait quelques marques au sol là où se trouvaient autrefois la table et les chaises. Ces traces étaient apparues car la table et les chaises étaient restées longtemps en place, et que le sortilège mineur qui empêchait la poussière de s'accumuler avait été détruit en même temps que les sceaux de ce lieu.
 
 Après avoir minutieusement observé l'ensemble de la structure, Wang Lin en tira de nombreuses informations.
 
@@ -38,7 +38,7 @@ Le sentier de droite continuait de s'étendre, bordé lui aussi d'une clôture. 
 
 Alors qu'il progressait prudemment, Wang Lin s'arrêta brusquement. Le pied droit qu'il avait levé redescendit lentement à sa position initiale. Il resta immobile, mais des éclairs de compréhension des restrictions brillaient dans son regard.
 
-Un pavillon se dressait à environ 33 mètres devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets. Un pichet accompagné de quelques coupes reposait sur la table. Les yeux de Wang Lin se plissèrent; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
+Un pavillon se dressait à environ 33 mètres devant lui. À l'intérieur se trouvaient une table ronde et quatre tabourets de pierre. Un pichet accompagné de quelques coupes reposait sur la table. Les yeux de Wang Lin se plissèrent; un air de prudence envahit son visage tandis qu'il inspectait les environs avec vigilance. Les restrictions entourant le pavillon étaient intactes, sans aucune trace de rupture.
 
 « Il doit y avoir quelque chose de spécial avec ce pichet! J'ai suivi la trace du dernier qui a forcé le passage jusqu'ici, mais il semble avoir été stoppé par les restrictions de ce lieu! »
 
@@ -76,7 +76,7 @@ Simultanément, il ne cessa jamais ses déductions. À présent, ses yeux étaie
 
 Plus il étudiait et déduisait, plus il sentait l'ampleur de sa récolte. Cette restriction renfermait des dizaines de milliers de changements, et à mesure qu'il les analysait, sa compréhension s'approfondissait.
 
-Wang Lin avait appris les restrictions au sein de la Terre des Dieux Anciens, qui étaient des restrictions antiques. Il avait ensuite découvert une grotte sur la planète Suzaku où il était tombé par hasard sur de nombreux ouvrages. En y ajoutant quelques centaines d'années de pratique et de fusion de ces connaissances, sa maîtrise des restrictions était devenue vaste. Son expertise croissait à chaque nouvelle découverte, mais une fois qu'il eut achevé le 999ème drapeau de restriction, sa maîtrise atteignit un goulot d'étranglement.
+Wang Lin avait appris les restrictions au sein de la Terre des Dieux Anciens, qui étaient des restrictions antiques. Il avait ensuite découvert une grotte souterraine dans les plaines de la planète Suzaku, où il était tombé par hasard sur de nombreux ouvrages. En y ajoutant quelques centaines d'années de pratique et de fusion de ces connaissances, sa maîtrise des restrictions était devenue vaste et éclectique, rassemblant les forces de nombreuses écoles. Son expertise croissait à chaque nouvelle découverte, mais une fois qu'il eut achevé le 999ème drapeau de restriction, sa maîtrise atteignit un goulot d'étranglement.
 
 Quiconque étudie les restrictions rencontrera inévitablement de nombreux goulots d'étranglement au cours de sa vie; s'ils ne parviennent pas à les franchir, leur progression s'arrête là. Ce blocage est invisible et résulte de multiples facteurs.
 

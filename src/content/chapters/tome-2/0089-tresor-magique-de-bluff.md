@@ -80,7 +80,7 @@ De cet échange bref, il comprit immédiatement que l'étranger ne savait pas ut
 
 Deux mois s'écoulèrent.
 
-Ce jour-là, Wang Lin était assis en tailleur dans la pièce. Durant ces deux mois passés à cultiver l'énergie Yin extrême, il avait accumulé suffisamment de force pour tenter sa première percée.
+Ce jour-là, Wang Lin était assis en tailleur dans la pièce. Durant ces deux mois passés à cultiver l'énergie Yin extrême, une masse d'énergie Yin dense s'était formée dans son corps, et il avait accumulé suffisamment de force pour tenter sa première percée.
 
 Les yeux de Wang Lin brillèrent. Il avait déjà étudié à fond la Méthode d'Ascension des Enfers et connaissait par cœur les trois grands points décrits dans la méthode.
 

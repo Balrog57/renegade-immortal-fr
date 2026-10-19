@@ -42,7 +42,7 @@ Profitant de l'aveuglement causé par l'éclat doré, Wang Lin fit un pas en ava
 
 Au moment de sa disparition, bien que le vieil homme du stade Yang Corporel ne puisse voir, son esprit trembla et ses yeux tressaillirent.
 
-Sans hésiter, il activa l'énergie d'origine de son corps pour la projeter frénétiquement, provoquant un effondrement massif d'énergie. Un vortex se forma à partir de toute cette énergie d'origine.
+Sans hésiter, il activa l'énergie d'origine de son corps pour la projeter frénétiquement, provoquant un effondrement massif d'énergie. Un vortex se forma dans un rayon de cent pieds, à partir de toute cette énergie d'origine.
 
 Hélas, c'était trop tard! La silhouette de Wang Lin apparut derrière le vieil homme au moment même où les vortex se manifestaient. Ses doigts, chargés d'énergie d'origine, lancèrent une attaque impitoyable.
 
@@ -50,7 +50,7 @@ Le vortex du vieil homme n'avait pas encore fini de se former que le doigt de Wa
 
 C’est à ce moment que le corps de Ta Shan brilla intensément et que le tatouage sur son front fondit dans son poing droit. Alors que le vieil homme tentait sa fuite, le poing de Ta Shan l'écrasa. L'impact provoqua une série d'explosions soniques qui déchirèrent le ciel étoilé.
 
-Ce vieillard était digne d'être un cultivateur du sommet du stade Yang Corporel. En pleine crise, il cracha une bouffée d'énergie d'origine pour ériger un bouclier. Le poing de Ta Shan pulvérisa la protection, projetant l'homme en arrière. Ses yeux étaient emplis de ressentiment alors qu'il ne pouvait plus retenir le sang qui s'échappait de sa bouche.
+Ce vieillard était digne d'être un cultivateur du sommet du stade Yang Corporel. En pleine crise, il cracha une bouffée d'essence de son âme originelle pour ériger un bouclier. Le poing de Ta Shan pulvérisa la protection, projetant l'homme en arrière. Ses yeux étaient emplis de ressentiment alors qu'il ne pouvait plus retenir le sang qui s'échappait de sa bouche.
 
 Toutefois, son corps se mua en une ombre sanglante et il fusionna rapidement avec le sang environnant. Sa silhouette devint spectrale et il parvint miraculeusement à échapper à l'attaque combinée de Wang Lin et Ta Shan.
 
@@ -62,7 +62,7 @@ Tout cela se déroula en un éclair. Wang Lin n'ayant pas le temps de poursuivre
 
 L'énergie d'épée de Yao Changdong changea soudainement de trajectoire pour frapper de plein fouet le Sceau Céleste.
 
-Lorsque le Sceau encaissa le choc, un bruit tellurique ébranla la zone.
+Lorsque le Sceau encaissa le choc, un bruit tellurique ébranla la zone sur un rayon de cent mille pieds.
 
 Le visage de Wang Lin restait impassible, mais l'énergie en lui bouillonnait. Sous l'impact de l'épée, le Sceau Céleste fut repoussé, entraînant Wang Lin dans sa course. Il ne put ralentir qu'après avoir reculé de cent pieds.
 
@@ -74,11 +74,11 @@ Wang Lin n'avait jamais vu une épée volante d'une telle envergure. Elle dégag
 
 Wang Lin gardait un calme olympien, le regard froid. Il avait déjà remarqué que les cultivateurs du Système Stellaire de Luotian étaient pétris d'orgueil, une caractéristique forgée par leur modèle de familles de culture. Cela tranchait radicalement avec les complots et les luttes incessantes du Système Stellaire de l'Alliance.
 
-Wang Lin hocha légèrement la tête et joignit ses mains comme pour s'exprimer. Pourtant, à cet instant, une énergie d'origine jaillit de sa bouche pour former une épée illusoire qui fonça vers Yao Changdong à une vitesse fulgurante.
+Wang Lin hocha légèrement la tête et joignit ses mains comme pour s'exprimer. Pourtant, à cet instant, une essence de son âme originelle jaillit de sa bouche pour former une épée illusoire qui fonça vers Yao Changdong à une vitesse fulgurante.
 
 Simultanément, Wang Lin fit un pas en avant et disparut dans le vide.
 
-L'épée d'énergie d'origine était si rapide qu'elle atteignit Yao Changdong en un instant. Les yeux de ce dernier s'illuminèrent et il laissa échapper un froid renâclat. Sa main droite traça un sceau et pressa vers l'avant.
+L'épée d'essence de son âme originelle était si rapide qu'elle atteignit Yao Changdong en un instant. Les yeux de ce dernier s'illuminèrent et il laissa échapper un froid renâclat. Sa main droite traça un sceau et pressa vers l'avant.
 
 Un éclair de lumière verte jaillit de sa paume, se transformant en un crâne qui tenta d'engloutir l'épée. Alors qu'il levait la main, une ondulation apparut derrière lui: Wang Lin venait de surgir. Les deux doigts de Wang Lin pressèrent vers le bas; sans même attendre de voir le résultat, il disparut à nouveau.
 
@@ -86,7 +86,7 @@ L'expression de Yao Changdong devint lugubre. Dès l'apparition de Wang Lin, il 
 
 À cet instant précis, le Sceau Céleste commença soudainement à pivoter et s'abattit sur Yao Changdong avec une pression colossale.
 
-Des centaines de runes dorées clignotèrent sur le Sceau Céleste avant de s'envoler une à une. Ces innombrables runes se précipitèrent vers Yao Changdong pour le sceller.
+Des centaines de milliers de runes dorées clignotèrent sur le Sceau Céleste avant de s'envoler une à une. Ces innombrables runes se précipitèrent vers Yao Changdong pour le sceller.
 
 Alors que Yao Changdong levait les yeux, l'expression sombre, Wang Lin réapparut à ses côtés et lança un Coup Céleste. Yao Changdong se retourna promptement, mais la cible fut manquée.
 
@@ -96,7 +96,7 @@ En conséquence, l'expression de Yao Changdong devint de plus en plus tourmenté
 
 Pourtant, il ne pouvait même pas effleurer l'ombre de Wang Lin. Cette méthode de combat singulière le frustrait profondément. Bien que Yao Changdong n'eût pas mené d'innombrables combats, il n'avait jamais affronté un adversaire tel qu'aujourd'hui.
 
-Après avoir expulsé cette bouffée d'énergie d'origine et tenté de la dissiper, il avait perdu l'initiative. Il devait sans cesse se protéger, incapable de lancer la moindre offensive.
+Après avoir expulsé cette bouffée d'essence de son âme originelle et tenté de la dissiper, il avait perdu l'initiative. Il devait sans cesse se protéger, incapable de lancer la moindre offensive.
 
 Alors qu'il s'apprêtait à reprendre ses esprits pour riposter avec son sort, le Sceau de cent pieds arriva. Cela exaspéra davantage Yao Changdong.
 

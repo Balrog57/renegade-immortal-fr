@@ -8,7 +8,7 @@ slug: ancien-reseau-de-transfert
 ---
 Mais dès que l'idée traversa son esprit, elle s'évanouit. Il soupira secrètement de regret. S'il n'avait pas eu la nécessité d'entrer dans cet endroit, il l'aurait pris comme disciple interne. Cependant, la question de savoir si le gamin survivrait à la fin restait entière.
 
-À cet instant, son expression changea soudainement tandis qu'il levait la tête pour scruter l'horizon. Wang Lin remarqua immédiatement une fluctuation inhabituelle d'énergie spirituelle provenant du lointain. Cette fluctuation était très légère, mais empreinte d'une immense puissance.
+À cet instant, son expression changea soudainement tandis qu'il levait la tête pour scruter l'horizon. Wang Lin remarqua immédiatement une fluctuation inhabituelle d'énergie spirituelle provenant du lointain. Cette fluctuation était très prolongée, mais empreinte d'une immense puissance.
 
 Il vit un érudit d'âge mûr, vêtu d'une robe grise en toile de chanvre et portant un bandeau carré sur la tête, arriver de loin en flottant. Le visage de cet homme était aussi blanc que le jade et une lueur de froideur passait parfois dans ses yeux quand il les ouvrait et les refermait.
 
@@ -24,7 +24,7 @@ Duanmu Ji leva les yeux au ciel et dit: « Il m'est évidemment utile. Allons-y,
 
 Wang Lin observa l'érudit avant de faire un pas et de grimper à son tour sur la calebasse. Il restait extrêmement prudent car, depuis l'arrivée de l'homme en robe grise, le sens divin de ce dernier n'avait cessé de scanner Wang Lin.
 
-À ce moment précis, il entendit soudain une transmission vocale de Duanmu Ji: « Cet homme est Wang Qingyue. C'est un messager envoyé par la Secte Yin et Yang d'un pays de culture de rang 4. Sa culture est terrifiante, alors ne l'exaspère pas. »
+À ce moment précis, il entendit soudain une transmission vocale de Duanmu Ji: « Cet homme est Wang Qingyue. C'est un messager envoyé par la Secte Yin et Yang d'un pays de culture de rang 4. Sa culture est terrifiante, alors ne le provoque pas. »
 
 L'expression de Wang Lin resta impassible, mais sa vigilance redoubla en son for intérieur. Les trois hommes s'élancèrent rapidement dans la Mer des Démons. Wang Lin observait froidement Wang Qingyue tout au long du trajet. Ce dernier ne possédait aucun trésor sous ses pieds, et pourtant il se déplaçait aussi vite que la calebasse. Le brouillard situé à 10 mètres devant lui s'écartait automatiquement sur les côtés.
 
@@ -34,11 +34,11 @@ En chemin, le visage de tout cultivateur croisant leur route changeait instantan
 
 L'expression de Wang Qingyue demeurait sereine. Tout en volant, il dit lentement: « La réputation du Seigneur Démon des Huit Extrêmes n'est pas mauvaise. Il y a même des gens dans la mer extérieure qui vous reconnaissent. »
 
-Bien qu'ils se déplacent à une vitesse fulgurante, ses paroles atteignirent clairement les oreilles de chacun. Le vieil homme, Duanmu Ji, lui jeta un regard et rétorqua: « Si nous étions dans la mer intérieure, il y aurait encore plus de personnes qui me connaîtraient. Si tu voyais cela, aurais-tu envie de proférer davantage d'insultes? »
+Bien qu'ils se déplacent à une vitesse fulgurante, ses paroles atteignirent clairement les oreilles de chacun. Le vieil homme, Duanmu Ji, lui jeta un regard et rétorqua: « Si nous étions dans la mer intérieure, il y aurait encore plus de personnes qui me connaîtraient. Si tu voyais cela, aurais-tu encore plus envie de lancer des railleries? »
 
 Wang Qingyue eut un petit rire tandis que son regard passait sur Wang Lin, avant de dire à Duanmu Ji: « Tu emmènes un cultivateur de la Formation du Noyau dans cet endroit. Ne l'envoies-tu pas directement à la mort? »
 
-Duanmu Ji répondit avec indifférence: « Ne sous-estime pas ce gars. Il maîtrise le sortilège de la mort, ce qui peut s'avérer très utile dans le troisième royaume! »
+Duanmu Ji répondit avec indifférence: « Ne sous-estime pas ce gars. Il maîtrise le sortilège de la mort, ce qui peut s'avérer très utile dans le troisième essai! »
 
 Wang Qingyue fut stupéfait, mais bientôt ses yeux brillèrent d'un éclat inédit. Il afficha un sourire étrange en fixant Wang Lin. Rapidement, cette lueur disparut et il secoua la tête: « Quel dommage. Si tu avais atteint le stade de l'Âme Naissante, j'aurais aimé croiser ton fer. »
 
@@ -84,11 +84,11 @@ Pourtant, l'énergie spirituelle contenue dans la pierre tentait Wang Lin. Même
 
 Duanmu Ji se rapprocha de Wang Lin et ordonna: « Entre! »
 
-Wang Lin ricana intérieurement, ayant percé les intentions de Duanmu Ji. Ce dernier devait craindre qu'un problème ne survienne s'il laissait Wang Lin partir en dernier. Wang Lin traversa silencieusement le vortex et se tint au centre du réseau.
+Wang Lin ricana intérieurement, ayant percé les intentions de Duanmu Ji. Ce dernier devait craindre qu'un problème ne survienne s'il laissait Wang Lin entrer en dernier. Wang Lin traversa silencieusement le vortex et se tint au centre du réseau.
 
 Duanmu Ji s'engouffra rapidement dans le dispositif à son tour. Le dernier fut Wang Qingyue, qui vérifia soigneusement les environs avant d'entrer.
 
-Peu après, le vortex marqua un arrêt soudain. Puis, tout s'effondra dans un fracas retentissant, faisant trembler la montagne entière. Les trois hommes présents dans la formation disparurent instantanément.
+Peu après, le vortex marqua un arrêt soudain. Puis, le vortex se rua vers le bas dans un fracas retentissant, faisant trembler la montagne entière. Les trois hommes présents dans la formation disparurent instantanément.
 
 Il fallut longtemps pour que le lieu retrouve son calme. Le brouillard qui avait été repoussé finit par envelopper à nouveau la zone.
 

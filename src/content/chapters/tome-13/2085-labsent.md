@@ -36,15 +36,15 @@ Une boussole gigantesque. Les tranchées servaient de graduations et les chaîne
 
 Tandis qu'il méditait, son regard balaya le monde et s'arrêta au centre de la boussole. Là se dressait une montagne perçant les nuages, sur laquelle tombait une neige aux sept couleurs.
 
-En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple ancestral des Anciens Shi, lors de sa triple division de l'âme, il avait déjà vu cette montagne mystérieuse.
+En contemplant ce pic, l'expression de Wang Lin devint complexe. Dans le temple ancestral de Shi Antique, lors de sa triple division de l'âme, il avait déjà vu cette montagne mystérieuse.
 
-C'était là qu'il avait aperçu cette silhouette tenant un corps et interrogeant le monde. Cependant, en observant cette montagne enneigée de sept couleurs, il ne vit pas cette figure, mais une autre silhouette familière qui siégeait là, l'attendant.
+C'était là qu'il avait aperçu cette silhouette tenant un corps et interrogeant le monde. Cependant, en observant cette montagne enneigée de sept couleurs, il ne vit pas cette figure, mais une autre silhouette familière qui siégeait là, le regardant.
 
 Cet homme paraissait âgé sans l'être vraiment, enveloppé d'une lumière septicolore. Son visage rayonnait d'excitation. C'était l'être qui ressemblait à l'Omniscient, au Souverain Céleste aux Sept Couleurs, à l'Ancien Maître Impérial du Dao!
 
 Derrière cette silhouette, derrière cette montagne, s'étendait un pont. Une extrémité était reliée à la boussole et l'autre au ciel, formant un large arc.
 
-Ce pont ressemblait presque trait pour trait aux Ponts du Piétinement Céleste. Au point où il rejoignait le firmament, Wang Lin pouvait vaguement distinguer une illusion derrière le ciel couleur de sang.
+Ce pont ressemblait presque trait pour trait aux Ponts du Piétinement des Cieux. Au point où il rejoignait le firmament, Wang Lin pouvait vaguement distinguer une illusion derrière le ciel couleur de sang.
 
 Deux silhouettes semblaient se dessiner dans l'illusion, mais elles étaient si floues qu'il était impossible de les identifier.
 
@@ -62,7 +62,7 @@ En un instant, le gaz occulta le ciel couleur de sang. Puis, il se rassembla der
 
 Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde entier. De loin, elle portait une robe noire qui dissimulait son visage, mais Wang Lin reconnut immédiatement qu'il s'agissait de la même entité que l'Omniscient devant lui.
 
-« Wang Lin, bien que tu fusse un cultivateur du Piétinement Céleste dans ta vie antérieure, ce vieil homme est une existence suprême ici, au sein de la Boussole des Limites. Sur l'ensemble du Continent Astral Immortel, c'est le seul endroit où je peux te dévorer et fusionner avec toi! »
+« Wang Lin, bien que tu fusse un cultivateur du Piétinement des Cieux dans ta vie antérieure, ce vieil homme est une existence suprême ici, au sein de la Boussole des Limites. Sur l'ensemble du Continent Astral Immortel, c'est le seul endroit où je peux te dévorer et fusionner avec toi! »
 
 « Ici, ton rêve se distordra, et désormais, je serai toi! » Un rugissement jaillit de la figure colossale, résonnant dans toutes les directions.
 
@@ -78,9 +78,9 @@ Cette silhouette était d'une hauteur prodigieuse, semblant soutenir le monde en
 
 « Ce Royaume Divin Immémorial est la Boussole des Limites! » Les yeux de l'immense silhouette de l'Omniscient brillaient d'excitation.
 
-« Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu tout obtenir. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
+« Quant à toi, dans ta vie passée, tu étais l'être le plus puissant au monde et tu aurais pu dominer le Royaume de la Terre Défiante. Pourtant, pour une femme, tu as emprunté la Boussole des Limites au gardien pour tenter de ressusciter ton épouse! »
 
-« Tu as utilisé ton propre Dao du Rêve pour étendre ta véritable essence et créer la réincarnation. Tu voulais transformer ton rêve de résurrection en réalité et inverser les lois du ciel et de la terre! »
+« Tu as utilisé ton propre Dao du Rêve pour disperser ta véritable essence et remodeler la réincarnation. Tu voulais transformer ton rêve de résurrection en réalité et inverser les lois du ciel et de la terre! »
 
 « Même ce vieil homme fut stupéfait par une telle folie et de tels desseins! » L'Omniscient fixait Wang Lin tandis que ses paroles faisaient écho dans l'espace.
 
@@ -100,7 +100,7 @@ Il vit une version passée de lui-même, celle qui avait échoué à ressusciter
 
 « Même si le ciel exige ta mort, je te ramènerai! Je briserai les cieux, je pulvériserai la terre. Je plongerai dans la réincarnation pour en extraire chaque parcelle de toi et reforger vie après vie... »
 
-« Si je ne réussis pas, alors moi, Wang Lin, je ne m'éveillerai jamais. Je resterai immergé dans la réincarnation avec vous pour l'éternité... »
+« Si je ne réussis pas, alors moi, Wang Lin, je ne m'éveillerai jamais. Je resterai immergé dans la réincarnation avec toi pour l'éternité... »
 
 Alors que Wang Lin contemplait ces images, les souvenirs du passé affluèrent dans son esprit. C'était comme s'ils avaient toujours été là, et qu'il venait seulement de les oublier.
 
@@ -110,7 +110,7 @@ Après un moment de réflexion silencieuse, Wang Lin regarda l'Omniscient et dem
 
 « Quel est ce pont? » Wang Lin leva la main et désigna le pont reliant le ciel et la terre derrière la silhouette colossale de l'Omniscient.
 
-« Le Pont du Piétinement Céleste de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement Céleste que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez l'Omniscient, mais il ne parvenait pas à en saisir la cause.
+« Le Pont du Piétinement des Cieux de la Boussole des Limites. C'est le véritable corps du Pont du Piétinement des Cieux que chaque être vivant dans le Royaume de la Terre Défiante ressent lorsque son niveau de culture atteint un certain seuil. » Le pressentiment d'un mal imminent s'intensifia chez l'Omniscient, mais il ne parvenait pas à en saisir la cause.
 
 Wang Lin sourit, regarda l'Omniscient et dit calmement: « Vous hésitez, vous vous demandez pourquoi aucune distorsion n'apparaît, contrairement à ce qui se produit lorsqu'un dormeur est sur le point de s'éveiller. »
 

@@ -26,7 +26,7 @@ Des filaments semblables à des flammes se détachaient peu à peu de la pilule 
 
 Il l'examina avec son Sens Divin et découvrit que l'énergie spirituelle contenue dans cette pilule correspondait exactement à la somme de toute la culture d'un cultivateur au stade intermédiaire de la Formation du Noyau. Li Muwan lui avait expliqué en détail, ce jour-là, tout ce qui concernait l'ordre de mise à mort des Dix Mille Démons. Après réflexion, Wang Lin ne l'avala pas immédiatement et la rangea dans son sac de rangement.
 
-Wang Lin résolut de garder cette pilule pour lorsqu'il tenterait de former son Âme Naissante; cela augmenterait ses chances de réussite. Les probabilités de former une Âme Naissante étaient bien moindres que celles de former son noyau doré. La raison principale de sa réussite lors de la Formation du Noyau résidait dans la méthode de culture de l'Ascension Souterraine et la pilule de Li Muwan.
+Wang Lin résolut de garder cette pilule pour lorsqu'il tenterait de former son Âme Naissante; cela augmenterait ses chances de réussite. Les probabilités de former une Âme Naissante étaient bien moindres que celles de former son noyau doré. La raison principale de sa réussite lors de la Formation du Noyau résidait dans la méthode de culture de l'Ascension Souterraine et la Pilule Tian Li de Li Muwan.
 
 Sans l'un de ces éléments, il n'aurait peut-être pas réussi à former son noyau et serait peut-être resté bloqué éternellement au stade de l'Établissement des Fondations. Cependant, un obstacle encore plus redoutable l'attendait dans le futur: le stade de l'Âme Naissante.
 
@@ -96,4 +96,4 @@ Mais le vieil homme revint bientôt. Son visage était sombre comme l'eau alors 
 
 Quatre vieux hommes identiques se dispersèrent dans quatre directions, chacun scrutant avec son propre Sens Divin, mais ils ne trouvèrent toujours rien. Le vieil homme tapa du pied et, avec ses trois avatars, se téléporta : chacun alla s'asseoir en position du lotus en un point de l'est, du sud, de l'ouest et du nord de Xuan Wu. Aussitôt, une ligne de blocage de sens divin se forma, reliant les quatre.
 
-« Il ne reste que trois ans. Petit gars, durant ces trois années, moi, le Seigneur Démon des Huit Extrêmes, je raffinerai Xuan Wu pour te débusquer. Ah, si ce n'était pas pour cette épreuve qui ne peut être franchie qu'avec la technique de malédiction de mort, je ne me donnerais pas tant de peine pour te capturer vivant! »
+« Il ne reste que trois ans. Petit gars, durant ces trois années, moi, le Seigneur Démon des Huit Extrêmes, je raffinerai Xuan Wu pour te débusquer. Ah, si ce n'était pas pour cette épreuve qui ne peut être franchie qu'avec le sort de mort, je ne me donnerais pas tant de peine pour te capturer vivant! »

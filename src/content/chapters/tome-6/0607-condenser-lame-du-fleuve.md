@@ -26,7 +26,7 @@ Les environs étaient plongés dans un silence total, à l'exception du grondeme
 
 Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à une trentaine de mètres de Wang Lin.
 
-Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie de la boucherie et le Doigt de la Mort, il serait déjà mort.
+Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie de massacre et le Doigt de la Mort, il serait déjà mort.
 
 Wang Lin déclara: « Je l'ai appris dans le Royaume Céleste! »
 
@@ -64,7 +64,7 @@ Une explosion terrassante retentit dans les cieux. Bien que le fleuve des enfers
 
 « Ton Dao est très puissant! » Le vieil homme en armure noire ricana. Sa main droite pointa à nouveau vers le ciel et il cria: « Pluie! »
 
-Les nuages sombres se rétractèrent soudainement et des gouttes de pluie noire commencèrent aussitôt à tomber. Ces gouttes s'abattirent du ciel comme des lames d'épée, visant directement Wang Lin.
+Les nuages sombres se rétractèrent soudainement et des gouttes de pluie noire commencèrent aussitôt à tomber. Ces gouttes s'abattirent du ciel comme des flèches, visant directement Wang Lin.
 
 « Un stade avancé de l'Ascendant... c'est effectivement un adversaire que je ne peux vaincre. Cependant, si tu veux me tuer, ce ne sera pas aussi simple! » Les yeux de Wang Lin s'illuminèrent alors qu'il fit un pas pour marcher directement au cœur du fleuve des enfers.
 
@@ -110,9 +110,9 @@ Le fleuve possédant désormais une âme, il s'anima soudainement lorsque le ven
 
 Désormais douée d'une conscience, la rivière des enfers se comportait comme un dragon; elle poussa un cri de guerre et voulut dévorer le sortilège composé du vent, de la pluie, du tonnerre et de l'éclair!
 
-Simultanément, 130 000 filaments d'énergie de la boucherie jaillirent entre les sourcils de Wang Lin et fusionnèrent avec le dragon. Désormais, ce fleuve des enfers charriait une intention meurtrière!
+Simultanément, 130 000 filaments d'énergie de massacre jaillirent entre les sourcils de Wang Lin et fusionnèrent avec le dragon. Désormais, ce fleuve des enfers charriait une intention meurtrière!
 
-C'était le véritable fleuve des enfers de Wang Lin. Il contenait 130 000 filaments d'énergie de la boucherie, cent millions de fragments d'âme et le Dao de Wang Lin!
+C'était le véritable fleuve des enfers de Wang Lin. Il contenait 130 000 filaments d'énergie de massacre, cent millions de fragments d'âme et le Dao de Wang Lin!
 
 Ce mélange chargea avec acharnement vers le sortilège descendant du vieil homme!
 
@@ -134,7 +134,7 @@ Le Dao du Démon!
 
 Le vieil homme passa sa main sur l'armure de sa poitrine. Instantanément, celle-ci se mit à bouger d'une manière étrange. Des filaments d'énergie démoniaque s'en échappèrent et se rassemblèrent rapidement devant lui.
 
-Une faucille dégageant une énergie démoniaque monstrueuse se forma devant le vieil homme!
+Une faucille dégageant des flammes démoniaques monstrueuses se forma devant le vieil homme!
 
 L'énergie émanant de la faucille était incroyablement dense. Il semblait qu'une loi échappant au contrôle des cieux résidait dans cette puissance démoniaque. Sa présence provoqua des fissures dans l'espace environnant avant que celui-ci ne se brise violemment.
 

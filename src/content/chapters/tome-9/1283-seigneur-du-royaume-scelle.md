@@ -8,7 +8,7 @@ slug: seigneur-du-royaume-scelle
 ---
 Ce rêve était si profond qu'il était impossible de le distinguer de la réalité. Devant Wang Lin s'étendait un brouillard dense, au sein duquel passaient rapidement des lueurs allongées.
 
-Wang Lin n'était plus qu'une âme invisible errant hébété dans ce monde brumeux. Il se déplaçait lentement, s'évanouissant peu à peu, jusqu'au jour où son âme finirait par se dissiper totalement et cesser d'exister. Un froid glacial l'envahissait, une intensité glaciale qui se propageait à travers toute son essence.
+Wang Lin n'était plus qu'une âme invisible errant hébété dans ce monde brumeux. Il se déplaçait lentement, s'évanouissant peu à peu, jusqu'au jour où son âme finirait par se dissiper totalement et cesser d'exister. Un froid glacial l'envahissait, une intensité glaciale qui se propageait à travers toute son âme.
 
 Il avait erré pendant une durée indéterminée. Il n'y avait ni soleil, ni lune, pas même la notion du temps. Ce lieu différait radicalement du monde extérieur. En avançant, Wang Lin réalisa progressivement que les lueurs mouvantes dans le brouillard contenaient les éléments du métal, du bois, de l'eau, du feu et de la terre.
 

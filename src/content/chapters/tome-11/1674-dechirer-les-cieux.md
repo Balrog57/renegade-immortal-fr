@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1674 - Tearing the Heavens!!"
 slug: dechirer-les-cieux
 ---
-Les cheveux de l'homme d'âge moyen qui se faisait appeler l'enfant de Ye Mo flottaient dans l'air alors que son corps de 10 000 pieds se dressait dans l'espace étoilé. Tandis qu'il agitait les bras, les trois ombres des anciens clans rugissaient sans relâche et chargeaient Wang Lin.
+Les cheveux de l'homme d'âge moyen qui se faisait appeler l'enfant de Ye Mo flottaient dans l'air alors que son corps de 1 000 pieds se dressait dans l'espace étoilé. Tandis qu'il agitait les bras, les trois ombres des anciens clans rugissaient sans relâche et chargeaient Wang Lin.
 
 Derrière ces trois membres des anciens clans se dressait l'ombre du corps gigantesque de Ye Mo qui, à cet instant précis, marchait vers Wang Lin.
 
-Les yeux de Wang Lin brillaient d'une lueur étrange. Ses mains formèrent un sceau et, au lieu de reculer, il fit un pas en avant, pointant l'horizon de son doigt droit. La tête ancienne dépourvue de son œil gauche laissa échapper un rugissement et s'élança, fusionnant avec le corps de 10 000 pieds de Wang Lin.
+Les yeux de Wang Lin brillaient d'une lueur étrange. Ses mains formèrent un sceau et, au lieu de reculer, il fit un pas en avant, pointant devant lui de son doigt droit. La tête ancienne dépourvue de son œil gauche laissa échapper un rugissement et s'élança, fusionnant avec le corps de 1 000 pieds de Wang Lin.
 
 Grâce à cette fusion, le corps de Wang Lin émit une lueur éblouissante. Après avoir fusionné avec la tête ancienne, Wang Lin se tenait désormais dans la cavité où se trouvait l'œil gauche!
 
@@ -42,7 +42,7 @@ L'enfant de Ye Mo lui rendit son regard avec une intention meurtrière monstrueu
 
 Les yeux de Wang Lin se rétrécirent. Cette étrange distorsion spatiale le choqua profondément et lui donna un pressentiment funeste, faisant dresser les poils de son corps.
 
-Wang Lin connaissait trop bien ce sentiment; il l'avait accompagné durant la majeure partie de sa vie. Sans hésiter, il tendit la main vers le vide et une lumière verte jaillit.
+Wang Lin connaissait trop bien ce sentiment; il l'avait accompagné toute sa vie. Sans hésiter, il tendit la main vers le vide et une lumière verte jaillit.
 
 Un petit bouclier se trouvait au cœur de cette lumière. Ce bouclier avait été restauré et, bien qu'il ne fût pas indestructible, il contenait un sortilège nommé Rêve des Temps Anciens!
 
@@ -78,7 +78,7 @@ Alors que le pied géant s'abattait sur lui, l'enfant de Ye Mo poussa un cri et 
 
 Après avoir fendu ce pied colossal, l'enfant de Ye Mo se retourna et fixa Wang Lin au loin. Il chargea vers lui tout en déchirant les couches du ciel. Le monde gronda et de vastes failles apparurent partout. Chaque ombre des trois anciens clans qui tentait de lui barrer la route fut fendue en deux par cette force capable de lacérer le firmament!
 
-L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les encerclements successifs des trois anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 1 000 pieds de Wang Lin.
+L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les encerclements successifs des trois anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 100 pieds de Wang Lin.
 
 Les yeux de Wang Lin étaient emplis d'une intention de combat solennelle. Alors que l'enfant de Ye Mo approchait, il leva la main droite pour former une paume et frappa vers l'avant.
 

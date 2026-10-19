@@ -58,7 +58,7 @@ Son œil droit, autrefois terne, brillait intensément et une étoile de démon 
 
 Le corps de Tuo Sen était celui de Tu Si. À l'époque, Tu Si était infiniment proche de devenir un Dieu Antique royal à 9 étoiles. Il s'était même enlisé à huit étoiles pendant bien trop longtemps, son corps ayant atteint la limite d'un Dieu Antique à 8 étoiles!
 
-Afin de franchir le seuil des neuf étoiles, Tu Si avait utilisé le sort interdit des Dieux Antiques. Cependant, l'opération avait échoué, et c'est ainsi que le démon intérieur Tuo Sen était apparu!
+Afin de franchir le seuil des neuf étoiles, Tu Si avait utilisé le sort interdit des Dieux Antiques, la technique de l'Encre Fluide. Cependant, l'opération avait échoué, et c'est ainsi que le démon intérieur Tuo Sen était apparu!
 
 La capacité de récupération de Tuo Sen était bien plus grande que celle de Wang Lin. S'il n'avait pas été si gravement blessé par le rugissement, il ne se serait pas laissé attendre aussi longtemps pour guérir.
 
@@ -70,7 +70,7 @@ On pourrait dire qu'il était la personne qui comprenait le mieux Wang Lin au mo
 
 Bien que cela puisse paraître simple, combien de personnes dans ce monde auraient pu faire une telle chose?
 
-« Si tu veux te battre contre moi, je satisferai ta requête! La bataille devant la Formation de Scellement du Royaume n'était pas plaisante. Aujourd'hui, nous nous battrons à nouveau dans cette terre de l'héritage de l'Ordre Antique! » Tandis que Tuo Sen parlait, il avança et franchit l'interstice entre les Feuilles Ancestrales. Il sortit et pénétra dans le palais!
+« Si tu veux te battre contre moi, je satisferai ta requête! La bataille devant la Formation de Scellement du Royaume n'avait pas été assez exaltante. Aujourd'hui, nous nous battrons à nouveau dans cette terre de l'héritage de l'Ordre Antique! » Tandis que Tuo Sen parlait, il avança et franchit l'interstice entre les Feuilles Anciennes. Il sortit et pénétra dans le palais!
 
 C'était la première fois que Tuo Sen ne s'appelait pas lui-même « ce dieu ». Un simple changement de langage, mais qui révélait qu'il reconnaissait désormais Wang Lin comme un Dieu Antique!
 
@@ -94,7 +94,7 @@ L'Estimé Ling Dong restait calme et ne se souciait guère du dénouement de ce 
 
 Le regard de Zhou Jin était empreint d'une grande complexité. Il avait clairement été témoin de la force de Wang Lin avant et après l'entrée dans la tombe. Le dernier vestige d'espoir qu'il portait s'était évanoui, et il ferma silencieusement les yeux pour se soigner.
 
-Alors que Tuo Sen frappait l'air, une ombre gigantesque apparut derrière lui. Cette ombre était aussi haute que le monde et arborait une expression tyrannique. Elle dégageait un sentiment d'arrogance et de mépris souverain.
+Alors que Tuo Sen frappait l'air, une ombre gigantesque apparut derrière lui. Cette ombre était aussi haute que le ciel et arborait une expression tyrannique. Elle dégageait un sentiment d'arrogance et de mépris souverain.
 
 À son apparition, le palais trembla violemment comme s'il allait s'effondrer!
 
@@ -108,7 +108,7 @@ Simultanément, une ombre gigantesque apparut derrière Wang Lin lui aussi. Cett
 
 Alors que Wang Lin frappait l'air, l'ombre de Tu Si derrière lui leva elle aussi sa main gauche et projeta un coup!
 
-S'il y avait eu un ciel ici, il aurait changé de couleur! S'il y avait eu des nuages, ils se seraient dispersés!
+S'il y avait eu un ciel ici, il aurait changé de couleur! S'il y avait eu des nuages, les vents et les nuages se seraient renversés!
 
 C'était le destin!
 
@@ -120,4 +120,4 @@ Sous chacun des deux géants se trouvaient Wang Lin et Tuo Sen!
 
 Les deux se rapprochèrent de plus en plus. En un éclair, Tuo Sen atteignit la plateforme. Son poing droit descendit et percuta le poing gauche de Wang Lin!
 
-Au même moment, alors que les deux commençaient leur bataille destinée, une silhouette charmante apparut à l'extérieur du filet illusoire. Cette femme séduisante était l'une des huit Concubines Impériales Célestes!
+Au même moment, alors que les deux commençaient leur bataille destinée, une silhouette charmante apparut à l'extérieur du filet illusoire. Cette femme séduisante était l'une des huit Concubines Impériales Antiques!

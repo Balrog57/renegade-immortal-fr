@@ -26,7 +26,7 @@ Fan Shanlu ouvrit la bouche comme pour dire quelque chose, mais finit par rester
 
 Fan Shanlu réfléchit longuement avant de secouer la tête. Elle leva la main et un jade vola vers Wang Lin. Il le rattrapa et découvrit qu'une carte se trouvait à l'intérieur.
 
-« D'innombrables bêtes féroces peuplent cet espace. Ce lieu s'est formé lors de la bataille qui a eu lieu dans la grotte. D'une manière ou d'une autre, il est connecté à un monde étrange. Si vous suivez la carte, vous trouverez un autel ancien. »
+« D'innombrables bêtes féroces peuplent cet espace. Ce lieu s'est formé lors de la bataille qui a eu lieu dans la grotte, arraché et déchiré par ses retombées. D'une manière ou d'une autre, il est connecté à un monde étrange. Si vous suivez la carte, vous trouverez un autel ancien. »
 
 « Ce jade contient également un sortilège. C'est celui dont j'ai parlé dans l'illusion, celui qui peut dévorer la troisième âme. Vous devriez bien l'étudier », ajouta doucement Fan Shanlu en regardant au loin, son regard empreint d'une pointe de nostalgie.
 
@@ -62,11 +62,11 @@ Tout comme Fan Shanlu, qui était blessée dans l'illusion et présentait les m�
 
 Un instant plus tard, les yeux de Wang Lin s'illuminèrent et il cessa de penser à la voile. Il leva la main et toucha l'espace entre ses sourcils.
 
-« L'enfant de Ye Mo est mort par ma main et j'ai absorbé huit gouttes de sang ancien. Si je peux fusionner avec elles, cela rendra mon corps ancien encore plus puissant! »
+« L'enfant de Ye Mo est mort par ma main et j'ai absorbé huit gouttes de sang ancien, issues de son âme originelle. Si je peux fusionner avec elles, cela rendra mon corps ancien encore plus puissant! »
 
 « Maintenant, je dois trouver cet autel, peut-être y trouverai-je une part de chance... Bien que je sois au stade du Vide Spirituel, je reste en retrait par rapport aux cultivateurs du Vide Arcane... »
 
-« Maintenant que le Royaume Céleste Antique est ouvert et que les quatre généraux sont apparus, leur but doit être de traquer la troisième âme... Cela m'épargnera bien des ennuis, et c'est le moment idéal pour élever mon niveau de culture! » Wang Lin réfléchissait tout en accélérant sa marche. Son Sens Divin se déployait pour observer attentivement les environs.
+« Maintenant que le Royaume Céleste Antique est ouvert et que les quatre généraux sont apparus, leur but doit être de rechercher la troisième âme... Cela m'épargnera bien des ennuis, et c'est le moment idéal pour élever mon niveau de culture! » Wang Lin réfléchissait tout en accélérant sa marche. Son Sens Divin se déployait pour observer attentivement les environs.
 
 Le ciel était d'une obscurité totale et les auras de bêtes féroces imprégnaient l'atmosphère. Ces créatures ne représentaient pas une menace pour lui; elles reculaient avec crainte dès que son Sens Divin balayait la zone.
 

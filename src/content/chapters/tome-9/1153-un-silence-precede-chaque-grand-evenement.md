@@ -14,7 +14,7 @@ L'expression de Wang Lin resta de marbre. Après avoir projeté son énergie ori
 
 Un rayon d'énergie d'épée jaillit et l'homme d'âge moyen, qui s'apprêtait à exploser, trembla de tout son corps. Du sang apparut sur son cou avant de jaillir en toutes directions. Ce n'était pas seulement son corps qui mourait, mais aussi son âme originelle affaiblie.
 
-Ses yeux restèrent grands ouverts, fixant Wang Lin tandis que sa tête tombait et roulait au sol. Son regard éteint demeurait pourtant féroce.
+Ses yeux restèrent grands ouverts, fixant Wang Lin tandis que sa tête tombait et roulait au sol sur plusieurs dizaines de pieds. Son regard éteint demeurait pourtant féroce.
 
 Sa ruse de la dernière chance n'était pas très ingénieuse, mais elle aurait été séduisante pour quiconque convoitait le jade et la recette de la pilule. Cependant, Wang Lin n'en savait rien.
 
@@ -98,7 +98,7 @@ Pourtant, son cœur battait encore la chamade, comme s'il était dans un rêve. 
 
 Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer des Nuages. Cela serait vrai même dans les Royaumes Célestes du Tonnerre et de la Pluie, car cette recette était de nature à rendre les cultivateurs fous!
 
-En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur du Nirvana et se préparant pour leur Fléau Céleste, feraient n'importe quoi pour obtenir une telle pilule.
+En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur du Nirvana et engagés dans leur Fléau Céleste, feraient n'importe quoi pour obtenir une telle pilule.
 
 « Je ne dois laisser personne découvrir que cet objet est entre mes mains! » Wang Lin traversa rapidement la région de rang 5, n'osant pas déployer son sens divin. Il pressentait que de nombreux cultivateurs se précipitaient vers le continent sauvage en ce moment même dans cette zone.
 

@@ -14,7 +14,7 @@ Ce changement soudain fit vaciller l'expression de Fan Shanmeng, qui tourna pré
 
 Wang Lin bondit et resta en lévitation à quelques centimètres du pont, dérivant au rythme du bateau. Ses yeux brillaient alors qu'il scrutait les environs.
 
-À l'extérieur du Navire Démon des Âmes, le Daoïste aux Sept Couleurs continuait d'agiter la main; chaque mouvement générait des rafales de vent massives. Ces vents percutaient la barrière protectrice du navire, la faisant s'effondrer strate après strate. Rapidement, une partie de la protection disparut.
+À l'extérieur du Navire Démon des Âmes, le Daoïste aux Sept Couleurs continuait d'agiter la main; chaque mouvement générait des rafales de vent massives. Ces vents percutaient la barrière protectrice du navire, la faisant s'effondrer strate après strate. Rapidement, près de la moitié de la protection avait disparu.
 
 « Ce n'est rien, il ne pourra pas forcer l'entrée du Navire Démon des Âmes avant plusieurs jours! » Fan Shanmeng laissa échapper un ricanement glacial en détournant le regard. Elle se tourna de nouveau vers Wang Lin pour reprendre sa conversation.
 
@@ -30,7 +30,7 @@ Wang Lin ne laissa rien paraître de ses pensées et dit d'un ton lent: « Il n'
 
 « Ce Navire Démon des Âmes est un trésor de mon Secte de la Grande Âme. Bien qu'il ne soit pas de rang suprême, il demeure un trésor de rang moyen. Même moi, je ne l'ai pas encore pleinement maîtrisé, sans parler de vous.
 
-« Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
+« Cher Cultivateur Wang, je vous conseille d'utiliser ces trois jours pour tenter d'atteindre l'autel. Si vous parvenez à absorber la puissance qu'il renferme, votre niveau de culture progressera sûrement, grâce à votre corps de l'Ancienne Nation. » Les paroles de Fan Shanmeng étaient douces, mais son intention était limpide. Elle ne pensait pas que Wang Lin fût qualifié pour étudier ce navire et jugeait même ses propos parfaitement absurdes.
 
 « Ce n'est qu'un simple cultivateur insecte du monde des grottes, et il prétend vouloir étudier un trésor de mon Secte de la Grande Âme? C'est ridicule! Il se surestime totalement! »
 
@@ -50,7 +50,7 @@ Cependant, fort de sa sagesse, Wang Lin ne se laissait pas berner si facilement.
 
 À cet instant, le Navire Démon des Âmes était sous le contrôle des sœurs. Même si Wang Lin se rendait à l'autel, tout resterait sous leur emprise. Pour parler crûment, il ne ressentait aucune sécurité au sein du trésor d'autrui.
 
-De plus, comment Wang Lin pourrait-il abandonner si aisément? Il était extrêmement rusé et ses paroles recelaient un sens caché!
+De plus, comment Wang Lin pourrait-il abandonner si aisément? Malgré sa culture élevée, sa sagesse n'était pas moindre : il était extrêmement rusé, et ses paroles recelaient un sens caché!
 
 S'il parvenait réellement à comprendre le Navire Démon des Âmes et à en prendre le contrôle, non seulement le problème du Daoïste aux Sept Couleurs serait résolu, mais il échapperait également au piège tendu par les deux sœurs.
 
@@ -68,7 +68,7 @@ Fan Shanmeng regarda calmement Wang Lin et sourit: « Le Cultivateur est donc si
 
 Une froideur cachée perçait dans le regard de Fan Shanmeng. Elle devait obtenir le Serment de Sang de Wang Lin. Grâce à cela, elle pourrait solliciter l'aide de son maître et utiliser un sort étrange capable, selon ses certitudes, de transformer Wang Lin en marionnette. Il deviendrait alors une pièce maîtresse pour éliminer le Souverain Céleste aux Sept Couleurs.
 
-« Bien qu'il soit extrêmement prudent, je ne crois pas qu'il puisse prendre le contrôle du Navire Démon des Âmes. Il possède peut-être quelques notions sur les restrictions, mais il n'est, après tout, qu'un simple insecte du monde des grottes. Comment un être de sa trempe pourrait-il comprendre les restrictions du Continent Astral Immortel?
+« Bien qu'il soit extrêmement prudent, je ne crois pas qu'il puisse prendre le contrôle du Navire Démon des Âmes. Il possède peut-être quelques notions sur les restrictions, mais il n'est, après tout, qu'un simple insecte du monde des grottes, une grenouille au fond de son puits. Comment un être de sa trempe pourrait-il comprendre les restrictions du Continent Astral Immortel?
 
 « Cette affaire est ridicule. Je veux voir comment il compte s'y prendre. S'il échoue et refuse toujours de me donner son Serment de Sang, j'aurai d'autres moyens de le traiter! » Une froideur glaciale se cachait dans les yeux de Fan Shanmeng, mais elle afficha un sourire empreint de douceur en regardant Wang Lin.
 
@@ -92,13 +92,13 @@ Fan Shanmeng ricana intérieurement. Ce Navire Démon des Âmes étant le tréso
 
 Wang Lin agita la main droite à l'intérieur de l'ombre de l'Ancien. Des dizaines, des centaines, des milliers... en un clin d'œil, près d'un million d'empreintes de paumes apparurent devant lui.
 
-Ces empreintes de restrictions se superposèrent dans un flux fantomatique. En un instant, ce million d'empreintes fusionnèrent pour n'en former qu'une seule, et la main de Wang Lin frappa le pont.
+Ces empreintes de restrictions se superposèrent en émettant une lueur fantomatique aveuglante. En un instant, ce million d'empreintes fusionnèrent pour n'en former qu'une seule, et la main de Wang Lin frappa le pont.
 
 L'impact fit trembler le pont, et même le navire tout entier tressaillit à plusieurs reprises. Une ondulation se propagea depuis la main de Wang Lin et balaya le passage devant Fan Shanmeng, couvrant près de 30 % du pont.
 
 Une fois l'ondulation passée, le pont parut transfiguré aux yeux de Wang Lin. C'était comme si le voile recouvrant la source avait été levé. Ce navire n'avait pas de pont tangible; il était constitué de restrictions condensées les unes avec les autres.
 
-Ces restrictions étaient toutes distinctes et si densément compactées qu'elles émettaient une lueur spectrale.
+Ces restrictions étaient toutes distinctes et si densément compactées qu'elles émettaient une faible lueur sombre.
 
 « Il a brisé la protection des restrictions du pont! Il ne se contente pas de connaître quelques formules, sa maîtrise est extrêmement élevée... » Fan Shanmeng prit une profonde inspiration et son regard envers Wang Lin changea radicalement.
 

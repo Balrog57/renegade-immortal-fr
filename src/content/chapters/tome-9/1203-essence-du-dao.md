@@ -52,7 +52,7 @@ Le regard de Wang Lin s'anima et il fixa la bouteille dans sa main gauche.
 
 « La pierre de jade de Sima Mo mentionnait quatre tablettes, mais lorsque j'ai étendu mon esprit, je n'en ai trouvé que deux. L'une des tablettes de pierre ne possédait ni squelette ni bouteille en dessous... C'est assez étrange. »
 
-Après une courte réflexion, Wang Lin observa les neuf grottes de la montagne. Il n'avait inspecté que les trois premières sans les ouvrir par la suite. Son corps vacilla et il apparut devant la quatrième grotte.
+Après une courte réflexion, Wang Lin observa les neuf grottes de la montagne. Il n'avait ouvert que les trois premières, sans toucher aux suivantes. Son corps vacilla et il apparut devant la quatrième grotte.
 
 Il posa sa main droite sur le rocher qui scellait l'entrée et l'énergie originelle de son corps jaillit. En pressant doucement la roche, des bruits de craquements retentirent. Toutes les restrictions s'effondrèrent et furent repoussées sur le côté.
 

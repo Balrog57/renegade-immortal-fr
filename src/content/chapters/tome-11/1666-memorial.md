@@ -18,7 +18,7 @@ Elles ne le voulaient pas, et elles n'en étaient pas capables. Elles ne pouvaie
 
 Tandis que Wang Lin s'inclinait, il ne leva pas les yeux, maintenant sa posture solennelle. Sa tête basse dissimulait la tristesse qui embrasait son regard.
 
-Des âmes illusoires émergèrent du système stellaire. Les premières à apparaître furent les anciens cultivateurs qui vivaient avant même l'existence des Royaumes Intérieur et Extérieur.
+Des âmes illusoires émergèrent du système stellaire. Les premières à apparaître furent les anciens cultivateurs de l'époque où la Formation de Scellement du Royaume n'existait pas encore, quand les Royaumes Intérieur et Extérieur ne faisaient qu'un.
 
 Ils appartenaient à la première génération de vie sous le Royaume Céleste Antique. Ils avaient reçu les enseignements de ce royaume, qui leur avait transmis l'art de la cultivation immortelle; ils étaient la première génération d'êtres nés de l'évolution du Dao céleste.
 
@@ -44,11 +44,11 @@ Après les êtres célestes vinrent les cultivateurs de cette ère, ceux qui ava
 
 À ces mots, les âmes infinies du Royaume Intérieur se distordirent pour se transformer en une aura invisible qui vola vers Wang Lin.
 
-Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à mille pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
+Le premier à l'atteindre fut un ancien cultivateur. Son expression était évanescente et son âme lugubre. Il apparut à cent pieds de Wang Lin et le regarda avec profondeur. Wang Lin maintint sa posture de révérence. L'âme joignit les mains en signe de respect devant lui.
 
 Après avoir salué, il se précipita dans la roue géante, acceptant volontairement de devenir l'un des esprits de la formation!
 
-Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à mille pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
+Derrière lui, toutes les âmes mortes de l'ère antique suivirent le mouvement. Elles joignirent toutes les mains vers Wang Lin à cent pieds de distance avant d'entrer sans hésitation dans la roue de la formation.
 
 Bien qu'elles portaient encore le ressentiment de leur mort, l'instant où elles saluèrent, tout regret s'évanouit; elles s'intégrèrent volontairement à la formation. Elles étaient mortes pour le Royaume Intérieur et, même par-delà la mort, offraient leurs âmes à sa cause.
 
@@ -92,7 +92,7 @@ Pourtant, au moment même où il s'inclinait, son expression se crispa de douleu
 
 « Je peux vous aider, mais vous ne m'empêcherez pas de saluer ces âmes qui me plongent dans la culpabilité! » Le Vieux Fantôme Zhan serra les dents, prononçant chaque mot avec force. Il ignora la puissance qui tentait de le contraindre et acheva sa révérence.
 
-Simultanément, dans la Rivière Invoquée, sur un météore que même Wang Lin avait remarqué grâce à son Sens Divin, l'Omniscient ouvrit lentement les yeux.
+Simultanément, dans la Rivière Invoquée, sur un météore que Wang Lin avait pourtant croisé, sans que son Sens Divin ne le détecte, l'Omniscient ouvrit lentement les yeux.
 
 Son expression était sereine. Il nota les âmes invoquées depuis les étoiles et médita en silence. Après un long moment, il sortit du météore et se tint là, contemplant l'innombrable procession.
 

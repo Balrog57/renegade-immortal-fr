@@ -90,7 +90,7 @@ Tandis que Wang Lin fixait la silhouette de Maître Pin Cendré, ses mains form�
 
 Maître Pin Cendré ne sentit que sa vision se brouiller; lorsqu'elle redevint claire, son expression changea radicalement. Les positions de Wang Lin et de Maître Pin Cendré avaient été inversées. Profitant de la confusion causée par le sort, Wang Lin réduisit instantanément la distance.
 
-Wang Lin leva la main droite et pressa le vide, tandis que sa main gauche pointait rapidement le revers de sa main droite. Une vague d'énergie originelle jaillit de sa paume avant de s'élancer vers Maître Pin Cendré.
+Wang Lin leva la main droite et pressa le vide, tandis que sa main gauche tapotait rapidement le revers de sa main droite. Une vague d'énergie originelle jaillit de sa paume avant de s'élancer vers Maître Pin Cendré.
 
 Tout cela se produisit en un éclair, avec une rapidité dépassant l'entendement. Maître Pin Cendré n'aurait jamais imaginé que Wang Lin possédât un tel trésor! Lorsqu'il s'en rendit compte, la puissante énergie originelle l'avait déjà atteint.
 

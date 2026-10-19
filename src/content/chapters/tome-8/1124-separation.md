@@ -12,7 +12,7 @@ En fin de compte, Mu Bingmei ne vit pas Wang Ping. Wang Lin ne voulut pas devine
 
 Si la distance la plus grande au monde n'était pas la vie et la mort, mais le fait d'être oublié, alors cette distance semblait bien moins infinie que celle qui séparait Wang Lin de Mu Bingmei. Il semblait que l'ultime éloignement soit l'incapacité d'oublier...
 
-Vouloir oublier sans y parvenir; vouloir chercher sans direction possible. Seul le passage du temps restait, s'écoulant dans les ténèbres de l'éternité.
+Vouloir oublier sans y parvenir; vouloir chercher sans direction possible. Ne restaient que les années de fleurs écloses puis fanées, et l'éternité des jours et des nuits qui se succèdent.
 
 Tandis que Mu Bingmei contemplait la silhouette qui disparaissait dans la lumière crue, des larmes coulèrent à nouveau. Elle voulait voir Wang Ping, elle voulait toucher son enfant et le serrer contre elle...
 
@@ -28,7 +28,7 @@ Si sa vie lui appartenait, elle aurait emprunté ce chemin sans hésiter, que ce
 
 Le ciel était bleu, et le cœur de Mu Bingmei semblait s'en teinter également. C'était d'un bleu d'une intensité profonde.
 
-Le vide spatial était si sombre que même la lueur des étoiles lointaines ne pouvait atteindre cette profondeur pour apaiser la douleur dans le cœur de Wang Lin. Il ne pouvait que laisser cette souffrance envahir tout son être.
+Le vide spatial était si sombre que même la lueur des nébuleuses et des étoiles lointaines ne pouvait atteindre cette profondeur pour apaiser la douleur dans le cœur de Wang Lin. Il ne pouvait que laisser cette souffrance envahir tout son être.
 
 « À force de persister, peut-être finira-t-elle par ne plus faire mal. »
 
@@ -44,7 +44,7 @@ Après avoir quitté Zhou Ru, Wang Lin pensa à Wang Ping et Li Muwan.
 
 Wang Lin réprima peu à peu la douleur de son cœur et regarda tendrement Zhou Ru. Cette enfant l'avait accompagné durant de nombreuses années.
 
-« Si... qu'oncle ne revient jamais, petite Ru Er, tu pourras aller retrouver ton maître. » Wang Lin ferma les yeux et se détourna. Il se dégagea des mains de Zhou Ru et disparut.
+« Si... qu'oncle ne revient jamais, petite Ru Er, tu pourras aller retrouver ta maîtresse. » Wang Lin ferma les yeux et se détourna. Il se dégagea des mains de Zhou Ru et disparut.
 
 « Oncle... » Les larmes de Zhou Ru tombèrent sur ses vêtements. Derrière elle, Hu Juan poussa un soupir, prit la main de la jeune fille et dit doucement: « Ton oncle reviendra. »
 
@@ -92,7 +92,7 @@ Cependant, il ne trouva aucune trace de Da Tou ou de ses compagnons. L'expressio
 
 « Où sont-ils?! » Wang Lin les fixa intensément avant de se calmer de force. Il savait que la colère ne résoudrait rien; il devait rester lucide.
 
-« Wang Lin, en tant que membre de nos Quatre Sectes Divines, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois? » Le visage de l'ancien du Dragon Azure était sombre; sans égard pour l'ancien statut de Wang Lin et pour les innombrables années de bienfaits de l'ancien Empereur Divin de l'Oiseau Vermillon, il serait déjà intervenu.
+« Wang Lin, en tant que membre de nos Quatre Sectes Divines, le Souverain Divin veut vous voir. Dois-je le répéter une troisième fois? » Le visage de l'ancien du Dragon Azure était sombre; s'il n'avait pas tenu compte de l'ancien statut de Wang Lin et des innombrables années de bienfaits de l'ancien Empereur Divin de l'Oiseau Vermillon, il serait déjà intervenu.
 
 Wang Lin répondit avec lenteur: « Sans moi, le Souverain Divin du Dragon Azure serait encore scellé dans le Royaume Céleste de la Pluie! »
 
@@ -120,4 +120,4 @@ L'Empereur Divin du Dragon Azure esquissa un sourire, mais ce fut un sourire d'u
 
 « Je ne les ai pas maltraités. Il y a une planète rocheuse en dehors des Quatre Sectes Divines, et tous les étrangers y ont été envoyés. »
 
-« Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il agita la main droite vers le vide, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.
+« Je peux renoncer à mon identité d'Empereur Divin de l'Oiseau Vermillon, je peux vous donner le Trésor Sacré, je peux partir et ne jamais revenir, mais je vais emporter une chose avec moi! » Wang Lin n'avait jamais eu l'intention de garder le Trésor Sacré. Il saisit le vide de la main droite, et une pierre blanche incandescente apparut, contenant une goutte de sang sacré.

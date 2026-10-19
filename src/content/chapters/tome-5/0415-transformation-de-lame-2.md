@@ -87,7 +87,7 @@ Une lueur de joie passa dans les yeux de Du Tian et il hocha discrètement la t�
 
 « Ceng Niu, assieds-toi en position du lotus. Ma Secte de l'Affinement de l'Âme ne dispose plus de beaucoup de jades célestes. Bien que nous en ayons accumulé une grande quantité lors de notre transfert depuis la Planète des Quatre Saints, après des dizaines de milliers d'années et plus de trente cultivateurs de la Transformation de l'Âme, nos réserves sont épuisées depuis longtemps. Les jades restants sont ceux que mon grand frère apprenti et moi avons obtenus du Royaume Céleste dans notre jeunesse. Je crains qu'ils ne suffisent pas à tes besoins. Cependant, ne t'en fais pas; même si cela s'avère insuffisant, je n'aurai qu'à t'emmener en voler d'autres. Quoi qu'il en soit, tu dois atteindre le stade de la Transformation de l'Âme sans tarder.
 
-« Ma Secte de l'Affinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en visiterons deux; si deux ne suffisent pas, nous irons vers une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
+« Ma Secte de l'Affinement de l'Âme n'a jamais eu à craindre la pénurie de jades célestes car, dès que quelqu'un est prêt pour la Transformation de l'Âme, nous choisissons une secte et emmenons le drapeau d'âmes d'un milliard pour ravir ce qui nous est nécessaire. Si une seule secte ne suffit pas, nous en pillerons deux; si deux ne suffisent pas, nous en pillerons une troisième. Tôt ou tard, nous obtiendrons assez de jades célestes. »
 
 « Lorsque j'ai atteint le stade de la Transformation de l'Âme, mon maître a pris le drapeau d'âmes d'un milliard et a pillé toutes les sectes des trois pays de culture de rang 5. » Tandis que Du Tian parlait, une fierté manifeste brillait dans son regard.
 
@@ -95,7 +95,7 @@ Wang Lin ne put qu'esquisser un sourire amer en entendant cela. Il pensait que l
 
 À cet instant, les grondements s'intensifièrent et le sol commença à se fissurer. Deux blocs de jade céleste, chacun de la taille d'un homme, émergèrent des profondeurs.
 
-Une riche énergie spirituelle céleste commença à saturer l'espace. Wang Lin observa de plus près et constata que la qualité de ces deux jades n'égalait pas celle de ses propres trésors. Cependant, leur masse était telle qu'ils contenaient naturellement une quantité bien supérieure d'énergie spirituelle céleste.
+Une riche énergie spirituelle céleste commença à saturer l'espace. Wang Lin observa de plus près et constata que la qualité de ces deux jades n'égalait pas celle des jades qu'il avait utilisés auparavant. Cependant, leur masse était telle qu'ils contenaient naturellement une quantité bien supérieure d'énergie spirituelle céleste.
 
 Wang Lin prit une profonde inspiration et commença à absorber cette énergie.
 

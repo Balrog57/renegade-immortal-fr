@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 119 - Soul Awakens
 slug: leveil-de-lame
 ---
-Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Union de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
+Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent depuis des myriades d'années. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Union de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles sans limites, un lieu saturé d'énergies violentes et peuplé d'innombrables créatures mystérieuses.
 
@@ -18,7 +18,7 @@ C'est là une des raisons de leur dangerosité. L'autre réside dans le fait que
 
 Un point lumineux apparut soudainement dans la déchirure spatiale et s'y mit à flotter. En regardant de plus près, on pouvait y voir le faible éclat d'un feu d'âme.
 
-Le temps passa lentement. Après une durée indéterminée, ce point lumineux continua de dériver dans l'espace. Ce feu d'âme montrait des signes de dissipation. Le temps s'écoulait, et la lumière restait très ténue; il ne subsistait qu'une faible braise du feu d'âme.
+Le temps passa lentement. Après une durée indéterminée, ce point lumineux continua de dériver dans l'espace. Ce feu d'âme montrait des signes de dissipation. Le temps s'écoulait, et la lumière restait très ténue; il ne subsistait plus qu'une petite flamme du feu d'âme.
 
 Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regarder de plus près, cette ombre était un cadavre imposant. Ce corps semblait être celui d'un membre du Clan des Démons Géants. Cependant, si l'on observait attentivement le front de ce corps, on n'y voyait pas un marteau, mais une hache.
 

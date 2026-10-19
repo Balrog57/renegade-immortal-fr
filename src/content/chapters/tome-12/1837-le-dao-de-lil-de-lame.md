@@ -10,7 +10,7 @@ Au huitième étage du Pavillon des Écritures de l'Âme, l'aura choquante qui �
 
 Wang Lin ne voulait pas puiser trop de puissance de son avatar. Il n'en utiliserait que la quantité juste pour ne rien gaspiller. Il n'y avait aucun avantage à en abuser, et cela pourrait provoquer la dessiccation de l'avatar.
 
-Quant à l'idée d'emprunter la puissance de l'avatar pour accéder au neuvième étage, cette pensée avait traversé l'esprit de Wang Lin un instant. Cependant, il sentait à quel point les restrictions sur ces escaliers étaient puissantes; le coût pour monter était trop élevé. Il n'était pas raisonnable d'essayer à son niveau de culture actuel.
+Quant à l'idée d'emprunter la puissance de l'avatar pour accéder au neuvième étage, cette pensée avait traversé l'esprit de Wang Lin un instant. Cependant, il sentait à quel point les restrictions sur ces escaliers étaient puissantes; il aurait pu y monter, mais le coût était trop élevé : forcer le passage à son niveau de culture actuel n'en valait pas la peine.
 
 Après avoir pesé le pour et le contre, Wang Lin renonça à l'idée de monter au neuvième étage. Il dispersa l'aura de son avatar et commença à observer le huitième étage.
 
@@ -28,7 +28,7 @@ Les yeux de Wang Lin s'arrêtèrent sur le troisième corps spirituel parmi les 
 
 « Il semble que la version complète se trouve au neuvième étage. » Wang Lin réfléchit et observa le septième corps spirituel. L'aura de ce dernier était aussi puissante que celle de l'illusion multicouche.
 
-Ce septième corps contenait l'Origine de la Fantaisie de l'Âme qu'Yan Lu avait utilisée, et ce sort était complet au huitième étage.
+Ce septième corps contenait l'Origine de la Fantaisie de l'Âme qu'Yan Luan avait utilisée, et ce sort était complet au huitième étage.
 
 Wang Lin pesa le pour et le contre entre ces deux options.
 
@@ -48,7 +48,7 @@ Percer les septième et huitième étages d'un seul coup, bien que cela fût dé
 
 Les théories abondaient, mais aucune ne correspondait à la vérité.
 
-Les rares personnes au courant de la vérité ne la révéleraient pas facilement. Que ce soient les sœurs Fan Shanmeng ou Fan Shanlu, ou l'Ancien Taureau Vert, aucun n'en parlerait. Même Yan Lu resterait silencieuse, après que Wang Lin eut fissuré son cœur de Dao pour lui faire craindre sa puissance.
+Les rares personnes au courant de la vérité ne la révéleraient pas facilement. Que ce soient les sœurs Fan Shanmeng ou Fan Shanlu, ou l'Ancien Taureau Vert, aucun n'en parlerait. Même Yan Luan resterait silencieuse, après que Wang Lin eut fissuré son cœur de Dao pour lui faire craindre sa puissance.
 
 Quant à son identité de cultivateur du Pays Antique, cette information avait été scellée par l'Ancien Taureau Vert, qui avait imposé un ordre de silence.
 
@@ -82,7 +82,7 @@ L'Ancien Taureau Vert, resté à l'intérieur du Pic Céleste Vert, regarda Wang
 
 Cette ultime rumeur était un secret que tous les disciples de la Secte de la Grande Âme partageaient. Cette information était si terrifiante qu'on préférait la traiter de simple rumeur!
 
-« La rumeur prétend qu'en la cité impériale, l'art du Dao de la lignée de l'Instructeur Impérial s'appelle l'Œil du Dao de l'Âme... » L'estimable Taureau Vert médita en silence, troublé. Après un long moment, il soupira et se mit à cultiver.
+« La rumeur prétend qu'en la cité impériale, l'art du Dao de la lignée Shang Xuandao de l'Instructeur Impérial s'appelle l'Œil du Dao de l'Âme... » L'estimable Taureau Vert médita en silence, troublé. Après un long moment, il soupira et se mit à cultiver.
 
 Wang Lin survola la Secte de la Grande Âme. Le secteur était si vaste qu'il était impossible d'en percevoir les limites d'un seul coup d'œil; on ne voyait que des montagnes perçant les cieux les unes après les autres.
 

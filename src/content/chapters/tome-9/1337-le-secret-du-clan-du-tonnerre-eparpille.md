@@ -26,7 +26,7 @@ Le dernier vieil homme, qui était un cultivateur au stade du Yang Corporel, obs
 
 « Le Tonnerre Spirituel? » Parmi les souvenirs des membres du Clan du Tonnerre Dispersé qu'il avait dévorés, aucune mention du Tonnerre Spirituel n'existait.
 
-« Puisque tu as pu intégrer le classement, tu dois déjà savoir certaines choses. Nos ancêtres ont étudié le tonnerre durant d'innombrables années. Ils ont découvert qu'il existe six types de tonnerre dans ce monde. Si tu parviens à absorber et à raffiner les six, tu obtiendras un tonnerre indescriptible! »
+« Puisque tu as pu intégrer le classement, tu dois déjà savoir certaines choses. Nos ancêtres ont étudié le tonnerre durant d'innombrables années. Ils ont découvert qu'il existe six types de tonnerre dans ce monde. Si tu parviens à absorber et à raffiner les six, tu obtiendras un pouvoir du tonnerre insondable, que nul dieu ni démon ne saurait mesurer! »
 
 « Les six types de tonnerre sont le Tonnerre Céleste, le Tonnerre Terrestre, le Tonnerre Originel, le Tonnerre Magnétique, le Tonnerre Dao, et le dernier est le Tonnerre Spirituel! Prendre cette tâche ne sert pas seulement à obtenir des cristaux de tonnerre, mais aussi à entrer en contact avec ces six types de tonnerre! Bien, tu peux partir », expliqua le vieil homme.
 
@@ -66,7 +66,7 @@ Le jade contenait une quantité massive d'informations. Une fois la lecture term
 
 Dans ce monde, tout possédait un esprit: la végétation, les bêtes, les cultivateurs et bien plus encore. Une fois le sommet du stade de Formation de l'Âme atteint, ils ascendaient vers le Royaume Céleste!
 
-Wang Lin connaissait ce principe; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste n'avait pas été détruit, un cultivateur atteignant le sommet de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser!
+Wang Lin connaissait ce principe; il l'avait appris sur la planète Suzaku. Si le Royaume Céleste de la Pluie n'avait pas été détruit, un cultivateur atteignant le sommet de la Formation de l'Âme devait faire face à la rétribution divine pour ascendre au Royaume Céleste. Le stade de Transformation de l'Âme appartenait, en réalité, à la culture céleste, ce qui expliquait pourquoi les cultivateurs de ce stade avaient besoin de jades célestes pour progresser!
 
 Il existait un lieu créé par un ancêtre du Clan du Tonnerre Dispersé. Celui-ci était réputé être le plus puissant de toute l'histoire du clan, un cultivateur de la troisième étape qui avait mené le clan à son apogée et eu la chance de fusionner le trésor suprême du clan dans la Formation du Royaume Scellé.
 

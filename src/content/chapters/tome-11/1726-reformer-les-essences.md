@@ -38,13 +38,13 @@ Il ne déploya pas son Sens Divin; il laissa simplement la Bête des Limbes erre
 
 Cette bouchée de sang était d'un rouge vif et flottait devant lui, suivant le rythme de la Bête des Limbes en contrebas. Le sang s'anima et émit une lumière éblouissante, tandis que des effluves parfumées se propageaient.
 
-« Puisque l'avatar s'est dissipé, je vais en former un autre! Cet avatar prendra mon sang pour noyau et suivra le chemin du Grand Dao! » murmura Wang Lin en pointant le sang du doigt.
+« Puisque l'avatar s'est dissipé, je vais en former un autre! Cet avatar aura pour fondement mon sang et suivra le chemin du Grand Dao! » murmura Wang Lin en pointant le sang du doigt.
 
 Sous ce geste, le sang s'anima avec encore plus de rapidité. Il se dilata promptement pour prendre la forme d'un être humain, bien qu'il conservât l'apparence d'une silhouette faite de sang.
 
 « Mon sang contient la puissance du Dao Ancien, et pour créer cet avatar, je dois en extraire cette puissance. Ce n'est pas difficile! » Les yeux de Wang Lin s'illuminèrent, et des étoiles apparurent entre ses sourcils ainsi que dans son regard. Elles se mirent à pivoter, créant une force d'aspiration. Le corps de sang commença à se distordre alors que des volutes de fumée étaient arrachées et absorbées par les étoiles de Wang Lin.
 
-Le processus fut extrêmement rapide. En moins du temps qu'il faut pour brûler un bâton d'encens, toute l'aura du Dao Ancien fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
+Le processus fut extrêmement rapide. En environ le temps de brûler un bâton d'encens, toute l'aura du Dao Ancien fut extraite. Le corps de sang ne possédait plus aucune trace de cette aura.
 
 À mesure que la puissance du Dao Ancien s'échappait, le corps de sang brilla intensément. Lentement, la teinte rouge changea et bientôt, un avatar ressemblant trait pour trait à Wang Lin apparut!
 
@@ -66,7 +66,7 @@ Lorsque les flammes convergèrent vers lui, son œil gauche sembla devenir un tr
 
 En un instant, la mer de feu disparut et la marque de l'essence du feu apparut dans l'œil gauche de Wang Lin.
 
-« Essence du tonnerre qui est entrée dans le vide, en tant que seigneur du tonnerre, je vous conjure de revenir vers moi! » dit doucement Wang Lin avant d'agiter la main droite.
+« Essence du tonnerre qui est entrée dans le vide, en tant que seigneur du tonnerre, fort de mes innombrables compréhensions, je vous conjure de revenir vers moi! » dit doucement Wang Lin avant d'agiter la main droite.
 
 D'un geste, le système stellaire trembla et d'innombrables ondulations se propagèrent dans toutes les directions. Un grondement sourd retentit au loin, s'amplifiant rapidement. Ce fracas venait de partout et, en quelques instants, il étouffa tous les autres sons.
 
@@ -108,7 +108,7 @@ Pendant que Wang Lin reformait les essences de son avatar de cultivateur, la Bê
 
 À cet instant, dans la Mer des Nuages, un groupe de personnes traversait le système stellaire.
 
-Ces individus étaient menés par quatre vieillards, et ils étaient plus d'une centaine. Tandis qu'ils volaient à travers les étoiles, des ondulations résonnaient derrière eux.
+Ces individus étaient menés par quatre vieillards, et ils étaient plusieurs centaines. Tandis qu'ils volaient à travers les étoiles, des ondulations résonnaient derrière eux.
 
 Ils dégageaient une aura extrêmement puissante, les quatre chefs étant les plus forts. Ils utilisaient un sort inconnu qui connectait leurs Sens Divins entre eux.
 

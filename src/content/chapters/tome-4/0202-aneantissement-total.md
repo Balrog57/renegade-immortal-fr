@@ -24,7 +24,7 @@ Seuls quelques rares individus osaient l'appeler le Bossu Meng. Après avoir ent
 
 N'osant pas mentir, il s'exécuta rapidement: « Se... Senior, l'Ancêtre Meng est bel et bien l'ancêtre de notre secte. » Après ces mots, il serra les dents. Sans attendre que Wang Lin ne réponde, il livra le secret qu'il portait.
 
-Il semblait que quelques années auparavant, Qian Kun avait entendu le chef actuel parler de l'ancêtre Meng Qingfan: celui-ci n'était pas porté disparu, mais s'était rendu dans les Étoiles Brisées du Chaos pour y chercher des trésors, et il s'agirait de sa deuxième expédition là-bas.
+Il semblait qu'autrefois, Qian Kun avait entendu le chef actuel parler de l'ancêtre Meng Qingfan: celui-ci n'était pas porté disparu, mais s'était rendu dans les Étoiles Brisées du Chaos pour y chercher des trésors, et il s'agirait de sa deuxième expédition là-bas.
 
 Il avait également entendu que si une grande faille apparaissait dans les Étoiles Brisées du Chaos, cela signifiait que l'ancêtre était de retour.
 
@@ -46,7 +46,7 @@ Tout cela se produisit à une vitesse fulgurante. À l'instant même où Qian Ku
 
 Cette fois, le cœur de Qian Kun trembla de nouveau. Un froid glacial envahit son corps. Il pressa ses pouvoirs spirituels pour accélérer sa fuite.
 
-Le visage de Wang Lin demeura impassible. Il pointa un doigt vers son front. Soudain, dans la mer de conscience du Palais Pourpre, une ombre noire s'échappa du cœur d'âme; plus rapide que l'éclair, elle jaillit de la mer de conscience et traversa le front de Wang Lin, entre ses sourcils.
+Le visage de Wang Lin demeura impassible. Il pointa un doigt vers son front. Soudain, dans la mer de conscience du Palais Pourpre, une ombre noire s'échappa du noyau d'âme; plus rapide que l'éclair, elle jaillit de la mer de conscience et traversa le front de Wang Lin, entre ses sourcils.
 
 Le Démon Xu Liguo apparut dans un cri de joie qui résonna dans les environs.
 
@@ -66,7 +66,7 @@ En voyant cela, le visage de Yun Fei devint encore plus livide et elle recula in
 
 L'erreur de Yun Fei était compréhensible. L'âme du Démon Xu Liguo avait été raffinée à partir d'une Âme Naissante. De plus, le fait que Xu Liguo ait côtoyé plusieurs ancêtres à la troisième épreuve du territoire de l'Ancien Dieu l'avait quelque peu transformé.
 
-Plus important encore, Wang Lin avait formé son cœur d'âme. Bien qu'un cœur d'âme n'augmente pas le niveau de culture d'un dévoreur d'âmes, il lui permettait de créer des esprits errants. Ce cœur d'âme bénéficiait également aux esprits que le dévoreur contrôlait.
+Plus important encore, Wang Lin avait formé son noyau d'âme. Bien qu'un noyau d'âme n'augmente pas le niveau de culture d'un dévoreur d'âmes, il lui permettait de créer des esprits errants. Ce cœur d'âme bénéficiait également aux esprits que le dévoreur contrôlait.
 
 Wang Lin avait tué Qian Kun pour éviter que la nouvelle de sa sortie des Étoiles Brisées du Chaos ne soit ébruitée.
 

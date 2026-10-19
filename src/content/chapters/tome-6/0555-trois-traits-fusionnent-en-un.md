@@ -20,7 +20,7 @@ Ses yeux s'illuminèrent et il agita la main pour tracer le symbole dans l'air. 
 
 Wang Lin réfléchit un instant avant de mémoriser le symbole, puis cessa d'y penser. Un éclat mystérieux traversa son regard alors qu'il observait Yao Xixue au loin.
 
-« Elle possède la Pilule de l'Âme Sanguine; si je tentais une attaque surprise, elle ne ferait que se régénérer. Il serait difficile de l'éliminer... »
+« Elle possède la Pilule de l'Âme Sanguine; si je tentais une attaque surprise, elle ne ferait que ressusciter. Il serait difficile de l'éliminer... »
 
 Sept jours plus tard, une autre plateforme apparut au bout du Chemin du Dragon Sacré. Cette plateforme était de taille identique à la précédente et, tout comme elle, une statue en trônait au centre.
 

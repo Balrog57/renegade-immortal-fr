@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1006 - Crisis
 slug: crise
 ---
-Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xing se rua sur les deux autres. Ses mains formèrent un sceau, puis il en saisit un et le lança vers Maître Yi Long.
+Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xing se rua sur le soldat qui fonçait vers la brume blanche. Ses mains formèrent un sceau, puis il en saisit un et le lança vers Maître Yi Long.
 
 Désormais, il ne restait plus qu'un seul soldat!
 
@@ -48,13 +48,13 @@ Les yeux de Wang Lin brillèrent intensément et, loin de reculer, il chargea en
 
 Des grondements sourds résonnèrent dans le haut du corps du singe géant, qui recula brusquement. Cependant, il ne fit que trois pas avant que la moitié supérieure de son corps n'explose.
 
-Sans perdre un instant, Wang Lin bondit dans les airs. Il pointa vers le bas et dit calmement: « Paire de Flétrissement du Dao! »
+Sans perdre un instant, Wang Lin bondit dans les airs. Il pointa vers le bas et dit calmement: « Paire de la Déchéance du Dao! »
 
-À sa parole, la Paire de Flétrissement du Dao sur le dos de sa main libéra une lueur sombre et s'élança. Un crâne de bête sinistre, enveloppé d'une brume noire, vola vers l'ennemi. Une lumière fantomatique émanait des orbites du crâne!
+À sa parole, la Paire de la Déchéance du Dao sur le dos de sa main libéra une lueur sombre et s'élança. Un crâne de bête sinistre, enveloppé d'une brume noire, vola vers l'ennemi. Une lumière fantomatique émanait des orbites du crâne!
 
 À cet instant, une aura meurtrière terrifiante apparut; alors que la lumière spectrale brillait, l'aigle géant qui fonçait sur lui fut figé net en plein ciel, et une lueur grise le recouvrit. En un éclair, l'aigle se mua en une statue de pierre!
 
-Au même moment, le python noir s'approcha. Il ouvrit la gueule, créant une puissante force d'aspiration. Une odeur de sang écœurante s'en dégagea tandis qu'il tentait de dévorer Wang Lin. Un éclat de froideur passa dans les yeux de Wang Lin qui, en reculant, frappa son sac de contenance et cria: « Trois séries de neuf épées! »
+Au même moment, le python noir s'approcha. Il ouvrit la gueule, créant une puissante force d'aspiration. Une odeur de sang écœurante s'en dégagea tandis qu'il tentait de dévorer Wang Lin. Un éclat de froideur passa dans les yeux de Wang Lin qui, en reculant, frappa son sac de contenance et cria: « Trois ensembles de neuf épées! »
 
 Des épées dorées jaillirent immédiatement de son sac et flottèrent autour de lui. Il y en avait vingt-sept! Dès leur apparition, elles s'organisèrent en une formation d'épées et foncèrent sur le python géant.
 
@@ -64,13 +64,13 @@ Alors que des grondements fracassants résonnaient, le python fut encerclé par 
 
 Bien que tout cela semble lent, l'action se déroula en un éclair. La grotte intérieure s'obscurcit soudainement alors que la montagne céleste pénétrait la brume blanche pour s'écraser!
 
-L'expression de Wang Lin resta imperturbable tandis qu'il projetait un objet: les dix-huit Sceaux Célestes de l'Enfer! Dès son apparition, l'objet grandit et chargea la montagne céleste.
+L'expression de Wang Lin resta imperturbable tandis qu'il projetait un objet: le Sceau Céleste des 18 Enfers! Dès son apparition, l'objet grandit et chargea la montagne céleste.
 
 Il percuta la montagne dans un fracas colossal.
 
 Profitant de cet instant, une intention meurtrière fulgurante brilla dans les yeux de Wang Lin qui hurla: « Invoque le Vent! »
 
-Soudain, les couleurs du monde basculèrent, puis un vent noir apparut dans la main de Wang Lin, recouvrant l'univers. Quatre dragons noirs surgirent immédiatement de ce vent et chargèrent dans un rugissement de fureur.
+Soudain, les couleurs du monde basculèrent, puis un vent noir capable d'éteindre tout souffle de vie apparut dans la main de Wang Lin, recouvrant l'univers. Quatre dragons noirs surgirent immédiatement de ce vent et chargèrent dans un rugissement de fureur.
 
 L'expression de l'ancien qui avait invoqué le singe géant changea radicalement et il cria: « Le sort de Bai Fan! » Il n'hésita pas à battre en retraite, mais il était trop tard; l'un des dragons noirs le dévora.
 

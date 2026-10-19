@@ -20,13 +20,13 @@ L'homme en armure dorée observa Yu Sen et pensa: « Avec la culture de Yu Sen, 
 
 Tous les regards convergeaient vers Yu Sen, mais celui-ci leur était totalement indifférent. Pour éviter d'être perturbé par autrui, il ferma les yeux et fit abstraction du monde extérieur.
 
-Finalement, une aura maléfique s'échappa de son corps, se propageant dans l'air pour s'y condenser continuellement.
+Finalement, une aura démoniaque s'échappa de son corps, se propageant dans l'air pour s'y condenser continuellement.
 
 Des murmures parcoururent les gradins environnants.
 
 « La voie du massacre est extrêmement difficile à cultiver. Yu Sen le pratique depuis de nombreuses années; étant le premier à passer, je crains qu'il ne devienne instantanément célèbre! »
 
-« Qui sait... ce tambour démoniaque est fabriqué à partir de la peau d'un Démon Ancestral. Même si Yu Sen parvient à le faire résonner, il sera blessé par le contrecoup. »
+« Qui sait... ce tambour démoniaque est fabriqué à partir de la peau d'un démon ancien. Même si Yu Sen parvient à le faire résonner, il sera blessé par le contrecoup. »
 
 Les huit commandants en chef observaient également Yu Sen avec intérêt. Cependant, ils n'avaient nul besoin de discourir comme la foule; un simple regard leur suffisait pour discerner la situation avec précision.
 

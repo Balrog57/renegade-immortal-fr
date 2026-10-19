@@ -16,7 +16,7 @@ Sans s'arrêter, il se dirigea vers le mur. À mesure qu'il approchait, des fiss
 
 Si un cultivateur avait été témoin de cette scène étrange, il en aurait été profondément stupéfait. Même si un cultivateur au stade Yin et Yang pouvait accomplir un tel exploit, cela resterait extrêmement difficile.
 
-Seuls ceux qui avaient véritablement franchi la deuxième étape et effleuré les lois de l'univers pouvaient faire cela avec une telle aisance.
+Seuls ceux qui avaient véritablement franchi la deuxième étape, atteint le stade du Scruteur du Nirvana et effleuré les lois de l'univers pouvaient faire cela avec une telle aisance.
 
 Alors qu'il progressait, Wang Lin atteignit le lieu où il cultivait autrefois. Il regarda autour de lui, envahi par une pointe de mélancolie. Après avoir médité silencieusement un instant, il reprit sa marche. Devant lui se dressait un mur percé d'innombrables petits trous d'où s'échappait une énergie glaciale. Cependant, comparée à autrefois, cette énergie était bien plus affaiblie.
 
@@ -40,7 +40,7 @@ Avec le niveau de culture de Wang Lin à l'époque, il n'aurait ressenti qu'un t
 
 Il se souvenait clairement que le cultivateur devant lui était venu deux fois auparavant. La première fois, ce dernier n'était qu'au stade de l'Établissement des Fondations. Il ne s'en était pas soucié, car un tel cultivateur ne pouvait rien pour lui.
 
-Des centaines d'années plus tard, ce cultivateur revint une seconde fois. Cette fois, ce jeune prodige était presque au stade de la Transformation de l'Âme. À cette époque, il était venu prélever son sang et avait totalement ignoré ses appels au secours. Pour gagner du temps, il avait même tenté d'amadouer le jeune cultivateur en lui promettant de devenir sa monture. Pourtant, il avait échoué à s'échapper, car ce dernier était bien trop prudent.
+Des centaines d'années plus tard, ce cultivateur revint une seconde fois. Cette fois, ce jeune cultivateur était presque au stade de la Transformation de l'Âme. À cette époque, il était venu prélever son sang et avait totalement ignoré ses appels au secours. Pour gagner du temps, il avait même tenté d'amadouer le jeune cultivateur en lui promettant de devenir sa monture. Pourtant, il avait échoué à s'échapper, car ce dernier était bien trop prudent.
 
 Il en avait toujours éprouvé de la rancœur, mais il n'avait eu d'autre choix. Cependant, maintenant que ce cultivateur revenait pour la troisième fois, il était terrifié.
 
@@ -48,13 +48,13 @@ Il ne parvenait pas à percer le niveau de culture de ce jeune homme.
 
 Et encore, cet individu mis à part, il ne pouvait même pas évaluer la puissance des deux autres qui semblaient être ses serviteurs. Il ne ressentait d'eux qu'une aura terrifiante.
 
-Le visage de Wang Lin demeura impassible tandis qu'il inspectait soigneusement le cercueil. Il leva sa main droite et pointa négligemment l'objet. Lorsque son doigt toucha le bois, un fracas assourdissant résonna dans la grotte et des fissures se propagèrent frénétiquement à partir du point de contact. En un instant, les craquelures recouvrirent l'intégralité du cercueil.
+Le visage de Wang Lin demeura impassible tandis qu'il inspectait soigneusement le cercueil. Il leva sa main droite et pointa négligemment l'objet. Lorsque son doigt toucha le cercueil, un fracas assourdissant résonna dans la grotte et des fissures se propagèrent frénétiquement à partir du point de contact. En un instant, les craquelures recouvrirent l'intégralité du cercueil.
 
 Ce geste parut dérisoire pour Wang Lin, mais ce que vit l'ancêtre du Clan des Démons Géants le glaça d'effroi.
 
 Dès que le bout du doigt de Wang Lin eut touché la surface, le cercueil de milliers de pieds s'effondra instantanément, se dispersant dans toutes les directions. Une masse de brume blanche s'en échappa, emplissant l'espace.
 
-Au sein de cette brume flottait un homme nu gigantesque. Sa peau était d'un gris cendré. Contrairement à un Dieu Ancien, sa peau ne présentait aucune fissure; elle était parfaitement lisse.
+Au sein de cette brume flottait un homme nu gigantesque. Sa peau était d'un bleu acier. Contrairement à un Dieu Ancien, sa peau ne présentait aucune fissure; elle était parfaitement lisse.
 
 Une plante pourpre recouvrait le corps du géant et s'agitait continuellement. À chaque mouvement de la plante, le corps du géant rétrécissait visiblement avant de reprendre rapidement sa forme initiale. Au fil de ce cycle, une quantité massive de brume blanche et glaciale était libérée par la plante.
 
@@ -86,9 +86,9 @@ Un rugissement strident retentit, créant une tempête qui chargea vers Wang Lin
 
 En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 
-« La Secte des Cadavres se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte des Cadavres a donc élargi ses ambitions au Clan des Démons Géants. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un mortel ne peut affronter. Si un cultivateur du stade Scruteur du Nirvana possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
+« La Secte des Cadavres se spécialise dans le trafic de corps. Dans ce monde, le corps ultime est celui d'un Dieu Ancien! Cependant, les Dieux Anciens se font rares; la Secte des Cadavres a donc élargi ses ambitions au Clan des Démons Géants. Un tel corps, combiné aux sorts d'un cultivateur, est une chose qu'un cultivateur ordinaire ne peut affronter. Si un cultivateur du stade Scruteur du Nirvana possédait ce type de corps avec ses techniques et la capacité de lignée des Démons Géants, ce serait une menace contre laquelle même moi je n'aurais aucune confiance pour lutter, à moins de fusionner avec mon corps originel! »
 
-Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secrets. Il ignorait si la possession des corps du Clan des Démons Géants était une priorité absolue pour eux.
+Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secrets. Il ignorait si la possession des corps du Clan des Démons Géants était une priorité pour eux.
 
 Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Luotian approchait, il était convaincu que tous les secrets de la Secte des Cadavres finiraient par éclater au grand jour.
 

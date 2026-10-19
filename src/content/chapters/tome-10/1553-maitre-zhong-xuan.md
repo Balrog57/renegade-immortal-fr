@@ -12,7 +12,7 @@ L'expression du vieil homme à l'intérieur de la lumière blanche changea aprè
 
 Wang Lin tenait l'arc de la main gauche. La corde était initialement rompue, mais elle avait été restaurée après s'être fusionnée avec sa lignée de sang. Cependant, tendre cette corde revenait à tendre les propres tendons de Wang Lin!
 
-Pourtant, Wang Lin ne se souciait guère des conséquences pour le moment. Bien qu'il fût aussi rusé qu'un démon, sa personnalité n'avait pas changé: une fois sa décision prise, il ne reculait devant rien! Il sauverait Qing Shui, quoi qu'il en coûte!
+Pourtant, Wang Lin ne se souciait guère des conséquences pour le moment. Bien que son esprit se fût mué en celui d'un démon, sa personnalité n'avait pas changé: une fois sa décision prise, il ne reculait devant rien! Il sauverait Qing Shui, quoi qu'il en coûte!
 
 La main droite de Wang Lin saisit la corde de l'arc. Les veines de son visage se gonflèrent sous l'effort. Il laissa échapper un rugissement et tira la corde vers lui!
 
@@ -88,11 +88,11 @@ Cependant, cette expression plongea Maître Zhong Xuan dans le désespoir. Son c
 
 « Maître, ce disciple n'avait pas l'intention d'ouvrir le sceau du Royaume aux Sept Couleurs!! C'est le Seigneur Céleste Qing Shui qui s'est frayé un chemin jusqu'ici et qui a forcé ce disciple à briser le sceau!! C'est lui qui a ouvert le Royaume aux Sept Couleurs! Ce disciple n'y est pour rien, c'est lui le coupable! »
 
-Les yeux de Wang Lin se plissèrent sur Maître Zhong Xuan. L'aura de Maître Yan Leizi était empreinte d'une haine monstrueuse, et sa respiration devint rauque.
+Les yeux de Wang Lin se plissèrent sur Maître Zhong Xuan. L'aura de Maître Yan Leizi était empreinte d'une haine monstrueuse, et sa respiration s'accéléra.
 
 Maître Long Pan sembla ignorer ces paroles; son regard vers Maître Zhong Xuan devint plus tendre encore.
 
-« À l'époque, ton corps était fragile et tu ne pouvais pas cultiver. Ton Maître a eu pitié de ta ténacité et t'a aidé à nourrir ton corps. J'ai obtenu les cinq veines célestes pour toi et je t'ai donné des os du Dao... Pourtant, aujourd'hui, tu n'as plus de cœur du Dao... » Maître Long Pan se remémora le passé dans un soupir. Il agita sa main droite et une tempête blanche surgit.
+« À l'époque, ton corps était fragile et tu ne pouvais pas cultiver. J'ai eu pitié de ta ténacité et je t'ai aidé à nourrir ton corps. J'ai obtenu les cinq veines célestes pour toi et je t'ai donné des os du Dao... Pourtant, aujourd'hui, tu n'as plus de cœur du Dao... » Maître Long Pan se remémora le passé dans un soupir. Il agita sa main droite et une tempête blanche surgit.
 
 L'expression de Maître Zhong Xuan changea radicalement et il recula comme un fou en poussant un cri de détresse.
 
@@ -100,9 +100,9 @@ L'expression de Maître Zhong Xuan changea radicalement et il recula comme un fo
 
 La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira derrière Maître Long Pan, hors de portée de l'arc de Wang Lin.
 
-« Tu as commis un péché monstrueux et engendré la catastrophe. Tu n'as plus non plus le cœur d'un cultivateur du Royaume Intérieur... Cependant, tu es mon disciple... J'ai une responsabilité envers les fautes de mon disciple... Ton Maître expiera tes fautes à ta place... » Maître Long Pan regarda l'étonné Maître Zhong Xuan, puis s'inclina vers Wang Lin.
+« Tu as commis un péché monstrueux et engendré la catastrophe. Tu n'as plus non plus le cœur d'un cultivateur du Royaume Intérieur... Cependant, tu es mon disciple... J'ai une responsabilité envers les fautes de mon disciple... Moi, ton maître, j'expierai tes fautes à ta place... » Maître Long Pan regarda l'étonné Maître Zhong Xuan, puis s'inclina vers Wang Lin.
 
-« Seigneur du Royaume Scellé, j'assumerai la responsabilité de tous ses péchés! » Il leva sa main droite et frappa sa poitrine. Maître Long Pan cracha une gorgée d'énergie d'origine essentielle et son teint devint terne. La planète de culture sous ses pieds vira instantanément au gris. La végétation se fana, les montagnes s'effondrèrent, les rivières s'évaporèrent et les ravins s'élargirent. La planète entière fut déchirée!
+« Seigneur du Royaume Scellé, j'assumerai la responsabilité de tous ses péchés! » Il leva sa main droite et frappa sa poitrine. Maître Long Pan cracha un souffle de son âme originelle et son teint devint terne. La planète de culture sous ses pieds vira instantanément au gris. La végétation se fana, les montagnes s'effondrèrent, les rivières s'évaporèrent et les ravins s'élargirent. La planète entière fut déchirée!
 
 Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour pénétrer dans le corps de Maître Long Pan. Simultanément, un Feu Éthéré commença à brûler en son sein.
 
@@ -112,7 +112,7 @@ Tandis qu'elle s'effondrait, des filaments de gaz blanc s'en échappèrent pour 
 
 « Allons-y... » Maître Long Pan soupira. Il prit Maître Zhong Xuan et s'éloigna dans le lointain.
 
-« Je connais mon disciple, il prévoit toujours deux issues. Si le Seigneur Céleste Qing Shui s'en sort, c'est parce qu'il a agi ainsi pour sa propre survie... »
+« Je connais mon disciple, il prévoit toujours deux issues. Si le Seigneur Céleste Qing Shui s'en sort, c'est grâce au talisman que mon disciple a laissé pour sa propre survie... »
 
 Alors que sa voix résonnait, une tempête blanche fonça vers la faille spatiale sanglante. Des craquements retentirent et la lumière rouge se brisa, révélant une clarté aux sept couleurs!
 

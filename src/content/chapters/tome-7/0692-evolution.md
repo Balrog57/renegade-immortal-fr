@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 692 - Evolution
 slug: evolution
 ---
-Bien que l'eau recouvre la majeure partie de la planète Ran Yun, il subsiste encore de vastes montagnes et terres émergées. Bien que la catastrophe d'il y a quelques années ait considérablement affaibli l'énergie spirituelle de la planète, celle-ci demeurait légèrement supérieure à celle de la planète Suzaku.
+Bien que l'eau recouvre la majeure partie de la planète Ran Yun, il subsiste encore de vastes montagnes et terres émergées. Bien que la catastrophe d'il y a plusieurs années ait considérablement affaibli l'énergie spirituelle de la planète, celle-ci demeurait légèrement supérieure à celle de la planète Suzaku.
 
 On pouvait souvent apercevoir les silhouettes d'un père et de son fils parmi les montagnes célèbres de la planète Ran Yun. Ils escaladaient les reliefs, s'élevant comme pour atteindre le sommet du monde.
 
 Ils observaient les mutations de la terre et l'entrelacement des nuages. Le monde semblait s'être considérablement rétréci; on aurait dit qu'un simple regard suffisait à en embrasser l'horizon.
 
-Une fois au sommet, le vent sifflait à leurs oreilles. Wang Ping se tenait sur la cime, contemplant les terres en contrebas. C’était comme si son âme elle-même avait évolué.
+Une fois au sommet, le vent sifflait à leurs oreilles. Wang Ping se tenait sur la cime, contemplant les terres en contrebas. C’était comme si son âme se purifiait et s’élevait sans cesse.
 
 À mesure qu'ils gravissaient montagne après montagne, son corps chétif gagnait progressivement en vigueur. À ses yeux, tout ce qui concernait son père était grandiose, qu'il s'agisse des vingt années de paix ou de leur défi actuel face au monde.
 
@@ -24,7 +24,7 @@ Quelle que soit la dangerosité des cimes, elles ne pouvaient arrêter ce duo de
 
 Bien que le corps de Wang Ping fût celui d'un mortel, son cœur était façonné encore et encore jusqu'à atteindre une nouvelle dimension.
 
-Expérimenter la vie à travers les montagnes, apaiser son esprit en les traversant, et ressentir la puissance en surmontant chaque relief. Pourtant, il ne devait jamais s'arrêter ni céder devant cette force; il continuait donc d'escalader chaque montagne qui se dressait devant lui. Il utilisait son corps de mortel pour hériter des idéaux défiant le ciel de Wang Lin.
+Expérimenter la vie à travers les montagnes, apaiser son esprit en les traversant, et ressentir la puissance en surmontant chaque relief. Pourtant, il ne s'arrêtait jamais et ne cédait jamais devant cette immensité; il continuait donc d'escalader chaque montagne qui se dressait devant lui. Il utilisait son corps de mortel pour hériter de l'intention défiant le ciel de Wang Lin.
 
 Wang Lin n'avait transmis aucune méthode de culture à Wang Ping, mais il utilisait sa propre manière de faire pour aider à affiner l'esprit du jeune homme.
 
@@ -90,7 +90,7 @@ Comme il n'avait pas plu depuis longtemps, la poussière de la terre commença �
 
 La poussière ressemblait à ces cultivateurs défiant le ciel qui aspiraient à atteindre les cieux mais étaient ramenés au sol par la pluie. À l'instar des cultivateurs, combien de grains de poussière pouvaient réellement s'élever vers les cieux...
 
-Le tonnerre et la pluie passèrent. Le père et le fils, au sommet de la montagne, observèrent la scène avec calme. Cette pluie semblait tomber partout, mais aucune goutte ne toucha leurs corps.
+Le tonnerre et la pluie passèrent. Le père et le fils, au sommet de la montagne, observèrent la scène avec calme. Cette pluie semblait déferler sur le monde en contrebas, mais aucune goutte ne toucha leurs corps.
 
 Hormis le grondement du tonnerre et le clapotis de la pluie, aucun autre son ne résonnait.
 

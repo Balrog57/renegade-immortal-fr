@@ -54,7 +54,7 @@ Wang Lin joignit les mains et dit calmement: « Wang Lin salue le Maître du Dao
 
 Le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le temps passa lentement. Après un long moment, l'expression tourmentée dans ses yeux s'effaça pour laisser place à une résolution ferme, puis il prit la parole:
 
-« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système d'Étoiles Anciennes. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
+« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système Stellaire Antique. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
 
 « Ce monde ne peut subsister que trois heures... Durant ces trois heures, tu... trouveras difficile d'échapper à la mort!
 
@@ -70,9 +70,9 @@ Sur ce geste, le monde changea de teinte et une bourrasque hurla à travers l'un
 
 Plus stupéfiant encore, ce dragon contenait des Flammes Joss chaotiques. À mesure que les flammes se condensaient, le dragon gris laissait échapper des rugissements terrifiants et stridents.
 
-Les yeux de Wang Lin s'illuminèrent et son expression devint extrêmement sérieuse. À cet instant, il ne considérait plus sa propre vie ou sa mort. Cette fois, soit il survivrait, soit même en mourant, il triompherait!
+Les yeux de Wang Lin s'illuminèrent et son expression devint extrêmement sérieuse. À cet instant, il ne considérait plus sa propre vie ou sa mort. Cette fois, qu'il survive ou qu'il meure, il devait franchir cette épreuve!
 
-C'était la calamité du Seigneur du Royaume Scellé! Le précédent Seigneur était mort encerclé et tué par plusieurs puissants du Système d'Étoiles Anciennes. Tel un cycle de réincarnation, cette calamité se manifestait aujourd'hui pour Wang Lin!
+C'était la calamité du Seigneur du Royaume Scellé! Le précédent Seigneur était mort encerclé et tué par plusieurs puissants du Système Stellaire Antique. Tel un cycle de réincarnation, cette calamité se manifestait aujourd'hui pour Wang Lin!
 
 Trois heures!
 
@@ -82,7 +82,7 @@ Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et po
 
 Ils entrèrent en collision instantanément dans un fracas de tonnerre. Le dragon gris se tordait, s'entrelaçant avec les treize dragons noirs. Les rugissements ébranlaient le ciel et la terre.
 
-Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
+Sous l'impact, les longs cheveux de Wang Lin fouettèrent l'air et il recula de plusieurs dizaines de pieds. Le visage pâle, il leva son poing droit. Au lieu d'attaquer de front, il pivota pour lancer un coup de poing dans son dos.
 
 Au moment même de ce mouvement, une ondulation résonna et une vieille femme à la silhouette floue apparut. L'expression de la vieille femme était sombre alors qu'elle levait sa main droite desséchée pour viser le dos de Wang Lin.
 

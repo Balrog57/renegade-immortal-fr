@@ -38,7 +38,7 @@ Li Muwan esquissa un sourire, les yeux empreints de confiance. Elle cligna des p
 
 Wang Lin réfléchit un instant avant de répondre: « Cet avatar n'a pris que très peu de pilules. Hormis les pilules Pei-Yuan, seulement des pilules de l'Établissement des Fondations. »
 
-« Des pilules de l'Établissement des Fondations? » Les yeux de Li Muwan s'emplirent de surprise. « Si ce ne sont que des pilules Pei-Yuan, alors tout va bien. Après tout, ce sont les plus basiques que les alchimistes apprennent à confectionner. Mais la pilule de l'Établissement des Fondations est déjà une pilule spirituelle de rang 1. Frère Wang, l'as-tu fabriquée toi-même? » Elle laissa échapper un léger sourire et dit avec délicatesse: « Hmph, je m'en souviens maintenant. Ton maître, Zhou Lin, est toujours en méditation de retraite. Je suis ta maîtresse ancestrale pour le moment. »
+« Des pilules de l'Établissement des Fondations? » Les yeux de Li Muwan s'emplirent de surprise. « Si ce ne sont que des pilules Pei-Yuan, alors tout va bien. Après tout, ce sont les plus basiques que les alchimistes apprennent à confectionner. Mais la pilule de l'Établissement des Fondations est déjà une pilule spirituelle de rang 1. Frère Wang, l'as-tu fabriquée toi-même? » Elle laissa échapper un léger sourire et dit avec délicatesse: « Hmph, je m'en souviens maintenant. Ton maître, Zhou Lin, est toujours en retraite de porte fermée. Je suis ta maîtresse ancestrale pour le moment. »
 
 Un rare soupçon de rougeur monta aux joues de Wang Lin, mais disparut aussitôt. Il toussa et dit: « Les pilules de l'Établissement des Fondations ont été fabriquées par moi, mais elles ont été infusées avec ce liquide spirituel que je t'ai offert autrefois. »
 
@@ -48,7 +48,7 @@ Wang Lin hocha la tête d'un air calme.
 
 La poitrine de Li Muwan se soulevait au rythme de ses respirations profondes. « Frère Wang, combien de ce liquide spirituel te reste-t-il? Est-ce une quantité importante? » demanda-t-elle.
 
-D'un geste sec de la main droite sur son sac de rangement, Wang Lin posa une bouteille blanche sur la table.
+D'un geste sec de la main droite sur son sac de rangement, Wang Lin posa une bouteille de jade blanc sur la table.
 
 Un air de déception passa dans les yeux de Li Muwan qui murmura: « Il ne reste donc qu'une seule bouteille... Une chose aussi rare n'en contenait probablement pas beaucoup au départ... »
 
@@ -66,7 +66,7 @@ La poitrine de Li Muwan se soulevait rapidement sous l'effet de l'émotion. Elle
 
 Wang Lin ne chercha pas à cacher la vérité et répondit lentement: « J'ai toujours utilisé le liquide spirituel au lieu des pilules pour accroître ma culture. Récemment, j'ai remarqué qu'il pouvait également augmenter le taux de réussite de l'alchimie. »
 
-Li Muwan fut une nouvelle fois frappée de stupeur. Elle regarda Wang Lin d'un air étrange avant d'éclater de rire: « Frère Wang, tu es vraiment... en train de gaspiller un trésor céleste! Bien que j'ignore l'origine de ce liquide, après avoir expérimenté ce que contenait la bouteille que tu m'as laissée durant une grande partie de ma vie, j'ai découvert que son usage lors de l'alchimie augmente considérablement les chances de succès. De plus, s'il est consommé directement, il prévient le vieillissement et peut accroître la longévité après une consommation prolongée. Ce liquide renferme en outre une puissante énergie spirituelle: si l'on ne se sert que de lui pour raffiner une pilule, on obtient une pilule spirituelle bien plus efficace que de simplement le boire. Une seule goutte n'aurait pas eu un impact immense, mais avec plus de dix gouttes, elle pourrait se vendre à un prix inimaginable dans le monde de la culture! »
+Li Muwan fut une nouvelle fois frappée de stupeur. Elle regarda Wang Lin d'un air étrange avant d'éclater de rire: « Frère Wang, tu es vraiment... en train de gaspiller un trésor céleste! Bien que j'ignore l'origine de ce liquide, après avoir expérimenté ce que contenait la bouteille que tu m'as laissée durant une grande partie de ma vie, j'ai découvert que son usage lors de l'alchimie augmente les chances de succès. De plus, s'il est consommé directement, il prévient le vieillissement et peut accroître la longévité après une consommation prolongée. Ce liquide renferme en outre une puissante énergie spirituelle: si l'on ne se sert que de lui pour raffiner une pilule, on obtient une pilule spirituelle bien plus efficace que de simplement le boire. Une seule goutte n'aurait pas eu un impact immense, mais avec plus de dix gouttes, elle pourrait se vendre à un prix inimaginable dans le monde de la culture! »
 
 Wang Lin resta impassible et demanda: « Oh? Alors, si c'est toi qui raffines les pilules, aurai-je plus de chances de former l'Âme Naissante? »
 

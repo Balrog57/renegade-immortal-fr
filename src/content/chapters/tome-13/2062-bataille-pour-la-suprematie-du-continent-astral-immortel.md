@@ -16,7 +16,7 @@ Son apparence n'avait guère changé depuis quelques mois, mais si l'on regardai
 
 Vêtu d'une longue chemise blanche, il se tenait à l'extérieur du bassin de la vaste mer. Il jeta un dernier regard vers le Clan Ancien, puis, un instant plus tard, il fit volte-face. Il se changea en un rayon de lumière et fonça vers le clan céleste, situé de l'autre côté du vaste bassin!
 
-« Fou, je t'avais juré que je reviendrais à la cité ancestrale pour te sauver! Si tu es prêt à partir, personne sur le Continent Astral Immortel ne pourra m'arrêter. »
+« Fou, je t'avais juré que je reviendrais à la cité ancestrale pour te sauver! Si tu es prêt à partir avec moi, personne sur le Continent Astral Immortel ne pourra nous arrêter. »
 
 « Si tu choisis de devenir l'Empereur Céleste, alors tu seras le véritable Empereur Céleste qui n'est plus en sommeil! »
 

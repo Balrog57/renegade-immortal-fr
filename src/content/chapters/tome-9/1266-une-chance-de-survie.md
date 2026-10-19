@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1266 - A Chance of Survival
 slug: une-chance-de-survie
 ---
-Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divine. Il interférait avec une série d'individus!
+Un courant sous-jacent agitait la Mer des Nuages, provoqué par la Secte Divine. Il interférait avec une série de personnes et d'événements!
 
-Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement prolongé pour empêcher leur disciple la plus importante de s'échapper.
+Li Qianmei était retenue par sa secte et n'avait pas le droit de sortir pendant trois mois. Son maître était sorti de sa culture en isolement prolongé pour empêcher sa disciple la plus chère de s'échapper.
 
 Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité de Li Qianmei!
 
@@ -28,7 +28,7 @@ Sur le continent de Mo Luo, tous les disciples de la Secte de l'Origine emballai
 
 Wang Lin était assis dans une pièce secrète de la Secte de l'Origine. Son esprit était fusionné avec l'âme de l'Omniscient, contenue dans le Sceau Céleste. À cet instant, il semblait être devenu l'Omniscient lui-même.
 
-Tout dans le monde semblait être sous son contrôle, mais ce n'était qu'une apparence!
+Tout dans le monde semblait lui être connu, mais ce n'était qu'une apparence!
 
 Après s'être fusionné avec l'âme de l'Omniscient, Wang Lin s'assit et ses mains formèrent un sceau. Son esprit se projeta dans le ciel et il commença à fusionner avec les cieux. Il lui fallut une journée entière pour atteindre ce point où il était les cieux, et les cieux étaient lui.
 
@@ -58,7 +58,7 @@ Dans l'image, il y avait une paire d'yeux qui dégageaient un regard glacial et 
 
 Wang Lin ouvrit soudainement les yeux, le visage instantanément livide.
 
-« Ce monde était le continent de Mo Luo! Le cultivateur qui levait les yeux vers le ciel... c'était moi! Le propriétaire de ces yeux possède une culture capable de faire trembler les cieux. Devant lui, je mourrai sans aucun doute! »
+« Cette terre était le continent de Mo Luo! Le cultivateur qui levait les yeux vers le ciel... c'était moi! Le propriétaire de ces yeux possède une culture capable de faire trembler les cieux. Devant lui, je mourrai sans aucun doute! »
 
 Wang Lin leva les yeux vers le ciel. Son regard semblait pouvoir percer la chambre pour atteindre l'immensité au-dessus de Mo Luo. En ce moment, le ciel était clair et ensoleillé.
 

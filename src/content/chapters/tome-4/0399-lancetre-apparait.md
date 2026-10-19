@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 399 - The ancestor appears
 slug: lancetre-apparait
 ---
-La voix de Wang Lin résonna à l'intérieur du Clan Démon Géant. Dans la partie nord du territoire, à 3,3 kilomètres sous la surface, une grotte cristalline abritait un homme solitaire.
+La voix de Wang Lin résonna à l'intérieur du Clan des Démons Géants. Dans la partie nord du territoire, à 3,3 kilomètres sous la surface, une grotte cristalline abritait un homme solitaire.
 
 Ce dernier était assis en position de lotus, absorbé par sa culture. Il avait une allure imposante et des traits bien marqués.
 
-À cet instant, il ouvrit soudainement les yeux. Son regard semblait capable de percer les parois de la grotte pour sonder l'extérieur. Rapidement, ses yeux se glacèrent et il marmonna: « Jeune Wang Lin, je vais te laisser jouir de ton arrogance encore un peu. Une fois ma possession achevée, je te tuerai. Même si tu scelles les membres du Clan Démon Géant, je n'aurai qu'à les désceller. »
+À cet instant, il ouvrit soudainement les yeux. Son regard semblait capable de percer les parois de la grotte pour sonder l'extérieur. Rapidement, ses yeux se glacèrent et il marmonna: « Jeune Wang Lin, je vais te laisser jouir de ton arrogance encore un peu. Une fois ma possession achevée, je te tuerai. Même si tu scelles les membres du Clan des Démons Géants, je n'aurai qu'à les désceller. »
 
 Sur ces mots, il referma les yeux et reprit sa culture.
 
@@ -18,19 +18,19 @@ C’est alors que son sac de rangement se mit à briller d'une lueur noire. Fron
 
 Un gaz noir jaillit de l'épée céleste et prit la forme de Xu Liguo. Les yeux de ce dernier étaient injectés de sang et son visage était empreint de haine. Fixant l'horizon, il s'exclama: « Maître, je sens que le démon est là. Maître, j'ai juré de me venger de cet homme! Laissez-moi sortir pour l'affronter! »
 
-L'ancêtre du Clan Démon Géant observa Xu Liguo. Au cours des deux dernières années, il avait beaucoup interagi avec lui. Il trouvait qu'un esprit d'épée doté d'une telle intelligence était une merveille et il l'appréciait véritablement.
+L'ancêtre du Clan des Démons Géants observa Xu Liguo. Au cours des deux dernières années, il avait beaucoup interagi avec lui. Il trouvait qu'un esprit d'épée doté d'une telle intelligence était une merveille et il l'appréciait véritablement.
 
 « Tu veux le tuer, mais tu devras attendre que j'aie terminé ma possession. »
 
 L'expression de Xu Liguo changea instantanément pour adopter un air mielleux, cherchant à plaire à l'ancêtre. Il hocha la tête avec empressement: « Maître se soucie vraiment de moi; vous êtes bien meilleur que ce démon, Wang Lin. Je vous resterai éternellement fidèle! Cependant, Maître, quand vous tuerez Wang Lin, pourriez-vous me laisser porter le coup de grâce? »
 
-L'ancêtre du Clan Démon Géant laissa échapper un rire: « Comment Wang Lin t'a-t-il traité pour que tu le haïsses à ce point? »
+L'ancêtre du Clan des Démons Géants laissa échapper un rire: « Comment Wang Lin t'a-t-il traité pour que tu le haïsses à ce point? »
 
 Xu Liguo serra les dents et répondit: « Maître, vous ne savez pas à quel point je déteste ce Wang Lin; non seulement il me forçait à travailler, mais il m'appelait aussi uniquement pour me frapper et m'insulter. Tout cela n'est rien, mais le plus grave est qu'il ne m'a jamais accordé le moindre avantage, contrairement à vous qui me donnez des pierres spirituelles à absorber. Maître, quand nous aurons tué Wang Lin, pourriez-vous m'offrir quelques femmes en récompense? Et pourquoi ne pas appeler la petite sœur fée? Je ne l'ai pas vue depuis plusieurs mois et elle me manque terriblement. »
 
-L'ancêtre du Clan Démon Géant esquissa un léger sourire: « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en culture fermée, alors retourne à l'intérieur! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
+L'ancêtre du Clan des Démons Géants esquissa un léger sourire: « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en culture fermée, alors retourne à l'intérieur! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
 
-« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne crois pas qu'il puisse me trahir. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper! » ricana l'ancêtre du Clan Démon Géant avant de refermer les yeux pour reprendre sa culture.
+« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne crois pas qu'il puisse me trahir. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper! » ricana l'ancêtre du Clan des Démons Géants avant de refermer les yeux pour reprendre sa culture.
 
 L'âme de Feng Luan était celle d'un trésor qu'il avait acquis par accident un jour.
 
@@ -38,7 +38,7 @@ Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la ren
 
 Après avoir obtenu l'épée céleste, il avait découvert le caractère mystérieux de Xu Liguo. Pour contrôler totalement l'esprit de l'épée, il avait invoqué l'âme de Feng Luan. Comme il s'y attendait, Xu Liguo s'était jeté sur elle tel un loup affamé, totalement captivé.
 
-Wang Lin resta en suspens dans le ciel au-dessus du Clan Démon Géant pendant un moment. Constatant que l'ancêtre ne paraissait pas, son expression s'assombrit. Le territoire du Clan Démon Géant était vaste et parsemé de montagnes; si l'ancêtre voulait vraiment se cacher, il serait ardu de le débusquer. Wang Lin tourna son regard vers l'est et aperçut la plus haute montagne du clan. Pour une raison obscure, il sentit une force mystérieuse émaner de ce sommet.
+Wang Lin resta en suspens dans le ciel au-dessus du Clan des Démons Géants pendant un moment. Constatant que l'ancêtre ne paraissait pas, son expression s'assombrit. Le territoire du Clan des Démons Géants était vaste et parsemé de montagnes; si l'ancêtre voulait vraiment se cacher, il serait ardu de le débusquer. Wang Lin tourna son regard vers l'est et aperçut la plus haute montagne du clan. Pour une raison obscure, il sentit une force mystérieuse émaner de ce sommet.
 
 Alors qu'il s'apprêtait à enquêter, ses yeux se firent soudainement graves lorsqu'il regarda vers le nord, et un léger sourire apparut sur ses lèvres.
 
@@ -46,7 +46,7 @@ Alors qu'il s'apprêtait à enquêter, ses yeux se firent soudainement graves lo
 
 La silhouette de Wang Lin disparut et il chargea vers le nord.
 
-Se déplaçant avec le corps d'un Dieu Ancien à trois étoiles, il volait aussi vite que la foudre. En quelques téléportations seulement, il atteignit la partie septentrionale du Clan Démon Géant. Vu d'en haut, l'endroit ressemblait à une vaste plaine herbeuse.
+Se déplaçant avec le corps d'un Dieu Ancien à trois étoiles, il volait aussi vite que la foudre. En quelques téléportations seulement, il atteignit la partie septentrionale du Clan des Démons Géants. Vu d'en haut, l'endroit ressemblait à une vaste plaine.
 
 Le regard de Wang Lin était acéré. En déployant son Sens Divin, il sentit que quelque chose clochait. À environ 3,3 kilomètres sous la surface, une fine barrière déviait doucement son Sens Divin lorsqu'il passait au-dessus. Sans cette proximité, il n'aurait pu la détecter.
 
@@ -54,7 +54,7 @@ Un rictus aux lèvres, Wang Lin poussa un rugissement, chargea son poing et frap
 
 Boum!
 
-Un bruit assourdissant fit trembler la terre et une fissure apparut. Cette brèche se propagea dans toutes les directions et s'enfonça rapidement dans les profondeurs du sous-sol.
+Un bruit assourdissant fit trembler la terre et une fissure apparut. Cette brèche se propagea dans toutes les directions, sur 330 mètres à la ronde, et s'enfonça rapidement dans les profondeurs du sous-sol.
 
 Des craquements sourds résonnèrent longtemps sous la terre avant de s'éteindre.
 
@@ -62,7 +62,7 @@ Le regard de Wang Lin devint glacial; il poussa un autre cri et frappa à nouvea
 
 L'onde de choc violente se propagea instantanément en profondeur. Le fracas de la terre qui se déchirait ressemblait au rugissement d'un dragon.
 
-« Ancêtre du Clan Démon Géant, sors de ta cachette, maintenant! » hurla Wang Lin, avant de lancer un nouveau coup de poing.
+« Ancêtre du Clan des Démons Géants, sors de ta cachette, maintenant! » hurla Wang Lin, avant de lancer un nouveau coup de poing.
 
 Boum!
 
@@ -72,7 +72,7 @@ Sous l'impact, la plaine s'effondra immédiatement, créant un gouffre immense d
 
 Sur ces mots, il fit un pas en avant, fondit sur Wang Lin tel un éclair et lança un coup de poing.
 
-Wang Lin eut un rire sardonique. Loin de reculer, il envoya son propre poing pour percuter celui de l'ancêtre du Clan Démon Géant.
+Wang Lin éclata de rire. Loin de reculer, il envoya son propre poing pour percuter celui de l'ancêtre du Clan des Démons Géants.
 
 Boum!
 
@@ -80,9 +80,9 @@ L'onde de choc projeta roches et sable dans toutes les directions. L'ancêtre fu
 
 Le corps de Wang Lin ne recula que de quelques pas et son bras trembla légèrement. Il sentit une force colossale pénétrer son corps pour tenter de le déchirer, mais celle-ci fut promptement dissipée par son âme originelle.
 
-« La technique de raffinement corporel du Clan Démon Géant est en effet mystérieuse », constata Wang Lin en chargeant à nouveau l'ancêtre.
+« La technique de raffinement corporel du Clan des Démons Géants est en effet mystérieuse », constata Wang Lin en chargeant à nouveau l'ancêtre.
 
-L'ancêtre maudit intérieurement. Sa possession n'étant pas achevée, il ne pouvait utiliser que 80 % de sa puissance. Pourtant, même à 80 %, la vigueur de son corps était si terrifiante qu'il ne craignait habituellement aucun trésor.
+L'ancêtre maudit intérieurement. Sa possession n'étant pas achevée, il ne pouvait utiliser que 80 % de sa puissance. Pourtant, même à 80 %, la vigueur de son corps, un don propre au clan, était si terrifiante qu'il ne craignait pas même certains trésors.
 
 Mais à l'instant, en échangeant ce coup avec Wang Lin, les os les plus solides de son corps s'étaient fissurés. Comment ne pas être stupéfait?
 
@@ -92,25 +92,25 @@ Les yeux de l'ancêtre s'illuminèrent. En tentant de bouger, la pression et les
 
 Bang!
 
-Un nouveau tonnerre assourdissant secoua tout le Clan Démon Géant.
+Un nouveau tonnerre assourdissant secoua tout le Clan des Démons Géants.
 
-Le visage de l'ancêtre devint cramoisi. Il utilisa la force de l'impact pour s'éloigner rapidement.
+Le visage de l'ancêtre rougit légèrement. Il utilisa la force de l'impact pour s'éloigner rapidement.
 
 Wang Lin ressentit une douleur dans son poing droit et recula d'une dizaine de mètres avant de s'arrêter. Il prit une profonde inspiration. Cet ancêtre n'avait pas terminé sa possession et pourtant son corps était déjà presque comparable à celui d'un Dieu Ancien à trois étoiles. S'il parvenait à achever sa possession, sa puissance physique ne serait guère inférieure à celle d'un tel dieu.
 
-Le visage de l'ancêtre était d'une noirceur absolue. Lorsqu'il avait vu Wang Lin détruire les douze piliers, il avait choisi de rester caché. Mais maintenant que Wang Lin l'avait débusqué, le combat était inévitable.
+Le visage de l'ancêtre était sombre. Lorsqu'il avait vu Wang Lin détruire les douze piliers, il avait choisi de rester caché. Mais maintenant que Wang Lin l'avait débusqué, le combat était inévitable.
 
 Wang Lin fixa l'ancêtre du regard et chargea une nouvelle fois.
 
-L'ancêtre poussa un rugissement alors que son corps grandissait pour devenir un géant de plus de trente mètres de haut. Sans hésiter, il mobilisa l'énergie spirituelle céleste, enveloppant son corps d'une lueur dorée. La quantité d'énergie spirituelle céleste que Li Yuanfeng pouvait manipuler n'était rien en comparaison; après tout, l'ancêtre du Clan Démon Géant avait atteint le stade initial de la Transformation de l'Âme par ses propres moyens.
+L'ancêtre poussa un rugissement alors que son corps grandissait pour devenir un géant de plus de trente mètres de haut. Sans hésiter, il mobilisa l'énergie spirituelle céleste, enveloppant son corps d'une lueur dorée. La quantité d'énergie spirituelle céleste que Li Yuanfeng pouvait manipuler n'était rien en comparaison; après tout, l'ancêtre du Clan des Démons Géants avait atteint le stade initial de la Transformation de l'Âme par ses propres moyens.
 
 « Ce vieil homme ne voulait pas utiliser l'énergie spirituelle céleste, car cela perturberait ma possession. Autrement, je t'aurais tué instantanément! Puisque tu me forces à l'utiliser, tu ne fais que réclamer la mort! » hurla l'ancêtre, tandis que la lumière dorée sur son corps devenait aveuglante comme un soleil.
 
-À chacun de ses mouvements, le ciel se déchirait, créant d'innombrables failles spatiales. Des vagues de vents destructeurs s'échappèrent des brèches, balayant les environs.
+À chacun de ses mouvements, le ciel se déchirait, créant d'innombrables failles spatiales. Des vagues de vents glacés et destructeurs s'échappèrent des brèches, balayant les environs.
 
 Il lança un coup de poing chargé de lumière dorée, saturé d'énergie spirituelle céleste. C'était la puissance brute d'un cultivateur au début du stade de Transformation de l'Âme.
 
-Si les cultivateurs ordinaires infusent l'énergie spirituelle céleste dans leurs sorts, pour les membres du Clan Démon Géant, rien n'est supérieur à leur propre corps. Ce coup ne contenait donc pas seulement de l'énergie céleste, mais aussi la force titanesque d'un membre du Clan Démon Géant.
+Si les cultivateurs ordinaires infusent l'énergie spirituelle céleste dans leurs sorts, pour les membres du Clan des Démons Géants, rien n'est supérieur à leur propre corps. Ce coup ne contenait donc pas seulement de l'énergie céleste, mais aussi la force titanesque d'un membre du Clan des Démons Géants.
 
 La puissance de ce seul coup fit voler en éclats toute la plaine au nord du clan, la réduisant en une poussière infinie projetée au loin par la pression.
 

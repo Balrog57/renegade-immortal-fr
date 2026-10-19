@@ -18,7 +18,7 @@ Un cultivateur possédant un niveau de culture bien supérieur à celui de Wang 
 
 Cependant, entre les membres du clan ancestral, la collision terrifiante de deux corps dotés d'une force similaire pouvait produire un tel résultat!
 
-C'était là toute la différence entre les Anciens et les Cieux!
+C'était là toute la différence entre les Anciens et les Immortels!
 
 Tout en reculant, le pied droit de Wang Lin s'ancra fermement pour stopper sa retraite. L'intention de combat dans ses yeux devint plus ardente encore alors qu'il chargea de nouveau avec un rugissement.
 
@@ -32,7 +32,7 @@ La formation circulaire se déforma également de manière considérable sous l'
 
 Après neuf coups, Wang Lin cracha du sang. Il avait l'impression d'avoir été percuté par neuf planètes consécutives. Son corps fut projeté vers la formation, mais il s'arrêta brusquement. Il leva les yeux avec un regard féroce. Non seulement son intention de combat n'avait pas faibli, elle était devenue plus intense encore!
 
-L'homme d'âge moyen cracha également du sang et fut repoussé. Il s'arrêta à des centaines de milliers de pieds de distance. Il essuya le sang au coin de sa bouche avant de pousser un rugissement et de charger à nouveau.
+L'homme d'âge moyen cracha également du sang et fut repoussé. Il s'arrêta à des dizaines de milliers de pieds de distance. Il essuya le sang au coin de sa bouche avant de pousser un rugissement et de charger à nouveau.
 
 L'espace entre les deux était saturé par le sang qu'ils avaient projeté. Sous l'effet d'une onde de choc, une goutte atterrit sur Wang Lin.
 
@@ -44,7 +44,7 @@ Par ce mouvement, Wang Lin surplombait désormais l'homme d'âge moyen!
 
 Depuis les hauteurs, les poings de Wang Lin, fusionnés en une masse unique, s'écrasèrent sur l'homme d'âge moyen!
 
-L'homme d'âge moyen s'arrêta net et leva soudainement la tête. Tandis que Wang Lin s'abattait, il pointa le ciel du doigt. Une ombre gigantesque de Dieu Ancien apparut devant lui.
+L'homme d'âge moyen s'arrêta net et leva soudainement la tête. Tandis que Wang Lin s'abattait, il pointa le ciel du doigt. Une ombre gigantesque de Dieu Ancien apparut derrière lui.
 
 Cette silhouette de Dieu Ancien était d'une taille incomparable et portait une armure complète. Huit étoiles brillaient entre ses sourcils. Le doigt de l'homme d'âge moyen étant pointé vers le haut, le Dieu Ancien pointa également vers Wang Lin!
 
@@ -52,21 +52,21 @@ Le Doigt du Dieu Ancien!
 
 Le doigt colossal et illusoire entra en collision avec le poing de Wang Lin. L'instant de leur impact semblait figé dans le temps. Si une telle image pouvait être immortalisée, elle aurait terrifié l'esprit de quiconque.
 
-En arrière-plan, au milieu du système stellaire, Wang Lin se trouvait à des dizaines de milliers de pieds de hauteur, ses mains jointes s'abattant avec fracas.
+En arrière-plan, au milieu du système stellaire, Wang Lin, dont le corps mesurait mille pieds, se trouvait à des dizaines de milliers de pieds de hauteur, ses mains jointes s'abattant avec fracas.
 
-En dessous, les cheveux noirs de l'homme d'âge moyen flottaient et luisaient alors qu'il levait le regard. L'ombre avait le doigt levé et, en raison de sa dimension démesurée, ce seul doigt mesurait plus de mille pieds de haut. Et il visait Wang Lin.
+En dessous, les cheveux noirs de l'homme d'âge moyen flottaient et luisaient alors qu'il levait le regard. L'ombre avait le doigt levé et, en raison de sa dimension démesurée, ce seul doigt mesurait plus de cent pieds de haut. Et il visait Wang Lin.
 
 Dans un fracas de tonnerre, les poings doubles de Wang Lin percutèrent le Dieu Ancien illusoire. Au moment du choc, un grondement assourdissant fit vibrer les étoiles.
 
-Wang Lin cracha du sang et ses cheveux blancs furent projetés en arrière par la force de l'impact, mais son corps ne recula pas d'un pouce. Il poussa un rugissement prodigieux alors que ses poings s'enfonçaient dans l'ombre.
+Wang Lin cracha du sang et ses cheveux blancs furent projetés en arrière par la force de l'impact, mais son corps ne recula pas. Il poussa un rugissement prodigieux alors que ses poings s'enfonçaient dans l'ombre.
 
 Le doigt illusoire du Dieu Ancien se brisa! Il fut transpercé par le poing de Wang Lin comme s'il avait été fendu en deux.
 
 Alors que le doigt se désintégrait, Wang Lin franchit la garde de l'ombre du Dieu Ancien, brisa son bras droit et fendit directement l'ombre du Dieu Ancien en deux.
 
-Une fois l'ombre dissipée, Wang Lin chargea l'homme d'âge moyen avec une intention meurtrière fulgurante. En un clin d'œil, il se retrouva à quelques centaines de pieds de son adversaire!
+Une fois l'ombre dissipée, Wang Lin chargea l'homme d'âge moyen avec une intention meurtrière fulgurante. En un clin d'œil, il se retrouva à quelques dizaines de pieds de son adversaire!
 
-Pour les Anciens, une distance de quelques centaines de pieds équivalait à moins de sept pieds pour les mortels!
+Pour les Anciens, une distance de quelques dizaines de pieds équivalait à moins de sept pieds pour les mortels!
 
 L'instant suivant, le poing de Wang Lin percuta le doigt de l'homme d'âge moyen.
 
@@ -80,7 +80,7 @@ Le coup entra en collision avec les poings de Wang Lin.
 
 Une force colossale émana de son pied. Au moment critique, alors que Wang Lin libérait toute la puissance de ses poings, le pied de l'homme d'âge moyen vint contrer l'assaut.
 
-Le corps de Wang Lin trembla et du sang jaillit de sa bouche alors qu'il était projeté en arrière sur des dizaines de milliers de pieds. Ses poings vibraient encore; bien qu'il n'ait utilisé aucun sort de Dieu Ancien, c'était là la force physique la plus pure qu'il pouvait déployer avec son héritage d'Ancien!
+Le corps de Wang Lin trembla et du sang jaillit de sa bouche alors qu'il était projeté en arrière sur plusieurs milliers de pieds. Ses poings vibraient encore; bien qu'il n'ait utilisé aucun sort de Dieu Ancien, c'était là la force physique la plus pure qu'il pouvait déployer avec son héritage d'Ancien!
 
 Les cultivateurs du Vide du Nirvana s'effondreraient devant une telle puissance, et même les cultivateurs du Vide Spirituel ne pourraient y résister. Même les cultivateurs du Vide Arcanique, au stade intermédiaire, devraient utiliser un sort puissant pour parer un tel coup.
 
@@ -116,13 +116,13 @@ Lorsque l'ombre de Ye Mo se manifesta, l'homme d'âge moyen forma un sceau et po
 
 « Je suis l'enfant de Ye Mo, et tu as obtenu l'héritage de mon père. Je vais reprendre mon héritage! » D'un geste, l'ombre des trois membres du clan rugit et chargea Wang Lin aux côtés de l'ombre de Ye Mo.
 
-« Ye Mo n'avait pas d'enfant! Avant de mourir, il dispersa 3 000 gouttes de sang qui devinrent les trois clans antiques. Parmi ces 3 000 gouttes, il y avait peut-être neuf gouttes d'essence sanguine contenant une aura antique extrêmement puissante. Je crains que tu n'aies été formé par ces neuf gouttes collectées par le Souverain après avoir massacré d'innombrables membres du clan ancestral! »
+« Ye Mo n'avait pas d'enfant! Avant de mourir, il dispersa 3 000 gouttes de sang qui devinrent les trois clans antiques. Parmi ces 3 000 gouttes, il y avait peut-être neuf gouttes d'essence sanguine contenant une aura antique extrêmement puissante. Je crains que tu n'aies été formé par ces neuf gouttes collectées par le Souverain et ses semblables après avoir massacré d'innombrables membres du clan ancestral! »
 
 « Même ainsi, tu n'en possèdes que huit! » Les yeux de Wang Lin s'illuminèrent. Lorsqu'il avait léché cette goutte de sang plus tôt, il avait commencé son analyse. Après ce combat, sa spéculation était désormais une certitude.
 
-Alors que les trois ombres du clan et celle de Ye Mo convergeaient vers lui, toutes les étoiles de Dieu Ancien, de Démon Ancien et de Diable Ancien de Wang Lin se mirent à tourner frénétiquement.
+Alors que les trois ombres du clan et celle de Ye Mo convergeaient vers lui, les sept étoiles de Dieu Ancien de son front et toutes ses étoiles de Démon Ancien et de Diable Ancien de ses yeux se mirent à tourner frénétiquement.
 
-À mesure qu'elles tournaient et que leurs puissances fusionnaient, l'aura antique qui lui appartenait émergea. Tandis que cette aura se propageait, la tête d'Ancien sans œil gauche, héritée par Wang Lin, apparut!
+À mesure qu'elles tournaient et que leurs puissances fusionnaient, l'aura antique qui lui appartenait émergea. Tandis que cette aura se propageait, la tête d'Ancien sans œil gauche, héritée par Wang Lin, apparut derrière lui!
 
 C'était une bataille de vie ou de mort entre l'héritage de Ye Mo et la progéniture issue de son essence sanguine. Si Wang Lin triomphait, il pourrait absorber ces huit gouttes de sang pur d'Ancien!
 

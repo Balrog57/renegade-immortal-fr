@@ -18,7 +18,7 @@ Wang Lin prit une gorgée de vin de fruits et se replongea dans sa sculpture. À
 
 À chaque coup de son couteau, l'aura s'intensifiait. Lentement, la silhouette d'un dragon imposant apparut sur le bois, mais le geste de Wang Lin commença à hésiter.
 
-Il réfléchit longuement, puis poussa un soupir. Le couteau disparut de sa main. De sa main gauche, il jeta nonchalamment l'œuvre inachevée dans une grande caisse qui contenait déjà plus d'une douzaine de sculptures incomplètes.
+Il réfléchit longuement, puis poussa un soupir. Le couteau disparut de sa main. De sa main gauche, il jeta nonchalamment l'œuvre inachevée dans une grande caisse qui contenait déjà plus d'une dizaine de sculptures incomplètes.
 
 Si l'on regardait attentivement ces pièces, on y reconnaîtrait diverses personnes et bêtes spirituelles: le Bossu Meng, l'Empereur Ancien, le Seigneur Démon des Six Désirs, des bêtes spirituelles de haut rang, et même des bêtes désolées...
 
@@ -124,4 +124,4 @@ Le visage du cultivateur en vert se crispa, mais il garda le silence.
 
 Le cultivateur en noir soupira: « Je n'ai jamais vu la bête qui est sculptée, mais je n'ai jamais dit que je ne reconnaissais pas ce qu'elle était. »
 
-Le Dao de cœur du cultivateur en vert n'étant pas assez stable, il faillit cracher du sang. Après un long moment, il retrouva son calme et eut un rire amer. Il sentait qu'il ne pourrait jamais rien faire de son frère aîné.
+Le Dao de cœur du cultivateur en vert n'étant pas assez stable, il faillit cracher du sang. Après un long moment, il retrouva son calme et eut un rire amer. Il finit par s'avouer vaincu face à son frère aîné.

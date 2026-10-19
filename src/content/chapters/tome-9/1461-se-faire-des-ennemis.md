@@ -8,7 +8,7 @@ slug: se-faire-des-ennemis
 ---
 À l'instant même où l'homme corpulent du Clan du Loup Céleste fut surpris, Wang Lin agita sa main droite. Le tatouage de tonnerre, dissimulé dans le ciel, apparut soudainement. Tout cela se produisit en un éclair, et le tatouage de tonnerre fondit sur lui.
 
-L'homme corpulent réagit très rapidement. D'un geste de la main, l'Ancienne Feuille apparut. Il la plaça contre sa poitrine pour sceller ses émotions afin qu'elles ne puissent être exploitées par le Feu Éthéré de Wang Lin. Une pointe de moquerie se dessina sur son visage alors que sa main formait un sceau; un loup céleste de 10 000 pieds apparut, poussa un rugissement et bondit vers le tatouage de tonnerre.
+L'homme corpulent réagit très rapidement. D'un geste de la main, la Feuille Ancienne apparut. Il la plaça contre sa poitrine pour sceller ses émotions afin qu'elles ne puissent être exploitées par le Feu Éthéré de Wang Lin. Une pointe de moquerie se dessina sur son visage alors que sa main formait un sceau; un loup céleste de 10 000 pieds apparut, poussa un rugissement et bondit vers le tatouage de tonnerre.
 
 Cependant, à cet instant précis, une flamme aux neuf couleurs brûla d'un éclat menaçant derrière le tatouage de tonnerre et entoura le loup céleste. Un éclair de lumière sanguine jaillit lorsque l'épée de sang perça le loup, avant de charger vers l'homme corpulent.
 
@@ -38,7 +38,7 @@ Ces yeux étaient impitoyables et un hurlement de loup résonna. Une ombre rouge
 
 Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang Lin n'était déjà plus faible et se montrait extrêmement rusé. Désormais, Ling Dong avait lui aussi franchi le dernier pas vers le troisième stade. L'homme corpulent n'hésita pas à renoncer à sa dignité de cultivateur du troisième stade: dès que le loup rouge jaillit, il battit en retraite avec anxiété.
 
-« Je ne peux pas laisser ce combat continuer, c'est impossible! Lorsque cet Estimé Ling Dong était au cinquième Niveau de la Calamité Céleste, je n'étais encore qu'un junior. S'il n'avait pas été aussi imprudent et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
+« Je ne peux pas laisser ce combat continuer, c'est impossible! Lorsque cet Estimé Ling Dong était au cinquième niveau de la Calamité Céleste, je n'étais encore qu'un junior. S'il n'avait pas été aussi imprudent et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
 
 Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan du Loup Céleste jusqu'à sa retraite dans la stupeur.
 

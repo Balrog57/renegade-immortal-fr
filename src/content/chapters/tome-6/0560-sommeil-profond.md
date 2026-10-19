@@ -114,7 +114,7 @@ Après l'excitation vint une pointe d'appréhension.
 
 « Avec ma culture actuelle, personne au stade de la Transformation de l'Âme ne peut rivaliser avec moi. Il me suffit maintenant que mon domaine atteigne le niveau d'Ascendant, et je pourrai trouver un lieu secret pour conclure ma progression... Et cet endroit est le plus secret qui soit; une fois que mon domaine aura fait sa percée, je reviendrai ici pour atteindre le stade d'Ascendant! »
 
-« Tout dans ce monde dépend du destin. C’était une coïncidence miraculeuse que j'entre ici. Sinon, même avec les jades célestes, il m'aurait fallu des années pour arriver à cet état. Est-ce là ce que les mortels appellent une rencontre fortuite... » Wang Lin était d'humeur joyeuse car, après un an de sommeil, il se trouvait dans une condition excellente. Alors qu'il s'apprêtait à briser la restriction environnante, une pensée le fit tressaillir.
+« Tout dans ce monde dépend du destin. C’était une coïncidence miraculeuse que j'entre ici. Sinon, même avec les jades célestes, il m'aurait fallu bien des années pour arriver à cet état. Est-ce là ce que les mortels appellent une rencontre fortuite... » Wang Lin était d'humeur joyeuse car, après un an de sommeil, il se trouvait dans une condition excellente. Alors qu'il s'apprêtait à briser la restriction environnante, une pensée le fit tressaillir.
 
 « Combien de temps ai-je dormi... Si j'ai dormi des décennies, voire un siècle, alors tout le monde extérieur aura radicalement changé. Si tel est le cas, j'aurais mieux fait de cultiver seul... » Wang Lin songea ainsi en déambulant dans le pavillon. Soudain, ses yeux se plissèrent et son regard se posa sur le bosquet de bambous au loin.
 

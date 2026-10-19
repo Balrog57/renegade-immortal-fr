@@ -14,7 +14,7 @@ L'expression de Wang Lin resta imperturbable. Il se tint là, immobile, observan
 
 Le soleil n'était pas grand, il n'avait que la taille de sa main. Pourtant, la lumière et la chaleur qu'il dégageait étaient dignes d'un véritable astre tenu dans sa main. Il le lança d'un geste vers l'avant et le soleil fonça en rugissant sur Wang Lin.
 
-Les cheveux de Wang Lin commencèrent aussitôt à brûler et une douleur fulgurante envahit son corps. Son visage se crispa sous l'intensité de la souffrance, comme si sa chair allait fondre sous l'éclat solaire.
+Les cheveux de Wang Lin commencèrent aussitôt à brûler, une chaleur intense envahit son corps et une douleur fulgurante le déchira. Son visage se crispa sous l'intensité de la souffrance, comme si sa chair allait fondre sous l'éclat solaire.
 
 Pourtant, son regard demeura serein, sans le moindre tressaillement, laissant le soleil se rapprocher de lui. Au loin, la femme fixait la scène, pétrifiée par l'incrédulité et la stupeur, alors que le soleil dévorait Wang Lin.
 
@@ -32,13 +32,13 @@ Wang Lin était toujours assis sur le premier pont, entouré par l'ombre de l'ê
 
 « Il s'avère que tu ignorais même que tout n'était qu'une illusion... » Wang Lin se tourna pour regarder au-delà du bateau. Les couches de protection entouraient toujours le navire; il n'y avait aucune trace de la lumière aux sept couleurs, ni du Daoïste aux Sept Couleurs.
 
-« Même elle était une illusion... »
+« Même lui n'était qu'une illusion... »
 
 Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dissipa. Il scruta les alentours avant de fixer la voile fixée au mât.
 
 « Que s'est-il passé... » À cet instant, l'expression confuse de la femme s'effaça lorsqu'elle fixa Wang Lin. Puis, elle regarda soudainement autour d'elle. Après avoir pris la mesure des lieux, son visage changea radicalement!
 
-« La Grande Illusion Véritable des Âmes!! C'est le sort le plus puissant de ma sœur aînée! Pour tuer les Sept Couleurs, j'ai moi-même été enveloppée par ce sort! » Cette femme était Fan Shanlu. Elle se leva et tituba en reculant de quelques pas avant de cracher un flot de sang.
+« La Grande Illusion Véritable des Âmes!! C'est le sort le plus puissant de ma sœur aînée! Pour tuer les Sept Couleurs, j'ai moi-même été enveloppée par ce sort! » Cette femme était Fan Shanlu. Elle se leva et tituba en reculant de quelques pas avant de cracher une bouchée de sang.
 
 « L'arrivée du Daoïste aux Sept Couleurs était une illusion. Il nous a peut-être réellement poursuivis, mais il n'est jamais apparu devant nous. » Le regard de Wang Lin restait rivé sur le visage fantomatique de la voile.
 

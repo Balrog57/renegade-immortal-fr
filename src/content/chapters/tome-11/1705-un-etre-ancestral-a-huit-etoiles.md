@@ -46,7 +46,7 @@ Ce souvenir était la peur et le respect envers les neuf soleils du Continent As
 
 « C'est... l'aura d'un Grand Empyréen... » L'expression du Daoïste aux Sept Couleurs changea. Tandis que la lumière solaire se rapprochait, son corps trembla et il cracha du sang. Il recula comme un fou. Il ne songeait plus à affiner Wang Lin, terrifié par l'aura émanant du soleil!
 
-Non seulement lui, mais le Vieux Fantôme Zhan, qui suivait les quatre généraux pour tenter de trouver la troisième âme, trembla soudainement. Son visage devint livide.
+Non seulement lui, mais le Vieux Fantôme Zhan, qui se trouvait dans le système stellaire de Luotian et suivait les quatre généraux pour tenter de trouver la troisième âme, trembla soudainement. Son visage devint livide.
 
 « Grand Empyréen!! » Il ne parla pas, mais une voix aiguë jaillit de son corps.
 
@@ -92,27 +92,27 @@ L'espace était plongé dans un silence absolu et toute lumière s'était étein
 
 « Si j'absorbe ce bras et que j'utilise le sortilège "Déchirer les Cieux", je me demande quelle part de la force de Ye Mo je pourrai déployer! » Les yeux de Wang Lin étincelèrent. Après s'être calmé, il pointa l'espace entre ses sourcils et les huit gouttes de sang s'envolèrent.
 
-Ces huit gouttes flottaient devant lui. Elles ne dégageaient aucune lumière, mais une puissante aura antique s'en échappait. Les sept étoiles de Dieu Antique de Wang Lin tournèrent rapidement pour former un vortex.
+Ces huit gouttes flottaient devant lui. Elles ne dégageaient aucune lumière, mais une puissante aura antique s'en échappait. Les sept étoiles de Dieu Ancien de Wang Lin tournèrent rapidement pour former un vortex.
 
 Dans ses yeux gauche et droit, ses étoiles d'Ancien Démon et d'Ancien Diable apparurent également. L'allure actuelle de Wang Lin était extrêmement singulière.
 
-« Le sang de Ye Mo contient toute la puissance des trois anciens clans... » Wang Lin saisit une goutte de sang et, après un instant de réflexion, la broya. Elle se divisa en sept parties qui furent absorbées par ses sept orifices.
+« Le sang ancien contient toute la puissance des trois anciens clans... » Wang Lin saisit une goutte de sang et, après un instant de réflexion, la broya. Elle se divisa en sept parties qui furent absorbées par ses sept orifices.
 
 Cette fois, il ne se contentait pas de fusionner le sang entre ses sourcils; il l'intégrait à son corps tout entier. Dès la première goutte absorbée, un grondement tonitruant émana de lui. Son corps commença à gonfler alors qu'il absorbait frénétiquement la puissance antique.
 
-Les étoiles de Dieu Antique entre ses sourcils tournèrent à toute vitesse. La huitième étoile prit lentement forme, mais elle était extrêmement instable, comme si elle pouvait se dissiper à tout instant.
+Les étoiles de Dieu Ancien entre ses sourcils tournèrent à toute vitesse. La huitième étoile prit lentement forme, mais elle était extrêmement instable, comme si elle pouvait se dissiper à tout instant.
 
-Le visage de Wang Lin se crispa sous l'effet de la douleur, mais il endura le supplice. Le passage de sept à huit étoiles était un saut colossal. Wang Lin devait également consacrer une partie de ses efforts à accroître la puissance de ses étoiles de Démon Antique dans son œil gauche. Il exigeait une croissance équilibrée des trois anciens clans, et non une domination de la seule divinité antique!
+Le visage de Wang Lin se crispa sous l'effet de la douleur, mais il endura le supplice. Le passage de sept à huit étoiles était un saut colossal. Wang Lin devait également consacrer une partie de ses efforts à accroître la puissance de ses étoiles d'Ancien Démon et d'Ancien Diable dans ses deux yeux. Il exigeait une croissance équilibrée des trois anciens clans, et non une domination de la seule divinité antique!
 
 Le temps s'écoulait lentement. En un clin d'œil, sept jours passèrent. Trempé de sueur, il se forçait à rester conscient. Après la première goutte, il broya la deuxième, puis la troisième!
 
-Deux gouttes de sang s'intégrèrent simultanément dans son corps. Non seulement sa huitième étoile de Dieu Antique était sur le point d'apparaître, mais ses étoiles de Démon Antique dans l'œil gauche tournaient également avec acharnement. Le signe d'une huitième étoile de Démon Antique se manifestait aussi!
+Deux gouttes de sang s'intégrèrent simultanément dans son corps. Non seulement sa huitième étoile de Dieu Ancien était sur le point d'apparaître, mais ses étoiles d'Ancien Démon dans l'œil gauche tournaient également avec acharnement. Le signe d'une huitième étoile d'Ancien Démon se manifestait aussi!
 
 Le corps de Wang Lin gonfla de manière incontrôlée et l'ombre d'un Être Ancestral apparut derrière lui. Cette ombre se distordait, comme si elle subissait une mutation mystérieuse.
 
 Quelques jours plus tard, Wang Lin ouvrit les yeux et agita ses manches. Les cinq gouttes restantes explosèrent en une brume sanguine avant de pénétrer dans son corps par ses pores et ses orifices.
 
-Tandis que la brume se dissipait, des gémissements étouffés s'élevèrent de sa poitrine. La huitième étoile de Démon Antique apparut lentement dans son œil gauche!!
+Tandis que la brume se dissipait, des gémissements étouffés s'élevèrent de la brume. La huitième étoile d'Ancien Démon apparut lentement dans son œil gauche!!
 
 À l'instant où cette étoile surgit, une tempête monstrueuse d'énergie démoniaque balaya le monde à l'intérieur de la faille. Toutes les bêtes s'agenouillèrent, n'osant plus bouger.
 
@@ -120,6 +120,6 @@ Simultanément, dans son œil droit, la huitième étoile d'Ancien Diable apparu
 
 Une énergie diabolique colossale jaillit, une force violente et cruelle qui balaya l'espace environnant.
 
-La dernière à apparaître fut l'étoile de Dieu Antique!
+La dernière à apparaître fut l'étoile de Dieu Ancien!
 
-« Les Trois Épreuves et les Sept Calamités... sont sur le point d'arriver! » La brume autour de Wang Lin s'était depuis longtemps dissipée. Entre ses sourcils, la huitième étoile de Dieu Antique brillait intensément, prête à prendre forme!
+« Les Trois Épreuves et les Sept Calamités... sont sur le point d'arriver! » La brume autour de Wang Lin s'était depuis longtemps dissipée. Entre ses sourcils, la huitième étoile de Dieu Ancien brillait intensément, prête à prendre forme!

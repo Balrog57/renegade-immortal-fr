@@ -12,9 +12,9 @@ Il regarda Wang Lin et joignit les mains.
 
 « Merci, Seigneur du Royaume Scellé! » Il leva la tête et se tourna vers le Seigneur du Palais de la Punition Céleste. Ses yeux brillaient de sagesse.
 
-« Qin Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas; ce vieil homme te transformera en marionnette de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
+« Qin Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas; ce vieil homme te transformera en corps de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
 
-Le vieil homme en noir était livide. Bien qu'il fût un cultivateur du troisième niveau, il restait un cultivateur, et il était impuissant face à quatre adversaires. Alors que le Maître Hong Shan se rapprochait, le vieil homme en noir recula rapidement.
+Le vieil homme en noir était livide. Bien qu'il fût un cultivateur de la troisième étape, il restait un cultivateur, et il était impuissant face à quatre adversaires. Alors que le Maître Hong Shan se rapprochait, le vieil homme en noir recula rapidement.
 
 Cependant, le Maître Long Pan leva calmement sa main droite derrière l'homme en noir, et la Peinture des Montagnes et des Rivières bloqua sa fuite.
 
@@ -22,15 +22,15 @@ L'expression de Qing Shui se glaça et il pointa l'index vers le vieil homme. Le
 
 L'expression de Wang Lin restait calme, et au moment où les trois autres attaquèrent, ses yeux brillèrent. Une lumière dorée se concentra à la pointe de son doigt et il pointa le vieil homme en noir.
 
-« Arrête! »
+« Immobile! »
 
 Cette bataille ne laissait place à aucun suspense. Le Royaume aux Sept Couleurs s'effondra, et le Seigneur du Palais de la Punition Céleste, Qin Jiuyan, fut capturé et emmené par le Maître Hong Shan.
 
-Grâce à l'aide du Maître Hong Shan, l'âme ardente du Maître Long Pan cessa de brûler. Il repartit avec son disciple, le Maître Zhong Xuan, pour attendre silencieusement la prochaine bataille contre le Royaume Extérieur.
+Grâce à l'aide du Maître Hong Shan, l'âme ardente du Maître Long Pan commença à s'éteindre. Il repartit, blessé, avec son disciple, le Maître Zhong Xuan, pour attendre silencieusement la prochaine bataille contre le Royaume Extérieur.
 
 Le Maître Hong Shan invita Wang Lin sur la Plateforme de Guerre de la Mer des Nuages afin que, sous le nom de Seigneur du Royaume Scellé, il devienne l'âme de la guerre à venir, entraîne les cultivateurs du Royaume Intérieur et mène la contre-attaque finale.
 
-Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits du Dao. Le plus important pour lui était désormais de parachever ses trois voies avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
+Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits du Dao. Le plus important pour lui était désormais de parachever ses trois essences avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
 
 Qing Shui partit. Sa robe verte flottait parmi les étoiles, empreinte d'une sensation de tristesse et de solitude. Il partit à la recherche de sa fille. Peut-être la retrouverait-il, ou peut-être ne la reverrait-il jamais de toute sa vie.
 
@@ -40,7 +40,7 @@ Parmi les étoiles, il n'y avait que deux personnes dont Qing Shui se souciait e
 
 L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La reprise de la Rivière Invoquée redonna espoir aux cultivateurs restants!
 
-La mort de l'Illustre Maître Tian Zhao, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
+La mort de l'Estimé Maître Tian Zhao, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
 
 Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur, et plus aucune faille. Surtout après des décennies de guerre, les cultivateurs restants étaient tous des guerriers aguerris. Ils devaient se battre car, en cas d'échec, la seule issue restante serait la mort.
 
@@ -106,7 +106,7 @@ Il y avait naturellement un profond respect pour les cultivateurs de la planète
 
 Cependant, la planète Suzaku était un petit monde dont très peu de cultivateurs parvenaient à s'échapper. Il était donc rare d'y rencontrer quelqu'un qui en soit réellement originaire. C'est précisément pour cette raison que, lorsqu'on découvrait qu'une personne venait de là, elle recevait de grands honneurs.
 
-La planète Suzaku avait acquis le respect de tout le Royaume Intérieur grâce à Wang Lin.
+Les Daoïstes disent: « Quand un seul homme atteint le Dao, poules et chiens s'élèvent au ciel. » La planète Suzaku avait acquis le respect de tout le Royaume Intérieur grâce à Wang Lin seul.
 
 La femme en violet semblait peu habituée à une telle attention et ses joues rougirent légèrement. Elle leva sa main semblable à du jade pour écarter une mèche de cheveux, puis salua les cultivateurs qui l'honoraient. Elle répondit doucement à sa sœur cadette:
 

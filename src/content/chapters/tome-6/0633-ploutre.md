@@ -18,7 +18,7 @@ Un jeune homme vêtu d'une robe rouge se tenait aux côtés des deux femmes. Il 
 
 Ce jeune homme était plutôt beau et dégageait un certain orgueil, comme s'il était un fils favori des cieux.
 
-Un autre homme, vêtu de noir, répondit froidement: « Satisfaisant! » Son expression était sombre alors qu'il fermait les yeux, cessant de parler.
+Un autre homme, vêtu de noir, répondit froidement: « Passable! » Son expression était sombre alors qu'il fermait les yeux, cessant de parler.
 
 Le jeune homme en robe rouge sourit. Il s'était habitué depuis longtemps au parler concis de l'autre.
 
@@ -96,7 +96,7 @@ Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Me
 
 Les nuages emplissaient l'espace, créant l'illusion de montagnes et de mers. Ce spectacle était grandiose et empreint d'une beauté mystérieuse.
 
-Les yeux magnifiques de Zhao Yixuan se posaient occasionnellement sur Wang Lin. Elle ne parvenait pas à percer ce mystère. Dans la Terre des Esprits Démoniaques, elle pouvait lire au cœur des généraux démons. Au cours des cent dernières années, il n'y avait eu que deux personnes et demie qu'elle ne pouvait sonder.
+Les yeux magnifiques de Zhao Yixuan se posaient occasionnellement sur Wang Lin. Elle ne parvenait pas à percer ce mystère. Dans la Terre des Esprits Démoniaques, elle pouvait lire au cœur des généraux démons. Au cours des cent et quelques dernières années, il n'y avait eu que deux personnes et demie qu'elle ne pouvait sonder.
 
 La silhouette de Wang Lin devant elle perçait les couches nuageuses et devenait floue. Le regard de Zhao Yixuan semblait lui-même entravé par la brume.
 

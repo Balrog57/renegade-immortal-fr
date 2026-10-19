@@ -78,21 +78,21 @@ Cependant, au moment où il s'élançait, le quatrième coup de Wang Lin s'abatt
 
 Les deux rayons d'énergie d'épée volèrent l'un après l'autre, formant presque une vague, portée par les hurlements des âmes. L'Ancien, déjà rendu fou par la douleur, ne se souciait plus de sa longévité et agita la main:
 
-« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme flammes sacrificielles afin d'activer le Sort de la Grande Ourse! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
+« Je sacrifie 10 000 ans de vie et je brise mon héritage de l'essence de tonnerre du troisième pas pour utiliser les membres du Clan du Tonnerre Dispersé comme flammes sacrificielles afin d'activer le Sort du Boisseau du Sud! » Son rugissement fit trembler le ciel, sacrifiant instantanément 10 000 ans de vie!
 
-Le Sort de la Grande Ourse était l'art le plus puissant du Clan du Tonnerre Dispersé. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
+Le Sort du Boisseau du Sud était l'art le plus puissant du Clan du Tonnerre Dispersé. Empruntant le pouvoir des astres, il se manifestait sous la forme de neuf étoiles meurtrières. L'espace devant l'Ancien se déforma et brilla intensément alors que neuf étoiles apparurent en formation. Un seul regard suffisait à donner l'impression que l'esprit était aspiré.
 
 Ces neuf étoiles émettaient une lueur démoniaque et s'élancèrent pour contrer les quatrième et cinquième rayons d'énergie de Wang Lin!
 
-Un fracas tonitruant éclata lorsque les lames d'énergie entrèrent en collision avec les neuf étoiles du Sort de la Grande Ourse.
+Un fracas tonitruant éclata lorsque les lames d'énergie entrèrent en collision avec les neuf étoiles du Sort du Boisseau du Sud.
 
 Le grondement fut si intense qu'on aurait dit que l'espace lui-même s'effondrait. Cette force de déchirure se propagea à travers les 7 Millions de Mondes. La place contrôlée par le Clan au centre trembla et fut pulvérisée en d'innombrables fragments.
 
-Dans ce vacarme, la carte de la Grande Ourse trembla et se déchira. Les neuf étoiles mortelles se brisèrent et se dissipèrent. Le corps de l'Ancien n'était plus qu'un amas sanglant; ses jambes avaient explosé, ne laissant que son buste. Une peur indescriptible le submergea, le tirant de sa folie. Il recula avec anxiété en formant des sceaux de toutes urgence. La chair de son bas du corps s'agita et il se régénéra rapidement!
+Dans ce vacarme, la carte du Boisseau du Sud trembla et se déchira. Les neuf étoiles mortelles se brisèrent et se dissipèrent. Le corps de l'Ancien n'était plus qu'un amas sanglant; ses jambes avaient explosé, ne laissant que son buste. Une peur indescriptible le submergea, le tirant de sa folie. Il recula avec anxiété en formant des sceaux de toutes urgence. La chair de son bas du corps s'agita et il se régénéra rapidement!
 
 « Cet homme possède le Fouet de Scellement des Âmes des Dix Mille Mondes, je ne peux pas m'échapper avec mon âme originelle! »
 
-Le corps de Wang Lin trembla lorsque les cinquième et quatrième rayons d'énergie se dissipèrent. D'innombrables vies s'étaient éteintes dans les 7 Millions de Mondes, et il cracha du sang, ses forces et son corps luttant contre l'épuisement.
+Le corps de Wang Lin trembla lorsque les cinquième et quatrième rayons d'énergie se dissipèrent. D'innombrables vies s'étaient éteintes dans les 7 Millions de Mondes, et il cracha du sang. Son corps émettait des bruits sourds, chair et os s'entrechoquant sans fin, tandis que ses forces luttaient contre l'épuisement.
 
 Il leva soudain les yeux vers l'Ancien. Une intention meurtrière pure embrasa son regard lorsqu'il rugit: « Si tu ne meurs pas aujourd'hui, alors moi, Wang Lin, je ne m'arrêterai pas! »
 

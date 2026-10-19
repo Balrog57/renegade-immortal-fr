@@ -10,11 +10,11 @@ Le feu rouge sang emplissait le ciel de l'Épreuve Humaine. Il forma une puissan
 
 Wang Lin se trouvait au cœur des flammes, debout sur le dos du Vermillon Noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
 
-Le premier des neuf châtiments karmiques était rouge. Il représentait tous les massacres que Wang Lin avait perpétrés pour satisfaire son obsession. Ce châtiment de carnage déferla et brûla avec violence.
+Le premier des neuf châtiments karmiques était rouge. Il représentait l'immense carnage né de l'obsession de Wang Lin. Ce châtiment de carnage déferla et brûla avec violence.
 
 L’Oiseau Vermillon sous les pieds de Wang Lin poussa des cris déchirants sous la chaleur de ce feu écarlate. Même l'âme récemment reformée de Wang Lin faillit s'effondrer; il était sur le point d'être brûlé vif.
 
-Bien qu'il eût tenté de prédire la puissance des neuf châtiments karmiques, il n'avait pas imaginé que le premier serait déjà si difficile à supporter.
+Il avait pourtant surestimé la puissance des neuf châtiments karmiques, mais il n'avait pas imaginé que le premier serait déjà si difficile à supporter.
 
 Au sein de ce feu rouge, un instant semblait une éternité. L'Oiseau Vermillon Noir ne put plus résister et son corps se rétracta rapidement. Le feu noir qui recouvrait sa peau vira brusquement au rouge.
 
@@ -56,7 +56,7 @@ Plus choquant encore, derrière le feu jaune surgit une lueur verte fantomatique
 
 Trois couleurs de feu étaient apparues simultanément! Trois châtiments frappaient en même temps!
 
-C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la tribulation divine, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition!
+C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la rétribution divine, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition!
 
 Les trois châtiments couvraient le ciel de l'Épreuve Humaine. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation: des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
 
@@ -76,13 +76,13 @@ Dans l'Épreuve Humaine, le corps de Wang Lin émettait toujours une lueur rouge
 
 « J'inhalerai ces quatre feux dans mon âme. Soit vous me brûlerez tous, soit je vous dévorerai tous! »
 
-Un orgueil indicible, une attitude inexplicable face à la vie, une noblesse transcendante envers le ciel et le Dao céleste, et une quête insaisissable pour une simple pensée... Tout cela fusionnait dans le rire de Wang Lin pour former un son défiant les lois du destin!
+Un orgueil indicible, une attitude inexplicable face à la vie, une noblesse transcendante envers le ciel et le Dao céleste, et une quête insaisissable pour son obsession... Tout cela fusionnait dans le rire de Wang Lin pour former un son défiant les lois du destin!
 
-Alors que son rire résonnait, deux mille ans de culture défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, les pleurs de nostalgie pour les siens lors de la nuit d'orage et de pluie... Toutes ces scènes traversèrent son esprit.
+Alors que son rire résonnait, deux mille ans de cultivation défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. Les regards sans cesse tournés vers le passé, l'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, les pleurs de nostalgie pour les siens lors de la nuit d'orage et de pluie... Toutes ces scènes traversèrent son esprit.
 
 Tandis que ces souvenirs refaisaient surface, le feu orange se précipita dans le corps de Wang Lin, croisant la route de la lumière rouge.
 
-Si l'âme est empreinte de tristesse, elle aspire à son foyer. Et si l'âme retourne vers sa demeure, des larmes de chagrin sont versées devant la tombe... Après le feu orange, la lumière jaune s'engouffra. Elle forma un sceau de feu autour du brasier orange et brûla le corps de Wang Lin avec acharnement.
+Si l'âme est empreinte de tristesse, elle aspire à son foyer. Et si l'âme retourne vers sa demeure, des larmes de chagrin sont versées devant la tombe... Après le feu orange, la lumière jaune s'engouffra et brûla le corps de Wang Lin avec acharnement.
 
 Le temps est impitoyable, et le désir pour ceux qui nous ont quittés devient une blessure éternelle qui nous accompagne toute une vie... Le feu vert fantomatique arriva enfin, recouvrant tout le ciel d'une teinte émeraude. Tel un spectre, il pénétra soudainement dans le corps de Wang Lin.
 
@@ -96,7 +96,7 @@ Il vida le récipient d'un trait, ne laissant pas une seule goutte!
 
 D'un revers de la main droite, il projeta la cruche au loin. Le feu en lui s'intensifia. Le sang de dragon brûlant se transforma en une mer de flammes qui commença à lutter contre les quatre couleurs intérieures!
 
-Alors qu'il résistait, un vortex apparut lentement au plus profond de son âme. Ce vortex provenait de la Perle Défiant le Ciel qui s'éveillait progressivement.
+Alors qu'il résistait, un vortex apparut lentement au plus profond de son âme. Dans ce vortex, un souffle venu de la Perle Défiant le Ciel s'éveillait progressivement.
 
 « J'ai dévoré les quatre châtiments dans mon âme, il n'y a donc plus rien à brûler. Pourquoi le cinquième châtiment ne descend-il pas? »
 
@@ -106,7 +106,7 @@ Des grondements tonitruants résonnèrent alors que le ciel s'effondrait!
 
 Derrière ce ciel brisé se trouvait une autre terre! Une terre peuplée d'âmes infinies; c'était comme l'enfer!
 
-Les dix mille cultivateurs qui fixaient le premier bâton d'encens découvrirent que la flamme s'était totalement arrêtée. Elle restait immobile, à cent pieds au-dessus de Wang Lin.
+Les dizaines de milliers de cultivateurs qui fixaient le premier bâton d'encens découvrirent que la flamme s'était totalement arrêtée. Elle restait immobile, à cent pieds au-dessus de Wang Lin.
 
 Le temps passa lentement, une respiration, puis une autre... En un éclair, plus de cinq respirations s'étaient écoulées!
 

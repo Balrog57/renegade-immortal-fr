@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 743 - Li Yuan
 slug: li-yuan
 ---
-Après avoir observé les lieux un instant, Wang Lin se posa. Cette restriction n'était pas très vaste, ne mesurant qu'environ 330 mètres de large. Ce qui était remarquable, c'est qu'elle s'entremêlait avec la montagne voisine, ce qui la rendait extrêmement bien dissimulée.
+Après avoir observé les lieux un instant, Wang Lin se posa. Cette restriction n'était pas très vaste, ne mesurant qu'environ 330 mètres de large. Ce qui était remarquable, c'est qu'elle s'entremêlait avec plusieurs rochers voisins, ce qui la rendait extrêmement bien dissimulée.
 
 Si Wang Lin n'avait pas été certain qu'aucune restriction ne figurait ici auparavant, il aurait facilement pu passer à côté. Cependant, le plus important était l'énergie spirituelle céleste que dégageait cette restriction.
 
@@ -18,7 +18,7 @@ Wang Lin fronça légèrement les sourcils avant de déployer son sens divin, ma
 
 Le temps passa lentement. Deux heures plus tard, une ondulation apparut sur un rocher situé à 33 mètres à droite de la restriction, et deux personnes en sortirent.
 
-Il s'agissait de l'homme et de la femme que Wang Lin avait rencontrés un mois auparavant.
+Il s'agissait de l'homme et de la femme, tous deux au sommet du stade avancé de l'Ascendant, que Wang Lin avait rencontrés un mois auparavant.
 
 La femme fixa avec haine l'endroit où Wang Lin avait disparu et dit avec mécontentement: « N'aviez-vous pas dit que votre restriction pouvait fusionner le faux avec le réel et attirer tous les cultivateurs de ce fragment? Pourquoi cet homme n'a-t-il pas été dupé tout à l'heure?! »
 
@@ -66,13 +66,13 @@ L'expression de la femme changea lorsqu'elle se retourna et fixa Wang Lin, qui v
 
 Li Yuan eut un sourire amer tandis que sa main droite formait un sceau; des restrictions apparurent aussitôt. Elles se combinèrent pour lancer une attaque coordonnée contre Wang Lin.
 
-L'expression de Wang Lin restait calme; il était considéré comme l'un des plus éminents cultivateurs du premier stade. À cet instant, il chargea et fit claquer ses doigts, projetant un éclair de tonnerre. Le coup frappa l'éventail de plumes. Le tonnerre se dissipa et l'éventail s'effondra, incapable de résister.
+L'expression de Wang Lin restait calme; il était sans égal parmi les cultivateurs du premier stade. À cet instant, il chargea et fit claquer ses doigts, projetant un éclair de tonnerre. Le coup frappa l'éventail de plumes. Le tonnerre se dissipa et l'éventail s'effondra, incapable de résister.
 
 Son trésor magique étant détruit, le contrecoup fit violemment trembler son corps, et elle cracha du sang. Elle recula de plusieurs pas, le visage déformé par l'horreur.
 
 Wang Lin n'avait fait qu'un seul pas. Plutôt que l'éventail, c'était la restriction de Li Yuan qui captivait son attention. Celle-ci se divisa en dix-huit segments qui se chevauchaient et s'entrecroisaient.
 
-Cette restriction était singulière; si l'on cherchait uniquement à la briser, cela prendrait du temps. Mais ici, c'était un combat. Les yeux de Wang Lin brillèrent. Il ne tenta pas de la déchiffrer, mais leva simplement la main. Le tonnerre logé dans son âme originelle réapparut, formant une paume gigantesque qui s'abattit directement sur les dix-huit restrictions entrelacées.
+Cette restriction était singulière; si l'on cherchait uniquement à la briser, cela prendrait du temps. Mais ici, c'était un combat. Les yeux de Wang Lin brillèrent. Il ne tenta pas de la déchiffrer, mais leva simplement la main. Le tonnerre logé dans son corps réapparut, formant une paume illusoire qui s'abattit directement sur les dix-huit restrictions entrelacées.
 
 Après plusieurs fracas, les dix-huit segments s'effondrèrent un à un, incapables de supporter la puissance de l'attaque. Une fois les restrictions détruites, la paume ne se dissipa pas et percuta de plein fouet la poitrine de Li Yuan.
 
@@ -88,16 +88,16 @@ La femme, horrifiée, hurla: « Dévore-le! »
 
 Le crâne formé par le fantôme céleste projeta une lueur verte qui teinta le monde de cette couleur. Alors qu'il fonçait sur Wang Lin, un éclat jaillit entre les sourcils du cultivateur et le Fouet du Karma apparut soudainement.
 
-Dès son apparition, le fouet frappa le fantôme céleste. Ce dernier poussa un cri misérable tandis qu'une immense quantité de gaz vert s'échappait de son corps. Il tentait de battre en retraite, mais Wang Lin ne comptait pas le laisser s'échapper. Le Fouet du Karma s'enroula immédiatement autour du fantôme et le ramena brutalement. Wang Lin sortit alors le Drapeau des Âmes d'un milliard et y projeta le fantôme céleste.
+Dès son apparition, le fouet frappa le fantôme céleste. Ce dernier poussa un cri misérable tandis qu'une immense quantité de gaz vert s'échappait de son corps. Il tentait de battre en retraite, mais Wang Lin ne comptait pas le laisser s'échapper. Le Fouet du Karma s'enroula immédiatement autour du fantôme et le ramena brutalement. Wang Lin sortit alors le Drapeau des Âmes d'un Milliard et y projeta le fantôme céleste.
 
 « Avec cela, les chances de raffiner la deuxième garde céleste seront bien plus grandes! » Wang Lin se retourna vers Li Yuan et la femme.
 
 La femme était terrifiée. Elle ne pouvait concevoir comment cet homme avait pu capturer si aisément le fantôme céleste que sa famille élevait depuis des années.
 
-L'expression de Li Yuan était des plus sombres. Il venait de voir le fouet surgir aux côtés de Wang Lin. Il prit une inspiration saccadée et dit d'un ton complexe: « Aîné, nous deux... »
+L'expression de Li Yuan était des plus sombres. Il venait de voir le fouet surgir aux côtés de Wang Lin. Il prit une inspiration saccadée et dit d'un ton complexe: « Senior, nous deux... »
 
 « Le fait que vous ayez dressé une restriction pour piéger les gens ne me concerne pas. Cependant, puisque vous avez pris l'initiative de m'attaquer, je ne peux pas vous laisser partir si facilement! » Les paroles de Wang Lin n'exprimaient ni joie ni colère, mais elles firent trembler la femme. Li Yuan poussa un soupir intérieur.
 
-Il réfléchit un instant en observant Wang Lin et dit respectueusement: « Aîné, cette affaire est de notre faute. Ce junior connaît un lieu extrêmement secret où résident des restrictions et, sans doute, des trésors célestes. Je vous offre ce lieu pour régler ce différend. »
+Il réfléchit un instant en observant Wang Lin et dit respectueusement: « Senior, cette affaire est de notre faute. Ce Junior connaît un lieu extrêmement secret, dans ce Royaume Céleste du Tonnerre, où résident des restrictions et, sans doute, des trésors célestes. Je vous offre ce lieu pour régler ce différend. »
 
 La femme à ses côtés n'avait plus de force et n'osait même plus ouvrir la bouche.

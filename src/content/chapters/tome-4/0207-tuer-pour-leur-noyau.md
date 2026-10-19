@@ -34,7 +34,7 @@ Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la
 
 Une fois apparu, sur ordre de Wang Lin, le démon devint invisible. À travers les yeux de Wang Lin, on pouvait voir sa silhouette s'élancer dans la brume.
 
-Le visage de Wang Lin restait sombre. Il observa les environs et vit de nombreuses personnes circuler dans la ville de Qilin, mais aucune d'elles ne remarquait l'existence de cette ligne rouge.
+Le visage de Wang Lin restait sombre. Il observa les environs et vit de nombreuses personnes circuler dans la ville de Qi Lin, mais aucune d'elles ne remarquait l'existence de cette ligne rouge.
 
 Wang Lin était perplexe. Cette sensation d'horreur ne cessait de croître. La seule autre fois où il avait ressenti un tel effroi, c'était face à l'Ancien Dieu Tu Si.
 
@@ -126,19 +126,19 @@ Wang Lin ne permettrait pas que le trésor pour lequel il avait tant travaillé 
 
 Lentement, la puissance mystérieuse qui retenait le drapeau commença à faiblir, sans toutefois le lâcher. Au même moment, un rugissement tonitruant déchira le ciel. Pour la première fois dans la Mer des Démons, il n'y avait ni eau ni brume pour obstruer le ciel, révélant un bassin gigantesque.
 
-N'ayant plus rien sur son passage, le pilier rouge s'abattit vers la ville de Qilin à une vitesse vertigineuse.
+N'ayant plus rien sur son passage, le pilier rouge s'abattit vers la ville de Qi Lin à une vitesse vertigineuse.
 
 Tous les cultivateurs de la ville paniquèrent et utilisèrent toute leur force pour se disperser.
 
 Le pilier rouge frappa.
 
-Au moment de l'impact sur la ville de Qilin, la tête de la créature géante explosa et chaque écaille de son corps fut balayée par la puissance destructrice du pilier.
+Au moment de l'impact sur la ville de Qi Lin, la tête de la créature géante explosa et chaque écaille de son corps fut balayée par la puissance destructrice du pilier.
 
 Wang Lin était dans sa grotte lorsqu'il ressentit une force colossale venant de toutes parts, le faisant cracher une bouchée de sang. Il soupira, prêt à abandonner.
 
 Mais à cet instant précis, la force mystérieuse autour du drapeau disparut soudainement. Les yeux de Wang Lin s'illuminèrent. Sans hésiter, il saisit le drapeau de sa main droite.
 
-Simultanément, il se rua hors de la bête Qilin juste au moment où elle s'effondrait. Mais alors qu'il s'élançait, un nuage rouge forma une fine ligne et fut projeté depuis les ruines de la ville vers le drapeau dans la main de Wang Lin.
+Simultanément, il se rua hors de la bête Qi Lin juste au moment où elle s'effondrait. Mais alors qu'il s'élançait, un nuage rouge forma une fine ligne et fut projeté depuis les ruines de la ville vers le drapeau dans la main de Wang Lin.
 
 Le fil était d'une rapidité extrême. Même si Wang Lin avait rangé le drapeau dans son sac de rangement, seul le sac aurait été détruit. À cet instant, Wang Lin serra les dents et déplaça sa main droite: soudainement, le drapeau passa dans sa main gauche et un instrument qu'il ne contrôlait pas apparut dans sa main droite.
 
@@ -150,9 +150,9 @@ Le corps de Wang Lin trembla et il cracha plusieurs bouches de sang. Même le no
 
 Le visage de Wang Lin était livide. Toute l'énergie spirituelle de son corps était plongée dans un chaos total, et il ne comptait plus que sur son noyau pour contenir la force destructrice du fil. Il savait que son temps était compté: s'il ne parvenait pas à retirer ce fil rapidement, son noyau absorberait toute son énergie spirituelle jusqu'à l'effondrement. Son corps suivrait, et même son âme ne pourrait échapper au pouvoir de la rétribution divine.
 
-Actuellement, de nombreux cultivateurs fuyaient la ville de Qilin, personne ne remarqua donc l'état anormal de Wang Lin. Ils étaient tous dispersés dans toutes les directions.
+Actuellement, de nombreux cultivateurs fuyaient la ville de Qi Lin, personne ne remarqua donc l'état anormal de Wang Lin. Ils étaient tous dispersés dans toutes les directions.
 
-La ville de Qilin était totalement anéantie.
+La ville de Qi Lin était totalement anéantie.
 
 À ce moment-là, une pluie noire commença à tomber du ciel. Toute la brume qui s'était évaporée en nuages commença à se condenser après le passage de la rétribution divine.
 
@@ -174,7 +174,7 @@ Sa culture avait déjà chuté du stade avancé de la Formation du Noyau au stad
 
 Wang Lin ne pouvait pas se soucier de son rendez-vous avec Qiu Siping le septième jour. Sa priorité était de trouver un moyen d'extraire ce fil rouge.
 
-Le visage de Wang Lin était livide. Ses yeux étaient injectés de sang et empreints d'une intention meurtrière. Pour survivre, il devait entamer une véritable chasse. Quel dommage qu'il ait épuisé toute son eau spirituelle dans la terre de l'Ancien Dieu. Il n'en avait pas accumulé beaucoup à Qilin; sinon, cela lui aurait permis de tenir un certain temps.
+Le visage de Wang Lin était livide. Ses yeux étaient injectés de sang et empreints d'une intention meurtrière. Pour survivre, il devait entamer une véritable chasse. Quel dommage qu'il ait épuisé toute son eau spirituelle dans la terre de l'Ancien Dieu. Il n'en avait pas accumulé beaucoup à Qi Lin; sinon, cela lui aurait permis de tenir un certain temps.
 
 À cet instant, un homme d'âge moyen vêtu de noir apparut devant lui. Il s'approcha et dit: « Stade intermédiaire de la Formation du Noyau... c'est bien vous! »
 
@@ -206,7 +206,7 @@ Alors que les cultivateurs étaient en plein affrontement, un jeune homme aux ch
 
 Pendant ce temps, le jeune homme se déplaçait avec célérité parmi la foule. Il plongeait sa main dans l'abdomen de chaque cultivateur au stade de la Formation du Noyau, leur dérobait le noyau et le consommait.
 
-En l'espace de dix respirations, tous les combattants furent morts, et le noyau de la bête qui avait causé le conflit fut également dévoré par ce jeune homme aux cheveux blancs. Son corps ne fut plus qu'un sillage flou alors qu'il filait vers l'horizon.
+En moins de dix respirations, tous les combattants furent morts, et le noyau de la bête qui avait causé le conflit fut également dévoré par ce jeune homme aux cheveux blancs. Son corps ne fut plus qu'un sillage flou alors qu'il filait vers l'horizon.
 
 Que ce soient des bêtes ou des cultivateurs, hommes ou femmes, tant qu'ils n'étaient pas au stade de l'Âme Naissante, ils étaient condamnés par Wang Lin.
 
@@ -282,7 +282,7 @@ Les yeux de Wang Lin s'illuminèrent. La puissance du drapeau valait bien le pri
 
 Il regarda froidement l'homme. La situation était critique: lors de leur combat, son énergie spirituelle s'était déstabilisée et son noyau avait encore rétréci. S'il ne réglait pas cela vite, son noyau s'effondrerait.
 
-Wang Lin dit d'un ton sombre: « Mon maître est Gulan. »
+Wang Lin dit d'un ton sombre: « Mon maître est Gu Lan. »
 
 L'homme fut stupéfait. Il scruta Wang Lin et ricana, ne croyant pas qu'il soit le disciple de l'Empereur Antique, car celui-ci avait disparu dans les étoiles brisées il y a deux cents ans.
 
@@ -302,17 +302,17 @@ Bien que l'Empereur Antique fût disparu depuis deux cents ans, sa réputation e
 
 Une fois loin, Wang Lin rangea le drapeau. Ce combat avait consommé énormément d'énergie spirituelle et son noyau avait encore rétréci. Selon ses calculs, il devait impérativement absorber plus de puissance spirituelle, sous peine de mourir.
 
-Wang Lin sortit tout le liquide spirituel économisé à Qilin. Il n'en restait pas cent gouttes. Après en avoir pris dix, il parvint tout juste à stopper la contraction de son noyau. Il soupira sombrement: il touchait au bout de ses solutions. Il ne restait qu'une ultime méthode.
+Wang Lin sortit tout le liquide spirituel économisé à Qi Lin. Il n'en restait pas cent gouttes. Après en avoir pris dix, il parvint tout juste à stopper la contraction de son noyau. Il soupira sombrement: il touchait au bout de ses solutions. Il ne restait qu'une ultime méthode.
 
 Wang Lin serra les dents. Il activa son Noyau d'Âme Dévoreuse et concentra toute sa volonté sur lui.
 
-Il n'avait utilisé cette technique qu'une seule fois, lors de la bataille étrangère pour quitter le monde en décomposition. Il avait passé des années à diviser son âme en fragments minuscules pour qu'ils puissent se faufiler à travers les fissures spatiales.
+Il n'avait utilisé cette technique qu'une seule fois, lors de la bataille étrangère pour quitter le Nirvana. Il avait passé des années à diviser son âme en fragments minuscules pour qu'ils puissent se faufiler à travers les fissures spatiales.
 
 À l'époque, il n'avait pu récupérer une partie de son âme dont la localisation restait inconnue. De plus, il savait qu'en divisant son âme, sa puissance s'affaiblirait considérablement et qu'il ne pourrait peut-être jamais reformer une âme complète.
 
 Mais si la méthode classique consistant à tuer des gens était trop lente, il devait prendre le risque de diviser son âme à nouveau.
 
-Heureusement, cette fois, il possédait son Noyau d'Âme. Le danger pour son essence vitale était moindre. Auparavant, ses fragments n'avaient aucun pouvoir offensif et étaient chaotiques. Mais grâce au Noyau d'Âme Dévoreuse, ses fragments se comportaient désormais comme les âmes errantes du monde en décomposition.
+Heureusement, cette fois, il possédait son Noyau d'Âme. Le danger pour son essence vitale était moindre. Auparavant, ses fragments n'avaient aucun pouvoir offensif et étaient chaotiques. Mais grâce au Noyau d'Âme Dévoreuse, ses fragments se comportaient désormais comme les âmes errantes du Nirvana.
 
 Seule la forme différait.
 
@@ -346,7 +346,7 @@ Trois jours plus tard, dans la zone protégée, le drapeau se rétracta jusqu'à
 
 Wang Lin rangea le drapeau d'un geste. Son visage n'était plus livide. En trois jours, il n'avait pas totalement éliminé le fil rouge, mais il l'avait encerclé de puissance spirituelle, évitant ainsi la destruction de son noyau.
 
-En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. Sa culture n'avait pas seulement été préservée, elle avait atteint le sommet absolu du stade avancé de la Formation du Noyau.
+En utilisant toute l'énergie accumulée, son noyau avait repris de la taille. Sa culture n'avait pas seulement été préservée, elle avait atteint le sommet absolu du stade avancé de la Formation du Noyau, celui de la pseudo-Âme Naissante.
 
 Wang Lin était convaincu que pour se débarrasser définitivement de ce fil, il devait atteindre le stade de l'Âme Naissante afin d'utiliser la technique du "Transfert de Poison" de Bossu Meng et le projeter sur un autre corps.
 
@@ -354,7 +354,7 @@ Il réfléchit un instant, le regard résolu. Il ferma les yeux pour tenter de l
 
 Cette fois, Wang Lin utilisa la technique d'évasion tellurique pour accélérer sa course. Sa vitesse devint fulgurante, bien que cette technique fût extrêmement gourmande en énergie spirituelle, raison pour laquelle il l'avait gardée en réserve.
 
-Après sept jours de voyage, utilisant son Sens Divin pour guider ses pas, il atteignit le point de rendez-vous, à 1 500 kilomètres de la ville de Qilin. Il sentait que Xu Liguo était proche.
+Après sept jours de voyage, utilisant son Sens Divin pour guider ses pas, il atteignit le point de rendez-vous, à 1 500 kilomètres de la ville de Qi Lin. Il sentait que Xu Liguo était proche.
 
 C'était exact. Alors que Wang Lin chargeait vers le sommet d'une montagne, Xu Liguo sortit d'un pavillon pour s'engouffrer à nouveau dans les sourcils de Wang Lin.
 

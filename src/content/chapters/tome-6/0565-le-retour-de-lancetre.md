@@ -58,7 +58,7 @@ Puis le général démon ajouta lentement: « Je peux te le rendre car tu es mon
 
 Le visage de Wang Lin resta de marbre: « Que veux-tu? »
 
-Le général démon répondit posément: « Dans trois mois, je dois retourner à la capitale du Pays Démon Céleste pour un compte rendu. Durant cette période, une compétition aura lieu entre les généraux démons. Si tu promets de m'aider, j'oublierai le massacre de mes soldats. Sinon, même si je meurs, tu ne pourras jamais prendre pied dans ce pays! »
+Le général démon répondit posément: « Dans trois mois, je dois retourner à la capitale du Pays du Démon Céleste pour un compte rendu. Durant cette période, une compétition aura lieu entre les généraux démons. Si tu promets de m'aider, j'oublierai le massacre de mes soldats. Sinon, même si je meurs, tu ne pourras jamais prendre pied dans ce pays! »
 
 À cet instant, il considérait Wang Lin comme son égal. Sans compter cette paume illusoire, le simple fait que Wang Lin ait pu briser son coup de poing des dix effondrements et résister à la Mer Démoniaque aux Cent Vagues fit bondir sa considération pour lui!
 
@@ -130,4 +130,4 @@ Dès qu'il s'immobilisa, quelqu'un l'aperçut immédiatement. Après un instant 
 
 Ouyang Hua se transforma en un nuage de brume noire et traversa la tribu. Il s'arrêta à une quarantaine de mètres de Wang Lin et, le visage rayonnant, dit respectueusement: « Bon retour, Ancêtre! »
 
-Au même moment, tous les membres de la tribu s'agenouillèrent et déclarèrent en chœur: « Bon retour, Ancêtre! »
+Au même moment, tous les membres de la tribu s'agenouillèrent sur un genou et déclarèrent en chœur: « Bon retour, Ancêtre! »

@@ -60,9 +60,9 @@ Le cœur de Wang Lin tressaillit légèrement, mais rien ne trahit son émotion.
 
 En entendant cela, Li Muwan en eut la certitude absolue: il maîtrisait le légendaire sort de la mort. Cette technique divine de la haute antiquité était incroyablement difficile à maîtriser. Cependant, une fois acquise, il suffisait de regarder quelqu'un et de prononcer le mot « meurs » pour que l'individu s'éteigne instantanément.
 
-Ce genre de technique était considéré comme la technique la plus maléfique de la voie démoniaque. Elle exige la fusion de trois types d'énergie. La première est l'énergie Yin, l'Yin originel des femmes, accumulé par une technique de récolte du Yin. La deuxième est l'énergie de la mort, obtenue en absorbant l'essence des ossements des défunts; bien que similaire à l'énergie Yin, sa qualité diffère grandement. La troisième est l'énergie de meurtre. Une fois qu'un individu a tué suffisamment, son corps produit sa propre intention meurtrière. Lorsque cette intention acquiert une conscience propre, elle se transforme en énergie de meurtre.
+Ce genre de technique était considéré comme la technique la plus maléfique de la voie démoniaque. Elle exige la fusion de trois types d'énergie. La première est l'énergie Yin, l'Yin originel des femmes, accumulé par une technique de récolte du Yin. La deuxième est l'énergie de la mort, obtenue en absorbant l'essence des ossements des défunts; bien que similaire à l'énergie Yin, sa qualité diffère grandement. La troisième est l'énergie de meurtre. Une fois qu'un individu a tué suffisamment, son corps produit sa propre intention meurtrière. Lorsque cette intention, affinée par la pratique, acquiert une volonté propre, elle se transforme en énergie de meurtre.
 
-La fusion de ces trois énergies impose à l'utilisateur de survivre à une épreuve pour poursuivre la culture de cette technique. Chaque jour, l'utilisateur endure une douleur inimaginable et doit surmonter ce test tous les trois ans.
+La fusion de ces trois énergies impose à l'utilisateur de survivre à une épreuve de neuf morts pour une vie, pour pouvoir poursuivre la culture de cette technique. Chaque jour, l'utilisateur endure une douleur inimaginable et doit surmonter ce test tous les trois ans.
 
 Ce n'est qu'après avoir traversé ce cycle plusieurs fois que le premier stade du sort de la mort peut être considéré comme accompli. Si l'on souhaite poursuivre sa progression, les risques de trépas augmentent encore. Selon certains calculs, les chances de maîtriser totalement le sort de la mort sont pratiquement nulles. Bien que puissante, cette technique est trop vicieuse; seuls quelques cultivateurs démoniaques osaient tenter de l'apprendre.
 
@@ -76,7 +76,7 @@ Le bruit du métal raclant la pierre parvint aux oreilles de Wang Lin. Il fronç
 
 Il laissa échapper un grognement et frappa à nouveau son sac de rangement. Cette fois, plus de trente épées volantes en sortirent. Son Sens Divin du Royaume Ji pénétra chaque lame, et les épées se mirent à pleuvoir sur la montagne.
 
-Grâce à cela, le travail s'accéléra instantanément et une grotte finit par apparaître sur le flanc de la paroi. Li Muwan s'était habituée au tempérament de Wang Lin au fil de leur voyage. Puisque cet homme pouvait accomplir le sort de la mort, contrôler trente épées volantes n'avait rien d'étonnant.
+Grâce à cela, le travail s'accéléra instantanément et une grotte finit par apparaître sur le flanc de la paroi. Li Muwan s'était habituée aux agissements de Wang Lin au fil de leur voyage. Puisque cet homme pouvait accomplir le sort de la mort, contrôler trente épées volantes n'avait rien d'étonnant.
 
 Pourtant, elle savait bien quelle exigence immense le contrôle de plus de trente épées volantes imposait au Sens Divin d'un cultivateur.
 
@@ -94,7 +94,7 @@ Li Muwan serra les dents et s'avança sans mot dire. Elle sortit des drapeaux no
 Après ce travail, elle contracta la mâchoire et sortit un os de bête cristalline bleu. À l'aide de son épée volante, elle le dépeça en morceaux et, après quelques calculs, en plaça un.
 
 Elle continua ainsi jusqu'à ce que les dix-huit fragments de l'os soient en place, trois heures plus tard. Le front de Li Muwan était couvert de sueur. Épuisée, elle déclara:
-« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne soit qu'à 30 % de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant au moins une heure. »
+« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne puisse déployer que trois niveaux de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant au moins une heure. »
 
 « Je n'ai que ces os de bête cristalline. Si vous voulez une formation plus stable, il nous faudra davantage d'ossements de bêtes spirituelles. »
 
@@ -145,10 +145,10 @@ Il s'apprêtait à partir quand Li Muwan hésita, puis l'interpella rapidement:
 
 Wang Lin fronça légèrement les sourcils. Il la regarda, puis partit sans un mot.
 
-Li Muwan soupira intérieurement. Elle n'avait pas voulu mentir, mais elle craignait que la vérité ne le fasse fuir plus tôt. Cependant, maintenant qu'elle lui avait confié son sang d'essence spirituelle, elle jugea nécessaire de mentionner ce taux de réussite; si un problème survenait plus tard, il pourrait l'exécuter dans un accès de rage.
+Li Muwan soupira intérieurement. Elle n'avait pas voulu mentir, mais elle craignait que la vérité ne le pousse à l'abandonner plus tôt. Cependant, maintenant qu'elle lui avait confié son sang d'essence spirituelle, elle jugea nécessaire de mentionner ce taux de réussite; si un problème survenait plus tard, il pourrait s'en prendre à elle dans un accès de colère.
 
 Après avoir quitté la grotte, Wang Lin vérifia sa direction et regarda au loin, par-delà la Mer des Démons, vers le continent où se trouvait le pays de Zhao. Ses yeux se glacèrent:
-« Teng Huayuan, je suis sur le point d'atteindre la Formation du Noyau. Une fois que j'aurai atteint l'Âme Naissante, je me frayerai un chemin jusqu'à Zhao pour anéantir tout votre clan. Teng Huayuan, ne meurs pas trop vite. Vis et attends mon retour... »
+« Teng Huayuan, je suis sur le point d'atteindre la Formation du Noyau. Une fois que j'aurai atteint l'Âme Naissante, je me frayerai un chemin jusqu'à Zhao pour anéantir la Cité de la Famille Teng. Teng Huayuan, ne meurs pas trop vite. Vis et attends mon retour... »
 
 La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'évasion tellurique et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin savait qu'il allait bientôt se retirer pour tenter la Formation du Noyau et que, dans un lieu aussi périlleux que la Mer des Démons, il lui fallait une grotte relativement sûre pour éviter tout incident.
 
@@ -166,7 +166,7 @@ Le visage de Wang Lin se mua en une expression étrange: le poursuivant n'était
 
 Le jeune homme au regard sinistre tenait un os de bête noir. Tout en poursuivant l'homme d'âge mûr, il soufflait dessus avec nonchalance, libérant à chaque expiration une fumée noire. Dès qu'elle apparaissait, la fumée rattrapait le cultivateur et s'infiltrait dans son corps.
 
-« Senior frère apprenti, cours plus vite! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher aîné, j'ai passé un temps infini à préparer ces seize poisons pour toi. Sans cela, avec ta culture de l'Établissement des Fondations, comment aurais-je osé m'en prendre à toi? Mais maintenant, tu ne t'échapperas pas! »
+« Senior frère apprenti, cours plus vite! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher aîné, j'ai passé beaucoup de temps à préparer ces seize poisons pour toi. Sans cela, avec ta culture de l'Établissement des Fondations, comment aurais-je osé m'en prendre à toi? Mais maintenant, tu ne t'échapperas pas! »
 
 L'homme d'âge mûr serra les dents, silencieux, tandis que son épée volante montait péniblement le long de la montagne.
 

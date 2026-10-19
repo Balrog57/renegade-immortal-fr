@@ -26,7 +26,7 @@ Toute la famille Wang se redressa et regarda respectueusement Wang Lin.
 
 « Après mon départ, je te confie la famille Wang », murmura Wang Lin en regardant Wang Zhuo.
 
-Wang Zhuo réfléchit un instant. Puis, il poussa un soupir et dit: « En un clin d'œil, six cents ans se sont écoulés. Wang Lin, sois prudent. Quant aux affaires de la maison, je m'en occuperai. »
+Wang Zhuo réfléchit un instant. Puis, il poussa un soupir et dit: « En un clin d'œil, six cents ans se sont écoulés. Bon voyage, Wang Lin. Quant aux affaires de la maison, je m'en occuperai. »
 
 Wang Lin se retourna pour jeter un dernier regard sur le temple. Il fit un pas, puis disparut sans laisser de trace.
 
@@ -64,7 +64,7 @@ Quant à la hache, il n'avait pas l'intention de la raffiner, car il comptait la
 
 Concernant les quatre gaines d'épée, Wang Lin ne les comprenait toujours pas. Il regrettait de ne pas encore en avoir percé les mystères, alors même qu'il était sur le point de quitter la planète Suzaku.
 
-D'un geste de la main droite, il fit flotter les quatre gaines devant lui. Puis, il cracha une dose d'énergie spirituelle originelle qui les enveloppa rapidement.
+D'un geste de la main droite, il fit flotter les quatre gaines devant lui. Puis, il cracha une dose d'énergie de son âme originelle qui les enveloppa rapidement.
 
 Il commença leur raffinage.
 
@@ -88,7 +88,7 @@ Ce processus dura sept jours.
 
 Au bout de sept jours, grâce au Sens Divin de Zhou Yi de niveau Ascendant et à son âme originelle, le Sens Divin contenu dans le Fouet de l'Âme fut enfin détruit. Une fois celle-ci disparue, Wang Lin y imprégna sa propre conscience divine en utilisant son âme originelle.
 
-En contemplant le Fouet de l'Âme, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses couches de restrictions, tout comme la structure du chapeau de paille.
+En contemplant le Fouet de l'Âme, il sentait leur connexion; c'était comme s'ils ne faisaient qu'un. Le fouet contenait de nombreuses formations, tout comme le chapeau de paille.
 
 Cependant, il n'y avait pas qu'un seul chapeau de paille, ce qui le rendait bien moins précieux que le Fouet de l'Âme. Au-delà de la capacité à masquer son apparence, Wang Lin avait également pu tirer des enseignements du jade que lui avait donné Yun Quezi.
 
@@ -126,7 +126,7 @@ Une demi-lune plus tard, Wang Lin quitta la plaine.
 
 Durant cette période, les rugissements d'une bête résonnèrent sans cesse à travers la plaine.
 
-Ces hurlements secouaient les cieux. Même certains membres du Clan de l'Immortel Délaissé ressentirent la rage de cet esprit de combat qui ne se soumettrait devant personne!
+Ces hurlements secouaient les cieux. Même certains membres du Clan des Immortels Délaissés ressentirent la rage de cet esprit de combat qui ne se soumettrait devant personne!
 
 Assis sur le moustique, Wang Lin s'élança rapidement vers l'horizon. Son visage était pâle et il tenait un jade céleste dans sa main. Peu après, le jade se mua en poussière et disparut.
 

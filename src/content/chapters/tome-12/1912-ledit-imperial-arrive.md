@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1912 Imperial Edict Arrives!"
 slug: ledit-imperial-arrive
 ---
-Les deux bras formés par la brume rouge semblaient contenir une puissance infinie; ils avaient tué d'innombrables cultivateurs, ce qui lui avait valu sa renommée.
+Les deux bras formés par la brume rouge semblaient capables de soutenir un ciel qui s'effondre; ils avaient tué d'innombrables cultivateurs, ce qui lui avait valu sa renommée.
 
 Cependant, face à la paume de Wang Lin, ils furent détruits comme du bois mort!
 
@@ -46,7 +46,7 @@ Sans la moindre hésitation, il chargea vers Wang Lin!
 
 Wang Lin n'esquiva pas; il se contenta de fixer froidement l'homme à la robe rouge.
 
-« Tu es digne que j'utilise 70 % de ma puissance! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta. Ses yeux s'illuminèrent tandis que son corps véritable des cinq éléments et son corps véritable de l'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge!
+« Tu es digne que j'utilise 70 % de ma puissance! » murmura Wang Lin alors que l'homme approchait. Il leva la main droite et la Lame Yin se rétracta dans la chair de sa paume. Ses yeux s'illuminèrent tandis que son corps véritable des cinq éléments et son corps véritable de l'essence du tonnerre fusionnaient en lui. Puis, il décocha un coup de poing à l'homme à la robe rouge!
 
 Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de son Dao Antique et de sa culture de Tribulation du Vide, avec le cheveu de l'Ancêtre Céleste logé dans son corps libérant 70 % de son énergie immortelle!
 
@@ -92,7 +92,7 @@ De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait enco
 
 « Et alors s'ils meurent? Même si toute la Secte du Dao Démoniaque disparaît, tant que je suis en vie, il pourra être reconstruit. Plus il y aura de mort et de destruction, plus l'Ancêtre sera en colère! »
 
-« Et j'ai aussi un plan de secours. L'accord entre moi et le Respectable Taureau Vert de la Secte de la Grande Âme arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
+« Et j'ai aussi un plan de secours. L'accord entre moi et l'Ancien Taureau Vert de la Secte de la Grande Âme arrive à son terme. La bataille finale doit avoir lieu en ce moment même... »
 
 « Les deux continents jouent cette pièce depuis des dizaines de milliers d'années. Au cours des cent dernières années, nous l'avons rendue plus crédible encore en sacrifiant de nombreux cultivateurs! »
 
@@ -112,6 +112,6 @@ Tous les cultivateurs de la Tribulation du Vide, y compris le Maître de la Sect
 
 Une vague de pression infinie descendit des cieux. Une silhouette dorée se tenait calmement au cœur de cette lumière et regarda vers le bas!
 
-« Continent du Taureau Céleste, Continent du Démon Vert, tous les membres du clan céleste, recevez cet édit! »
+« Continent du Taureau Céleste, Continent du Démon Vert, tous les membres du clan céleste présents à la Secte Gui Yi, recevez cet édit! »
 
 Deux autres silhouettes identiques apparurent: l'une à l'extérieur de la Secte de la Grande Âme, et l'autre se déplaçant à une vitesse indescriptible vers le Continent du Démon Vert!

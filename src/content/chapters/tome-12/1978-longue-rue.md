@@ -12,7 +12,7 @@ Le vent et la neige gémissaient comme les pleurs d'une femme. La lune était oc
 
 Dès que le carré apparut, il fonça vers Wang Lin et Hai Zi. Encore plus de neige s'accumula, et sa taille s'étendit à près de 1 000 pieds en un clin d'œil.
 
-Simultanément, un motif triangulaire se forma derrière Wang Lin et l'Exalté Empyréen Hai Zi. Empli d'une intention meurtrière, il chargea après avoir absorbé une immense quantité de flocons de neige.
+Dans ce même hurlement glaçant, un motif triangulaire se forma derrière Wang Lin et l'Exalté Empyréen Hai Zi. Empli d'une intention meurtrière, il chargea après avoir absorbé une immense quantité de flocons de neige.
 
 Tout se passa en un éclair!
 
@@ -20,7 +20,7 @@ Tout se passa en un éclair!
 
 Après avoir lancé cet avertissement, il chargea vers le motif carré qui lui faisait face.
 
-L'expression de l'Exalté Empyréen Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité d'elle en l'invitant au Mont de l'Empereur pour tenter de tuer Wang Lin!
+L'expression de l'Exalté Empyréen Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité de l'invitation qu'elle avait faite au Mont de l'Empereur pour tenter de tuer Wang Lin!
 
 Si le plan de l'adversaire réussissait, cette affaire ébranlerait tout le clan céleste et son maître se verrait impliqué!
 

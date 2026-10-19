@@ -16,11 +16,11 @@ Elles paraissaient être des vagabondes sans foyer, ne pouvant se mouvoir qu'au 
 
 Leur destin était le vent, et chaque souffle leur offrait une vie différente.
 
-Une petite brindille de saule, blanche et couverte de fleurs, papillonnait doucement dans l'air. Elle vint se poser dans la paume d'un jeune homme vêtu de blanc, installé sur une petite barque.
+Une petite brindille de saule, blanche et couverte de fleurs, papillonnait doucement dans l'air. Elle vint se poser dans la paume d'un jeune homme vêtu de blanc, debout sur une petite barque.
 
-Le jeune homme tenait une cruche de vin de sa main gauche et buvait une gorgée tout en récitant un poème hautain. Sa voix n'était pas forte, mais elle dégageait une impression de nonchalance, comme s'il était prêt à poursuivre l'horizon même du monde.
+Le jeune homme tenait une cruche de vin de sa main gauche et buvait une gorgée tout en récitant un poème plein de fougue. Sa voix n'était pas forte, mais elle dégageait une impression de nonchalance, comme s'il était prêt à poursuivre l'horizon même du monde.
 
-Derrière lui se tenait un homme d'âge mûr, vêtu des habits d'un serviteur de bibliothèque. Il affichait une mine amère et, à chaque gorgée prise par le jeune homme, son cœur se serrait un peu plus.
+Derrière lui se tenait un homme d'âge mûr, vêtu de l'habit d'un serviteur lettré. Il affichait une mine amère et, à chaque gorgée prise par le jeune homme, son cœur se serrait un peu plus.
 
 « Une cruche de vin d'osmanthus coûte sept pièces d'argent. C'est cher, vraiment trop cher! Chaque gorgée revient presque à avaler la moitié d'une pièce d'argent... »
 
@@ -42,7 +42,7 @@ Grande Fortune eut une expression de détresse et continua de soupirer. Il saisi
 
 « Jeune Seigneur, j'ai sorti tout l'argent que je cachais. Vous... vous... Maudit soit! Ce vieil homme a fait le compte. Si nous continuons ainsi, nous finirons mendiants dans sept jours! »
 
-« Cela fait plus d'un mois, un mois! Qui diable attendez-vous et pourquoi n'est-elle pas encore venue? » Grande Fortune se plaignait amèrement, le cœur serré.
+« Cela fait plus d'un mois, un mois! Qui diable attendez-vous et pourquoi n'est-il pas encore venu? » Grande Fortune se plaignait amèrement, le cœur serré.
 
 Comme la scène était cocasse, la femme qui marquait une pause dans sa danse éclata de rire. Les yeux de Grande Fortune s'écarquillèrent et il fixa la jeune femme. Après avoir marmonné quelques mots, il saisit lui-même une cruche et en prit une grande gorgée.
 

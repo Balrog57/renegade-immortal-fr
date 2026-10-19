@@ -26,9 +26,9 @@ Cette tempête dorée, chargée de la force de la lignée céleste, produisait u
 
 Cependant, cette force de lignée n'eut aucun effet sur Qing Shui; c'était comme s'il ne la percevait même pas. Il traversa la tempête dorée pour foncer vers les dizaines de Célestes, animé d'une intention meurtrière terrifiante.
 
-Il était néanmoins un peu trop lent. Les douzaines de Célestes sortis en premier étaient déjà arrivés au-dessus du nouveau Royaume Céleste. Ils contemplèrent les dizaines de milliers de cultivateurs qui les observaient avec effroi et éclatèrent de rire.
+Il était néanmoins un peu trop lent. Une douzaine de Célestes sortis en premier étaient déjà arrivés au-dessus du nouveau Royaume Céleste. Ils contemplèrent les dizaines de milliers de cultivateurs qui les observaient avec effroi et éclatèrent de rire.
 
-Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice au niveau de la Rivière Invoquée et s'apprêta à l'aspirer.
+Quelques-uns libérèrent immédiatement leur suppression de lignée pour que les cultivateurs en bas n'osent plus bouger. Puis, certains d'entre eux descendirent. L'un d'eux saisit une cultivatrice de la Rivière Invoquée et s'apprêta à l'aspirer.
 
 Une fois qu'il l'aurait inhalée, il pourrait transformer cette femme en Flammes Joss pour les absorber.
 

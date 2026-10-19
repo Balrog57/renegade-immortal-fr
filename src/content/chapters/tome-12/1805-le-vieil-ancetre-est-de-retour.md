@@ -8,7 +8,7 @@ slug: le-vieil-ancetre-est-de-retour
 ---
 Le murmure du Dao résonna à travers la Secte du Dragon Bleu en flammes, produisant un son singulier. Ce son n'était ni aigu ni strident, mais il possédait une puissance étrange qui sembla détacher l'âme de Wang Lin de son corps. Même l'état d'esprit de son intention du Dao fut affecté, et indirectement ses essences.
 
-Cette technique était extrêmement difficile à exécuter seul; elle devait donc être utilisée par un vaste groupe de cultivateurs. Les disciples de la Secte du Dragon Bleu voulaient manifestement employer ce sort pour empêcher Wang Lin de partir!
+Cette technique de la Secte de la Grande Âme était extrêmement difficile à exécuter seul; elle devait donc être utilisée par un vaste groupe de cultivateurs. Les disciples de la Secte du Dragon Bleu voulaient manifestement employer ce sort pour empêcher Wang Lin de partir!
 
 Wang Lin avait déjà rencontré ce type de sortilège dans le monde des grottes, mais aucun n'avait égalé une telle puissance. Il faut dire qu'il pouvait actuellement combattre des individus ayant traversé plusieurs Tribulations Arcanes, et pourtant il restait affecté. Cela démontrait à quel point cette technique était terrifiante.
 
@@ -34,7 +34,7 @@ Les rochers volèrent de partout, mais ils ne parcoururent pas une grande distan
 
 Le grondement résonnait encore à leurs oreilles alors qu'une montagne entière s'évanouissait sous leurs yeux!
 
-Une fois la montagne disparue, un dragon de feu long de 100 000 pieds et doté d'une tête aussi vaste qu'une montagne émergea des profondeurs. Le dragon de feu n'avait pas de corps physique; il était constitué de flammes et dégageait une aura d'âme ancienne.
+Une fois la montagne disparue, un dragon de feu long de plusieurs centaines de milliers de pieds et doté d'une tête aussi vaste qu'une montagne émergea des profondeurs. Le dragon de feu n'avait pas de corps physique; il était constitué de flammes et dégageait une aura d'âme ancienne.
 
 Ce n'était pas un dragon de feu ordinaire: c'était manifestement l'âme d'une branche de la veine de feu terrestre!
 
@@ -62,7 +62,7 @@ GRAOUUU!!
 
 Ce rugissement dévastateur fit cracher du sang aux cultivateurs suspendus dans les airs. Ils reculèrent tous; personne n'osa barrer la route à Wang Lin, ils lui ouvrirent même le passage.
 
-Le corps de 100 000 pieds du dragon de feu apparut et emporta Wang Lin vers les cieux.
+Le corps de plusieurs centaines de milliers de pieds du dragon de feu apparut et emporta Wang Lin vers les cieux.
 
 « Nous ne pouvons pas le laisser partir! Le Vieil Ancêtre est en route et sera bientôt ici. Nous devons juste le retenir un instant! » L'homme d'âge moyen, le visage blême, poussa un rugissement rauque et chargea vers Wang Lin.
 

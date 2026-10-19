@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 964 - Converting an Enemy to a Friend
 slug: convertir-un-ennemi-en-ami
 ---
-Se déplaçant avec la fluidité de l'eau, la main de Wang Lin se referma en un poing et il lança un coup sans effort. Une tempête noire inimaginable se forma. L'un des sens divins qui composaient le dragon de sens divin fut frappé par le coup de Wang Lin.
+Se déplaçant avec la fluidité de l'eau, la main de Wang Lin se referma en un poing et il lança un coup sans effort. Une détonation sonique jaillit du sol et une tempête noire inimaginable se forma. L'un des sens divins qui composaient le dragon de sens divin fut frappé par le coup de Wang Lin.
 
 Ce sens divin s'effondra avant même d'avoir pu résister.
 
@@ -26,11 +26,11 @@ Réaliser plusieurs tâches simultanément était trop facile pour des cultivate
 
 « Pas bon! » Le vieil homme jura intérieurement et, d'un revers de manches, chargea hors de la pièce à une vitesse fulgurante.
 
-Une onde de choc parcourut la Cité aux Yeux Fantômes alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
+Des clameurs retentirent dans la Cité aux Yeux Fantômes alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
 
 L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré son sens divin, cela ne serait pas arrivé.
 
-Trois rayons de lumière blanche jaillirent de la ville et arrivèrent devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
+Trois rayons de lumière blanche jaillirent de la ville et se téléportèrent soudain devant Wang Lin. Ces rayons se révélèrent être les trois frères Chen!
 
 Le vieil homme aux cheveux blancs était Maître Yi Chen. Derrière lui se trouvaient le vieillard en robe verte et l'homme d'âge moyen en robe violette. Tous trois affichaient des expressions amères. Ils ne comprenaient pas comment cet individu avait pu détruire si facilement leurs sens divins alors que son propre sens divin était clairement au stade initial du Scruteur du Nirvana.
 
@@ -78,9 +78,9 @@ Maître Yi Chen sourit: « C'est ici que nous logeons en ville. Le Camarade Cult
 
 Wang Lin joignit les mains et sourit: « Merci beaucoup! »
 
-Ce n'est qu'en voyant le sourire de Wang Lin que les trois frères se détendirent enfin. L'homme d'âge moyen en robe violette rit: « Frère Wang, reposez-vous d'abord, je vais demander que l'on prépare des fruits. Puisque nous ne connaissons pas encore le Frère Wang, nous devrons discuter du Dao entre nous quatre. »
+Ce n'est qu'en voyant le sourire de Wang Lin que les trois frères se détendirent enfin. L'homme d'âge moyen en robe violette rit: « Frère Wang, reposez-vous d'abord, je vais demander que l'on prépare des fruits. Ce malentendu nous a permis de faire connaissance avec le Frère Wang; nous devons donc discuter du Dao entre nous quatre. »
 
-Maître Yi Chen acquiesça avec un sourire. Le vieillard en robe verte ajouta en riant: « Le troisième frère a raison. La façon dont nous avons rencontré le Frère Wang fera bientôt partie de la légende! »
+Maître Yi Chen acquiesça avec un sourire. Le vieillard en robe verte ajouta en riant: « Le troisième frère a raison. La façon dont nous avons rencontré le Frère Wang fera bientôt partie de la légende! Il faudra bien lever une grande coupe! »
 
 Wang Lin esquissa un léger sourire. Il n'y avait aucune raison de refuser cette invitation chaleureuse, et il était par ailleurs intéressé par le Jade Violet Liquide. Il hocha la tête: « Si tel est le cas, je serai ravi d'accepter. »
 

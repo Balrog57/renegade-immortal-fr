@@ -8,7 +8,7 @@ slug: lexecution-du-maitre-zhou-tian
 ---
 Wang Lin avait cultivé pendant deux mille ans, et chaque pas de son parcours avait été d'une extrême dangerosité. Grâce à sa sagesse et à sa volonté indomptable, il avait triomphé de multiples situations de vie ou de mort. Cela lui avait insufflé le courage nécessaire pour défier les cieux.
 
-Il osait même affronter un cultivateur de la troisième étape tel que le Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité du Système Stellaire Antique — Wang Lin n'aurait sans doute pas choisi, en entrant dans le Clan Tonnerre Dispersé, d'attendre le bon moment pour agir.
+Il osait même affronter un cultivateur de la troisième étape tel que le Grand Ancien de la Secte Divine, Shui Daozi. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité du Système Stellaire Antique — Wang Lin n'aurait sans doute pas choisi, en entrant dans le Clan du Tonnerre Dispersé, d'attendre le bon moment pour agir.
 
 Cependant, tout cela avait ses limites. Si quelqu'un franchissait cette ligne rouge, la nature impétueuse de Wang Lin se déchaînerait. Même s'il comptait agir avec plus de prudence, il n'en tuerait pas moins!
 
@@ -18,9 +18,9 @@ L'intention martiale de Zhan Xingye avait pris racine dans l'esprit de Wang Lin!
 
 En voyant l'expression de Wang Lin, le cœur du Maître Zhou Tian rata un battement et il ressentit un vague sentiment de danger. Pourtant, en observant Wang Lin, il ne percevait qu'un simple cultivateur Ascendant. Qu'un petit cultivateur puisse afficher une telle expression fit froncer les sourcils du Maître Zhou Tian, et une intention meurtrière germa dans son cœur.
 
-Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan Tonnerre Dispersé et s'introduire dans le Temple du Cristal de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
+Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan du Tonnerre Dispersé et s'introduire dans le Temple du Cristal de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
 
-À ce moment précis, les six cultivateurs du Clan Tonnerre Dispersé chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
+À ce moment précis, les six cultivateurs du Clan du Tonnerre Dispersé chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
 
 Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du Yang Corporel qui lui avait remis le jade.
 
@@ -34,7 +34,7 @@ Le Maître Zhou Tian affichait une expression indifférente face au cultivateur 
 
 Dès qu'il eut disparu, le jade émit une lueur éclatante que Wang Lin rattrapa. Son Sens Divin s'y engouffra et il disparut à son tour dans les 7 Millions de Mondes!
 
-Les cultivateurs du Clan Tonnerre Dispersé en charge des lieux froncèrent les sourcils, l'air mécontent.
+Les cultivateurs du Clan du Tonnerre Dispersé en charge des lieux froncèrent les sourcils, l'air mécontent.
 
 « Cet homme est bien ingrat. Nous l'aidons et il ne daigne même pas nous remercier! »
 

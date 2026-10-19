@@ -100,7 +100,7 @@ En entendant la musique au loin, Wang Lin regarda le tableau qu'il tenait. Il l'
 
 Wang Lin fronça les sourcils avec un sourire amer. Il rangea le tableau et s'envola, porté par les échos de la flûte.
 
-Après un long moment, Li Qianmei cessa de jouer et fit un geste de la main. Elle rangea le pinceau doré et s'évanouit dans le vide...
+Après un long moment, Li Qianmei cessa de jouer et fit un geste de la main. Elle rangea le pinceau doré et s'éloigna lentement dans le vide...
 
 Wang Lin progressait tel un éclair en suivant la carte de Maître Pin Cendré à travers la brume. Soudain, il s'arrêta net, fixant l'espace devant lui.
 

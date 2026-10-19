@@ -80,7 +80,7 @@ Wang Lin méditait en silence, buvant ses coupes de vin une à une. Treize conti
 
 Tandis que les murmures circulaient, la voix de la femme en violet continuait de résonner.
 
-Wang Lin but tout son vin d'un trait, posa sa coupe et regarda au loin. Le mal du pays l'assaillait; ses parents lui manquaient et il désirait les revoir.
+Wang Lin but tout son vin d'un trait, posa sa coupe et regarda au loin. Le mal du pays l'assaillait; ses parents lui manquaient; il voulait leur rendre hommage et leur offrir une poignée de terre.
 
 « Allons-y. » Wang Lin se leva et sortit de l'auberge. Treize laissa quelques pierres spirituelles et suivit Wang Lin.
 
@@ -110,7 +110,7 @@ Elle replaça machinalement une mèche de cheveux derrière son oreille et repri
 
 Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Treize étant agenouillé devant lui.
 
-« Maître, Treize est prêt à vous suivre! »
+« Maître, Treize souhaite rester à vos côtés pour toujours! »
 
 « Treize, tu es mon premier disciple et celui qui m'accompagne depuis le plus longtemps. » La voix de Wang Lin était douce et son regard envers Treize était empreint d'une grande bienveillance.
 
@@ -126,4 +126,4 @@ Wang Lin fit face à Treize et dit lentement: « Treize, mon disciple ne peut ê
 
 « Maître!! » Treize, exalté, hocha la tête vigoureusement.
 
-« Bien sûr, si quelqu'un ose t'opprimer, ton maître ne le permettra pas! À partir d'aujourd'hui, tu traceras ton propre chemin en tant que mon premier disciple! » Wang Lin avait passé plus de temps avec Treize qu'avec n'importe quel autre disciple et éprouvait pour lui un attachement unique. Tout en parlant, sa main droite lui caressa la tête.
+« Bien sûr, si quelqu'un ose t'opprimer, ton maître ne le permettra pas! À partir d'aujourd'hui, tu traceras ton propre chemin en tant que mon premier disciple! » Wang Lin avait passé plus de temps avec Treize qu'avec n'importe quel autre disciple et éprouvait pour lui un attachement unique. Tout en parlant, sa main droite se leva et lui tapota le sommet du crâne.

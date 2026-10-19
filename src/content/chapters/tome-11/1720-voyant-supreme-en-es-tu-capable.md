@@ -44,7 +44,7 @@ Dans une autre partie de la Rivière Invoquée, parmi les décombres, l'Omniscie
 
 Peu après, un rayon de lumière jaillit. Dans un écho d'ondulations, Wang Lin apparut. Il se déplaça avec une rapidité fulgurante pour se retrouver à moins de mille pieds de l'Omniscient. Il atterrit sur un rocher et le fixa droit dans les yeux.
 
-Le silence était total. Wang Lin ne dit mot, se contentant d'observer l'Omniscient. Puis, soudainement, il sourit et éclata de rire. Wang Lin s'assit, la noirceur de son visage s'effaçant pour laisser place à une profonde sérénité.
+Le silence était total. Wang Lin ne dit mot, se contentant d'observer l'Omniscient. Puis, soudainement, il sourit. Wang Lin s'assit, la noirceur de son visage s'effaçant pour laisser place à une profonde sérénité.
 
 « Omniscient, es-tu satisfait de mes essences? » demanda Wang Lin avec un sourire empreint de décontraction.
 
@@ -74,7 +74,7 @@ Wang Lin balaya l'air de la main droite, provoquant une rafale de vent. Ce souff
 
 L'expression de l'Omniscient devint immédiatement sombre. L'action de Wang Lin sortait de ses prévisions. Il observa le jeune homme dont les yeux commençaient à briller d'un éclat intense.
 
-Wang Lin sourit calmement et dit d'une voix posée: « Omniscient, je te le demande: même si tu peux voler mes essences et mes souvenirs, peux-tu sceller mon lignage du Dao Antique? »
+Wang Lin sourit calmement et dit d'une voix posée: « Omniscient, je te le demande: même si tu peux voler mes essences, mes sorts et mes souvenirs, peux-tu voler mon lignage du Dao Antique? »
 
 « Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Antique, alors je me rendrai immédiatement et je serai à ta merci. Mais que pourrais-tu faire ensuite? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
 

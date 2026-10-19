@@ -12,7 +12,7 @@ Ce regard était étranger.
 
 Le regard de la femme en blanc balaya Wang Lin sans la moindre trace de familiarité, comme si elle contemplait un inconnu. Elle détourna les yeux avant de faire volte-face et de s'envoler au loin.
 
-Wang Lin la fixa, stupéfait, jusqu'à ce qu'elle disparaisse de sa vue. Un dernier regard pour tenter de raviver le désir du passé...
+Wang Lin la fixa, stupéfait, jusqu'à ce qu'elle disparaisse de sa vue. Un regard en arrière, et voilà la nostalgie d'un étranger...
 
 Wang Lin ferma les yeux. Après un long moment, il laissa échapper un soupir.
 
@@ -64,11 +64,11 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Tu as dévoré trois Fruits Dao et es revenu deux mille ans en arrière grâce à ton Sort du Dao du Rêve. Tu as utilisé tes propres pensées, l'intention complexe du Dao et la puissance de ton sort pour créer ce monde à partir de ta mémoire! » Wang Lin tituba et s'assit sur un rocher. Ses cheveux étaient ébouriffés, comme s'il avait perdu la raison.
 
-« Tu as créé ce monde, tout ici est une invention de ton esprit. Penses-tu vraiment que je ne le sache pas? Je ne peux pas voir clair! » Le rire de Wang Lin devint plus funèbre encore.
+« Tu as créé ce monde, tout ici est une invention de ton esprit. Penses-tu vraiment que je ne le sache pas? Crois-tu que je ne puisse pas le voir clair?! » Le rire de Wang Lin devint plus funèbre encore.
 
 « Tu as rendu tout cela si réel, tu as tout créé avec une perfection absolue. Tu as même appris l'art de la tromperie de Liu Jinbiao pour te convaincre toi-même que tout ceci n'était qu'un rêve, qu'il ne s'agissait que du Sort du Dao du Rêve... Mais tu m'as sous-estimé, tu t'es sous-estimé! »
 
-« Tu es Wang Lin, le Seigneur du Royaume Scellé. Ta culture défie les cieux et tu pouvais terrasser des cultivateurs de la troisième étape avant même d'atteindre ce stade. Tu as survécu à la calamité de la vie et de la mort et tu t'apprêtes à entrer dans le royaume du Vide des cultivateurs de la troisième étape! »
+« Tu es Wang Lin, le Seigneur du Royaume Scellé. Ta culture défie les cieux et tu pouvais terrasser des cultivateurs de la troisième étape avant même d'atteindre ce stade. Tu as survécu à la calamité de la vie et de la mort et tu t'apprêtes à marcher vers le Dao suprême, puis à entrer dans le royaume du Vide des cultivateurs de la troisième étape! »
 
 « Mais je suis aussi Wang Lin. Bien que je n'aie pas cultivé, j'ai compris le monde et sa vérité. Je ne crains ni les dieux ni les démons. Même si tu es devant moi, et alors? »
 

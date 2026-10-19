@@ -18,9 +18,9 @@ La Nuit Brisée contenait un soupçon de loi originelle, laquelle était aussi l
 
 Cependant, toute existence est relative, et s'il existe une loi originelle, il existe également une loi de la fin! Cette obscurité avait été formée par la loi de la fin!
 
-Dès que l'obscurité apparut, Wang Lin utilisa la Nuit Brisée avec sa propre puissance. Il ne cherchait pas à tuer l'ennemi, il voulait simplement survivre dans ces ténèbres!
+Dès que l'obscurité apparut, alors qu'il ne sentait plus la force primordiale du soleil envahir son corps, Wang Lin utilisa la Nuit Brisée avec sa propre puissance. Il ne cherchait pas à tuer l'ennemi, il voulait simplement survivre dans ces ténèbres!
 
-Pour la première et unique fois, un rayon de lumière jaillit de cette obscurité. Bien qu'il ne fût pas très puissant, il était apparu!
+Pour la première et unique fois, un rayon de lumière, semblable à l'aube naissante, jaillit de cette obscurité. Bien qu'il ne fût pas très puissant, il était apparu!
 
 Sous cette lumière, Wang Lin sentit son corps brûler. Son énergie originelle brûlait, son âme originelle brûlait, et même son corps de pierre brûlait!
 
@@ -82,7 +82,7 @@ Le regard de Tuo Sen était empreint de mépris. Lorsqu'il se posa sur les huit 
 
 « Au moins, les déchets sont des êtres humains. Vous, vous êtes pires que des déchets! »
 
-Les huit rois possédaient un statut très élevé au sein de la Secte des Cadavres. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Yan Leizi. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur faire perdre la raison.
+Les huit rois possédaient un statut très élevé au sein de la Secte des Cadavres. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Yan Leizi. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur donner l'impression que leur âme allait se disperser.
 
 Ils avaient l'impression que si cet homme entrait en colère, même les cieux devraient s'incliner!
 
@@ -98,7 +98,7 @@ L'homme en noir ne fut nullement offensé et esquissa un léger sourire. Il agit
 
 Face à l'effondrement du vide, Tuo Sen leva la main droite et lança un coup de poing!
 
-Le monde trembla et le vide fut violemment ébranlé. À ce moment-là, des cultivateurs au niveau du Briseur du Nirvana arrivèrent. En voyant ce coup de poing, leurs visages se décomposèrent, envahis par la peur et la panique.
+Le monde trembla et le vide fut violemment ébranlé. À ce moment-là, des cultivateurs au stade du Briseur du Nirvana arrivèrent. En voyant ce coup de poing, leurs visages se décomposèrent, envahis par la peur et la panique.
 
 Le visage de Wang Lin était livide. Il ressentait clairement la puissance de cet impact.
 

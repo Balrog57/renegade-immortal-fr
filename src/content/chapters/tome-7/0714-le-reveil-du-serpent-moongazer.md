@@ -56,7 +56,7 @@ Le visage de Wang Lin était féroce et l'énergie spirituelle céleste dans son
 
 À chaque cycle de son énergie spirituelle céleste, la force de Wang Lin augmentait considérablement. Le temps pressait et le danger doublait à chaque seconde passée sur place. Les yeux de Wang Lin devinrent rouges sang lorsqu'il lâcha un nouveau rugissement.
 
-Sa puissance atteignit son apogée!
+« Un souffle jaillit comme une montagne! »
 
 Dans un fracas assourdissant, Wang Lin s'élança vers la surface avec cette section de l'os. Le garde céleste passa immédiatement à ses côtés pour charger vers l'autre segment.
 

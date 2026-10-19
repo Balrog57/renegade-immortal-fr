@@ -60,7 +60,7 @@ Pour se protéger, il devait faire comprendre à tous qu'il était un être avec
 
 Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de lieues autour de la ville de Nan Dou, nul n'ignorait la montagne de cadavres que Wang Lin avait érigée. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
 
-Contemplant les dizaines de milliers de disciples prosternés devant lui, Wang Lin tourna son regard vers la mer intérieure et songea: « Teng Huayuan, que je sois un immortel ou un démon, tant que je peux obtenir ma vengeance, qu'importe si je deviens un roi démon?! »
+Contemplant les dizaines de milliers de disciples prosternés devant lui, Wang Lin tourna son regard vers la mer intérieure et songea: « Teng Huayuan, pour me venger, que je sois immortel ou démon, tant que ma puissance grandit, qu'importe si je deviens un roi démon?! »
 
 Il esquissa un sourire glacial en fixant Shang Guanmo. « À partir d'aujourd'hui, vous êtes le chef de la Secte de la Lutte contre le Mal », déclara Wang Lin.
 
@@ -72,7 +72,7 @@ La chambre fut rapidement préparée. Il s'agissait du lieu de retraite que Jie 
 
 Li Muwan fixa Wang Lin. Après un long silence, elle murmura: « Merci... » Le cœur serré par l'émotion, elle se détourna et partit.
 
-Une fois seule, Wang Lin ouvrit les yeux. Au lieu de la froideur habituelle, une confusion l'habitait. Cette confusion s'intensifia avec le temps, jusqu'à laisser place à une pointe de tristesse en évoquant un souvenir du passé...
+Une fois qu'elle fut partie, Wang Lin ouvrit les yeux. Au lieu de la froideur habituelle, une confusion l'habitait. Cette confusion s'intensifia avec le temps, jusqu'à laisser place à une pointe de tristesse en évoquant un souvenir du passé...
 
 « Tie Zhu, tu n'es plus un enfant. Ces dernières années, beaucoup de familles ont envoyé des entremetteuses te proposer un mariage. Maman a entendu dire que les immortels peuvent aussi se marier. Puisque tu es revenu, reste un peu avec nous. Viens faire des rencontres avec moi, et si tu trouves quelqu'un qui te plaît, nous pourrons arranger les choses. »
 
@@ -96,7 +96,7 @@ Pour être plus précis, son sang d'âme avait disparu sans laisser de trace. Ch
 
 Li Muwan, qui venait de descendre de la tête du dragon, fut surprise en levant les yeux avant de laisser échapper un soupir.
 
-Quelque part dans l'espace de la perle défiant le ciel, l'immense Âme Naissante de Situ Nan flottait dans les airs, en tailleur, les yeux clos, tandis que l'énergie spirituelle circulait dans son corps presque transparent. Deux faibles sphères de lumière d'un blanc laiteux flottaient paisiblement de part et d'autre.
+Quelque part dans l'espace onirique de la perle défiant le ciel, l'immense Âme Naissante de Situ Nan flottait dans les airs, en tailleur, les yeux clos, tandis que l'énergie spirituelle circulait dans son corps presque transparent. Deux faibles sphères de lumière d'un blanc laiteux flottaient paisiblement de part et d'autre.
 
 Wang Lin se tenait sous l'Âme Naissante et observait, hébété, les deux sphères de lumière. Sans force, il s'agenouilla et se prosterna plusieurs fois, front contre terre, en murmurant: « Papa, Maman, soyez tranquilles, Tie Zhu vous ramènera certainement une bonne épouse, mais ce n'est pas encore le moment... »
 

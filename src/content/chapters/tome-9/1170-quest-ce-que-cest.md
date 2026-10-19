@@ -30,7 +30,7 @@ Il effaça son sens divin du sac et le lança au vieil homme. Puis Wang Lin dit 
 
 Le vieil homme attrapa le sac de rangement et l'examina attentivement avec son sens divin. Il regarda ensuite Wang Lin d'un air suggestif avant de réfléchir silencieusement, puis de ranger son stand. Il déclara: « Je vous retrouverai d'ici trois jours. » Une fois ses paroles prononcées, il s'apprêta à partir, mais marqua une pause pour regarder Wang Lin et lui envoya un message.
 
-« Cher compagnon cultivateur est décisif. Mon nom est Ouyang Long. Je considérerai cher compagnon comme mon ami! Cet homme en vert est Yang Yu, le troisième disciple du maître de la Secte de la Collection Démoniaque. Cher compagnon, soyez prudent dans vos rapports avec lui. »
+« Cher compagnon cultivateur est décisif. Mon nom est Ouyang Long. Je considérerai cher compagnon comme mon ami! Cet homme en vert est Yang Yu, le troisième disciple du maître de la Secte de la Collection Démoniaque, une secte de rang 6. Cher compagnon, soyez prudent dans vos rapports avec lui. »
 
 Après avoir envoyé ce message, le vieil homme partit rapidement sans même demander comment contacter Wang Lin. Wang Lin ne posa pas non plus de question à ce sujet.
 
@@ -64,7 +64,7 @@ Tout cela fut extrêmement rapide et se conclut en un éclair. Wang Lin n'avait 
 
 Li Qianmei observa la scène, les yeux brillants. C'était la première fois qu'elle voyait Wang Lin attaquer. Tout s'était déroulé avec fluidité et sans la moindre hésitation.
 
-Le visage de Yang Yu était pâle. Il réfléchissait silencieusement en fixant Wang Lin. Les cris de ses compagnons de secte résonnaient dans ses oreilles, déchirant son esprit. À cet instant précis, Wang Lin se tourna vers lui. Son regard était calme, comme si ce qui venait de se passer n'était rien de plus que l'écrasement d'une fourmi. Cette froideur fit trembler l'âme de Yang Yu.
+Le visage de Yang Yu était pâle. Il réfléchissait silencieusement en fixant Wang Lin. Les cris de ses compagnons de secte résonnaient dans ses oreilles, déchirant son esprit. À cet instant précis, Wang Lin se tourna vers lui. Son regard était calme et moqueur, comme si ce qui venait de se passer n'était rien de plus que l'écrasement d'une fourmi. Cette froideur fit trembler l'âme de Yang Yu.
 
 Wang Lin marcha lentement vers Yang Yu, pas à pas.
 
@@ -114,6 +114,6 @@ Quoi qu'il en soit, dans le monde de la culture, les forts sont respectés. Mani
 
 En entendant le vieil homme l'appeler « Compagnon cultivateur Lu », Wang Lin fut encore plus certain de sa direction.
 
-Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait pas l'expérience de combat de Wang Lin, qui avait affronté de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise: « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
+Li Qianmei n'avait cultivé que depuis peu de temps et ne possédait ni le vécu ni l'expérience des joutes d'esprit que Wang Lin avait acquise en affrontant de vieux monstres durant des années. Elle n'avait pas perçu cet indice subtil avant que Wang Lin ne dise: « Faites sortir votre seigneur. » Les yeux de Li Qianmei s'illuminèrent comme si elle venait de comprendre quelque chose.
 
 « La ruse de cette personne... est encore plus effrayante que sa culture!!! » Li Qianmei regarda Wang Lin avec stupeur.

@@ -44,7 +44,7 @@ Les huit rois de la Secte des Cadavres n'étaient nullement affectés par cette 
 
 Dans la direction opposée, Maître Yan Leizi suivait respectueusement le vieil homme en noir. Bien que ce dernier ne semblât pas se déplacer rapidement, chaque pas qu'il faisait donnait l'impression que le vide se contractait sous lui. C'était comme si cette distance infinie n'était plus qu'un pouce de long...
 
-Il ne s'agissait pas d'une Déviation Spatiale où il fusionnait avec le monde, mais plutôt d'une réduction du vide! Il n'avait nul besoin de fusionner avec le monde, car il *était* le monde; même un royaume entier n'était pour lui qu'un pouce de distance!
+Il ne s'agissait pas d'une Courbure Spatiale où il fusionnait avec le monde, mais plutôt d'une réduction du vide! Il n'avait nul besoin de fusionner avec le monde, car il *était* le monde; même un royaume entier n'était pour lui qu'un pouce de distance!
 
 Il ne se précipitait pas, avançant pas à pas selon un certain rythme. Le respect dans les yeux de Maître Yan Leizi s'intensifiait. En suivant le vieil homme, il se trouvait naturellement dans le rayon d'action de ce sortilège mystérieux.
 

@@ -12,7 +12,7 @@ L'aspiration provenant du gouffre était imprévisible; tantôt puissante, tant�
 
 Après avoir jailli de là, debout sur le moustique, il vit immédiatement des milliers d'insectes le fixer de leurs yeux rouges, dégageant des auras épaisses et hostiles.
 
-Wang Lin fronça légèrement les sourcils. Il y avait moins de moustiques qu'auparavant. Un changement inattendu devait s'être produit durant la bataille entre Cupidité et Zhou Yi pour que leur nombre diminue si drastiquement.
+Wang Lin fronça légèrement les sourcils. Il y avait beaucoup moins de moustiques qu'il y a bien des années, plus de la moitié ayant disparu. Un changement inattendu devait s'être produit durant la bataille entre Cupidité et Zhou Yi pour que leur nombre diminue si drastiquement.
 
 « Je ne sais pas exactement ce qui s'est passé... » Songea Wang Lin un instant avant de poser sa main sur la tête du moustique pour activer son sens divin.
 
@@ -74,7 +74,7 @@ Wang Lin fit volte-face, le cristal à la main, et partit.
 
 Wang Lin réapparut devant la tribu des Affineurs d'Âmes dans le Pays des Démons Célestes. Les membres de la tribu furent d'abord stupéfaits, avant de s'exclamer de joie et de s'incliner avec respect.
 
-Wang Lin ne récupéra pas tous les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
+Wang Lin ne récupéra pas les fragments d'âmes collectés par la tribu; il appela plutôt Treize et Ouyang Hua dans la pagode. Après avoir laissé quelques instructions et des méthodes de culture, il enseigna même à Treize la seconde moitié de la méthode de culture du Clan des Démons Géants. Une fois cela fait, il quitta la tribu.
 
 Au moment de son départ, Treize s'agenouilla et effectua plusieurs prosternations vers Wang Lin. Ouyang Hua fit de même, leurs yeux noyés de tristesse. Bien que Wang Lin n'ait rien dit, ils sentaient que dans cette vie... il leur serait difficile de le revoir un jour...
 
@@ -86,9 +86,9 @@ Chen Tao ouvrit également les yeux, affichant un regard profond.
 
 Shi Xiao dit calmement: « Chen Tao, demain, j'irai voir l'Empereur Démon pour te recommander comme général démon. Tu pourras alors aller cultiver au lac du dragon. Bien que ce ne soit pas le véritable héritage, cela t'apportera beaucoup. »
 
-Chen Tao répondit: « Demain, je devrai vous appeler "Vice-Commandant en Chef"! »
+Chen Tao le remercia et répondit: « Demain, je devrai vous appeler "Vice-Commandant en Chef"! »
 
-Shi Xiao afficha un sourire fier et déclara: « Ce poste aurait dû être le mien il y a cent ans! Mo Lihai ne me l'a volé que par des méthodes sournoises. Si ce n'était pas pour ce misérable de Wang Lin, que serait devenu Mo Lihai?! »
+Shi Xiao afficha un sourire fier et déclara: « Ce poste aurait dû être le mien il y a plus de cent ans! Mo Lihai ne me l'a volé que par des méthodes sournoises. Si ce n'était pas pour ce misérable de Wang Lin, que serait devenu Mo Lihai?! »
 
 Chen Tao regarda Shi Xiao et dit calmement: « Wang Lin est mon frère instructeur cadet! »
 
@@ -106,7 +106,7 @@ Shi Xiao fut surpris, mais son expression devint aussitôt sombre et il cria: «
 
 Les yeux de Chen Tao s'illuminèrent alors qu'il fixait le ciel.
 
-Une ombre noire apparut dans les airs. Derrière elle se trouvait la lune ronde, et elle s'approchait rapidement sous sa lumière. Son corps dégageait des arcs électriques crépitants; c'était une vision terrifiante.
+Une ombre noire apparut dans les airs. Derrière elle se trouvait la lune ronde, et elle s'approchait lentement sous sa lumière. Son corps dégageait des arcs électriques crépitants; c'était une vision terrifiante.
 
 « Vous... vous êtes Wang Lin! » Les yeux de Chen Tao se rétrécirent en reconnaissant l'identité de l'ombre.
 

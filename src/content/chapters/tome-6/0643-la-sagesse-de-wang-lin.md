@@ -9,7 +9,7 @@ slug: la-sagesse-de-wang-lin
 
 Au cœur du brouillard violet, les yeux de Cupidité s'entrouvrirent, laissant échapper une lueur froide.
 
-« Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper! Maîtriser cette bête reine, c'est maîtriser tout le troupeau! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai un moyen de l'affronter! » Une pointe d'orgueil brillait dans le regard de Cupidité.
+« Bien que ces étranges bêtes démoniaques soient effectivement très puissantes, tant que mes Sept Aiguilles Magiques les contrôlent, elles ne pourront pas m'échapper! Maîtriser cette bête reine, c'est maîtriser tout le troupeau! Ce groupe de bêtes est bien trop singulier. Si je parvenais à les utiliser convenablement, même lorsque le vieil homme Ling Tianhou arrivera, j'aurai de quoi négocier avec lui! » Une pointe d'orgueil brillait dans le regard de Cupidité.
 
 Depuis son entrée dans l'Abîme des Marées, il avait commencé à élaborer ses propres plans. L'un d'eux nécessitait l'intégration d'une formation. Cependant, il était soudainement tombé sur les bêtes moustiques. D'abord surpris, il en fut ensuite extatique.
 
@@ -17,7 +17,7 @@ Cupidité n'avait jamais eu de demeure fixe; il dérivait sans cesse parmi les �
 
 Il avait parcouru tant de lieux au cours de sa vie qu'il avait déjà aperçu ces bêtes moustiques par le passé!
 
-La première fois qu'il les avait vues, c’était sur une planète des plus désolées. Cupidité fuyait alors une poursuite et venait de sortir d'une ancienne formation de transfert. À peine apparu, il vit une scène qu'il n'oublierait jamais!
+La première fois qu'il les avait vues, c’était dans un coin d’espace stellaire des plus désolés. Cupidité fuyait alors une poursuite et venait de sortir d'une ancienne formation de transfert. À peine apparu, il vit une scène qu'il n'oublierait jamais!
 
 C’était un vaste espace empli de gaz gris où ne trônait qu'une seule planète. Et cette planète était violette!
 
@@ -39,7 +39,7 @@ Cupidité observa les disciples de la Secte de l'Épée Da Luo et ricana intéri
 
 « Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Cupidité balaya indistinctement les disciples de la Secte de l'Épée Da Luo, y compris Chen Long.
 
-« Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de rester piégé ici avec eux pendant cent ans à attendre qu'ils succombent à l'anxiété! »
+« Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de les garder piégés ici pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
 Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays des Démons de Feu.
 

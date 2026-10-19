@@ -28,7 +28,7 @@ Le silence de Wang Lin ne faisait qu'accroître le mépris dans les yeux des dix
 
 Wang Lin, quant à lui, n'en avait cure.
 
-Ce jour-là, le régiment dirigé par le chef de régiment Sun passa devant Wang Lin alors qu'ils s'entraînaient. Le chef de régiment Sun ne cacha nullement son mépris et son dédain; il considérait le nouveau commandant de tout son cœur. En passant à sa hauteur, il ne put s'empêcher de cracher en disant: « Déchet! »
+Ce jour-là, le régiment dirigé par le chef de régiment Sun passa devant Wang Lin alors qu'ils s'entraînaient. Le chef de régiment Sun ne cacha nullement son mépris et son dédain; il méprisait profondément le nouveau commandant. En passant à sa hauteur, il ne put s'empêcher de cracher en disant: « Déchet! »
 
 Voyant l'expression et le geste de leur chef, le régiment éclata de rire. Leurs rires étaient empreints de dédain.
 
@@ -112,11 +112,11 @@ Sima Yan déclara d'un ton grave: « Seigneur Commandant, quelle qu'en soit la r
 
 L'expression de Wang Lin resta imperturbable et il esquissa un léger sourire. « Treize, récite la 13e loi militaire du Pays Démon! »
 
-Treize récita promptement: « Ceux qui assiègent le camp militaire doivent se retirer en trente respirations. Faute de quoi, ils sont exécutés! »
+Treize récita promptement: « Ceux qui se mutinent dans le camp et encerclent leur supérieur doivent se retirer en trente respirations. Faute de quoi, ils sont exécutés! »
 
 « Récite la deuxième loi du Pays Démon! »
 
-« L'utilisation de formations de niveau Extermination d'Immortels ou supérieur pour des affaires internes sans autorisation doit cesser en vingt respirations, faute de quoi cela constitue un crime majeur! »
+« L'utilisation de formations de niveau Massacre d'Immortels ou supérieur pour des affaires internes sans autorisation doit cesser en vingt respirations, faute de quoi cela constitue un crime majeur! »
 
 L'expression de Wang Lin était calme, mais le visage de Sima Yan devint encore plus sombre. Il comprit immédiatement pourquoi cet homme n'avait rien fait pendant une demi-lune: il attendait, il attendait l'occasion d'agir pour que chacun soit entraîné dans un désastre!
 

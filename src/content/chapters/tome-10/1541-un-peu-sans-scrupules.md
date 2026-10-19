@@ -18,7 +18,7 @@ Tandis qu'il observait, l'expression de Wang Lin se fit grave. Il vit l'Empreint
 
 Wang Lin se trouvait également à l'intérieur de la paume et sentit l'impact contre lui. Il méditait sur les mécanismes internes de cette technique.
 
-« Quelle puissante Empreinte de l'Esprit Guerrier. Cette vibration secoue le ciel et la terre comme si elle asservissait le monde. Asservir l'énergie originelle du monde pour former une paume... ou bien asservir l'énergie originelle pour engendrer un esprit, lequel est ensuite enveloppé d'énergie spirituelle céleste avant de prendre cette forme... Certains détails restent encore obscurs... Il me faudrait l'héritage pour percer le secret! » Wang Lin se lécha les lèvres, le regard brillant.
+« Quelle puissante Empreinte de l'Esprit Guerrier. Cette vibration secoue le ciel et la terre comme si elle asservissait le monde. Asservir l'énergie originelle du monde pour former une paume... ou bien asservir l'énergie originelle pour engendrer un esprit, lequel est ensuite enveloppé d'énergie spirituelle céleste avant de prendre cette forme... Certains détails restent encore obscurs... Il me faudrait l'héritage et sa formule secrète pour percer le mystère! » Wang Lin se lécha les lèvres, le regard brillant.
 
 Une fois la poussière retombée, le fou laissa échapper un rire suffisant.
 

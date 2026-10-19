@@ -62,7 +62,7 @@ L'une des épées de sang fila vers Wang Lin. Sans même la regarder, il tendit 
 
 La deuxième épée s'effondra dans un fracas et s'apprêtait à fuir, mais d'innombrables éclairs se rassemblèrent sous le regard de Wang Lin. Une foudre déchaînée frappa l'avatar, provoquant une série de détonations dans son corps. L'avatar s'effondra et mourut!
 
-À cet instant, les quatre épées restantes convergèrent pour frapper Wang Lin de front. Le fracas du métal contre le corps de Wang Lin retentit, mais une force de rebond surpuissante émana de lui, renvoyant les quatre épées en arrière dans un violent tremblement.
+À cet instant, les quatre épées restantes convergèrent pour frapper Wang Lin de front. Le fracas du métal contre le corps de Wang Lin retentit, mais une force de rebond surpuissante émana de lui, renvoyant les quatre épées en arrière de plusieurs dizaines de pieds, dans un violent tremblement.
 
 Cette scène stupéfia le garçon à la grosse tête. En contemplant ce Wang Lin, à la fois familier et étranger, ses yeux ne reflétaient que l'effroi.
 
@@ -80,7 +80,7 @@ Devant le rugissement d'un dieu ancien, même le tonnerre céleste devait trembl
 
 Le cri libéra une aura ancestrale à travers les mondes. Toutes les créatures devaient se soumettre au rugissement d'un dieu ancien, et toute puissance devait se désintégrer!
 
-Ce rugissement était plusieurs fois plus violent que le tonnerre. Que valait le tonnerre face à cela? Ce cri était chargé d'une force infinie, créant une tempête qui balaya toute la région.
+Ce rugissement était incomparablement plus violent que le tonnerre. Que valait le tonnerre face à cela? Ce cri était chargé d'une force infinie, créant une tempête qui balaya toute la région.
 
 Yu Fei venait à peine de lever le pied quand le rugissement du dieu ancien l'atteignit. Une puissance qui fit vaciller son esprit se précipita sur lui. Choqué, il recula précipitamment, sentant qu'il serait mis en pièces s'il ne fuyait pas.
 

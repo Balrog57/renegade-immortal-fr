@@ -8,7 +8,7 @@ slug: apparition-choquante
 ---
 « Feu du monde, écoutez mon commandement: brûlez! » La voix de Wang Lin laissait transparaître une intention glaciale. À l'instant même où il parla, le feu entourant le mille-pattes subit un changement stupéfiant!
 
-L'Oiseau Vermillon de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Devant Wang Lin, à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait!
+L'Oiseau Vermillon de Wang Lin avait traversé son troisième éveil et s'était fusionné avec la loi du feu, devenant une partie intégrante de celle-ci. Face à Wang Lin, tout pratiquant de techniques de feu était sans recours : à moins que leur feu ne soit en dehors de la loi, il pourrait l'éteindre dès qu'il le souhaiterait!
 
 Dès que les paroles de Wang Lin furent prononcées, la mer de feu entourant le mille-pattes rouge trembla soudainement avant de s'élancer sur la créature.
 
@@ -86,7 +86,7 @@ Le corps du mille-pattes marqua un temps d'arrêt indescriptible et ses yeux dev
 
 Wang Lin leva sa main droite et pointa du doigt. Face à quiconque manipule le feu, nul besoin de sorts complexes pour décider de l'issue du combat! Sous la pointe de son doigt, le feu bleu profond qui l'entourait se condensa et jaillit.
 
-En s'élançant, la lumière bleue flascha et se métamorphosa en un immense Oiseau Vermillon bleu. L'oiseau poussa un cri et chargea le mille-pattes.
+En s'élançant, la lumière bleue vacilla et se métamorphosa en un immense Oiseau Vermillon bleu. L'oiseau poussa un cri et chargea le mille-pattes.
 
 Le mille-pattes poussa immédiatement un rugissement; sa partie supérieure se redressa telle un serpent pour faire face à l'Oiseau Vermillon. Le feu autour de lui se condensa frénétiquement pour former une force monstrueuse à l'extérieur de son corps, avant de percuter l'oiseau qui approchait à grande vitesse.
 

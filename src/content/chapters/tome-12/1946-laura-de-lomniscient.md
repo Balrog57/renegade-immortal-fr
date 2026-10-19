@@ -22,7 +22,7 @@ Après un long moment, il ajouta d'une voix rauque: « Voulez-vous contempler la
 
 Wang Lin hocha calmement la tête.
 
-Le vieil homme, les yeux clos, sembla percevoir ce mouvement. Il leva sa main droite et l'agita. Aussitôt, une aura de mort envahit le temple. C'était comme si l'édifice avait vieilli de plusieurs millénaires, passant d'un état de gloire à un état de décomposition totale.
+Le vieil homme, les yeux clos, sembla percevoir ce mouvement. Il leva sa main droite et l'agita. Aussitôt, une aura de mort envahit le temple. C'était comme si l'édifice avait vieilli de plusieurs dizaines de milliers d'années, passant d'un état de gloire à un état de décomposition totale.
 
 Le temple fut recouvert de poussière et des fissures lézardèrent les piliers. Même les trois statues derrière le vieil homme changèrent, devenant brisées et érodées.
 
@@ -40,7 +40,7 @@ Une immense stèle de pierre, dressée devant le Temple Dong Lin, était balayé
 
 Une ligne de mots tracés en sang marquait la stèle!
 
-« Verrouillez le destin des cieux et scellez l'au-delà. Ceux qui n'atteignent pas le vrai Dao sombreront dans une mer de souffrance et perdront à jamais la voie du véritable Dao. Marchez sur le chemin du vrai Dao! »
+« Verrouillez le destin des cieux et scellez les enfers. Ceux qui n'atteignent pas le véritable Dao sombreront dans un océan de souffrance et perdront à jamais la voie du véritable Dao. Suivez le chemin du véritable Dao! »
 
 Les mots écrits en sang n'étaient plus d'un rouge vif, mais étaient depuis longtemps séchés en un brun sombre. Une aura de terreur émanait de la stèle, enveloppant toute la Secte Dong Lin. Le ciel s'obscurcit, comme si une main gigantesque avait occulté le soleil au-dessus de la secte.
 
@@ -102,11 +102,11 @@ D'une voix éraillée, le vieil homme demanda: « Êtes-vous simplement de passa
 
 « Cet individu a perdu contre l'Ancêtre Céleste et fut scellé ici. Il est mort depuis longtemps, mais son âme ne s'est pas évanouie; elle fusionna avec la rivière souterraine du continent. Le Bassin Dong Lin est l'un des points où elle affleure...
 
-« Un cultivateur ne peut entrer dans le Bassin Dong Lin que deux fois. À la troisième tentative, la mort est immédiate. Peu d'étrangers savent que ma Secte Dong Lin possède ce bassin. Ceux qui le savent seraient prêts à payer n'importe quel prix pour y accéder.
+« Un cultivateur ne peut entrer dans le Bassin Dong Lin que deux fois. À la troisième tentative, la mort est immédiate. Peu d'étrangers savent que ma Secte Dong Lin possède ce bassin. Ceux qui le savent et viennent dans la secte peuvent y accéder, à condition de payer un prix suffisant.
 
 « Des rumeurs circulent, tant à l'intérieur qu'à l'extérieur de la secte, affirmant que le Bassin Dong Lin peut aider à former des Corps Véritables d'Essence, mais c'est faux… Si cela était vrai, ma Secte Dong Lin serait depuis longtemps la première secte du clan céleste. Nous ne pourrions pas le garder, et un Grand Empyréen se l'approprierait bien avant.
 
-« Malgré cela, les convoitises sont nombreuses, mais en raison de la réputation du premier ancêtre de la Secte Dong Lin, le Grand Empyréen Dong Lin, et du fait que le bassin est immuable et que son effet s'affaiblit avec le temps, personne n'est venu tenter de le voler. »
+« Malgré cela, cela attire l'attention des Grands Empyréens, mais en raison de la réputation du premier ancêtre de la Secte Dong Lin, le Grand Empyréen Dong Lin, et du fait que le bassin est immuable et que son effet s'affaiblit avec le temps, personne n'est venu tenter de le voler. »
 
 « Le Grand Empyréen Dong Lin? » Les yeux de Wang Lin se rétrécirent. C'était la première fois qu'il entendait ce nom.
 

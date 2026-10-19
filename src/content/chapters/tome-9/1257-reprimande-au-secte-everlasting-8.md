@@ -8,7 +8,7 @@ slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.
 
-En tant que disciple principal de la Vallée du Pin Pourpre de rang 7 et l'une des figures centrales de la secte principale, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
+En tant que disciple principal de la Vallée du Pin Pourpre de rang 7 et l'une des figures centrales de la secte principale, depuis plusieurs millénaires, une quantité immense de pilules et de techniques lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
 
 En vérité, lorsqu'il avait vu Wang Lin extraire l'âme de la planète, il avait su qu'il était perdu. Il espérait néanmoins pouvoir résister un instant ou deux. Mais la réalité était cruelle: ce fut une défaite totale.
 
@@ -20,9 +20,9 @@ Mu Bingmei observait la scène, stupéfaite. Elle pensait être celle qui compre
 
 « Cent ans... Je n'aurais jamais imaginé qu'il deviendrait aussi puissant! » Le regard de Mu Bingmei se posa sur Wang Lin et, à cet instant, il lui sembla devenu un étranger. Ses cheveux blancs et sa robe immaculée ne faisaient qu'accentuer l'amertume dans son cœur.
 
-Personne ici ne connaissait le passé de Wang Lin comme elle; elle en connaissait même la moitié de l'existence. Le petit cultivateur dont la famille avait été massacrée et qui avait été contraint de fuir le pays de Zhao. Le cultivateur qui avait fait couler des rivières de sang dans le pays de Zhao.
+Personne ici ne connaissait le passé de Wang Lin comme elle; elle en connaissait même la moitié de l'existence, grâce aux scènes que le clone de Wang Lin avait vues sur Suzaku. Le petit cultivateur dont la famille avait été massacrée et qui avait été contraint de fuir le pays de Zhao. Le cultivateur qui avait fait couler des rivières de sang dans le pays de Zhao.
 
-C'était cet homme qui était devenu progressivement célèbre sur la planète Suzaku, jusqu'à devenir presque le futur souverain de la planète. Désormais, il était assez puissant pour faire trembler les étoiles d'un simple pas!
+C'était cet homme qui était devenu progressivement célèbre sur la planète Suzaku et dans le Royaume de la Pluie, jusqu'à devenir presque le prochain Zhu Quezi, le souverain de la planète. Désormais, il était assez puissant pour faire trembler les étoiles d'un simple pas!
 
 Li Qianmei n'aurait pas non plus cru que Wang Lin pourrait la bouleverser ainsi après un siècle. Tuer les deux membres de la Secte de la Musique Céleste, éliminer Zhao Long, vaincre aisément Yun Shan, et enfin utiliser le sort d'extraction de l'âme planétaire pour écraser Du Lin et Yin Yue!
 
@@ -92,7 +92,7 @@ Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élan
 
 « Un cultivateur du Fléau Céleste... j'en ai déjà affronté un par le passé! » À cet instant, une lumière dorée jaillit du corps de Wang Lin. Elle était semblable à un soleil, douce mais dotée du pouvoir de déchirer la nuit. Dès qu'elle se propagea, le tonnerre qui s'était écarté revint s'assembler et la pluie qui s'était arrêtée retomba. C'était comme si le monde reprenait enfin son cours.
 
-Un cri de choc s'échappa du vieil homme en blanc. Au moment où il se redressa, la pluie se transforma en une vapeur blanche qui s'élança vers les cieux.
+Un léger cri de surprise s'échappa du vieil homme en blanc. Au moment où il se redressa, la pluie se transforma en une vapeur blanche qui s'élança vers les cieux.
 
 « Je peux participer à la compétition entre les sectes de rang 8, mais vous devrez également me fournir une explication pour la Secte de l'Origine! » Wang Lin avait immédiatement percé l'intention du vieil homme: l'intention meurtrière n'était qu'un leurre!
 

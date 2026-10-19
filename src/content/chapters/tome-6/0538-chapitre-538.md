@@ -44,9 +44,9 @@ Treize ne pourrait pas cultiver tant que ses méridiens ne se seraient pas rég�
 
 Après une réflexion approfondie, ses yeux s'illuminèrent. Il existait une méthode parmi toutes celles que Wang Lin connaissait que Treize pourrait pratiquer. Cependant, l'enjeu était si crucial que Wang Lin commença à montrer une certaine hésitation, un trait de caractère qu'il manifestait rarement.
 
-« Le corps d'un cultivateur est comme la mer, et ses méridiens sont comme des milliers de rivières. Le corps lui-même est un monde en soi. On commence par l'intérieur du corps pour expérimenter la vie, et l'on utilise ce corps pour rechercher le Dao. »
+« Le corps d'un cultivateur est comme la mer, et ses méridiens sont comme des milliers de rivières. Le corps lui-même est un monde en soi. On tire de l'intérieur pour attirer l'extérieur, afin de ressentir les vicissitudes de la vie : c'est ainsi que commence la quête du Dao. »
 
-« La peau et la chair d'un Dieu Ancien constituent le ciel, et ses os sont la terre. Son âme dévore l'énergie spirituelle des cieux et de la terre pour raffiner son corps. Il utilise la force de son être pour briser tous les cœurs du Dao et emploie son âme pour tracer son propre Dao dans les cieux! »
+« La peau et la chair d'un Dieu Ancien constituent le ciel, et ses os sont la terre. Son âme dévore l'énergie spirituelle des cieux et de la terre pour raffiner son corps. Il utilise la force de son corps pour briser tous les cœurs du Dao et emploie son esprit pour tracer le Dao du ciel et de la terre! »
 
 Wang Lin pesait le pour et le contre. S'il enseignait à Treize la méthode de culture des Dieux Anciens, cela pourrait transformer radicalement ce dernier, passant d'un être inutile à une puissance redoutable.
 
@@ -66,7 +66,7 @@ Cette douleur ne venait pas de son corps, mais de son cœur.
 
 Dès son réveil, il comprit immédiatement qu'il n'y avait plus une trace d'énergie spirituelle démoniaque en lui; il se sentait même plus faible qu'avant d'avoir commencé sa culture.
 
-Wang Lin n'avait toujours pas ouvert les yeux. Treize resta agenouillé un long moment avant de s'incliner trois fois. Puis, il partit sans même un regard en arrière.
+Wang Lin n'avait toujours pas ouvert les yeux. Treize resta agenouillé un long moment avant de se prosterner trois fois. Puis, il partit sans même un regard en arrière.
 
 Ce n'est qu'une fois celui-ci parti que Wang Lin ouvrit les yeux et poussa un soupir. Parmi tous ces gens, Treize possédait le plus grand talent et une compréhension remarquable du drapeau des âmes. Sans cet accident, il aurait certainement accompli de grandes choses à l'avenir.
 
@@ -88,7 +88,7 @@ Le vieil homme en robe grise ferma les yeux de désespoir. Lorsqu'il les rouvrit
 
 Le corps du vieillard en robe blanche trembla, mais il resta silencieux.
 
-« Cet étranger n'est pas un adversaire à notre portée. Si tu persistes dans ton entêtement, lorsque la formation cédera, ce ne sera pas seulement nous deux; toute la tribu sera consumée par les flammes. En tant que membre de cette lignée, comment peux-tu rester là à regarder ton peuple mourir?! »
+« Cet étranger n'est pas un adversaire à notre portée. Si tu persistes dans ton entêtement, lorsque la formation cédera, ce ne sera pas seulement nous deux; toute la tribu sera consumée par les flammes. En tant que membre de la tribu, comment peux-tu rester là à regarder ton peuple mourir?! »
 
 Le vieillard en robe blanche répondit amèrement: « Tu veux dire... »
 
@@ -98,7 +98,7 @@ D'un ton solennel, le vieillard en robe grise reprit: « Tu as commis l'erreur, 
 
 Le vieillard en robe blanche garda le silence un long moment. Il observa les environs d'un regard complexe, puis posa ses yeux sur les autres membres de la tribu. Voyant la terreur sur leurs visages, il prit une profonde inspiration et s'éleva vers la lisière de la formation.
 
-« C'est moi qui ai envoyé la lettre de défi! Venez m'affronter si vous l'osez! Mais après le combat, que je gagne ou que je perde, n'impliquez pas les innocents! »
+« C'est moi qui ai envoyé la lettre de défi! Viens m'affronter si tu l'oses! Mais après le combat, que je gagne ou que je perde, n'impliquez pas les innocents! »
 
 La voix du vieillard en robe blanche traversa la formation pour résonner jusque dans la vallée.
 
@@ -108,7 +108,7 @@ Wang Lin agita la main droite, et les six âmes primaires cessèrent de cracher 
 
 Privé de l'invasion des flammes, le vieillard en robe blanche serra les dents et s'avança. Il leva la main, faisant danser deux filaments d'énergie spirituelle démoniaque entre ses doigts, et déclara à Wang Lin: « Combattons! »
 
-« Tu n'es pas digne de ce nom! » La main de Wang Lin s'étira, provoquant un changement soudain dans l'expression du vieillard. Les deux filaments d'énergie autour de ses doigts s'éteignirent instantanément.
+« Tu n'es pas qualifié pour cela! » La main de Wang Lin s'étira, provoquant un changement soudain dans l'expression du vieillard. Les deux filaments d'énergie autour de ses doigts s'éteignirent instantanément.
 
 Au même moment, le corps du vieillard fut projeté impuissant vers Wang Lin. L'instant d'après, Wang Lin le saisissait déjà par la gorge.
 

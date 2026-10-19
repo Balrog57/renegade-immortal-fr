@@ -24,7 +24,7 @@ Il y a 18 000 ans, dans la Mer des Nuages, la Secte Brise-Ciel était une puissa
 
 Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure spatiale.
 
-Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Brise-Ciel étaient entrés en transe et avaient quitté précipitamment la fissure pour regagner leur secte.
+Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Brise-Ciel étaient devenus frénétiques et avaient quitté précipitamment la fissure pour regagner leur secte.
 
 Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer des Nuages! Il était possible que la Secte Brise-Ciel supplante la Secte Divine de rang 9!
 
@@ -32,11 +32,11 @@ Cependant, un traître s'était glissé parmi eux et la nouvelle avait fuité. C
 
 Pourtant, la Secte Brise-Ciel, détenant le droit d'entrer dans la région de rang 9, avait la puissance nécessaire pour combattre toute la région de rang 8. Un bain de sang s'était ainsi déversé sur la région de rang 8.
 
-La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 ne fut pas épargnée, déclenchant une catastrophe qui balaya toute la Mer des Nuages.
+La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 fut légèrement touchée, déclenchant une catastrophe qui balaya toute la Mer des Nuages.
 
 Cet événement fut d'une violence extrême. Même 18 000 ans plus tard, Noble Argent en tremblait encore à l'idée.
 
-Finalement, cela poussa la région de rang 9, qui n'intervenait presque jamais, à s'en mêler. Cette situation fut légèrement défavorable pour la Secte Brise-Ciel et, à ce moment-là, celle-ci se scinda!
+Finalement, cela poussa la région de rang 9, qui n'intervenait presque jamais, à s'en mêler. Cette situation fut extrêmement défavorable pour la Secte Brise-Ciel et, à ce moment-là, celle-ci se scinda!
 
 Une grande partie des membres de la Secte Brise-Ciel ne souhaitait pas se battre pour ces trois objets. Ils échangèrent la pilule et l'épée brisée contre leur survie, tout en poursuivant leur trajectoire vers la région de rang 9.
 
@@ -60,11 +60,11 @@ Mais pour vérifier, ils devaient empêcher toute rumeur de se propager afin que
 
 C'était là leur principale crainte. Finalement, ils choisirent leur disciple principal le plus fiable, Shi Luoxing, pour emmener secrètement 19 disciples vers la région de rang 3.
 
-Le niveau de culture de Shi Luoxing n'étant pas le plus élevé de la région de rang 6, son départ avec quelques disciples ne devait pas attirer l'attention. Cela s'avéra vrai, car aucun problème ne survint lorsqu'il atteignit la région de rang 3.
+Le niveau de culture de Shi Luoxing n'étant pas le plus élevé de la région de rang 6, son départ avec ses disciples ne devait pas attirer l'attention. Cela s'avéra vrai, car aucun problème ne survint lorsqu'il atteignit la région de rang 3.
 
 Cependant, Shi Luoxing ne pensait pas que cette piste soit vraie! Il parvint pourtant à obtenir facilement le fragment d'os de bête et un jade.
 
-Mais alors qu'il regagnait la Secte Qing Hua, il fut poursuivi par la Secte des Cinq Poisons. Les autres sectes de la région de rang 6 furent également informées de l'affaire.
+Mais alors qu'il regagnait la Secte Qing Hua, la nouvelle avait fuité et il fut poursuivi par la Secte des Cinq Poisons. Les autres sectes de la région de rang 6 furent également informées de l'affaire.
 
 « Shi Luoxing, tiens bon! » L'énergie originelle de Noble Argent fut injectée dans la bête spirituelle sous ses pieds. La créature accéléra encore davantage, perçant les couches de brouillard vers le continent sauvage.
 
@@ -86,7 +86,7 @@ Il ne prêta plus attention à Wang Lin et ordonna à sa bête spirituelle de pa
 
 Wang Lin fut secrètement soulagé. Il n'arrivait pas à identifier leur secte, mais il s'agissait manifestement de cultivateurs de la région de rang 6 se dirigeant vers le continent sauvage.
 
-Cependant, à cet instant précis, un rayon de lumière jaillit de la distance à une vitesse inimaginable. La lueur était éclatante, et Wang Lin distingua clairement un jade à l'intérieur!
+Cependant, à cet instant précis, un rayon de lumière jaillit de la distance à une vitesse inimaginable. La lueur était vacillante, mais Wang Lin distingua clairement un jade à l'intérieur!
 
 Il s'agissait manifestement d'un message transmis par un jade. Ces sorts étaient utilisés au sein des sectes pour transférer des informations via des jades se déplaçant bien plus vite que les cultivateurs eux-mêmes. Ils n'avaient pas à craindre l'interception car, sans le sceau approprié, le jade s'effondrerait instantanément. Pour prévenir tout accident, plusieurs jades étaient souvent envoyés simultanément.
 

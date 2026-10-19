@@ -42,9 +42,9 @@ Chi Hu fut surpris: « Le frère Ceng connaît cette créature? »
 
 Wang Lin expliqua: « Ce Xu est considéré comme une bête destructrice mineure. Il naît en dévorant la terre et vit en exhalant de l'énergie Yin. Même à l'époque ancienne, les cultivateurs devaient être nombreux pour parvenir à le vaincre. »
 
-Une description de cette créature figurait dans la mémoire du Dieu Ancien Tu Si. Cette bête possédait trois trésors: ses tentacules étaient des matériaux de raffinage de première qualité; son cerveau pouvait prolonger la longévité; et son noyau pouvait conférer la force de soulever dix mille kilogrammes.
+Une description de cette créature figurait dans la mémoire du Dieu Ancien Tu Si. Cette bête possédait trois trésors: ses tentacules étaient des matériaux de raffinage de première qualité; son cerveau pouvait prolonger la longévité; et son noyau, rare substance qui se forme d'elle-même entre ciel et terre, pouvait conférer la force de soulever dix mille kilogrammes.
 
-Les membres du clan des Dieux Anciens appréciaient par-dessus tout le noyau, car leur culture était entièrement axée sur le corps.
+Les membres du clan des Dieux Anciens appréciaient par-dessus tout cette créature, car leur culture était entièrement axée sur le corps.
 
 Wang Lin ne partagea pas ces informations.
 
@@ -82,7 +82,7 @@ Dès qu'un coin de la boussole fut touché par l'aura rouge, il disparut comme s
 
 La boussole trembla violemment. Chi Hu cracha une bouchée de sang et le visage de Papillon Rouge devint anormalement écarlate.
 
-Chi Hu hurla: « Papillon Rouge, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Il regrettait de ne pas avoir écouté les conseils de Ceng Niu. Sans cela, comment pourraient-ils survivre à une telle crise avec la vitesse actuelle de l'engin?
+Chi Hu hurla: « Papillon Rouge, agis! Je dois concentrer toute mon attention sur le contrôle de la boussole, je ne peux utiliser aucun sort pour résister! » Son front se couvrit de sueur froide: il regrettait de ne pas avoir écouté les conseils de Ceng Niu. Avec la vitesse de l'engin, pareille catastrophe ne leur serait jamais arrivée.
 
 Sans un mot, Papillon Rouge pressa son front et la rose réapparut. Elle arracha rapidement deux pétales et les projeta contre l'aura rouge.
 
@@ -136,7 +136,7 @@ Chi Hu sourit: « Mon clan des Démons Géants n'est pas originaire de Suzaku. M
 
 Wang Lin acquiesça intérieurement.
 
-Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet d'une dizaine de mètres de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru d'éclairs violets.
+Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet d'une dizaine de mètres de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru de deux éclairs pourpres et dorés.
 
 Le cœur de Wang Lin tressaillit: « La Pierre Pourpre Dorée! »
 

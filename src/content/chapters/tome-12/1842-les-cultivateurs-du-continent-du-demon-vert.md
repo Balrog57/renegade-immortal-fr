@@ -10,7 +10,7 @@ Les grottes nichées dans les profondeurs de la mer furent envahies par des grou
 
 En raison du fait que toute la Mer des Pilules était scellée et que le nombre de cultivateurs en robes vertes était immense, toute fuite semblait impossible.
 
-Le massacre faisait rage sous le rugissement de la Mer des Pilules. L'odeur du sang attira lentement les bêtes féroces qui rôdaient dans les profondeurs.
+Le massacre faisait rage sous le rugissement de la Mer des Pilules. L'odeur du sang attira lentement d'innombrables bêtes féroces, qui accoururent des profondeurs.
 
 C'était un carnage, un massacre entre des niveaux de culture inégaux. Les cultivateurs en robes vertes étaient de haut niveau et suivaient strictement leurs ordres pour anéantir tous les cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pilules!
 
@@ -72,11 +72,11 @@ La femme continuait de déployer ses troupes en suivant la carte de sa boussole.
 
 « Senior Frère Qian, Senior Frère Zhao, c'est à vous de jouer. Sur les neuf, quatre sont morts et cinq subsistent. Deux se sont dispersés, ce qui n'est pas un problème, mais trois se sont regroupés... »
 
-« Ces trois-là sont probablement des alliés proches et excellents en attaques combinées. Je vous demande, mes frères aînés, de les éliminer! » Sur la boussole, trois points lumineux légèrement plus grands progressaient vers le Continent du Taureau Céleste. Les points verts qui s'approchaient d'eux s'éteignaient les uns après les autres, signe de leur mort imminente.
+« Ces trois-là sont probablement des alliés proches et excellents en attaques combinées. Je vous demande, mes frères aînés, de les éliminer ensemble! » Sur la boussole, trois points lumineux légèrement plus grands progressaient vers le Continent du Taureau Céleste. Les points verts qui s'approchaient d'eux s'éteignaient les uns après les autres, signe de leur mort imminente.
 
 Le jeune homme au visage de jade blanc sourit et leva la main droite. Un éventail apparut dans sa paume; il frappa le centre de sa main gauche avec celui-ci en regardant le jeune homme nommé Qian.
 
-« Senior Frère Qian, votre petit frère va vous suivre pour observer le Grand Sort du Dao Démoniaque de la Secte du Dao Démon. »
+« Senior Frère Qian, votre petit frère va vous prêter main-forte et observer le Grand Sort du Dao Démoniaque de la Secte du Dao Démon. »
 
 Le cultivateur nommé Qian afficha une expression venimeuse et, sans un mot, s'avança dans la formation pour disparaître. Le jeune homme au visage de jade blanc secoua la tête avec un sourire et le suivit.
 
@@ -104,4 +104,4 @@ Même les nombreux cultivateurs participant au massacre ne pouvaient plus ignore
 
 « Tigre Blanc, pars seul... L'Oiseau Vermillon et moi sommes trop blessés. Nous emmener ne ferait que te ralentir. »
 
-« Je n'aurais jamais imaginé rencontrer une telle calamité après avoir quitté la Secte des Sept Dao pour venir cultiver en paix... Hélas, Tigre Blanc, sauve-toi! »
+« Je n'aurais jamais imaginé rencontrer une telle calamité après être sortis du monde des grottes de la Secte des Sept Dao pour venir cultiver en paix... Hélas, Tigre Blanc, sauve-toi! »

@@ -22,7 +22,7 @@ Le vieil homme renifla et rétorqua: « Si je n'avais pas atteint le stade de l'
 
 La main droite de Wang Lin pointa une nouvelle fois et une aura démoniaque apparut autour de son bout de doigt. Elle jaillit comme un projectile et s'immobilisa devant le vieil homme.
 
-« Ce sort est le Doigt Démoniaque. Il transforme l'énergie spirituelle céleste en énergie démoniaque. Utilisé avec le Doigt de la Mort, son effet est décuplé! »
+« Ce sort est le Doigt Démoniaque. Il transforme l'énergie spirituelle céleste en énergie démoniaque. Utilisé avec le Doigt de la Mort, son effet est bien meilleur! »
 
 Le vieil homme fixa l'aura noire devant lui et commença à réfléchir. Il leva sa main droite pour saisir l'aura avant de la scanner avec son sens divin. Après un long moment, il regarda Wang Lin et dit lentement: « La rumeur prétend que les habitants de la planète Dong Lin excellent dans les sorts d'aura démoniaque. Tu es donc originaire de la planète Dong Lin! Cependant, ce sort ne vaut toujours rien! »
 
@@ -34,7 +34,7 @@ Wang Lin envoya une commande mentale, et le Gardien Céleste derrière lui se tr
 
 Le mouvement de la marionnette fit sombrer l'expression du vieil homme.
 
-Peu après, le Gardien Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et elle tenait un bras de mortel dans sa gueule. Apparemment, elle était en train de manger lorsque le Gardien Céleste l'avait capturée.
+Peu après, le Gardien Céleste revint, tenant une bête féroce entre ses mains. La créature paraissait extrêmement sauvage, son corps couvert d'épines, et elle tenait dans sa gueule la moitié d'un bras de mortel. Apparemment, elle était en train de manger lorsque le Gardien Céleste l'avait capturée.
 
 Les deux doigts de la main droite de Wang Lin formèrent une épée. Il n'avait pas utilisé l'Art du Massacre Céleste depuis longtemps. Les innombrables brins d'énergie de massacre qu'il avait condensés autrefois résidaient dans la marionnette, mais ils avaient tous été consommés lors d'une bataille.
 
@@ -54,19 +54,19 @@ Avec son niveau de culture, il put presque immédiatement percer les secrets de 
 
 Bien qu'il ne fût pas très puissant, ce sort pouvait être utilisé de multiples fois et stocké.
 
-« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait un trillion de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
+« Ce sceau de vie est formé par l'Art du Massacre Céleste! Il consiste à s'appuyer sur le massacre pour rassembler la vitalité et à s'entourer de cette vitalité pour créer des sceaux de vie. Plus il y a de sceaux, plus la défense sera puissante! Autrefois, le senior qui m'a enseigné ce sort disait que si l'on possédait des milliards de sceaux de vie pour se protéger, on resterait sain et sauf même si la planète de culture s'effondrait! » Wang Lin ne mentait pas; c'était exactement ce que l'Omniscient en robe grise lui avait confié.
 
-Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un senior briseur de Nirvana était indéniable.
+Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il était évident que cet Art du Massacre Céleste l'avait conquis. Grâce à sa clairvoyance, il pouvait naturellement voir la puissance de cette technique et comprendre qu'elle n'était pas à la portée de n'importe quel cultivateur ordinaire. La crédibilité de l'apprentissage auprès d'un senior briseur de Nirvana avait une certaine crédibilité.
 
 Cependant, ce sort du troisième œil était un héritage familial; il ne pouvait donc pas être enseigné ainsi à des étrangers. L'origine de la technique était inconnue, semblant provenir d'une acquisition fortuite de ses ancêtres.
 
-Si cela s'était passé dans le Système Stellaire de l'Alliance, une famille comme la sienne n'aurait jamais pu garder un tel secret pour elle seule. Mais dans le Système Stellaire de Luotian, où les clans détenaient le pouvoir, presque chaque lignée possédait ses propres héritages, et ceux-ci n'étaient pas faciles à dérober.
+Si cela s'était passé dans le Système Stellaire de l'Alliance, une famille comme la sienne n'aurait jamais pu garder un tel secret pour elle seule. Mais dans le Système Stellaire de Luotian, où les familles tenaient lieu de sectes, presque chaque lignée possédait ses propres héritages, et ceux-ci n'étaient pas faciles à dérober.
 
 Ce qui était plus important encore, c'était qu'il fût la première personne de sa lignée à réussir à le maîtriser depuis que sa famille l'avait obtenu.
 
 Wang Lin attendit un moment. Voyant que le vieil homme hésitait toujours, il agita ses manches et s'avança vers la Bête du Tonnerre. Il déclara alors: « Puisque mon confrère est encore réticent, oublions cette affaire! » Sur ce, la Bête du Tonnerre sous ses pieds se changea en un éclair de foudre et s'élança au loin, suivie de près par la marionnette céleste.
 
-Le sceau de vie dans la main du vieil homme s'effondra en cendres. En se dissipant, il provoqua une onde de choc dans son cœur; il avait l'impression que ce sort aurait dû lui appartenir et qu'on venait de le lui voler.
+Le sceau de vie dans la main du vieil homme se dissipa en un gaz gris, provoquant une onde de choc dans son cœur; il avait l'impression que ce sort aurait dû lui appartenir et qu'on venait de le lui voler.
 
 En voyant Wang Lin disparaître à l'horizon, l'expression du vieil homme changea radicalement. Il serra les dents et cria: « Confrère, arrête! Je l'échange contre l'Art du Massacre Céleste, ainsi que le Doigt de la Mort et le Doigt Démoniaque! »
 

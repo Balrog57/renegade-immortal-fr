@@ -6,7 +6,7 @@ bookTitle: Light of the coming end
 en: "Chapter 2047 - Trample the Heavenly Path, Void Extinction Dao!"
 slug: pietiner-la-voie-celeste-dao-de-lextinction-du-vide
 ---
-Dans le pays de Luo Hou, après que la grande âme néfaste de Luo Hou eut été dévorée et absorbée par Wang Lin pour fusionner l'âme de massacre, le Prince Ji Du cracha une importante bouffée de sang à l'intérieur de la salle.
+Dans la contrée de Luo Hou, après que la grande âme néfaste de Luo Hou eut été dévorée et absorbée par Wang Lin pour fusionner l'âme de massacre, le Prince Ji Du cracha une importante bouffée de sang à l'intérieur de la salle.
 
 Dès cet acte, un sceau invisible au sein de son corps s'effondra et se brisa.
 
@@ -30,9 +30,9 @@ Dans la chambre secrète, Wang Lin s'assit. Les deux corps véritables se tenaie
 
 « Cent ans de culture pour enfin former ce corps d'essence de massacre... Je me demande si mon niveau de culture franchira le pic du Tribulant du Vide après sa fusion avec mon corps originel! »
 
-« Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la puissance de malédiction dans l'âme véritable de l'Empereur Céleste et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
+« Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la puissance de malédiction dans l'âme véritable de l'Empereur Céleste Lian Daozhen et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
 
-« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Empyréens et les Ascendants Empyréens. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
+« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Empyréens et les Ascendants Empyréens. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, je le mesure selon les royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
 
 Ses yeux pétillèrent d'excitation tandis qu'il murmurait: « Grand Empyréen... Ou serait-ce... »
 
@@ -58,7 +58,7 @@ Enfin, il ressentit un grondement dans son esprit, comme si son âme quittait so
 
 Le ciel n'était pas bleu; ni soleil, ni lune, ni étoiles. À cet instant, seule l'âme de Wang Lin existait. Il regarda vers le bas et vit que la terre était recouverte d'une brume blanche qui lui cachait le sol.
 
-Il leva les yeux vers le ciel. Celui-ci était obscurci par de fines lignes qui semblaient régies par leurs propres lois.
+Il leva les yeux vers le ciel. Celui-ci était strié de fines lignes qui semblaient régies par leurs propres lois.
 
 « C'est donc cela, le ciel... » Wang Lin était perplexe. Il ne voyait pas le ciel, seulement ces filaments infiniment fins. Même en déployant toute sa puissance, il ne percevait qu'une multitude de lignes sans fin.
 

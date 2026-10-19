@@ -66,7 +66,7 @@ Dès l'instant où il avait accidentellement créé le tonnerre de massacre, il 
 
 Au sein du corps véritable d'essence, les quatre essences spéciales s'étaient fusionnées pour résister à cette force. Lorsqu'elles parvinrent enfin à ne former qu'une seule entité, le corps véritable d'essence ouvrit les yeux. Son œil gauche était de lumière et son œil droit de ténèbres. Il avança vers Wang Lin et se superposa à lui comme une silhouette transparente. Puis, il s'assit et fusionna avec Wang Lin.
 
-À cet instant précis, le niveau de culture de Wang Lin bondit soudainement du stade initial du Tribulant du Vide au stade intermédiaire. Tandis que sa culture progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux blancs et ses vêtements. Il avait percé le stade intermédiaire du Tribulant du Vide!
+À cet instant précis, le niveau de culture de Wang Lin bondit soudainement du stade initial de la Tribulation du Vide au stade intermédiaire. Tandis que sa culture progressait, le monde changea de teinte et les nuages au-dessus de lui se dispersèrent. Le ciel au-dessus de la Secte Dong Lin oscillait entre l'obscurité et la clarté. Il alternait ainsi entre ombre et lumière jusqu'à ce qu'un grondement sourd émane du corps de Wang Lin. Une puissante bourrasque fit fouetter ses cheveux blancs et ses vêtements. Il avait percé le stade intermédiaire de la Tribulation du Vide!
 
 Wang Lin se redressa brusquement, et les bouleversements mondiaux disparurent sans laisser de trace. Tout revint à la normale: plus de vent, plus de mouvement, seul régnait le silence.
 
@@ -74,7 +74,7 @@ Il resta là un long moment avant de bouger enfin. Le Dragon Marin Exalté Doré
 
 Liu Jinbiao déglutit, regardant lui aussi Wang Lin avec une crainte respectueuse. Cette fascination était la même qu'il avait ressentie dans le monde des grottes; elle n'avait pas changé ici, sur le Continent Astral Immortel. Il grimpa rapidement sur le dos du dragon marin et se tint respectueusement derrière Wang Lin.
 
-Sa culture s'était largement rétablie durant ces treize dernières années grâce à ses souvenirs et au fait d'avoir apaisé le dragon marin pour obtenir son aide.
+Sa culture s'était largement rétablie durant ces treize dernières années grâce à ses souvenirs et au fait d'avoir cherché les bonnes grâces du dragon marin pour obtenir son aide.
 
 Le dragon marin s'éleva dans les airs, portant Wang Lin sur sa tête. Ce dernier regarda vers le bas, vers la Secte Dong Lin et le Bassin Dong Lin en contrebas. Après un instant, il joignit ses mains et s'inclina devant le Bassin!
 
@@ -82,7 +82,7 @@ Le dragon marin s'éleva dans les airs, portant Wang Lin sur sa tête. Ce dernie
 
 Wang Lin poussa un soupir, et sous ses ordres, le dragon marin s'élança vers l'horizon.
 
-Derrière lui, un soupir chargé de décennies de solitude et de tristesse, mêlé à une volonté de fer encore plus puissante, résonna...
+Derrière lui, un soupir chargé d'innombrables années de solitude et de tristesse, mêlé à une volonté de fer encore plus puissante, résonna...
 
 À cause de sa solitude, il avait créé un rêve issu de ses souvenirs pour l'accompagner.
 À cause de son chagrin, il était resté dans cette secte moribonde, se remémorant le passé tout en montant une garde silencieuse.
@@ -94,7 +94,7 @@ Cependant, il ne quitta pas le Continent du Grand Sage; il se contenta de s'inst
 
 « Je vais tenter l'Épreuve Empyrée! Autrefois, j'avais franchi le quatrième palais. Je me demande combien je pourrai en traverser cette fois... » Wang Lin ferma les yeux et apaisa les violentes fluctuations causées par sa progression de culture. Après trois mois, il s'était familiarisé avec son nouveau niveau. Il leva la main droite et fit un geste, faisant apparaître des sorts.
 
-« Au stade initial du Tribulant du Vide, en raison des limites de ma culture, je ne pouvais fusionner que treize sorts. Maintenant que je suis au stade intermédiaire, combien puis-je en fusionner... Et combien pourrais-je en combiner avec l'aide des corps véritables d'essence et des essences... » Les yeux de Wang Lin s'illuminèrent d'anticipation.
+« Au stade initial de la Tribulation du Vide, en raison des limites de ma culture, je ne pouvais fusionner que treize sorts. Maintenant que je suis au stade intermédiaire, combien puis-je en fusionner... Et combien pourrais-je en combiner avec l'aide des corps véritables d'essence et des essences... » Les yeux de Wang Lin s'illuminèrent d'anticipation.
 
 Après une profonde inspiration, Wang Lin ferma les yeux et son Sens Divin se concentra au sommet de sa tête. Il projeta un corps invisible qui s'élança vers le ciel.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1152 - Inside the Valley
 slug: a-linterieur-de-la-vallee
 ---
-Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant que celui-ci avait atteint le stade du Purificateur du Nirvana, la puissance des sorts de Bai Fan commençait à révéler sa véritable nature. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
+Cependant, cette vieille femme avait sous-estimé le vent noir de Wang Lin. Maintenant qu'il avait atteint le stade du Purificateur du Nirvana, la puissance des six grands sorts de Bai Fan commençait à se révéler, bien différente de ce qu'elle était au stade du Scruteur du Nirvana. Plus important encore, grâce à la fortune que Qing Lin lui avait octroyée, Wang Lin avait acquis une compréhension profonde des sorts de Bai Fan.
 
 Lorsque les cinq dragons noirs entrèrent en collision avec le brouillard rouge craché par la vieille femme, un grondement tonitruant résonna. Les cinq dragons rugirent, déchirèrent rapidement le brouillard rouge et fusionnèrent en un seul.
 
@@ -24,7 +24,7 @@ Il n'y avait pas de temps pour esquiver, mais Wang Lin n'avait nullement l'inten
 
 L'homme le plus téméraire l'emporte sur le chemin étroit! Au moment où le sceau de poison allait l'atteindre, Wang Lin leva la main droite et projeta une force vers l'avant. Il se trouvait soudainement à moins de sept pouces du sceau!
 
-À cet instant précis, la main gauche de Wang Lin pointa l'arrière de sa paume droite à une vitesse prodigieuse. À chaque mouvement de son doigt, un rugissement tonitruant retentissait. Toute l'énergie d'origine dans un rayon de dix mille pieds était soumise par une méthode tyrannique pour converger vers le bout du doigt de Wang Lin, avant de s'engouffrer dans sa paume.
+À cet instant précis, la main gauche de Wang Lin pointa l'arrière de sa paume droite à une vitesse prodigieuse. À chaque mouvement de son doigt, un rugissement tonitruant retentissait. Toute l'énergie d'origine dans un rayon de mille à dix mille pieds était soumise par une méthode tyrannique pour converger vers le bout du doigt de Wang Lin, avant de s'engouffrer dans sa paume.
 
 Bien que cela puisse paraître lent, l'action ne prit qu'un instant. Au moment où le poison percuta la paume de Wang Lin, un choc tellurique jaillit de sa main et se propagea vers l'extérieur.
 
@@ -58,7 +58,7 @@ Les hurlements de la vieille femme cessèrent net et son corps s'effondra dans u
 
 Bien que ce combat fût bref, Wang Lin ressentit encore un frisson face à tant de danger. Les sorts de poison de cette vieille femme suffisaient à vaincre la plupart des adversaires de même niveau de culture. Même des êtres au niveau supérieur auraient souffert de son venin s'ils n'étaient pas préparés.
 
-Il était courant pour Wang Lin de tuer, mais ce meurtre s'était produit sans autre raison que la nécessité. Il ne la connaissait même pas, et si elle n'avait pas tenté de l'éliminer, il ne l'aurait pas tuée ainsi.
+Il était courant pour Wang Lin de tuer, mais ce meurtre était absurde. Il ne la connaissait même pas, et si elle n'avait pas tenté de l'éliminer, il ne l'aurait pas tuée ainsi.
 
 Le petit serpent qui combattait la femme d'argent trembla soudainement et faiblit dès que la vieille femme fut capturée. Bientôt, la femme d'argent s'empara du reptile.
 
@@ -82,7 +82,7 @@ Il pénétra prudemment dans la vallée, sachant qu'il suffirait d'une pensée p
 
 La vallée n'était pas très vaste. La première chose que Wang Lin vit en entrant fut un cadavre. Le corps était en décomposition et il put seulement déterminer qu'il s'agissait d'un homme. Une odeur fétide et insupportable s'en dégageait.
 
-Fronçant les sourcils, Wang Lin avança jusqu'au centre de la vallée. Son sens divin se propagea lentement et il trouva bientôt une silhouette assise, entourée de quatre cadavres morts d'empoisonnement.
+Fronçant les sourcils, Wang Lin avança jusqu'au centre de la vallée. Son sens divin se propagea lentement et il trouva bientôt, à mille pieds devant lui, une silhouette assise, entourée de quatre cadavres morts d'empoisonnement.
 
 « Merci de m'avoir sauvé! » Une voix faible émana de l'homme assis.
 

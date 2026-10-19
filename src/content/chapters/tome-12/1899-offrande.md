@@ -16,9 +16,9 @@ Tout cela lui avait été donné par lui...
 
 Ses yeux s'écarquillèrent sous l'effet de la rage, emplis d'une haine monstrueuse. Bien qu'il fût mort, sa haine persistait, comme si elle allait elle-même se métamorphoser en fantôme.
 
-Wang Lin n'eut pas le temps de prêter attention au vieillard décédé. Il bondit en avant et leva la lame que sa main droite avait transformée. Ses quatre corps véritables d'essence firent de même. Il trancha impitoyablement l'âme du Scorpion Vert Démoniaque qui tentait de s'échapper!
+Wang Lin n'eut pas le temps de prêter attention au vieillard décédé. Il bondit en avant et leva la lame que sa main droite avait transformée. Ses quatre corps véritables d'essence firent de même. Il trancha impitoyablement l'âme du Scorpion du Démon Vert qui tentait de s'échapper!
 
-L'âme du Scorpion Vert Démoniaque était elle aussi habitée par une haine infinie. Elle haïssait l'ancien à la robe verte pour l'avoir réduite à son état actuel. Cependant, ce dernier étant mort, elle n'avait plus personne vers qui déverser sa colère. Ne pouvant non plus évacuer sa rage en cet instant de péril, elle ne pouvait que fuir.
+L'âme du Scorpion du Démon Vert était elle aussi habitée par une haine infinie. Elle haïssait l'ancien à la robe verte pour l'avoir réduite à son état actuel. Cependant, ce dernier étant mort, elle n'avait plus personne vers qui déverser sa colère. Ne pouvant non plus évacuer sa rage en cet instant de péril, elle ne pouvait que fuir.
 
 De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dispersant ses fragments. L'âme du scorpion hurlait dans sa fuite. Derrière elle, les cheveux blancs de Wang Lin flottaient tandis qu'il la poursuivait, porté par une aura puissante. Il leva la lame qu'il tenait avec un élan capable de briser le ciel et la terre, puis frappa de concert avec ses quatre corps véritables d'essence!
 

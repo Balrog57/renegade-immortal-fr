@@ -58,7 +58,7 @@ Cet homme ressemblait énormément au Saint de l'Épée Ling Tianhou!
 
 Le corps de Wang Lin disparut et réapparut à cinquante kilomètres de la capitale. Son expression était sombre, mais ses yeux brillèrent tandis qu'il pensait: « Ce n'est pas Ling Tianhou! Bien que cet homme lui ressemble, il semble beaucoup plus jeune! De plus, il manque l'aura de Ling Tianhou, et leurs apparences ne sont pas parfaitement identiques. Il y a des similitudes... se pourrait-il que... »
 
-À cet instant précis, l'homme en armure surgit du vide derrière Wang Lin. Il le fixa et demanda: « Pourquoi ne cours-tu pas?! » Sur ces mots, il tendit la main et cinq filaments d'énergie démoniaque jaillirent du bout de ses doigts.
+À cet instant précis, l'homme en armure surgit du vide derrière Wang Lin. Il le fixa et demanda: « Pourquoi ne cours-tu plus?! » Sur ces mots, il tendit la main et cinq filaments d'énergie démoniaque jaillirent du bout de ses doigts.
 
 Les yeux de Wang Lin s'illuminèrent et il demanda soudainement: « Qui est Ling Tianhou pour vous?! »
 

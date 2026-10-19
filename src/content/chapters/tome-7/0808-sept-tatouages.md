@@ -8,7 +8,7 @@ slug: sept-tatouages
 ---
 C'était le dernier Char de Guerre Anti-Dieu que Wang Lin possédait, et aussi le plus puissant. Son dessein était de forger un trésor assez redoutable pour terrasser un dieu!
 
-Une pression écrasante émanait du Char de Guerre Anti-Dieu qui trônait devant lui. Les pointes qui jaillissaient du char dégageaient une aura ancestrale, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
+Une pression écrasante émanait du Char de Guerre Anti-Dieu qui trônait devant lui. Les pointes qui jaillissaient du char luisaient d'un éclat glacial, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
 
 Cependant, aujourd'hui, Wang Lin se tenait calmement aux côtés du Char de Guerre Anti-Dieu. Au cours de ces centaines d'années, il avait énormément progressé.
 
@@ -34,13 +34,13 @@ Le fragment et les épées que possédait Wang Lin étaient de ce genre.
 
 Toutefois, lorsqu'il s'agit d'un trésor lié à la vie, sa destruction peut avoir des conséquences tragiques: soit l'utilisateur subit de graves blessures et son âme originelle se fragmente, soit, dans les cas les plus critiques, il meurt tout simplement. Malgré ce risque, de nombreux cultivateurs choisissaient pourtant d'affiner des trésors liés à la vie.
 
-C'était parce qu'une fois le lien établi, la puissance du trésor décuplait et sa force croissait proportionnellement au niveau de culture de son détenteur.
+C'était parce qu'une fois le lien établi, la puissance du trésor se multipliait plusieurs fois et sa force croissait proportionnellement au niveau de culture de son détenteur.
 
 Wang Lin avait lu cela dans des chroniques anciennes. Autrefois, un cultivateur utilisait une simple épée volante comme trésor lié à la vie. Au fil de ses progrès, la puissance de l'épée avait augmenté jusqu'à atteindre un degré inimaginable.
 
 « Ce troisième Char de Guerre Anti-Dieu est différent des deux précédents... » Wang Lin fixa silencieusement les sept runes. Sa main droite effleura sa sacoche de rangement et la bête moustique en surgit.
 
-Cette créature ne s'était pas manifestée depuis longtemps. En sortant, elle poussa un rugissement qui déclencha une bourrasque de vent. Elle tourna autour de la zone, visiblement exaltée.
+Cette créature ne s'était pas manifestée depuis longtemps. En sortant, elle poussa un cri strident qui déclencha une bourrasque de vent. Elle tourna autour de la zone, visiblement exaltée.
 
 Après la bête moustique vint le tour du crapaud tonnerre.
 
@@ -52,7 +52,7 @@ Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'ap
 
 Xu Liguo hocha la tête avec empressement en se tapotant la poitrine, l'air d'un subordonné dévoué: « Maître, soyez tranquille! À moins que l'on ne marche sur mon cadavre, personne ne pourra vous approcher. Moi, Xu Liguo, j'ai consacré ma vie à la loyauté, je vis pour la loyauté. Personne ne peut égaler le grand Xu Liguo... »
 
-Voyant l'air de Wang Lin, Xu Liguo se tut rapidement et recula. Il lança quelques regards furtifs vers son maître et, constatant que celui-ci ne lui prêtait plus attention, il pensa: « Il semble que je n'aie pas assez pratiqué mes flatteries ces derniers temps; je ne suis pas aussi naturel que d'habitude. Sinon, ce démon aurait froncé les sourcils après seulement quelques mots.
+Voyant l'air de Wang Lin, Xu Liguo se tut rapidement et recula. Il lança quelques regards furtifs vers son maître et, constatant que celui-ci ne lui prêtait plus attention, il pensa: « Il semble que je n'aie pas assez pratiqué mes flatteries ces derniers temps; je ne suis pas aussi naturel que d'habitude. Sinon, ce démon n'aurait pas froncé les sourcils après seulement quelques mots.
 
 À l'avenir, je dois m'entraîner davantage. Cette compétence est mon arme la plus redoutable. Même si je devais m'enfuir un jour, cette capacité me serait toujours utile. »
 
@@ -68,13 +68,13 @@ Au fil de ses monologues, les yeux de Xu Liguo brillaient de plus en plus et son
 
 Le moustique, qui volait aux alentours, passa près de lui et intercepta une partie de ses paroles. Sans vraiment comprendre, la créature fut prise de curiosité et survola délibérément Xu Liguo pour continuer à l'écouter.
 
-Après avoir libéré la bête moustique, le crapaud tonnerre et Xu Liguo, Wang Lin posa plusieurs restrictions de sécurité. Ce n'est qu'alors qu'il se détendit un peu. Il fixa le char de guerre, plaça sa main droite entre ses sourcils et projeta son âme originelle vers l'engin.
+Après avoir libéré la bête moustique, le crapaud tonnerre et Xu Liguo, Wang Lin disposa plusieurs formations de restriction. Ce n'est qu'alors qu'il se détendit un peu. Il fixa le char de guerre, plaça sa main droite entre ses sourcils et projeta son âme originelle vers l'engin.
 
 Une fois sortie, son âme originelle prit la forme d'un ancien dragon de tonnerre et fonça vers le char. À proximité, elle en fit le tour complet avant de s'ouvrir pour dévorer une rune.
 
-Une force violente secoua l'âme originelle de Wang Lin alors que la rune s'y déchaînait. Un instant plus tard, une puissance émanant du corps de Wang Lin écrasa impitoyablement la rune.
+Une force violente secoua l'âme originelle de Wang Lin alors que la rune s'y déchaînait. Un instant plus tard, une puissance émanant de l'âme originelle de Wang Lin écrasa impitoyablement la rune.
 
-Toutefois, la rune se montra très tenace. Au lieu de se briser, elle explosa avec une force décuplée.
+Toutefois, la rune se montra très tenace. Au lieu de se briser, elle opposa une résistance encore plus féroce.
 
 Si Wang Lin s'était trouvé au stade d'Ascendant, son âme originelle n'aurait pas pu supporter un tel assaut; il serait resté enlisé dans une lutte d'usure interminable.
 
@@ -88,7 +88,7 @@ Wang Lin mit moins de temps qu'il n'en faut pour brûler la moitié d'un bâton 
 
 Celle-ci était bien plus puissante, mais grâce à la force de son âme originelle, il parvint à la raffiner complètement, bien que cela lui ait pris le temps de brûler un bâton d'encens entier.
 
-Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Deux heures plus tard, le pouvoir mystérieux de ces deux runes résidait désormais dans son âme originelle.
+Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Deux heures plus tard, le pouvoir mystérieux des quatre runes résidait désormais dans son âme originelle.
 
 La cinquième rune fut ensuite dévorée par l'âme du dragon de tonnerre antique. Dès son ingestion, elle libéra une force violente qui se propagea à travers toute l'âme originelle de Wang Lin.
 

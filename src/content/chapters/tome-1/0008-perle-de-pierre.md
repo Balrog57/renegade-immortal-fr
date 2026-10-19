@@ -26,7 +26,7 @@ Son sac de provisions était resté au sommet de la montagne, hors de portée. P
 
 Une journée passa à toute vitesse et le ciel s'assombrit peu à peu. Wang Lin sentait son corps s'affaiblir de plus en plus. Son bras était devenu totalement insensible, plongé dans un engourdissement profond. Il eut un sourire amer et se dit: « Rester coincé ici, c'est la mort assurée, mais sauter de la falaise, c'est encore pire: aucune chance de survie. Hélas. »
 
-Il regarda le cadavre ensanglanté de l'oiseau aspiré plus tôt. Après une courte hésitation, il s'en approcha, le saisit et en prit une bouchée avec dégoût. Le goût était abominable. Il expira alors que la viande crue inondait ses sens, mais continua de manger.
+Il regarda le cadavre ensanglanté de l'oiseau aspiré plus tôt. Après une courte hésitation, il s'en approcha, le saisit et en prit une bouchée avec dégoût. Le goût était abominable. Il soupira alors que la viande crue inondait ses sens, mais continua de manger.
 
 Il mastiquait à peine, préférant avaler les morceaux presque tout entiers. Tie Zhu sentit son estomac se contracter et se retourner, tandis que des vagues de chaleur montaient en lui. Il eut bientôt dévoré la moitié de l'oiseau. Des nausées irrépressibles montèrent; il se leva aussitôt et prit une profonde inspiration pour les réprimer.
 
@@ -62,6 +62,6 @@ Particulièrement au niveau de sa blessure au bras. Il ressentit un confort mêl
 
 À cet instant, il remarqua soudain la perle et vit des gouttes de rosée sur celle-ci. Il se souvint que tous les os qui en étaient couverts se trouvaient près de la perle. Le cœur battant, il ramassa délicatement l'objet et le fit rouler sur son bras pour répartir uniformément la rosée.
 
-Des ondes de fraîcheur et de revitalisation envahirent son membre. Wang Lin fixa son bras sans ciller. Après un moment, ses yeux s'illuminèrent: l'enflure avait disparu. Il essaya de bouger le bras; bien qu'une certaine douleur persistât, ce n'était plus rien.
+Des ondes de fraîcheur et de revitalisation envahirent son membre. Wang Lin fixa son bras sans ciller. Après un moment, ses yeux s'illuminèrent: l'enflure avait disparu. Il essaya de bouger le bras; bien qu'une certaine douleur persistât, ce n'était plus grave.
 
 « Cette perle de pierre doit être un trésor! » Wang Lin fut transporté par la surprise et la joie.

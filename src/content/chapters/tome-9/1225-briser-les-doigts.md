@@ -24,7 +24,7 @@ Elle savait que la cible de cette attaque inimaginable était Wang Lin. Tant que
 
 Quoi qu'il en coûte, elle devait survivre!
 
-« Tant que je peux tenir jusqu'à la mort de cet individu nommé Lu, je pourrai vivre! » La robe verte de la vieille femme était maculée de sang. Elle se débattait contre les vents pour gagner de l'altitude.
+« Tant que je peux tenir jusqu'à la mort de cet individu nommé Lu, je pourrai vivre! » Elle se débattait contre les vents pour gagner de l'altitude.
 
 Les yeux de Wang Lin s'embrasèrent d'une intention de combat en voyant le petit doigt approcher. Le doigt était d'une démesure absolue, couvrant presque la moitié du ciel. À cet instant précis, il se courba vers lui!
 
@@ -102,7 +102,7 @@ Alors que l'index se rapprochait, la main gauche de Wang Lin plongea dans le vid
 
 L'épée de cristal libéra instantanément un chant d'épée qui ébranla les cieux et une énergie monstrueuse. Enveloppée de cette puissance tranchante, elle fonça sur l'index.
 
-Les trésors Pseudo Vide du Nirvana étaient extrêmement rares dans le Royaume Scellé; c'étaient des artefacts d'une puissance phénoménale! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
+Les trésors Pseudo Vide du Nirvana étaient extrêmement rares dans les quatre grands systèmes stellaires; c'étaient des artefacts d'une puissance phénoménale! À cet instant, l'épée s'élança avec la force de fendre les cieux et percuta l'index.
 
 Un grondement tonitruant retentit. Ce fracas sembla presque faible comparé au rugissement de Wang Lin, mais il permit à l'épée de cristal de libérer une attaque encore plus dévastatrice.
 

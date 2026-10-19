@@ -38,7 +38,7 @@ Alors qu'elle était sur le point de s'évanouir dans le néant, elle lança ces
 
 Pourtant, ce à quoi elle répondit fut l'index droit de Wang Lin et une voix plus froide encore!
 
-« Arrête! »
+« Immobilisation! »
 
 Dès qu'il eut parlé, le monde cessa de bouger. Même la femme, qui devenait transparente, s'immobilisa. Ses yeux conservaient toute leur froideur et leur mépris!
 

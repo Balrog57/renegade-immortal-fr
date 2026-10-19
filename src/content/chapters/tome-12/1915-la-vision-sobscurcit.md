@@ -101,9 +101,9 @@ Alors que son hurlement résonnait, son âme originelle se trouvait à moins de 
 
 La mission du messager impérial était de transmettre l'édit. Puisque celui qui devait le recevoir l'avait accepté, il n'hésita pas à l'ouvrir. Simultanément, sa voix résonna:
 
-« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur du Démon Vert contre la famille impériale. S'il est encore en vie, qu'il se détruise lui-même, ainsi que la Secte du Dao Démoniaque, devant mon édit!!
+« La lignée céleste perdure depuis les temps anciens jusqu'à ce jour. Le maître de la Secte du Dao Démoniaque sur le Continent du Démon Vert a osé offenser la puissance de la famille impériale. Il a comploté avec le serviteur résiduel du Démon Vert contre la famille impériale. S'il est encore en vie, qu'il se détruise lui-même, ainsi que la Secte du Dao Démoniaque, devant mon édit!!
 
-« S'il est mort et s'il a été tué par un homme nommé Wang Lin, alors Wang Lin devra accepter l'édit. Venez sur le Continent Central. J'ai appris comment vous avez aidé Dao Fei, et je ne l'ai pas oublié!! »
+« S'il est mort et s'il a été tué par un homme nommé Wang Lin, alors Wang Lin devra accepter l'édit. Venez me rencontrer sur le Continent Central. J'ai appris comment vous avez aidé Dao Fei, et je ne l'ai pas oublié!! »
 
 Alors que le messager impérial lisait l'édit, de la sueur perla sur son front. Il n'avait pu l'ouvrir qu'une fois la personne désignée présente. C'était la première fois qu'il voyait le contenu, et après sa lecture, il fut stupéfait.
 

@@ -65,7 +65,7 @@ L'un des hommes était très beau et soigné. Il semblait extrêmement embarrass
 — Wang Lin! Toi... Pourquoi es-tu ici? Tu devrais être chez toi, à faire du travail de charpentier avec ton père!
 
 L'une des jeunes filles sur le côté intervint:
-— Wang Lin? Ah, c'est donc toi qui es devenu disciple honoraire en tentant de te suicider, puis disciple interne en faisant la cour à l'Ancien Sun!
+— Wang Lin? Ah, c'est donc toi qui es devenu disciple honoraire en tentant de te suicider, puis disciple interne en flattant l'Ancien Sun!
 Ses cheveux noirs et brillants étaient tressés en une longue natte. Elle avait des sourcils épais et de grands yeux noirs; elle était très jolie.
 
 Les deux autres affichaient un visage empreint de choc, leurs regards rivés sur Wang Lin. L'une des filles avait de grands yeux enfantins, soulignés par de magnifiques cils. Ses yeux ressemblaient à deux grains de raisin de cristal et scintillaient d'un vif intérêt.

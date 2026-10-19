@@ -12,7 +12,7 @@ Tant dans le Domaine Intérieur que dans le Domaine Extérieur, qu'il s'agisse d
 
 Dans le Domaine Intérieur, si une secte de la région de rang 8 dans la Mer des Nuages possédait un cultivateur du troisième Fléau Céleste, elle atteindrait alors le sommet. Même dans les régions de rang 9, les cultivateurs de ce niveau étaient rares.
 
-La puissance du Domaine Intérieur était bien inférieure à celle du Domaine Extérieur. Le vieil homme apparu devant Wang Lin était un cultivateur du troisième Fléau Céleste. Le Clan des Moineaux de Feu était l'un des clans les plus prestigieux du Système d'Étoiles Anciennes; ils avaient le pouvoir d'envoyer un tel expert pour diriger le Clan des Moineaux de Feu dans les Terres Déchues.
+La puissance du Domaine Intérieur était bien inférieure à celle du Domaine Extérieur. Le vieil homme apparu devant Wang Lin était un cultivateur du troisième Fléau Céleste. Le Clan des Moineaux de Feu était l'un des clans les plus prestigieux du Système Stellaire Antique; ils avaient le pouvoir d'envoyer un tel expert pour diriger le Clan des Moineaux de Feu dans les Terres Déchues.
 
 Wang Lin avait depuis longtemps remarqué l'aura du Clan des Moineaux de Feu avant d'entrer. L'apparition de ce vieil homme ne le surprit donc nullement.
 
@@ -28,7 +28,7 @@ De plus, le plus important était qu'il ne parvenait pas à percer la culture de
 
 Peu importe la manière dont son Sens Divin se propageait, il ne détectait aucune aura de culture émanant de Wang Lin, et encore moins de quoi déterminer son clan d'appartenance.
 
-Les habitants du Système d'Étoiles Anciennes n'arboraient pas toujours leur marque entre les sourcils. Certains cultivateurs puissants pouvaient dissimuler leur marque de clan, la rendant indétectable pour autrui.
+Les habitants du Système Stellaire Antique n'arboraient pas toujours leur marque entre les sourcils. Certains cultivateurs puissants pouvaient dissimuler leur marque de clan, la rendant indétectable pour autrui.
 
 « Vous voulez que je vous cède les Cristaux de Mutation de Feu Déchaîné? » lança Wang Lin avec un sourire qui n'en était pas un, tout en fixant le vieil homme du Clan des Moineaux de Feu.
 
@@ -52,7 +52,7 @@ Il recula une fois de plus, une peur indescriptible brillant dans ses yeux. À l
 
 Tout cela se produisit en un instant, mais pour le vieil homme du Clan des Moineaux de Feu, ce fut un véritable cauchemar. Il venait de marcher sur le fil du rasoir entre la vie et la mort.
 
-Wang Lin retira son regard et dit lentement: « Vous ne pouvez pas vous présenter ainsi devant moi! »
+Wang Lin retira son regard et dit lentement: « Devant moi, vous osez vous appeler « ce vieillard »! »
 
 Un silence de mort régna dans les environs. La femme charmante prit une profonde inspiration, son regard vers Wang Lin empreint d'un respect mêlé d'une profonde révérence.
 
@@ -66,7 +66,7 @@ La femme charmante s'inclina respectueusement, puis sortit un morceau de jade qu
 
 Le mur commença immédiatement à onduler avant de devenir transparent, révélant clairement l'intérieur. Derrière la paroi, trois pierres blanches de la taille d'un poing tournaient lentement sur elles-mêmes.
 
-La femme baissa la tête et murmura: « Senior, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Déchaîné à vendre; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture Hu était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
+La femme baissa la tête et murmura: « Senior, mon Clan du Dragon Blindé ne dispose pas de beaucoup de Cristaux de Mutation de Feu Déchaîné à vendre; il ne reste que ces trois pièces... À l'origine, le Compagnon de Culture He était venu les échanger en premier. Puisque le Senior les convoite également, cela complique la tâche de ce junior. »
 
 Le vieil homme du Clan des Moineaux de Feu regarda les trois pierres blanches et soupira intérieurement. Il joignit les mains: « Puisque le Senior les désire, comment ce junior oserait-il rivaliser? »
 
@@ -96,7 +96,7 @@ Wang Lin ouvrit les yeux et lança un regard nonchalant au vieil homme. Un souri
 
 La femme hocha la tête rapidement, prit les trois pilules et descendit précipitamment à l'étage inférieur. Le pavillon retomba dans le silence, tandis que le vieil homme du Clan des Moineaux de Feu restait plongé dans ses pensées. Nul ne savait ce qu'il méditait.
 
-Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la femme remonta, suivie par un homme d'âge moyen. Ce dernier portait une robe daoïste et dégageait une pression imposante sans pour autant manifester de colère. La femme charmante le suivait avec un profond respect.
+Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la femme remonta, suivie par un homme d'âge moyen. Ce dernier, aux cheveux violets, portait une robe daoïste et dégageait une pression imposante sans pour autant manifester de colère. La femme charmante le suivait avec un profond respect.
 
 Dès l'apparition de l'homme, le Patriarche du Scorpion Noir, resté derrière Wang Lin, s'approcha de lui et murmura: « Le jeune maître du Clan du Dragon Blindé. Étrange, il jouit d'un statut très élevé et se montre rarement ici. »
 

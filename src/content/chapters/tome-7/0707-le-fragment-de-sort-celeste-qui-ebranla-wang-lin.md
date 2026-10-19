@@ -45,7 +45,7 @@ Il avait trop de choses à accomplir; le gardien céleste n'était que l'une d'e
 
 Il avait déjà mis de côté les trois âmes primaires ultimes ainsi que la formation d'épées des sept étoiles. Cependant, les rayons d'énergie d'épée de Ling Tianhou, le gardien céleste et la Bête du Tonnerre se trouvaient toujours dans la grotte.
 
-Le gardien céleste se tenait non loin de la Bête du Tonnerre qui, le troisième sceau levé, reposait sur le sol.
+Le gardien céleste se tenait non loin de la Bête du Tonnerre, face à elle; celle-ci, le troisième sceau levé, reposait sur le sol.
 
 Les deux rayons d'énergie d'épée de Ling Tianhou flottaient dans les airs, émettant un puissant sifflement strident.
 
@@ -61,7 +61,7 @@ Elle refusait de retourner vers le char de guerre et de réintégrer son sac de 
 
 La Bête du Tonnerre était trois fois plus grande qu'auparavant. Elle était devenue plus éclatante, et de l'or avait commencé à apparaître sur sa corne argentée.
 
-Lorsque Wang Lin la regarda, la bête leva sa grosse tête et lui adressa un regard. Elle cracha deux filaments de tonnerre qui parcoururent son corps dans un fracas assourdissant.
+Lorsque Wang Lin la regarda, la bête leva sa grosse tête et lui adressa un regard. Elle cracha deux filaments de tonnerre qui glissèrent autour de son corps.
 
 L'homme et la bête se soutinrent du regard. Wang Lin sentait que l'animal était devenu plus intelligent, comme s'il possédait une véritable âme.
 
@@ -91,7 +91,7 @@ Cependant, cela n'eut aucun effet sur lui.
 
 L'éclair contenait une parcelle de tonnerre céleste, la véritable puissance du tonnerre divin. Il était évident que, sans pratiquer les méthodes de culture du Temple Céleste du Tonnerre, il était impossible de percer le secret de ce jade.
 
-Mais Wang Lin avait autrefois dévoré un ancien dragon du tonnerre; le tonnerre qu'il maîtrisait était d'un niveau supérieur. L'énergie tonnerreuse de son âme originelle s'anima et pénétra le jade. Il brisa aisément la barrière et put voir ce qu'il contenait.
+Mais Wang Lin avait autrefois dévoré la moitié d'un ancien dragon du tonnerre; le tonnerre qu'il maîtrisait était d'un niveau supérieur. L'énergie tonnerreuse de son âme originelle s'anima et pénétra le jade. Il brisa aisément la barrière et put voir ce qu'il contenait.
 
 Malgré sa grande force mentale, les yeux de Wang Lin s'écarquillèrent de surprise. Seuls deux sorts étaient stockés dans ce jade, et le premier était: *Le Fourneau devient le Monde!*
 

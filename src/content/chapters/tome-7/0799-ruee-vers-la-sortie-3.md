@@ -32,9 +32,9 @@ Alors qu'il volait, Shengong Hu se retourna soudainement et vit le fragment fonc
 
 Shengong Hu s'arrêta devant Wang Lin et dit respectueusement: « Shengong Hu salue mon seigneur! » Son regard était empreint d'une profonde déférence.
 
-Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers la formation de transfert du Temple Céleste du Tonnerre! »
+Un léger sourire apparut sur les lèvres de Wang Lin. Il hocha la tête et ordonna: « Assieds-toi à mes côtés et conduis-moi vers la réseau de transfert du Temple Céleste du Tonnerre! »
 
-Shengong Hu ne daigna même pas regarder les autres sur le fragment. Il s'assit aussitôt et répondit respectueusement: « Mon seigneur, nous ne sommes plus loin de la formation de transfert! » Tout en parlant, il indiqua la direction à suivre.
+Shengong Hu ne daigna même pas regarder les autres sur le fragment. Il s'assit aussitôt et répondit respectueusement: « Mon seigneur, nous ne sommes plus loin de la réseau de transfert! » Tout en parlant, il indiqua la direction à suivre.
 
 Les occupants du fragment furent stupéfaits par cette scène. Certains connaissaient Shengong Hu; en l'entendant appeler Wang Lin « mon seigneur », ils ne purent s'empêcher de laisser libre cours à leurs pensées.
 
@@ -48,7 +48,7 @@ Plus ils approchaient de l'intérieur du Royaume Céleste, plus la situation dev
 
 Le regard de Wang Lin devint sérieux alors qu'il maniait le fragment. À cet instant précis, ses yeux s'écarquillèrent: le fragment sous ses pieds effectua un virage brusque en courbe.
 
-Au moment de cette manœuvre, une immense faille spatiale de 660 mètres apparut. De nombreux cultivateurs qui suivaient ne purent réagir à temps, et des vagues de cris de détresse furent englouties par la déchirure.
+Au moment de cette manœuvre, une immense faille spatiale d'environ 660 mètres apparut. De nombreux cultivateurs qui suivaient ne purent réagir à temps, et des vagues de cris de détresse furent englouties par la déchirure.
 
 Wang Lin était totalement absorbé par le contrôle du fragment et n'eut pas le temps de se soucier des autres. Il dirigea l'engin pour éviter la grande faille, mais son expression devint plus sombre encore.
 
@@ -62,7 +62,7 @@ De plus, une formation y était établie. Plusieurs individus s'y tenaient, mani
 
 Soudain, ils semblèrent remarquer une présence et se retournèrent brusquement pour lancer un regard glacial vers Wang Lin. L'un d'eux leva la main droite et pointa le ciel. Une fluctuation d'énergie originelle jaillit soudainement de sa paume et se fondit dans l'écran de lumière alentour.
 
-Cette énergie s'assembla pour former une main gigantesque qui balaya immédiatement la zone. Toutes les fissures autour de l'écran commencèrent à s'étendre, comme si elles allaient se rejoindre pour former un fossé infranchissable.
+Cette énergie s'assembla pour former une main gigantesque qui balaya immédiatement la zone. Toutes les fissures autour de l'écran volèrent en éclats, puis commencèrent à s'étendre, comme si elles allaient se rejoindre pour former un fossé infranchissable.
 
 Une fois connectées, plus personne ne pourrait traverser pour atteindre le fragment situé sous l'écran!
 
@@ -106,8 +106,8 @@ L'un d'eux cria rapidement: « Senior, ne vous souciez pas de lui, nous allons n
 
 Wang Lin hocha la tête et le fragment recula légèrement. Cette fois, il se prépara pendant dix respirations. Mais il n'était pas le seul: tous les cultivateurs sautèrent du fragment et posèrent leurs mains sur celui-ci.
 
-Chacun utilisa toute sa puissance, fusionnant sous la direction de Wang Lin avant d'être projeté en avant. La force combinée de toutes ces personnes forma une arête tranchante à l'avant du fragment.
+Chacun utilisa toute sa puissance, fusionnant sous la direction de Wang Lin avant d'être projeté en avant. La force combinée de toutes ces personnes forma une pointe à l'avant du fragment.
 
 Un grondement titanesque secoua le vide lorsque le fragment percuta l'écran de lumière, provoquant son effondrement final.
 
-D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment pénétra dans ce morceau de ciel. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant la formation de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!
+D'innombrables éclats de l'écran se dispersèrent et plus de la moitié du fragment pénétra dans cet écran de lumière. Les cultivateurs s'y précipitèrent immédiatement; soudain, ce fragment céleste abritant la réseau de transfert fut envahi par une foule de cultivateurs enragés cherchant désespérément un moyen de survivre!

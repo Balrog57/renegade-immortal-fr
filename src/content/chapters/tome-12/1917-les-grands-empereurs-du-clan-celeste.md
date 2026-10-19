@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1917 - Celestial Clan's Grand Empyreans"
 slug: les-grands-empereurs-du-clan-celeste
 ---
-« La cité impériale est un endroit où je dois me rendre. Non pas pour les remerciements, mais pour mon serment envers Lian Daofei! Je dois restaurer la mémoire de Dao Fei pour lui rendre tout ce qu'il a fait pour moi! » Wang Lin affichait un regard déterminé.
+« La cité impériale est un endroit où je dois me rendre. Non pas pour les remerciements, mais pour mon serment envers Lian Daofei! Je dois restaurer la mémoire de Dao Fei pour lui rendre tout ce qu'il a fait pour moi, et notamment cette grâce de fusion de sang! » Wang Lin affichait un regard déterminé.
 
 Il se souvenait de la bonté que d'autres lui avaient témoignée!
 
@@ -28,7 +28,7 @@ Il ignorait ce qu'était devenu le fou. Il ne savait pas s'il continuerait à ru
 
 « Le sang de ce roi est très, très, très, très... Hé, je crois me souvenir d'une petite diablesse nommée Fei Fei qui m'a donné quelque chose à manger... »
 
-La voix du fou semblait résonner à ses oreilles. Dans l'obscurité des ruines de la Secte du Dao Démoniaque, Wang Lin soupira. Il se rappelait le moment où le fou était apparu lors de sa crise de vie ou de mort pour le sauver d'un coup fatal.
+La voix du fou semblait résonner à ses oreilles. Dans l'obscurité des ruines de la Secte du Dao Démoniaque, Wang Lin soupira. Il se rappelait le moment où le fou était apparu lors de sa crise de vie ou de mort sur la planète Suzaku, l'avait serré dans ses bras et avait paré à sa place une technique mortelle.
 
 Il se souvenait encore du troisième rêve, lorsqu'il était devenu un mortel et qu'il flottait avec le fou dans le vide. Dans le Dao des Rêves, il avait rencontré le fou et ils avaient traversé soixante années ensemble.
 
@@ -66,7 +66,7 @@ La plupart d'entre eux étaient en culture recluse, cachés à travers le Contin
 
 De telles figures étaient respectées même par les Grands Empyréens. Après tout, ils étaient les plus puissants sous la juridiction des Grands Empyréens! S'ils ne souhaitaient pas suivre un Grand Empyréen, ces derniers ne les contraindraient pas, à moins qu'ils ne soient comme Luo Yunhai de la Secte de la Grande Âme, qui avait défié un Grand Empyréen.
 
-Et lorsqu'un Ascendant Empyréen choisissait de suivre un Grand Empyréen, il était traité avec égards et faisait partie du noyau dur. C'était parce qu'un Ascendant Empyréen constituait le meilleur gardien lors de la réincarnation d'un Grand Empyréen!!
+Et lorsqu'un Ascendant Empyréen choisissait de suivre un Grand Empyréen, celui-ci, après l'avoir vérifié, le traitait avec égards et en faisait un membre du noyau dur. C'était parce qu'un Ascendant Empyréen constituait le meilleur gardien lors de la réincarnation d'un Grand Empyréen!!
 
 Si un Ascendant Empyréen était tué par un Grand Empyréen, cela ne poserait pas de problème s'il était indépendant, mais s'il était sous les ordres d'un autre Grand Empyréen, ce dernier ne l'accepterait jamais!
 
@@ -90,7 +90,7 @@ Wang Lin savait également qu'il y avait des choses qui n'avaient pas besoin d'�
 
 Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fût extrêmement choquant, comparé au niveau de culture de Wang Lin, cela n'avait aucune importance. L'essentiel résidait dans la décision de Wang Lin.
 
-« Pour attirer l'attention des Grands Empyréens, je dois manifester ma puissance, une culture capable d'éliminer un Exalté Empyréen! Alors, je pourrai faire ce que je veux au sein du clan céleste! »
+« Pour attirer l'attention des Grands Empyréens, je dois manifester ma puissance, une culture capable d'éliminer un Exalté Empyréen! Ainsi, mon nom résonnera dans tout le clan céleste! »
 
 « Avec assez de renommée, les Grands Empyréens viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
@@ -98,11 +98,11 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
-Il attendait l'arrivée de l'Ancêtre de la Secte du Dao Démoniaque. Il allait se maintenir dans une condition optimale pour tester l'étendue de sa puissance.
+Il attendait l'arrivée de l'Ancêtre de la Secte du Dao Démoniaque. Il allait se maintenir dans sa condition optimale pour affronter un Exalté Empyréen et tester l'étendue de sa puissance.
 
 Les Exalté Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exaltés Empyréens pourraient l'aider à le faire.
 
-Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître de la Secte du Dao Démoniaque. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement; il sortit plutôt les dizaines d'âmes originelles de la troisième étape qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
+Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître de la Secte du Dao Démoniaque. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement; il sortit plutôt les dizaines d'âmes originelles qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
 
 Le temps s'écoulait lentement. Plusieurs heures plus tard, alors que l'aube pointait et après avoir dévoré neuf âmes originelles de niveau inférieur à cinq Tribulations Arcaniques, le second vortex se condensa instantanément!
 

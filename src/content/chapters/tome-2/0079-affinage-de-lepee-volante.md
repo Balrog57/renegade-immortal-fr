@@ -57,7 +57,7 @@ Sans un mot, Wang Lin pointa sa main droite et la lumière dorée qui gravitait 
 
 Le regard de Wang Lin parcourut la pièce. Il comprit que la capacité de téléportation de l'épée était liée à sa couleur. En l'absence de maître, ce processus semblait consumer une quantité immense de puissance spirituelle.
 
-Situ Nan dit d'une voix lente: « Plus un trésor possède de conscience, plus il est difficile de le raffiner. Même après avoir tué son maître, il faudra déployer des efforts considérables pour en faire votre propre trésor. »
+Situ Nan dit d'une voix lente: « Plus un trésor possède de conscience, plus il est difficile de le raffiner. Même après avoir tué son maître, il faudra déployer des efforts considérables pour en faire ton propre trésor. »
 
 Wang Lin plissa les yeux. Il savait que cette épée volante possédait une conscience et même une technique de téléportation. Plus l'affinage serait ardu, plus son désir de la posséder serait grand.
 

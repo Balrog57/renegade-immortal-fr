@@ -48,7 +48,7 @@ Les yeux de Wang Lin se rétrécirent. Les paroles de cet homme le touchèrent p
 
 « Tant que je suis heureux, alors tout va bien... Mon rêve est de réussir l'examen impérial afin que mes parents puissent mener une vie digne et ne plus être méprisés par nos proches... » Wang Lin resta silencieux de longues minutes, puis hocha la tête.
 
-Wang Lin leva les yeux vers le plafond. Il ajouta des branches sèches au feu et demanda: « Et vous? Quels sont vos rêves? »
+Wang Lin releva la tête. Il ajouta des branches sèches au feu et demanda: « Et vous? Quels sont vos rêves? »
 
 L'homme d'âge moyen bâilla, semblant accablé par la somnolence. Mais en entendant Wang Lin, il retrouva soudainement de l'entrain et commença à parler avec excitation.
 
@@ -92,7 +92,7 @@ Wang Lin se frotta le front et prit la main droite de l'homme devant ses yeux. A
 
 Tout en marmonnant, son visage s'assombrit et il se recroquevilla en fixant son bras. Sa voix faiblit jusqu'à ce qu'il sombre dans le sommeil.
 
-Wang Lin soupira et se leva pour prendre un linge épais. Sans se soucier de la saleté de l'homme, il le couvrit avec le tissu. Cela sembla troubler le dormeur qui agrippa le linge et se retourna avant de se rendormir, son bras droit tourné vers Wang Lin.
+Wang Lin soupira et se leva pour prendre un vêtement épais. Sans se soucier de la saleté de l'homme, il le couvrit avec ce vêtement. Cela sembla troubler le dormeur qui agrippa le vêtement et se retourna avant de se rendormir, son bras droit tourné vers Wang Lin.
 
 Wang Lin resta assis près du feu, observant les flammes décliner. Il médita en silence dans ce temple désert, tandis que la pluie continuait de tomber.
 
@@ -130,7 +130,7 @@ Les pas de Wang Lin s'arrêtèrent. Il leva les yeux vers le ciel. Un instant pl
 
 À cet instant, Wang Lin ignorait qu'il venait de prononcer des paroles qui résonnaient comme un cycle de réincarnation. Lorsqu'il avait rencontré le fou pour la première fois, il avait eu cette sensation diffuse de l'avoir déjà vu. C'était lors de l'épreuve humaine dans les Terres Déchues, lorsqu'il avait croisé une autre version de lui-même et ce serviteur à l'allure d'intendant.
 
-Cet homme tenait le pichet et s'inquiétait sans cesse du prix du vin.
+Cet homme tenait le pichet de vin d'osmanthe de la ville de Su et s'inquiétait sans cesse du prix du vin.
 
 ***
 

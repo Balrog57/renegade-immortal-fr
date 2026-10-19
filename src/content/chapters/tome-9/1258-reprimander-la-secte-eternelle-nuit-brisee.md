@@ -10,7 +10,7 @@ slug: reprimander-la-secte-eternelle-nuit-brisee
 
 Les yeux de Wang Lin brillaient d'un éclat intense. Cette lueur remplaça soudainement toute autre source de lumière dans le monde, enveloppant l'univers d'une clarté dorée. Même la pluie qui tombait du ciel semblait se transformer en or.
 
-C'était comme si la silhouette de Wang Lin était devenue le soleil levant. La lumière dorée qu'il dégageait jaillissait telle des épées imprégnées de la loi originelle!
+C'était comme si la silhouette de Wang Lin était devenue le soleil levant. La lumière dorée qu'il dégageait était une lumière de soleil imprégnée de la loi originelle!
 
 Alors que cette voix impassible résonnait, un vieil homme aux cheveux blancs, vêtu de gris, apparut dans le rayon de lumière. Son visage parcheminé de rides et son regard semblaient percer les mystères des cieux. À mesure qu'il s'approchait, le ciel et la terre changeaient de couleur, les vents déchiraient les nuages, et il semblait que l'univers entier était sous son contrôle.
 
@@ -42,7 +42,7 @@ Le filet de loi descendit rapidement, enveloppant tout sur son passage. On avait
 
 La lumière dorée émanant du corps de Wang Lin devint de plus en plus éclatante. La terre semblait se transformer en océan, et lui était le soleil qui s'élevait progressivement!
 
-Le premier sort que Wang Lin avait créé: Nuit Brisée! Nuit Brisée contenait la loi originelle. Il l'avait comprise en observant le lever du soleil alors qu'il était encore au stade de Purificateur du Nirvana. Cependant, Nuit Brisée était si puissante que l'énergie originelle requise dépassait ses limites de l'époque.
+Le premier sort que Wang Lin avait créé: Nuit Brisée! Nuit Brisée contenait la loi originelle. Il l'avait comprise en observant la mer alors qu'il était encore au stade de Purificateur du Nirvana. Cependant, Nuit Brisée était si puissante que l'énergie originelle requise dépassait ses limites de l'époque.
 
 Il ne pouvait l'utiliser qu'à un instant précis sans épuiser son énergie originelle.
 
@@ -104,7 +104,7 @@ La lumière dorée projeta un éclat surpuissant. Toute l'obscurité du monde s'
 
 La Nuit Brisée née de la mer contenait la loi originelle. Aucune force ne pouvait empêcher le soleil de se lever, pas même ce filet de loi!
 
-En s'élançant, Wang Lin libéra toute la force de Nuit Brisée. La lumière dorée déferla, capable de déchirer tous les obstacles entre ciel et terre, y compris ce... filet de pêche fait de lois!
+En poussant de ses mains, Wang Lin libéra toute la force de Nuit Brisée. La lumière dorée déferla, capable de déchirer tous les obstacles entre ciel et terre, y compris ce... filet de pêche fait de lois!
 
 Un grondement tonitruant secoua le filet de loi. Des craquements sinistres retentirent, puis il s'effondra, se dissipant dans le vide avec l'obscurité!
 

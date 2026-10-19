@@ -14,7 +14,7 @@ Le corps de Wang Lin affichait une expression grave alors qu'il fixait le jeune 
 
 Ce dernier regarda Wang Lin avec un sourire lugubre. Son corps vacilla, fusionnant avec le monde pour disparaître sans laisser de trace.
 
-L'instant d'après, le jeune homme réapparut aux côtés d'un cultivateur de l'Yin Illusoire, loin de là. L'expression du cultivateur changea radicalement et il battit en retraite précipitamment.
+L'instant d'après, le jeune homme réapparut derrière un cultivateur de l'Yin Illusoire, loin de là. L'expression du cultivateur changea radicalement et il battit en retraite précipitamment.
 
 Non seulement lui, mais tous les cultivateurs environnants s'enfuirent.
 
@@ -48,7 +48,7 @@ L'intention meurtrière dans les yeux du jeune homme s'intensifia alors qu'il la
 
 Le vieil homme à l'intérieur de Wang Lin soupira. « L'héritier du pays de Qing Shui ne peut même plus se souvenir de son propre nom, c'est vraiment pitoyable! » Cependant, le jeune homme resta de marbre, disparaissant pour continuer sa dévoration.
 
-Wang Lin percevait clairement le dégoût de l'âme originelle du vieil homme, qui disparut dans le vide. Lorsqu'il réapparut, il se trouvait aux côtés d'un cultivateur Ascendant, à une grande distance.
+Wang Lin percevait clairement l'indignation de l'âme originelle du vieil homme, qui disparut dans le vide. Lorsqu'il réapparut, il se trouvait aux côtés d'un cultivateur Ascendant, à une grande distance.
 
 « Si tu veux dévorer, alors moi, je vais les faire fuir! » Le corps de Wang Lin s'anima. Sous le regard terrifié du cultivateur Ascendant, Wang Lin lui asséna un coup de pied.
 
@@ -68,7 +68,7 @@ Shengong Hu ne possédait qu'un seul filament de ce tonnerre, et il représentai
 
 Après tant d'années, il n'était capable de former qu'un seul éclair. Ce dernier n'était pas encore parfait, raison pour laquelle il ne l'avait pas utilisé lors du combat précédent.
 
-Ce tonnerre était le plus grand secret de son cœur. C'était grâce à lui qu'il avait placé sa confiance en Wang Lin. À ses yeux, les enseignements de Wang Lin étaient d'une précision absolue. Il était convaincu qu'en continuant de raffiner ce tonnerre, il finirait un jour par trouver l'origine même du tonnerre.
+Ce tonnerre était le plus grand secret de son cœur. C'était aussi grâce à lui que sa vénération pour Wang Lin s'était accrue. À ses yeux, les enseignements de Wang Lin étaient d'une précision absolue. Il était convaincu qu'en continuant de raffiner ce tonnerre, il finirait un jour par trouver l'origine même du tonnerre.
 
 Cependant, en cet instant de vie ou de mort, il n'avait plus le temps de réfléchir et décida de l'utiliser.
 

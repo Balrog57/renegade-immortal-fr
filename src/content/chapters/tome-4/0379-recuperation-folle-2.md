@@ -90,7 +90,7 @@ Même en regardant depuis la grotte 743, rien ne semblait anormal.
 
 La main droite de Wang Lin forma un sceau et il plaça une restriction sur le gisement de veine spirituelle. C'était la même méthode qu'il avait utilisée pour pénétrer dans la grotte 743. Il chargea dans le gisement et réapparut en ses profondeurs.
 
-Il se trouvait désormais au cœur de la montagne. D'innombrables gisements de pierres spirituelles l'entouraient, générant une puissante déferlante d'énergie spirituelle.
+Il se trouvait désormais au fond de la montagne. D'innombrables gisements de pierres spirituelles l'entouraient, générant une puissante déferlante d'énergie spirituelle.
 
 Cette énergie ne pouvait être absorbée directement par les cultivateurs car elle était trop impure; elle devait être convertie au préalable.
 
@@ -100,7 +100,7 @@ La densité de l'énergie spirituelle ici était telle qu'elle créait une press
 
 Wang Lin fut immédiatement frappé par cette force dès son entrée. Cette pression lui donnait l'impression qu'une montagne entière pesait sur ses épaules.
 
-Mais ce poids ne venait pas seulement d'en haut; il compressait le corps de Wang Lin de tous les côtés.
+Mais ce poids ne venait pas seulement d'en haut; il compressait le corps de Wang Lin de tous les côtés, jusque dans chacun de ses muscles.
 
 Des craquements résonnèrent dans ses os. Loin d'être inquiet, Wang Lin était transporté par l'extase. C'était précisément la pression qu'il recherchait. Sous ce poids écrasant, il sentit son âme originelle brisée commencer à se reformer.
 
@@ -116,7 +116,7 @@ La pression sur le corps de Wang Lin devint colossale.
 
 Sous cette force titanesque, les fragments de son âme originelle se condensaient lentement, tels les éclats d'un miroir brisé que l'on recollait avec précision.
 
-Simultanément, une quantité inimaginable d'énergie spirituelle s'engouffra dans son corps. Même son domaine et son sceau ne pouvaient rien y faire.
+Simultanément, une quantité inimaginable d'énergie spirituelle s'engouffra dans son corps. Même les entraves de son domaine et de son sceau furent balayées.
 
 La culture de Wang Lin commença à remonter à une vitesse fulgurante.
 

@@ -8,11 +8,11 @@ slug: lintrus
 ---
 Cette épée brisée était d'un rouge éclatant et, dès son apparition, une monstrueuse énergie de massacre se manifesta. Cette énergie était si puissante qu'elle déferla instantanément hors de la planète, repoussant même les flammes qui l'entouraient.
 
-Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui résidait dans son âme originelle s'était déjà dissipée, ne laissant que cette épée brisée dans son corps.
+Cette épée brisée était la source de l'énergie de massacre de l'Omniscient en robe grise. Après la bataille dans la Terre des Esprits Démoniaques, la moitié brisée était restée dans le corps de Wang Lin. Durant ces trois années, tout en se soignant et en cultivant, il avait également affiné lentement son épée. La partie qui s'était fondue dans son âme originelle avait déjà été affinée, ne laissant que cette épée brisée dans son corps.
 
 « Après trois ans d'affinage, j'ai acquis une certaine compréhension de base. Une fois cet affinage achevé, je pourrai cultiver l'Art Céleste du Massacre sans aucun problème. Il n'y aura plus aucun risque d'explosion lorsque j'atteindrai un million de brins d'énergie de massacre. »
 
-Wang Lin ne pouvait toujours oublier cette énergie de massacre. Après tout, il l'avait cultivée pendant de nombreuses années et avait atteint un stade avancé. À l'époque, c'était avec l'aide de l'Ancien Démon Bei Lou qu'il avait compris les dangers de l'Art Céleste du Massacre.
+Wang Lin ne pouvait toujours oublier cette énergie de massacre. Après tout, il l'avait cultivée pendant de nombreuses années et avait atteint un stade avancé. À l'époque, c'était avec l'aide de l'Ancien Démon Bei Luo qu'il avait compris les dangers de l'Art Céleste du Massacre.
 
 S'il avait continué à le cultiver, son corps se serait effondré pour devenir un véritable brin d'énergie de massacre. Il serait devenu une entité appartenant à l'Omniscient en robe grise.
 
@@ -28,7 +28,7 @@ Un grondement de tonnerre résonna sans fin. Les bords de l'épée brisée comme
 
 Wang Lin n'était pas étranger à ce phénomène, car cela se produisait systématiquement lorsqu'il affinait cette épée auparavant. Cependant, il n'avait pas de temps à perdre aujourd'hui; il devait affiner cette épée pour qu'elle lui appartienne pleinement. Il pourrait alors cultiver à nouveau l'Art Céleste du Massacre, car c'était un puissant sort à la fois offensif et défensif.
 
-S'il n'avait pas terminé sa première transformation, Wang Lin n'aurait pas été confiant, mais à présent, il en était sûr à 70 %!
+Avant la réussite des Neuf Transformations Mystérieuses, Wang Lin n'était pas pleinement confiant, mais à présent, il en était sûr à 70 %!
 
 Il détourna son regard de l'épée qu'il affinait, prit une profonde inspiration et forma un sceau de ses deux mains. La flamme dans son œil droit devint si ardente qu'elle semblait pouvoir embraser les cieux. Wang Lin pointa le ciel, et sa seconde âme originelle fit de même. À cet instant, un feu d'une puissance inimaginable jaillit de l'âme originelle de Wang Lin. Il s'échappa par sa main droite pour former une mer de flammes dans la voûte céleste.
 
@@ -70,7 +70,7 @@ Wang Lin fixa le trident, mais soudain, son expression changea et il leva les ye
 
 Non loin de la planète où se trouvait Wang Lin, une autre planète subsistait. C'était également l'une des planètes principales de la Secte Divine de l'Oiseau Vermillon. Cette planète était parsemée de montagnes rouge feu et possédait une grande beauté.
 
-À cet instant, une femme était agenouillée sur le plus haut sommet. Elle était magnifique, mais son visage portait une expression d'amertume alors qu'elle restait immobile en prière.
+À cet instant, une femme était agenouillée sur le plus haut sommet. Elle était magnifique, mais son visage portait une expression d'amertume alors qu'elle restait immobile.
 
 Devant elle se dressait une sculpture noire représentant Wang Lin. Derrière la statue se trouvait l'entrée d'une grotte plongée dans les ténèbres.
 

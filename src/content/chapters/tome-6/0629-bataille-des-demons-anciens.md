@@ -8,7 +8,7 @@ slug: bataille-des-demons-anciens
 ---
 La méthode pour briser le sceau du démon ancien ne consistait pas à se concentrer sur un seul point. Au contraire, de nombreux points répartis sur l'ensemble du sceau devaient être attaqués simultanément pour parvenir à le rompre.
 
-Si la puissance était insuffisante, l'attaque serait vaine. Cependant, les un million de filaments d'énergie de massacre de Wang Lin avaient été nourris pendant cent ans; la puissance de ce sort était donc absolument terrifiante!
+Si la puissance était insuffisante, l'attaque serait vaine. Cependant, les un million de filaments d'énergie de massacre de Wang Lin avaient été nourris pendant dix ans; la puissance de ce sort était donc absolument terrifiante!
 
 On pouvait dire qu'après avoir atteint le stade de la petite perfection dans l'Art du Massacre Céleste, celui-ci avait supplanté le Doigt de la Mort! Il était devenu l'une des trois techniques ultimes de Wang Lin, aux côtés de l'usage du Doigt Démoniaque sous l'armure de diable et du fleuve des enfers!
 
@@ -24,7 +24,7 @@ Une fois l'écran brisé, Wang Lin pénétra à l'intérieur. La disparition de 
 
 « Cultivateur insignifiant, même si tu bénéficies de la protection de Bei Luo, puisque tu as osé détruire mon écran démoniaque, tu mourras sans aucun doute! » La voix provenant de l'ombre semblait surgir du neuvième niveau de l'enfer; elle était d'une instabilité terrifiante.
 
-L'ombre démoniaque agita la main et les cieux changèrent soudainement. La capitale entière disparut, et en un instant, les environs furent transformés en un monde de rouge. Ce rouge était celui des flammes! Le sol fut recouvert de magma. L'éclat intense du feu illumina même le ciel d'une teinte incandescente.
+L'ombre démoniaque agita la main droite et les cieux changèrent soudainement. La capitale entière disparut, et en un instant, les environs furent transformés en un monde de rouge. Ce rouge était celui des flammes! Le sol fut recouvert de magma. L'éclat intense du feu illumina même le ciel d'une teinte incandescente.
 
 Des sons d'explosions résonnèrent dans toute la région et d'importantes masses d'air brûlant jaillirent du sol. Cette chaleur se mua rapidement en illusions, et bientôt, des centaines de mirages entouraient le démon ancien.
 
@@ -38,11 +38,11 @@ Quant aux attaques de l'ombre, Wang Lin les ignora totalement. Bien que certains
 
 Il se déplaçait avec la rapidité de l'éclair, fonçant vers le géant démon ancien formé par le nuage pourpre dans le ciel.
 
-Le démon ancien eut un reflet de moquerie et laissa échapper un reniflement glacial. « L'armure de diable d'un diable égaré sous un démon ancien... Cependant, tu n'as pas de cœur de diable, c'est donc un pur gaspillage pour toi! » Il ouvrit la bouche et poussa un rugissement qui transportait une dense énergie spirituelle démoniaque directement vers Wang Lin.
+Le démon ancien eut un reflet de moquerie et laissa échapper un reniflement glacial. « L'armure de diable d'un diable égaré sous un diable ancien... Cependant, tu n'as pas de cœur de diable, c'est donc un pur gaspillage pour toi! » Il ouvrit la bouche et poussa un rugissement qui transportait une dense énergie spirituelle démoniaque directement vers Wang Lin.
 
 Une lueur froide traversa les yeux de Wang Lin alors qu'il pointait le démon ancien du doigt et déclarait: « Transformation Démoniaque! »
 
-L'énergie démoniaque provenant de l'armure sembla exulter, et d'innombrables filaments d'énergie s'engouffrèrent dans le corps de Wang Lin par sa bouche et son nez. L'énergie circula dans tout son organisme avant de jaillir de son doigt.
+L'énergie démoniaque provenant de l'armure sembla exulter, et d'innombrables filaments d'énergie s'engouffrèrent dans le corps de Wang Lin par sa bouche, son nez et ses sept orifices. L'énergie circula dans tout son organisme avant de jaillir de son doigt.
 
 À cet instant, les cheveux de Wang Lin flottaient au vent et il était imprégné d'une telle énergie démoniaque qu'il semblait véritablement s'être transformé en démon. Cette attaque représentait l'apogée de sa puissance, utilisant l'armure noire tout en étant sous forme de démon!
 
@@ -60,7 +60,7 @@ Une rivière des enfers s'imposa dans la zone, formant un chemin sous les pieds 
 
 Les pas de Wang Lin restèrent sereins alors qu'il se rapprochait encore de 33 mètres!
 
-Le démon ancien poussa un reniflement froid, sa main se transformant en griffe pour frapper Wang Lin. Cette attaque était chargée d'une dense énergie spirituelle démoniaque. Toute l'énergie démoniaque de l'armure se dissipa soudainement pour retourner dans son corps. Puis, les un million de filaments d'énergie de massacre brillèrent intensément. Wang Lin poussa un rugissement. Au lieu de reculer, il chargea et percuta la griffe du démon ancien.
+Le démon ancien poussa un reniflement froid, sa main se transformant en griffe pour frapper Wang Lin. Cette attaque était chargée d'une dense énergie spirituelle démoniaque. Toute l'énergie démoniaque de l'armure se dissipa soudainement pour se replier dans le corps de Wang Lin. Puis, les un million de sceaux de vie brillèrent intensément. Wang Lin poussa un rugissement. Au lieu de reculer, il chargea et percuta la griffe du démon ancien.
 
 Bang!
 
@@ -70,7 +70,7 @@ Il fit un autre pas et franchit encore 33 mètres!
 
 La moquerie dans les yeux du démon ancien s'estompa progressivement pour être remplacée par une intention meurtrière glaciale. Lorsqu'il affrontait Wang Lin précédemment, il ne cherchait qu'à s'amuser. Cependant, à cet instant précis, alors que Wang Lin se rapprochait, il sentit que quelque chose clochait.
 
-« Bei Luo doit avoir une intention bien précise en envoyant cet individu! » Une lueur de soif de sang apparut dans les yeux du démon ancien. Il ne voulait pas utiliser de sorts de démons anciens, car chaque usage lui coûtait énormément d'énergie.
+« Bei Luo doit avoir une intention bien précise en envoyant cet individu! » Une lueur de soif de sang apparut dans les yeux du démon ancien. Il ne voulait pas utiliser de sorts de démons anciens, sauf en cas d'absolue nécessité, car chaque usage lui coûtait énormément d'énergie.
 
 « Sort Démoniaque: Massacre Démoniaque! » Le démon ancien forma un sceau. Des filaments d'énergie spirituelle démoniaque, prenant la forme de vortex, jaillirent de son corps.
 

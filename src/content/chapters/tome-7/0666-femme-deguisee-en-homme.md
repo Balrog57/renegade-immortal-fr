@@ -46,7 +46,7 @@ Il sembla remarquer le regard de Wang Lin. Il se retourna pour l'observer un ins
 
 Ce jeune homme était en réalité une femme déguisée en homme. Son visage était dissimulé par un sortilège. Wang Lin l'avait percé la veille, mais quant à son apparence réelle, il n'avait pas cherché à briser le sort pour la découvrir.
 
-Après être retourné dans sa demeure, Wang Lin s'assit en position du lotus. Il frappa son sac de rangement et mille jades célestes s'en échappèrent immédiatement. Sa main traça un sceau, projetant plusieurs rayons de lumière vers l'amas de pierres précieuses. La riche énergie spirituelle céleste fut instantanément contenue autour de lui, sans la moindre fuite.
+Après être retourné dans sa demeure, Wang Lin s'assit en position du lotus. Il frappa son sac de rangement et mille jades célestes s'en échappèrent immédiatement. Sa main traça un sceau, projetant plusieurs rayons de lumière sur les jades célestes qui l'entouraient. La riche énergie spirituelle céleste fut instantanément contenue autour de lui, sans la moindre fuite.
 
 Wang Lin ferma les yeux et commença sa culture. Des filaments d'énergie spirituelle céleste pénétrèrent son corps et circulèrent lentement en lui.
 
@@ -66,7 +66,7 @@ Alors qu'il réfléchissait, il tourna la tête. Portée par une légère brise,
 
 Wang Lin agita sa main droite pour lever la restriction sur la demeure. Le vieil homme entra rapidement et, après une hésitation, abaissa lui aussi son niveau de culture au stade de la Formation du Noyau. Il pénétra dans la pièce avec un sourire amer au fond du cœur.
 
-« Aîné, j'étais pressé la dernière fois et n'ai pas pu me présenter. Je suis Sun Qiming, de la famille Sun. Je suis le responsable de cette ville. Puis-je connaître votre nom, Aîné? » Le vieil homme se montrait extrêmement respectueux. Si l'Ancien Ancestral s'était déplacé personnellement, c'était une personne qu'il ne pouvait absolument pas offenser.
+« Aîné, j'étais pressé la dernière fois et n'ai pas pu me présenter. Je suis Sun Qiming, de la branche de la famille Sun. Je suis le responsable de cette ville. Puis-je connaître votre nom, Aîné? » Le vieil homme se montrait extrêmement respectueux. Si l'Ancien Ancestral s'était déplacé personnellement, c'était une personne qu'il ne pouvait absolument pas offenser.
 
 Wang Lin répondit calmement: « Xu Mu. »
 
@@ -98,7 +98,7 @@ Le vieil homme quitta précipitamment la demeure en poussant un long soupir de s
 
 L'expression du vieil homme devint brusquement pâle. Il se retourna prestement et s'inclina respectueusement avant de disparaître dans un souffle de vent. Il ne réapparut que dans une partie reculée de la ville, essuyant la sueur qui coulait sur son front. Dès l'instant où les mots de Wang Lin l'avaient atteint, il avait compris que toutes ses pensées avaient été lues en lui. Un tel niveau de clairvoyance et de ruse le terrifiait.
 
-Il n'avait fait qu'exécuter les ordres de sa famille en utilisant la pilule fausse divine de rang 8 pour tester Wang Lin. Si Wang Lin acceptait le jeton, cela signifiait qu'il était très probablement un cultivateur Ascendant. S'il n'était pas tenté, l'ordre était d'évacuer tous les membres de la famille de la ville sans donner d'explications.
+Il n'avait fait qu'exécuter les ordres de sa famille en utilisant la pilule fausse divine de rang 8 pour tester Wang Lin. Si Wang Lin acceptait le jeton, cela signifiait qu'il était très probablement un cultivateur Ascendant. S'il n'était pas tenté, l'ordre était seulement de retirer toutes les forces de la famille hors de la ville, sans autre précision.
 
 Il avait obtenu sa réponse, mais son cœur restait troublé.
 

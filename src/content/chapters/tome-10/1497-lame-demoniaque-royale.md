@@ -16,7 +16,7 @@ L'expression de Wang Lin était calme alors que son regard perçait celui du Die
 
 Les étoiles de l'Ancien Dieu entre les sourcils de Wang Lin tournèrent, et l'aura de l'Ordre Ancien se propagea. La tête de l'Ordre Ancien apparut derrière lui et contempla le démon ancien comme s'il observait un subalterne de son propre clan.
 
-L'esprit du Dieu de Sang vacilla. Le regard de Wang Lin et celui de la tête fusionnèrent. Le Dieu de Sang se sentit comme un enfant; ce regard perça ses yeux et pénétra jusqu'à son âme originelle.
+L'esprit du Dieu de Sang vacilla. Le regard de Wang Lin et celui de la tête fusionnèrent. Ses yeux semblaient sur le point d'éclater; ce regard, tel une épée, perça ses yeux et pénétra jusqu'à son âme originelle.
 
 Ses oreilles bourdonnèrent et il poussa un cri misérable en crachant du sang. Son corps trembla et son mouvement de retraite s'interrompit brusquement. Il n'osait plus bouger d'un pouce sous ce regard!
 
@@ -118,8 +118,8 @@ Le démon ancien commença à hurler de terreur: « Ne me tue pas! Je connais un
 
 Les yeux de Wang Lin brillèrent, mais il ne prêta aucune attention au démon. Il regarda plutôt Maître Lu Fu, dont le visage avait pâli en voyant le coup de poing de Wang Lin.
 
-« Ainsi, c'est pour cela que vous m'avez empêché d'accomplir son karma. »
+« Ainsi, c'est pour cela que vous m'avez empêché d'accomplir mon karma. »
 
-Maître Lu Fu réfléchit et dit: « En effet. Compagnon Cultivateur a capturé ce démon, mais ce vieil homme doit encore se préparer au combat, je ne vous accompagnerai donc pas! »
+Maître Lu Fu réfléchit et dit: « En effet. Compagnon Cultivateur a capturé ce démon, mais ce vieil homme doit encore se préparer au combat, je ne vous raccompagnerai donc pas! »
 
 Bien que Wang Lin possède deux cultivateurs de la troisième étape comme esclaves, Maître Lu Fu restait lui-même un cultivateur de la troisième étape. Il avait sa propre fierté et, malgré son choc, il était incapable de s'abaisser ainsi!

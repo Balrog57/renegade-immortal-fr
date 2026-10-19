@@ -60,7 +60,7 @@ Cette capacité de récupération ne pouvait plus être classée comme un simple
 
 Finalement, le taux de régénération de Wang Lin surpassa celui de l'effondrement et son doigt fut totalement restauré. Ignorant la force destructrice qui tentait de le briser, il frappa entre les sourcils de l'homme d'âge moyen.
 
-Un grondement tonitruant balaya l'esprit du vieil homme. Il contenait une puissance capable de pulvériser une planète, jaillissant simultanément du doigt de Wang Lin et de l'homme d'âge moyen.
+Un grondement tonitruant balaya l'esprit du vieil homme. Il contenait une puissance capable d'anéantir le ciel étoilé, jaillissant simultanément du doigt de Wang Lin et de l'homme d'âge moyen.
 
 Des fracas de tonnerre secouèrent les environs. Le brouillard entourant l'âme originelle de Wang Lin se dissipa et le vacarme fit également s'effondrer l'esprit du vieil homme. Ce choc affecta son corps, qui commença à lui aussi à se désagréger.
 

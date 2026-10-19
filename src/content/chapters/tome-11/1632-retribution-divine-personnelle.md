@@ -10,7 +10,7 @@ slug: retribution-divine-personnelle
 
 « Inutile de jouer les mystérieux! » grogna Wang Lin avant de s'élancer tel une météorite. Il ignora le jeune homme et fendit l'air de ce vaste et étrange continent.
 
-Cependant, après avoir parcouru moins de mille pieds, les yeux de Wang Lin s'illuminèrent et il s'arrêta net. Il scruta l'horizon, puis fit un geste de la main vers l'avant.
+Cependant, après avoir parcouru moins de mille pieds, les yeux de Wang Lin s'illuminèrent et il s'arrêta net. Il scruta l'horizon, puis frappa l'air devant lui de la paume.
 
 Sous l'effet de ce mouvement, des ondulations apparurent devant lui, révélant une barrière semblable à une paroi d'eau.
 
@@ -22,7 +22,7 @@ Cette barrière était imprégnée d'une puissante énergie céleste. Elle dissi
 
 Il sourit et ajouta doucement: « À travers les âges, tu n'es pas le premier cultivateur défiant le ciel à atteindre la troisième étape, mais aucun d'entre eux n'a survécu à cette rétribution divine... J'ai hâte de voir si toi, tu y parviendras. »
 
-Tout en parlant, le jeune homme sortit de la barrière d'eau. Il leva sa main droite et pointa Wang Lin du doigt.
+Tout en parlant, le jeune homme sortit de la barrière d'eau, à plus de cent pieds de Wang Lin. Il leva sa main droite et pointa Wang Lin du doigt.
 
 « En as-tu l'audace? »
 

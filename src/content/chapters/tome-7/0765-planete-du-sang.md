@@ -21,7 +21,7 @@ L'Ancêtre Sanguin était un cultivateur porteur de secrets; il s'était donc mo
 
 Sur la carte que l'Omniscient avait donnée à Wang Lin, la Planète du Sang était extrêmement isolée, sans aucune planète abritant de puissants cultivateurs à proximité. C'était d'ailleurs l'une des raisons pour lesquelles le corps originel de Wang Lin l'attaquait.
 
-Le corps originel de Wang Lin se dirigea vers la Planète du Sang, l'expression glaciale et un fleuve de pierres le suivant dans son sillage. L'espace était si vaste que le corps originel de Wang Lin semblait insignifiant en comparaison. En chemin, il ne marqua aucune pause; il chargea sans relâche vers la Planète du Sang, porté par une intention meurtrière froide et ce fleuve de pierres.
+Le corps originel de Wang Lin se dirigea vers la Planète du Sang, l'expression glaciale et un fleuve de pierres le suivant dans son sillage. L'espace était si vaste, le Système Stellaire de l'Alliance semblait sans fin, et le corps originel de Wang Lin paraissait insignifiant en comparaison. En chemin, il ne marqua aucune pause; il chargea sans relâche vers la Planète du Sang, porté par une intention meurtrière froide et ce fleuve de pierres.
 
 Plusieurs mois passèrent. Lorsqu'il croisa d'autres cultivateurs, tous furent stupéfaits et n'osèrent agir avec précipitation. Ils ne savaient rien des dieux anciens. Même parmi les quatre systèmes stellaires, seules quelques personnes connaissaient leur existence, et ce, uniquement à travers la lecture de registres antiques.
 

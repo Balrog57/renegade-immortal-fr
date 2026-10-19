@@ -8,7 +8,7 @@ slug: alors-son-nom-est-wang-lin
 ---
 À l'intérieur de la formation de feu, alors que le géant de feu s'inclinait, Wang Lin avança calmement. Le géant permit à Wang Lin de monter sur sa main et le souleva jusqu'à sa tête. Wang Lin descendit de la paume pour se tenir sur le sommet du géant de feu.
 
-Wang Lin leva la main et pointa l'horizon.
+Wang Lin leva la main et pointa devant lui.
 
 Le géant se redressa soudainement et poussa un rugissement vers la direction indiquée par Wang Lin. Tandis qu'il rugissait, les neuf qilins de feu se levèrent et tremblèrent. Leurs expressions devinrent féroces et ils poussèrent également des rugissements.
 
@@ -18,7 +18,7 @@ En conséquence, le géant et les neuf qilins rugissaient face aux centaines de 
 
 Sous ce rugissement soudain, de nombreux cultivateurs autour de la tour reculèrent par réflexe, le visage pâle. Le sang jaillit de la bouche des cultivateurs de bas niveau. Ils battirent en retraite et s'assirent, accablés.
 
-Sous leurs regards paniqués, Wang Lin se tenait sur la tête du géant, suivi par les neuf qilins. Le géant fit un pas en avant et agita son bras.
+Sous leurs regards paniqués, Wang Lin se tenait sur la tête du géant, suivi par les neuf qilins. Le géant fit un pas en avant et agita ses deux bras.
 
 D'un seul geste, le monde de la formation de feu s'effondra soudainement!
 
@@ -32,7 +32,7 @@ Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge m
 
 « Le Seigneur Général de l'Eau est en culture isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau!! »
 
-« Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet; il est l'esprit de la formation d'eau, et avec lui, la puissance de celle-ci sera doublée. Cet envahisseur méprisable est mort! »
+« Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet; il est l'esprit de la formation d'eau, et avec lui, la puissance de celle-ci sera multipliée. Cet envahisseur méprisable est mort! »
 
 À l'apparition de l'homme d'âge moyen, les cultivateurs de la Secte Gui Yi environnants ressentirent une nouvelle force les envahir et devinrent exaltés.
 
@@ -60,7 +60,7 @@ Directement face à Wang Lin, l'homme d'âge moyen aux cheveux noirs se tenait a
 
 « Wang Lin!! » Dès que Wang Lin posa les yeux sur lui, l'homme poussa un rugissement soudain. Il bondit dans les airs et des ondes surgirent sous ses pieds. Une vague colossale déferla vers Wang Lin.
 
-Des rugissements retentirent dans la mer entourant Wang Lin. Puis, quatre murs d'eau surgirent, l'emprisonnant totalement!
+Des rugissements retentirent dans la mer entourant Wang Lin. Puis, quatre murs d'eau, hauts d'environ dix mille pieds, surgirent, l'emprisonnant totalement!
 
 Simultanément, l'homme aux cheveux noirs poussa un cri de guerre et bondit dans les airs avec sa lance. Il la projeta violemment vers le bas, en direction de Wang Lin qui était piégé par les remparts d'eau!
 
@@ -72,11 +72,11 @@ Même le corps de Wang Lin et le géant de feu furent engloutis par la mer lorsq
 
 Alors que Wang Lin était totalement immergé, la lance formée par la pluie transperça également l'océan.
 
-La mer rugit et des grondements de tonnerre résonnèrent, déclenchant des vagues titanesques!
+La mer rugit, gronda sans cesse et déclencha des vagues titanesques!
 
 Wang Lin et le géant de feu disparurent du monde. Seul resta l'homme d'âge moyen aux cheveux noirs et au visage superbe!
 
-L'homme affichait une expression froide et orgueilleuse lorsqu'il déclara lentement: « Seulement ce niveau de culture... Je suis l'esprit de l'eau, donc au sein de la formation, je suis un dieu! Ton essence de feu n'a aucune utilité ici! »
+L'homme affichait une expression froide et orgueilleuse lorsqu'il déclara lentement: « Seulement ce niveau de culture... Je suis l'esprit de l'eau, donc au sein de la formation, je suis un dieu! Ton essence de feu ne suffit pas! »
 
 Alors que ses paroles résonnaient, tous les cultivateurs de la Secte Gui Yi autour de la tour poussèrent des acclamations.
 
@@ -104,8 +104,8 @@ Wang Lin murmura doucement en sortant lentement de l'eau.
 
 Ses paroles étaient d'un calme désinvolte, mais elles plongèrent le Général de l'Eau dans une terreur profonde.
 
-À cet instant, à l'extérieur des cinq anneaux, le mystérieux Grand Empyréen Xuan Luo se tenait là, observant la scène.
+À cet instant, à l'extérieur des cinq anneaux, le mystérieux Grand Empyréen Xuan Luo, jeune homme aux cheveux noirs, se tenait là, observant la scène.
 
 En entendant les paroles de Wang Lin, le Grand Empyréen Xuan Luo esquissa un sourire satisfait.
 
-« Alors ce gamin s'appelle Wang Lin. Très bien, très bien! L'armure de la Secte Gui Yi est célèbre même sur le Continent Astral Immortel! Qu'il soit capable de la percer ainsi... il est vraiment doué! »
+« Alors ce gamin s'appelle Wang Lin. Très bien, très bien! L'armure de la Secte Gui Yi est célèbre même chez les Immortels! Qu'il soit capable de la percer ainsi... il est vraiment doué! »

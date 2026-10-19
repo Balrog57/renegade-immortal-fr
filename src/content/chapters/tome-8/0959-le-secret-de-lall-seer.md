@@ -22,7 +22,7 @@ En vérité, Wang Lin avait spéculé que l'Omniscient se préparerait ainsi pou
 
 Tout était un peu trop fluide, comme si chaque chose se déroulait exactement selon le plan de Wang Lin.
 
-Wang Lin observa les lieux familiers de la Secte du Destin Céleste en fronçant les sourcils. Après avoir réfléchi un instant, il descendit vers le Pavillon du Bois Pourpre. Un seul chemin y menait, un sentier bordé de rochers escarpés et envahi par une végétation luxuriante.
+Wang Lin observa les lieux familiers de la Secte du Destin Céleste en fronçant les sourcils. Après avoir réfléchi un instant, il se dirigea vers le Pavillon du Bois Pourpre. Un seul chemin y menait, un sentier bordé de rochers escarpés et envahi par une végétation luxuriante.
 
 C'était alors le coucher du soleil. Le vent soufflait, apportant une fraîcheur mêlée au bruissement des feuilles. On entendait même le murmure de l'eau au loin.
 
@@ -80,7 +80,7 @@ Devant lui se dressait une montagne perçant les cieux. Son sommet était envelo
 
 Secte du Destin Céleste, Montagne Pourpre.
 
-En contemplant ce pic familier, Wang Lin entra en transe. C'était comme s'il retournait dans le passé et voyait un jeune homme gravir la montagne étape par étape, s'imposant peu à peu sur ces lieux.
+En contemplant ce pic familier, Wang Lin entra en transe. C'était comme s'il retournait dans le passé et voyait un jeune homme arrivé tout juste de la planète Suzaku gravir la montagne étape par étape, s'imposant peu à peu sur ces lieux.
 
 Alors qu'il sombrait dans ses pensées, le vent de la montagne souffla, glacial. Sans être un froid mortel, il balayait toute chaleur pour ne laisser place qu'à la fraîcheur.
 

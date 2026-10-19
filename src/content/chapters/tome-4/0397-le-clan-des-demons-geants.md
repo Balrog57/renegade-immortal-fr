@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 397 - Giant Demon Clan
 slug: le-clan-des-demons-geants
 ---
-L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau spirituel.
+L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau de l'âme.
 
 Avec ces douze fragments d'âmes de la Transformation de l'Âme, la puissance de ce drapeau était déjà suffisante pour ébranler les cieux.
 
@@ -40,7 +40,7 @@ Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pou
 
 Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade à la main. Son visage était pâle et empreint de confusion.
 
-« Ceng Niu a tué Li Yuanfeng de Xue Yue. D'après ce que je sais de lui, je crains que sa prochaine cible ne soit l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
+« Ceng Niu a tué Li Yuanfeng de Xue Yu. D'après ce que je sais de lui, je crains que sa prochaine cible ne soit l'ancêtre... S'il vient, c'est qu'il est certain de son coup... Que dois-je faire... »
 
 « Bien que l'ancêtre ait tort, il est l'espoir du Clan des Démons Géants; tout ce qu'il a fait l'était pour le futur de notre clan. »
 
@@ -88,7 +88,7 @@ Le regard de Wang Lin fut comme un éclair lorsqu'il fixa le vieillard et lâcha
 
 « Ceng Niu... c'est lui qui a vaincu Papillon Rouge! »
 
-« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a transformé Xue Yue en un pays de culture de rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yue! »
+« C'est le Ceng Niu qui a tué Li Yuanfeng, qui a transformé Xue Yu en un pays de culture de rang 3 et qui a scellé tous les cultivateurs de la Formation de l'Âme de Xue Yu! »
 
 « Le numéro un des cultivateurs sous le stade de la Transformation de l'Âme! »
 
@@ -98,7 +98,7 @@ Même le vieillard qui avait pris la parole prit une profonde inspiration. Il re
 
 Les yeux de Wang Lin étaient glacials lorsqu'il répondit: « Tuer! »
 
-L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan des Démons Géants n'est pas Xue Yue; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
+L'expression du vieillard se décomposa. Il laissa échapper un rire furieux en pointant Wang Lin du doigt: « On m'avait dit que tu étais arrogant. Maintenant que je te vois, je constate que c'est vrai! Ceng Niu, mon Clan des Démons Géants n'est pas Xue Yu; comment pourrions-nous te laisser massacrer qui bon te semble? Aujourd'hui, sans même que l'ancêtre ait besoin de se montrer, mon clan va te tuer! »
 
 Sur ces mots, le vieillard frappa son sac de rangement et un jeton noir en émergea. Il brandit le jeton et hurla: « En ma qualité d'Ancien du Clan des Démons Géants, j'ordonne à tous les membres du clan d'utiliser toutes leurs forces pour éliminer Ceng Niu! »
 

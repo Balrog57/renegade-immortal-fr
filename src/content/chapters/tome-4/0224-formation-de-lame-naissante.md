@@ -98,7 +98,7 @@ Après dix jours, Wang Lin quitta l'espace défiant le ciel. Au moment où il r�
 
 Son corps principal et son avatar étaient à l'étape finale de la fusion. Si un échec survenait ici, tous ces efforts seraient vains. Wang Lin restait d'un calme absolu, totalement absorbé par ce processus de fusion.
 
-Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: un fil de tribulation divine. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
+Le temps passa lentement. Outre le Royaume Ji, un autre obstacle se dressait devant lui: un fil de rétribution divine. Quant à savoir si l'opération serait un succès, nul ne pouvait en être certain.
 
 Plus de mille ans d'énergie spirituelle stockée dans les sept Fours à Pilules « Vol de Ciel » étaient lentement aspirées par Wang Lin. Sa tactique d'Ancien Dieu absorbait cette énergie comme un trou noir.
 
@@ -198,7 +198,7 @@ Sima Yunnan réfléchit: « Si cet homme est celui que Xu Li décrit, il doit ê
 
 À cet instant, toutes les sectes et familles de cultivateurs commençaient à affluer. Hormis les grandes sectes accueillies personnellement par Sun Zhenwei, tous les autres étaient conduits jusqu'à la salle principale par des disciples de la secte.
 
-Bientôt, le hall fut presque comble. Certains invités, plus réservés, s'assirent dans des coins ou se mirent en culture, les yeux clos.
+Bientôt, le hall fut presque comble. Certains invités, plus réservés, s'assirent dans des coins, buvant seuls, ou se mirent en culture, les yeux clos.
 
 Le long des murs de la salle principale se tenait une rangée de disciples de la secte extérieure, tous au stade avancé de l'Établissement des Fondations. Ils se tenaient là, le dos droit comme des pins, le regard fixé devant eux.
 

@@ -44,7 +44,7 @@ En route vers la Planète des Cinq Éléments, Wang Lin songeait au passé. Il a
 
 « Na Duo possède un Royaume Ji aux cinq couleurs... » murmura Wang Lin alors que la Bête des Limbes pénétrait dans un domaine stellaire totalement inconnu.
 
-Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de votre culture. C'était comme si cet endroit était détaché du Vide Brillant.
+Ce domaine était invisible au Sens Divin depuis l'extérieur, quelle que soit la puissance de sa culture. C'était comme si cet endroit était détaché du Vide Brillant.
 
 Soudain, Wang Lin vit la Planète des Cinq Éléments, telle une fleur épanouie, surgir devant lui.
 

@@ -30,11 +30,11 @@ La femme tourna les yeux vers la pluie et murmura: « Si même l'Ascendant Empyr
 
 « La réincarnation... Je me suis toujours demandé si j'avais eu une vie antérieure. Sinon, pourquoi aimerais-je le rouge ou les papillons? Je m'interrogeais aussi sur l'origine de mes préférences. Rien ne surgit du néant; si cela ne vient pas de cette vie, c'est qu'il vient de la précédente. »
 
-« J'étais appelée "Papillon Rouge" dans ma vie antérieure, n'est-ce pas? » La femme ne tourna pas la tête, sa voix demeurant calme. « Pourtant, dans les rêves de ma vie antérieure, il y avait une autre vie avant elle... Dans cette vie, je vous ai aussi vu. »
+« J'étais appelée "Papillon Rouge" dans ma vie antérieure, n'est-ce pas? » La femme ne tourna pas la tête, sa voix demeurant calme. « Pourtant, dans les rêves de ma vie antérieure, il y avait une autre vie avant elle... Dans cette vie-là, je vous ai aussi vu. »
 
 Wang Lin fut frappé de stupeur.
 
-Qing Hong fixa l'horizon en poursuivant: « Dans cette existence, je me souviens que vous m'avez posé une question. Une question dont je n'ai obtenu la réponse qu'à présent. Voulez-vous l'entendre? »
+Qing Hong fixa l'horizon en poursuivant: « Dans cette vie-là, je me souviens que vous m'avez posé une question. Une question dont je n'ai obtenu la réponse qu'à présent. Voulez-vous l'entendre? »
 
 Wang Lin réfléchit silencieusement un instant avant de demander: « Quelle question vous ai-je posée? »
 
@@ -48,11 +48,11 @@ L'expression de Qing Hong devint complexe lorsqu'elle chuchota: « Oublier le pa
 
 « Je comprends. » Wang Lin laissa échapper un soupir. Il savait que Papillon Rouge se souvenait de quelque chose, mais ses paroles sur cette vie précédant la vie antérieure firent trembler le cœur de Wang Lin. Il repensa au Dao des rêves sur la planète Suzaku, où, sous un rideau de pluie semblable, une femme était apparue devant lui, tenant un nouveau-né.
 
-Un papillon rouge se trouvait alors dans la pluie, s'abritant sous une feuille. Tandis que la femme cherchait un nom pour l'enfant, il avait murmuré ces mots: « Papillon Rouge ».
+Un papillon rouge se trouvait alors dans la pluie, s'abritant sous une feuille. Lorsque la femme lui demanda de donner un nom à l'enfant, il avait murmuré ces mots: « Papillon Rouge ».
 
 Wang Lin resta pensif, puis fit volte-face pour s'éloigner.
 
-« J'ai déjà oublié tant de choses de cette vie. Je ne me souviens que de vous et de cette question... Et d'une autre... Il vous a dit quelque chose. »
+« J'ai déjà oublié tant de choses de cette vie-là. Je ne me souviens que de vous et de cette question... Et d'une autre... Il vous a dit quelque chose. »
 
 « Je me souviens encore de cette phrase. » Qing Hong ferma les yeux, et sa voix fut suave.
 
@@ -82,7 +82,7 @@ Wang Lin, de son côté, restait plongé dans ses pensées.
 
 Les paroles de cette figure retentirent une fois de plus à ses oreilles:
 
-« Ciel et terre!! Quel est l'intérêt d'être au sommet des cieux et de la terre?! Quel intérêt y a-t-il à être adoré par tous?! Quel sens donner à la récitation infinie des écritures?! Si le monde est ainsi, pourquoi ne pas le détruire?! Si toute vie est ainsi, pourquoi ne pas disparaître?! Si les écritures sont ainsi, pourquoi ne pas y mettre fin?! Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour plonger la terre dans le sommeil, pour inverser le cours de la rivière des enfers, pour arrêter la réincarnation et faire que le monde... n'existe plus!!! »
+« Ciel et terre!! Quel est l'intérêt d'être au sommet des cieux et de la terre?! Quel intérêt y a-t-il à être adoré par tous?! Quel sens donner à la récitation infinie des écritures?! Si le monde est ainsi, pourquoi ne pas le détruire?! Si toute vie est ainsi, pourquoi ne pas disparaître?! Si les écritures sont ainsi, pourquoi ne pas y mettre fin?! Puisqu'il en est ainsi, j'utiliserai ma propre méthode pour forcer le ciel à fermer les yeux, pour plonger la terre dans le sommeil, pour inverser le cours de la rivière des enfers, pour arrêter la réincarnation et faire que la voûte céleste... soit à jamais sans pensée!!! »
 
 Wang Lin marmonna ces paroles tandis qu'elles tourbillonnaient dans son esprit. Cette voix devint de plus en plus assourdissante, jusqu'à ce que le ciel se déchire, que la terre tremble et qu'une tempête s'abatte sur le Continent Astral Immortel.
 

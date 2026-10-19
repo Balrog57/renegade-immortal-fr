@@ -32,11 +32,11 @@ Le vieil homme esquissa un sourire malicieux et tendit la main. En un instant, u
 
 Une seule pression fit pâlir Wang Lin; il constata qu'il était totalement incapable de bouger. C'était comme si un sort d'immobilisation avait été lancé sur lui. Il ne pouvait que regarder la main du vieil homme s'approcher.
 
-Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris jadis d'un expert en fuite dans la Terre des Esprits Démoniaques. Le sang avait déjà formé un cycle interne au sein de son corps.
+Ses yeux brillèrent intensément et, alors que la main de l'ancien se refermait sur lui, il se mordit la langue. Plutôt que de recracher le sang, il avala l'essence sanguine et activa le sort d'évasion qu'il avait appris jadis d'un expert en fuite dans la Terre des Esprits Démoniaques. Grâce à la puissance céleste de l'essence sanguine, un cycle interne s'était déjà formé dans son corps.
 
 Sous l'impulsion de ce cycle, son corps se détendit et disparut en un éclair. Il réapparut à une certaine distance et s'échappa sans même regarder en arrière.
 
-Le vieil homme laissa échapper une exclamation étouffée. Une pointe d'intérêt brilla dans ses yeux et il sourit: « Il est bel et bien digne d'être lié à ce vieux s'il connaît un sort aussi incroyable, qui nécessite de se mutiler pour s'échapper! » Il retira ensuite sa main et s'élança vers le vide.
+Le vieil homme laissa échapper une exclamation étouffée. Une pointe d'intérêt brilla dans ses yeux et il sourit: « Il est bel et bien digne d'être lié à ce vieux s'il connaît un sort aussi incroyable, qui nécessite de se mutiler pour s'échapper! » Il retira ensuite sa main et frappa le vide.
 
 La prise précédente n'avait utilisé que 10 % de sa puissance. Cette fois, il devint sérieux et utilisa 20 % de sa force avec cette paume. Un seul coup fit tordre le vide comme s'il était sur le point d'être déchiré, faisant apparaître des ondulations dans l'espace.
 
@@ -50,15 +50,15 @@ Le vieil homme regarda Wang Lin et sourit: « Pourquoi ne cours-tu pas? »
 
 Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueusement: « Je ne sais pas ce que Senior désire, mais le niveau de culture de Junior n'est pas assez élevé pour répondre aux exigences de Senior. »
 
-Le regard du vieil homme se posa sur le sac de Wang Lin et il dit: « Aucun problème. Tu ne peux pas m'aider, mais la Bête de Tonnerre à l'intérieur de ton sac, si. Laisse ce vieux l'emprunter un moment, je te la rendrai ensuite. »
+Le regard du vieil homme se posa sur le sac de Wang Lin et il dit: « Aucun problème. Tu ne peux pas m'aider, mais la Bête du Tonnerre à l'intérieur de ton sac, si. Laisse ce vieux l'emprunter un moment, je te la rendrai ensuite. »
 
-Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce qu'il contenait dans son sac de rangement. Il frappa son sac et la Bête de Tonnerre s'en échappa. À l'instant même où elle apparut, avant même d'avoir pu pousser un rugissement, elle fut saisie par le vieil homme et emportée. L'ancien sourit: « Très bien, c'est en fait une Bête de Tonnerre aux cornes argentées, excellent. Petit gars, ce vieux ne prend pas seulement cette bête; la Bête de Tonnerre de chaque messager du Temple Céleste du Tonnerre appartiendra à ce vieux pendant un certain temps! »
+Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce qu'il contenait dans son sac de rangement. Il frappa son sac et la Bête du Tonnerre s'en échappa. À l'instant même où elle apparut, avant même d'avoir pu pousser un rugissement, elle fut saisie par le vieil homme et emportée. L'ancien sourit: « Très bien, c'est en fait une Bête du Tonnerre aux cornes argentées, excellent. Petit gars, ce vieux ne prend pas seulement cette bête; la Bête du Tonnerre de chaque messager du Temple Céleste du Tonnerre appartiendra à ce vieux pendant un certain temps! »
 
-La Bête de Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'était la première fois qu'elle manifestait un tel comportement.
+La Bête du Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'était la première fois qu'elle manifestait un tel comportement.
 
-Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un junior? »
+Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un Junior? »
 
-Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête de Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme originelle du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
+Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête du Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme originelle du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
 
 La main droite de l'ancien s'avança et une grande quantité de poussière se rassembla dans sa paume pour former une sphère de lumière de la taille d'un poing. Il souffla ensuite une bouffée d'air dans la sphère et la projeta sans même regarder. La boule de lumière fila droit sur Wang Lin.
 
@@ -66,12 +66,12 @@ La sphère était trop rapide pour que Wang Lin puisse l'esquiver, et elle pén�
 
 Après cela, le vieil homme agita ses manches en riant: « Vous ne pouvez pas franchir ce passage, alors laissez-moi vous offrir un voyage! » D'un revers de manche, une force puissante surgit, emportant Wang Lin, Li Yuan et la femme nommée Ge avant de disparaître.
 
-« Cette épée de fer me semble familière. Peu importe, l'urgence prime, je n'y penserai pas pour le moment. » Le vieil homme observa la Bête de Tonnerre dans sa main. Plus il la contemplait, plus il s'en délectait: « Oui, après que ce vieux aura utilisé quelques sorts, cette Bête de Tonnerre devrait être capable de tirer la chaîne! »
+« Cette épée de fer me semble familière. Peu importe, l'urgence prime, je n'y penserai pas pour le moment. » Le vieil homme observa la Bête du Tonnerre dans sa main. Plus il la contemplait, plus il s'en délectait: « Oui, après que ce vieux aura utilisé quelques sorts, cette Bête du Tonnerre devrait être capable de tirer la chaîne! »
 
-La Bête de Tonnerre observait attentivement l'homme. Son cœur battait la chamade, mais elle n'osait émettre le moindre son.
+La Bête du Tonnerre observait attentivement l'homme. Son cœur battait la chamade, mais elle n'osait émettre le moindre son.
 
 Le corps du vieil homme vacilla puis il disparut avec la bête. Cependant, presque aussitôt après sa réapparition, il regarda l'endroit où Wang Lin avait disparu et marmonna: « Au fait, à combien de dixièmes de ma force ai-je soufflé? Euh... il semble que j'en aie mis un peu trop... Ce petit gars devrait s'en sortir... Quoi qu'il en soit, s'il ne meurt pas, alors il est véritablement lié à ce vieux. »
 
 L'ancien fit un pas en avant et disparut sans laisser de trace.
 
-Le groupe des trois compagnons fut propulsé à travers le brouillard par l'ancien; ils fusaient désormais à une vitesse indescriptible, simplement phénoménale.
+Le groupe des trois compagnons fut propulsé à travers le brouillard par l'ancien; ils fusaient désormais à une vitesse indescriptible, simplement phénoménale, dans un sifflement continu, comme si fleuves et mers se renversaient.

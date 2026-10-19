@@ -10,7 +10,7 @@ Un instant plus tard, les yeux de Wang Lin étaient empreints de détermination 
 
 « Même la puissance d'une luciole oserait rivaliser avec la clarté de la lune! » grogna Wang Lin, sa voix se transformant en ondulations qui vinrent percuter les plaintes funèbres.
 
-Peu après, une brume noire s'échappa de la Bouteille d'Âme Démoniaque. Des âmes démoniaques ancestrales luttaient au sein de cette brume et chargèrent Wang Lin sans attendre.
+Peu après, une brume noire s'échappa de la Bouteille d'Âme Démoniaque. Des âmes d'anciens diables luttaient au sein de cette brume et chargèrent Wang Lin sans attendre.
 
 L'expression de Wang Lin demeura calme. Alors que les âmes démoniaques se précipitaient vers lui, il agita les deux mains et une bourrasque de vent balaya les entités; elles se retrouvèrent toutes piégées dans sa paume.
 
@@ -24,7 +24,7 @@ Durant ces sept jours, Wang Lin utilisa continuellement le sort du Dao sans acco
 
 Une aura violente émanait de la sphère et, simultanément, un rugissement semblable au cri de milliers de démons fusionnés retentit.
 
-« Tu veux raffiner mon ancien clan démoniaque? Impossible! »
+« Tu veux raffiner mon clan d'anciens diables? Impossible! »
 
 « Raffinement sanguin! » Les yeux de Wang Lin s'ouvrirent brusquement et il mordit le bout de sa langue. Il cracha un jet de sang qui atterrit sur la sphère. Ce sang était chargé d'essence et constituait le sang du cœur de l'Ancien Dieu de Wang Lin!
 
@@ -34,7 +34,7 @@ La lueur spectrale se dissipa presque totalement pour être remplacée par une l
 
 Wang Lin se détendit légèrement et tendit sa main droite pour saisir la Bouteille d'Âme Démoniaque. Il expulsa une quantité d'énergie originelle qui pénétra dans la bouteille. Instantanément, une immense quantité de brume noire jaillit, emportant d'innombrables âmes démoniaques. Dès leur apparition, elles furent absorbées par la sphère de sang.
 
-« Ce trésor démoniaque ancien contient 3 000 âmes démoniaques ancestrales. Je vais fusionner ces 3 000 âmes pour former mon avatar démoniaque ancestral! » Wang Lin agita sa manche et la grotte fut aussitôt envahie par une brume imprégnée d'énergie démoniaque.
+« Ce trésor d'ancien diable contient 3 000 âmes d'anciens diables. Je vais fusionner ces 3 000 âmes pour former l'âme de mon avatar d'ancien diable! » Wang Lin agita sa manche et la grotte fut aussitôt envahie par une brume imprégnée d'énergie démoniaque.
 
 Le temps passa lentement tandis que Wang Lin affinait les âmes démoniaques. Un mois s'écoula.
 

@@ -14,7 +14,7 @@ Le vieil homme regarda l'Omniscient, puis le Démon Ancien Ta Jia au visage somb
 
 « La cible de ce vieil homme, c'est lui! » Le vieil homme poussa un soupir et marcha vers Ta Jia.
 
-Les yeux du démon ancien étaient emplis de flammes démoniaques alors qu'il fixait le vieil homme, devenant d'une gravité extrême. Sa main droite agrippa la lame et la projeta en avant tandis qu'il disait d'une voix lugubre: « C'est toi! Il s'avère que tu n'es pas mort! »
+Les yeux du démon ancien étaient emplis de flammes démoniaques alors qu'il fixait le vieil homme, devenant d'une gravité extrême. Sa main droite balaya la lame qu'il portait dans le dos tandis qu'il disait d'une voix lugubre: « C'est toi! Il s'avère que tu n'es pas mort! »
 
 « Je devrais déjà être mort, mais le frère Qing Lin m'a sauvé. Bien que notre querelle ait été profonde, puisqu'il m'a sauvé une fois, je lui suis redevable. Je rembourserai cette dette en t'affrontant, toi! » Tandis qu'il parlait, le vieil homme s'avança vers le démon ancien. Son expression était calme, comme si le démon n'était pas digne de son attention.
 
@@ -76,7 +76,7 @@ Il laissa échapper un reniflement froid et abattit son trident. Trois rayons de
 
 Alors que des grondements retentissaient, Wang Lin ouvrit les yeux au sol. En voyant Mu Bingmei combattre l'Omniscient, ses yeux révélèrent une expression extrêmement complexe, mêlée d'une trace de douleur indélébile.
 
-Il ne pensait pas la retrouver si vite, et dans de telles circonstances. Chaque fois que Wang Lin pensait à Liu Mei, la douleur était bien plus intense que n'importe quelle blessure physique. Son cœur lui faisait mal chaque fois qu'il songeait à l'amertume qui habitait le corps de Wang Ping.
+Il ne pensait pas la rencontrer pour de bon si vite, et dans de telles circonstances. Chaque fois que Wang Lin pensait à Liu Mei, la douleur était bien plus intense que n'importe quelle blessure physique. Son cœur lui faisait mal chaque fois qu'il songeait à l'amertume qui habitait le corps de Wang Ping.
 
 Tout en réfléchissant, Wang Lin s'assit en position de lotus et prit une profonde inspiration. Il avait épuisé ses sorts, et il semblait n'avoir plus rien pour lutter contre le destin.
 
@@ -106,7 +106,7 @@ Tant que l'étoile du Dieu Ancien ne se brisait pas, elle pouvait être restaur�
 
 Cependant, le bouclier exigeait trop d'énergie. Alors que la lumière de l'œil droit de Wang Lin devenait plus éclatante, davantage d'énergie y pénétra et la quatrième étoile pâlit à son tour.
 
-La lumière bleue de l'œil droit de Wang Lin explosa, enveloppant toute la zone. Même Mu Bingmei et l'Omniscient, en plein combat, remarquèrent cette étrange lueur azurée.
+La lumière bleue de l'œil droit de Wang Lin explosa, enveloppant toute la zone sur un rayon d'environ dix mille pieds. Même Mu Bingmei et l'Omniscient, en plein combat, remarquèrent cette étrange lueur azurée.
 
 Les étoiles entre ses sourcils tournèrent de plus en plus vite. La troisième étoile faiblit, suivie de la deuxième. Enfin, la dernière étoile restante perdit rapidement son éclat elle aussi.
 

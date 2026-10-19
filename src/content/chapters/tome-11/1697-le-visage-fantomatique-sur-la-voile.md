@@ -28,7 +28,7 @@ Le temps passa lentement. En un clin d'œil, trois heures s'étaient écoulées.
 
 Le regard de Fan Shanmeng devint progressivement plus froid. En fixant Wang Lin, son choc initial s'était dissipé. Elle voyait que ce dernier semblait être entré dans un goulot d'étranglement, puisqu'il n'avait pas bougé depuis trois heures.
 
-« Comment ce Navire Démon des Âmes peut-il être si facile à aborder? Plus tôt, lorsqu'il a ouvert la restriction protégeant le pont, il avait déjà atteint ses limites. Il est futile de tenter de percer les mystères de ce navire. Wang Lin, ah, Wang Lin, tu es bien trop arrogant! » Fan Shanmeng resta calme, dissimulant tout le mépris qui bouillonnait dans son cœur.
+« Comment ce Navire Démon des Âmes peut-il être si facile à percer? Plus tôt, lorsqu'il a ouvert la restriction protégeant le pont, il avait déjà atteint ses limites. Il est futile de tenter de percer les mystères de ce navire. Wang Lin, ah, Wang Lin, tu es bien trop arrogant! » Fan Shanmeng resta calme, dissimulant tout le mépris qui bouillonnait dans son cœur.
 
 « Cher Camarade Cultivateur Wang Lin, trois heures se sont écoulées. Si vous vous rendez à l'autel maintenant, il pourrait encore être temps... » Les paroles de Fan Shanmeng résonnèrent avec une pointe d'inquiétude.
 
@@ -52,7 +52,7 @@ Elle resta stupéfaite en voyant neuf restrictions s'effondrer d'un simple rever
 
 Wang Lin agita de nouveau sa main droite et des grondements tonitruants éclatèrent. Toutes les restrictions formant le pont s'effondrèrent. Des dizaines, des centaines, des milliers, et même des dizaines de milliers de restrictions se transformèrent en un tourbillon de gaz noir.
 
-En l'espace de quelques respirations seulement, plus aucune restriction ne subsistait dans un rayon de plusieurs milliers de pieds autour de Wang Lin. La tempête finit par se diviser pour que chaque restriction retrouve sa place initiale. Le choc de Fan Shanmeng ne faisait que commencer.
+En l'espace de quelques respirations seulement, plus aucune restriction ne subsistait dans un rayon de un millier de pieds autour de Wang Lin. La tempête finit par se diviser pour que chaque restriction retrouve sa place initiale. Le choc de Fan Shanmeng ne faisait que commencer.
 
 « Veuillez excuser cette piètre démonstration, Cher Camarade. » Wang Lin esquissa un léger sourire.
 
@@ -78,7 +78,7 @@ Briser les protections du pont n'était pas difficile pour lui, mais son but ét
 
 Après tout, Wang Lin n'ignorait pas tout de cette technique, puisqu'il avait étudié celle obtenue dans les Terres Déchues. Cependant, bien que celle-ci parût complète, elle présentait des défauts qui entravaient son illumination.
 
-Mais la Restriction de l'Âme Ancienne présente sur ce pont était différente: elle était parfaite!
+Mais la Restriction de l'Âme Ancienne présente sur ce pont était différente: elle était extrêmement complète!
 
 L'actuel Wang Lin n'était plus le jeune homme de la montagne des restrictions qui ne pratiquait la discipline que depuis quelques années. Il était désormais un cultivateur du stade intermédiaire du Vide Spirituel, détenant six grandes essences, et avec sa compréhension des sceaux, cinq heures suffisaient pour tout percer!
 

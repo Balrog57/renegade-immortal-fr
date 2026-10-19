@@ -66,7 +66,7 @@ Deux cercles se contractaient: l'un était la mer de feu bleu, l'autre, toute la
 
 Un fracas capable de faire trembler les cieux remplaça tout autre son, provoquant un nouvel effondrement du Royaume aux Sept Couleurs!
 
-Un cri strident et déchirant fut englouti par ce tumulte. Un pilier de feu bleu jaillit vers les cieux, comme pour les transpercer! D'innombrables éclairs remplissaient l'intérieur et l'extérieur de ce pilier ardent, formant une colonne de tonnerre qui se superposait au pilier de feu pour percer l'infini!
+Un cri strident et déchirant fut englouti par ce tumulte. Un pilier de feu bleu jaillit vers les cieux, comme pour soutenir la voûte céleste! D'innombrables éclairs remplissaient l'intérieur et l'extérieur de ce pilier ardent, formant une colonne de tonnerre qui se superposait au pilier de feu, montant tout aussi haut!
 
 Cette scène était visible de n'importe quel point du Royaume aux Sept Couleurs!
 
@@ -94,7 +94,7 @@ Cependant, après avoir observé le combat, il fut frappé de stupeur et ne put 
 
 Ce changement témoignait de la peur inconsciente que Wang Lin inspirait à Maître Nuage-Âme. Il serra les dents et chargea en avant.
 
-Le pilier de feu et de tonnerre se dissipa lentement. L'âme originelle du vieil homme avait totalement disparu de ce monde. Même après sa mort, le prétendu Souverain qu'il invoquait sans cesse ne fit jamais son apparition.
+Le pilier de feu et de tonnerre se dissipa lentement. L'âme originelle du vieil homme avait totalement disparu de ce monde. Même après sa mort, le Souverain qu'il invoquait sans cesse ne fit jamais son apparition.
 
 Contemplant la montagne devant lui, Wang Lin réfléchissait en silence. Une fois le tonnerre et le feu dissipés et le silence revenu, des gémissements misérables s'élevèrent du sommet de la montagne.
 
@@ -112,4 +112,4 @@ De cette position, les gémissements provenant de la grotte étaient encore plus
 
 « Un faux membre du Clan de l'Extermination des Sceaux est mort. Avez-vous des doutes sur les causes de son décès? » demanda une voix indifférente.
 
-« Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'anticipation éternelle. Alors, laissez le feu devenir fou... »
+« Pourquoi douterais-je... Je connaîtrai la réponse une fois que le Dao aura été planté. Ce sera bien plus intéressant... L'inconnu possède le goût le plus délicieux... L'attente est l'arrière-goût éternel. Alors, laissez le feu devenir fou... »

@@ -96,7 +96,7 @@ Si elle avait une volonté, c'était un esprit! Cette foudre était un esprit du
 
 Des grondements résonnèrent. La sphère de foudre autour de Wang Lin sembla trembler sous la puissance du tonnerre émanant de lui. De plus, sous l'impact de son aura de Dieu Ancien, elle finit par céder.
 
-La sphère se transforma en rayons de foudre et chargea vers l'âme originelle du dragon de tonnerre ancien. Elle poussa un rugissement qui fit trembler les cieux et s'agrandit soudainement. La statue de pierre vacilla comme si elle allait s'effondrer.
+La sphère se transforma en rayons de foudre et chargea vers l'âme originelle du dragon de tonnerre ancien. Celle-ci poussa un rugissement qui fit trembler les cieux et s'agrandit soudainement. La statue de pierre vacilla comme si elle allait s'effondrer.
 
 Wang Lin fit un pas en avant, marchant sur le vide. Il se retourna et fixa la marque de foudre entre les sourcils de la statue qui ne s'était toujours pas dissipée.
 

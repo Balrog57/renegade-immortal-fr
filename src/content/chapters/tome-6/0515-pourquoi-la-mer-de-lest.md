@@ -18,7 +18,7 @@ Cet endroit est tel un immense coffre au trésor qui ne fait que puiser sans jam
 
 Nul ne sait comment ce lieu s'est formé. La rumeur prétend qu'au moment même où la planète Tian Yun vit le jour, cet endroit existait déjà depuis une éternité.
 
-Certains prétendent qu'il s'agissait du palais d'un puissant seigneur céleste. Plus tard, lors de l'effondrement du Royaume Céleste, il aurait subi un choc et serait tombé en ruines. Cependant, les ruines que l'on voit n'auraient été qu'un état maintenu par un sortilège de protection. Si la chance sourit à un voyageur, celui-ci pourrait bel et bien restaurer le palais céleste.
+Certains prétendent qu'il s'agissait d'un palais céleste situé hors du monde, appartenant à un puissant seigneur céleste. Plus tard, lors de l'effondrement du Royaume Céleste, il aurait subi un choc et serait tombé en ruines. Cependant, les ruines que l'on voit n'auraient été qu'un état maintenu par un sortilège de protection. Si la chance sourit à un voyageur, celui-ci pourrait bel et bien restaurer le palais céleste.
 
 D'autres rumeurs suggèrent que ce lieu est un tunnel reliant deux espaces différents, offrant peut-être un passage vers des royaumes au-delà du Royaume Céleste.
 
@@ -42,7 +42,7 @@ Même des membres de l'Alliance des Cultivateurs vinrent inspecter la Mer des Es
 
 Ils n'autoriseraient jamais personne de l'extérieur à y pénétrer. Cet endroit était la zone interdite de la planète Tian Yun!
 
-L'habitude ayant pris, la Mer des Esprits Démoniaques de l'Est devint naturellement une terre sacrée et interdite appartenant à la planète Tian Yun.
+L'habitude ayant pris, la Mer des Esprits Démoniaques de l'Est devint naturellement une terre interdite appartenant à la planète Tian Yun.
 
 S'il existe peu d'endroits aussi mystérieux, ils ne sont pas non plus rares. L'Alliance des Cultivateurs ne souhaitait pas déclencher de conflit avec les cultivateurs de la planète Tian Yun pour un tel lieu; cela n'en valait pas le prix.
 
@@ -78,9 +78,9 @@ Elle traversa les airs sur son jade de sang. Tous ceux qui l'aperçurent s'écar
 
 Tout au long du voyage, la femme ne prononça pas un mot. Une fois le jade de sang arrêté, elle ferma les yeux et se mit à cultiver.
 
-« La fille de l'Ancêtre du Sang, Yao Xixue! » Certains la reconnurent aussitôt.
+« La fille de l'Ancêtre Sanguin, Yao Xixue! » Certains la reconnurent aussitôt.
 
-L'Ancêtre du Sang, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
+L'Ancêtre Sanguin, Yao Xinghai, était un vieux monstre célèbre dans les environs de la planète Tian Yun. Son niveau de culture était prodigieux. Il avait défié l'Omniscient à sept reprises et, bien qu'il ait perdu chaque fois, son niveau s'était élevé à chaque duel. Particulièrement lors du septième affrontement, où il avait exhibé ses terrifiantes techniques liées au sang.
 
 Cet homme possédait sa propre planète de culture autour de Tian Yun. Il y capturait des indigènes pour se nourrir de leur sang et cultiver ses arts démoniaques.
 
@@ -114,4 +114,4 @@ La jeune femme laissa échapper un reniflement méprisant. Sans même accorder u
 
 Sun Yunshan s'apprêtait à répliquer, mais son expression changea soudainement. Il ne prêta plus attention à la jeune femme, les yeux rivés sur l'horizon, un sourire aux lèvres.
 
-« Frère Wang, je vous attendais! »
+« Frère Wang, je vous attendais depuis longtemps! »

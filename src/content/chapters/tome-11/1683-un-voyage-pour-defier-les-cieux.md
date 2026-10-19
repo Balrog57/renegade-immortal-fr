@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1683 - The Trip to Defy the Celestials!"
 slug: un-voyage-pour-defier-les-cieux
 ---
-Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança.
+Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança hors de la Mer des Nuages vers la Rivière Invoquée.
 
 Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 
@@ -34,7 +34,7 @@ Wang Lin connaissait très bien le Royaume Céleste du Tonnerre, car il y avait 
 
 Les ondulations causées par leur arrivée furent immédiatement remarquées par les cultivateurs en convalescence à Luotian. Tous tremblèrent et déployèrent leur Sens Divin. Ce qu'ils virent les laissa stupéfaits.
 
-À l'entrée du Royaume Céleste du Tonnerre, le coup de tonnerre qui gardait la porte avait disparu depuis longtemps, emporté par Wang Lin des années auparavant. De retour en ces lieux familiers, il n'hésita pas à pénétrer dans le Royaume Céleste du Tonnerre.
+À l'entrée du Royaume Céleste du Tonnerre, l'éclair de foudre qui gardait la porte avait disparu depuis longtemps, emporté par Wang Lin des années auparavant. De retour en ces lieux familiers, il n'hésita pas à pénétrer dans le Royaume Céleste du Tonnerre.
 
 L'effondrement du Royaume Céleste du Tonnerre avait été trop dévastateur. De nombreux continents avaient été saisis par Maître Yan Leizi et, après tous les événements survenus, il ne restait presque plus rien.
 
@@ -94,7 +94,7 @@ La formation du nouveau Royaume Céleste n'était pas une œuvre que Wang Lin po
 
 Seul Wang Lin savait tout. Il comprenait le poids de la responsabilité et ce qu'il lui restait à accomplir! Il savait que la guerre contre le Royaume Extérieur touchait à sa fin ou était déjà terminée, mais le Royaume Intérieur s'apprêtait à affronter une épreuve bien plus grande encore.
 
-Soit il réussirait ce test et conduirait son peuple hors de la grotte, soit il échouerait et tous les habitants de cette grotte périraient. Toute vie serait anéantie, et après des dizaines de milliers d'années sous le Dao Céleste, une nouvelle vie émergerait, tel un cycle de réincarnation.
+Soit il réussirait ce test et conduirait son peuple hors de la grotte, soit il échouerait et tous les habitants de cette grotte périraient. Toute vie serait anéantie, et après des milliers, voire des dizaines de milliers d'années sous le Dao Céleste, une nouvelle vie émergerait, tel un cycle de réincarnation.
 
 Peut-être qu'un jour, après d'innombrables années, un enfant nommé Wang Lin naîtrait.
 
@@ -110,6 +110,6 @@ Une fois cela accompli, l'âme divisée de Wang Lin retourna dans son corps. Il 
 
 « Si je réussis, alors les Cieux s'effondreront! Si je perds, alors je mourrai! Situ, si je meurs, j'espère que tu diras à tous ce que je t'ai confié. Enregistre-le dans un jade, place-le sur chaque planète, dans chaque trésor et au sein de ce nouveau Royaume Céleste. Même si tous les êtres sensibles venaient à être détruits, cela restera une vérité que les Cieux ne pourront effacer. Donne aux générations futures la chance de connaître la vérité! » Wang Lin leva les yeux et s'envola vers l'horizon.
 
-Son dos était empreint d'une solitude absolue!
+Son dos était empreint d'une solitude et d'une résolution absolues!
 
 Derrière lui, les dizaines de milliers de cultivateurs, parmi lesquels Qing Lin, Maître Hong Shan, Situ Nan et bien d'autres, joignirent les mains en signe de respect envers Wang Lin.

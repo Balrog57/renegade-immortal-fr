@@ -24,7 +24,7 @@ Alors que ce rythme cardiaque rugissait violemment, le Vieux Fantôme Zhan laiss
 
 L'expression du Vieux Fantôme Zhan devint féroce et il serra sa poitrine. Celle-ci s'affaissa alors qu'il utilisait son pouvoir pour contraindre son cœur, l'empêchant de battre par la force.
 
-Les yeux de Wang Lin se rétrécirent et il fit un pas en avant. Sa main droite se crispa en un poing où convergeait l'aura de l'Ancien Dao. Les neuf étoiles entre ses sourcils et les dix-sept étoiles dans ses yeux se mirent à pivoter. Toute son aura de l'Ancien Dao se concentra dans ce coup de poing qui vola vers le Vieux Fantôme Zhan.
+Les yeux de Wang Lin se rétrécirent et il fit un pas en avant. Sa main droite se crispa en un poing où convergeait l'aura de l'Ancien Dao. Les neuf étoiles entre ses sourcils et les dix-sept étoiles dans ses yeux se mirent à pivoter. Toute son aura de l'Ancien Dao se concentra dans ce coup de poing qui ouvrait le ciel et fendait la terre, puis vola vers le Vieux Fantôme Zhan.
 
 Des grondements tonitruants résonnèrent à travers le monde. Le ciel s'effondra et la terre se déchaîna; c'était comme si la fin du monde était arrivée. Le Vieux Fantôme Zhan traça un sceau, faisant apparaître sept caractères « Bataille » alignés!
 
@@ -52,17 +52,17 @@ Avant qu'il ne puisse approcher, Wang Lin rétracta son poing et ouvrit la paume
 
 « Sort Démoniaque, Montagne de Vent et de Feu! »
 
-Alors que le monde pivotait et se déformait, un vent brûlant apparut, formant huit piliers autour de Wang Lin. De la fumée et une énergie démoniaque dense se répandirent tandis que des cris de détresse résonnaient.
+Alors que le monde pivotait et se déformait, des feux de signal embrasés jaillirent, formant huit colonnes autour de Wang Lin. De la fumée et une énergie démoniaque dense se répandirent tandis que des cris de détresse résonnaient.
 
 Au même instant, l'ombre vague de huit démons anciens apparut entre les piliers. Les démons rugirent et les piliers pivotèrent autour de Wang Lin.
 
-De loin, ces huit piliers fumants de vent ardent fusionnèrent pour former une tempête!
+De loin, ces huit colonnes de fumée et de feux de signal fusionnèrent pour former une tempête!
 
-Le corps du Vieux Fantôme Zhan s'engouffra dans cette tempête de feu et de vent. Un grondement tonitruant retentit alors qu'il tentait de forcer le passage.
+Le corps du Vieux Fantôme Zhan s'engouffra dans cette tempête de feux de signal. Un grondement tonitruant retentit alors qu'il tentait de forcer le passage.
 
 Cependant, il n'en eut pas le temps. La Poupée Yi Si poussa un rugissement et rattrapa le Vieux Fantôme Zhan.
 
-Wang Lin se trouvait au cœur de la tempête de feu et de vent. Après un coup de poing et une vague, sa main droite s'immobilisa dans les airs. Puis, il tendit l'index et pointa vers l'avant!
+Wang Lin se tenait derrière la tempête de feux de signal. Après un coup de poing et une vague, sa main droite s'immobilisa dans les airs. Puis, il tendit l'index et pointa vers l'avant!
 
 « Dao Diabolique, Inversion de la Vie et de la Mort! » lança Wang Lin en pointant le Vieux Fantôme Zhan. L'expression de ce dernier changea brusquement lorsqu'il sentit la force vitale de son corps se muer instantanément en une aura de mort!
 
@@ -80,13 +80,13 @@ Dieu Ancien à 9 étoiles!
 Diable Ancien à 9 étoiles!
 Démon Ancien à 8 étoiles!
 
-Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouvoir de l'Ancien Dao. C'était la force la plus absolue dont il disposait. Elles se rassemblèrent dans sa main droite et, alors qu'il avançait, une ombre gigantesque apparut devant lui!
+Ces puissances se fondirent en une seule au sein de Wang Lin pour former le pouvoir de l'Ancien Dao. C'était la force la plus absolue dont il disposait. Elles se rassemblèrent dans sa main droite et, au moment où il frappait ainsi, une ombre gigantesque apparut devant lui!
 
 Cette ombre était une tête. Une tête aussi vaste que le monde, occupant la majeure partie de l'horizon. Elle dégageait une aura lugubre et millénaire. Son apparence n'était ni celle de Ye Mo, ni celle de Wang Lin, mais celle d'un étranger. Wang Lin ne savait pas qui il était, mais un sentiment de familiarité l'envahit!
 
 Ce sentiment émanait de sa lignée, du sang de l'âme qu'il avait obtenu de l'Ancien Ancêtre!
 
-Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Astral Immortel pour voir la statue imposante qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
+Si Wang Lin s'était rendu auprès du clan de l'Ancien Dao sur le Continent Astral Immortel pour voir la statue imposante dressée dans la cité céleste, qui contemplait le monde avec mépris, il aurait réalisé que la tête apparue était identique à celle de cette statue!
 
 « Ancien Ancêtre! » Au loin, le corps de Xuan Luo trembla. Il contempla la tête avec une immense révérence.
 
@@ -94,7 +94,7 @@ Les yeux de cette entité étaient flous, impossibles à distinguer clairement. 
 
 Le vent violent fit rage et la terre s'effondra. Des craquements déchirèrent le ciel de cette strate. Le firmament devint gris et se changea en pierre! La terre fut recouverte d'une lumière cendrée et fut totalement pétrifiée!
 
-Cela ne toucha pas que cette couche. Lorsque l'aura se propagea, la dernière strate, celle qui n'avait plus de cœur, fut pétrifiée. Même la couche supérieure, voilée de brume, ainsi que toute l'Ancienne Tombe, furent transformées en pierre par ce souffle!
+Cela ne toucha pas que cette couche. Lorsque l'aura se propagea, la dernière strate, celle qui n'avait plus de cœur, fut pétrifiée. Même la couche supérieure, voilée de brume, ses plates-formes comprises, ainsi que toute l'Ancienne Tombe, furent transformées en pierre par ce souffle!
 
 Les pupilles du Vieux Fantôme Zhan se rétractèrent, frappées de stupeur. Le visage pâle, il recula comme un fou, ignorant même la Poupée Yi Si qui le poursuivait. En battant en retraite, ses mains formèrent un sceau et une fumée aux sept couleurs émana de son corps pour former l'Âme aux Sept Couleurs. Simultanément, sa seconde âme apparut, enveloppée dans sa cape. Mais alors que la cape l'entourait, le souffle de l'Ancien Dao balaya tout sur son passage.
 

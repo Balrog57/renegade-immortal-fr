@@ -16,7 +16,7 @@ Une demi-lune plus tard, Wang Lin et Li Yuan traversaient rapidement le vide.
 
 La main gauche de Li Yuan était extrêmement endolorie et l'énergie originelle dans son corps était très affaiblie. Il regarda Wang Lin avec un sourire amer: « Frère Xu, j'ai placé plus de dix mille restrictions près des limites du fragment. Une fois combinées, elles sont d'une puissance redoutable. Si les quatre grandes familles n'envoient pas leurs experts, il leur sera difficile de les briser. »
 
-Il y a une demi-lune, lorsque Wang Lin était sorti, Li Yuan était apparu immédiatement. À la demande de Wang Lin, Li Yuan avait complètement scellé le fragment. Cependant, il n'avait pas utilisé les restrictions de sa propre famille, mais diverses autres formes de restrictions.
+Il y a une demi-lune, lorsque Wang Lin était sorti, Li Yuan était apparu immédiatement. À la demande de Wang Lin, Li Yuan avait complètement scellé le fragment. Cependant, il n'avait pas utilisé la Restriction d'Annihilation de sa famille, mais diverses autres formes de restrictions.
 
 « Frère Li, j'ai terminé mes affaires dans le Royaume Céleste. Le mieux est de partir rapidement! » Wang Lin toucha son sac et en sortit un fourneau de tonnerre. Ayant tué tant de personnes, il lui était facile d'en récupérer un.
 
@@ -70,7 +70,7 @@ Les yeux de Shengong Hu s'illuminèrent et il se tourna vers Zhan Konglie: « Vr
 
 Zhan Konglie sourit: « Absolument certain. Senior a dit qu'il viendrait ici s'il en trouvait le temps! »
 
-Une lueur de joie passa dans le regard de Shengong Hu. Zhan Konglie lui semblait soudain beaucoup plus sympathique. Il ajouta en souriant: « Vu la personnalité étrange de mon seigneur, il devrait trouver cet endroit intéressant. »
+Une lueur de joie passa dans le regard de Shengong Hu. Zhan Konglie lui semblait soudain beaucoup plus sympathique. Shengong Hu ajouta en souriant: « Vu la personnalité étrange de mon seigneur, il devrait trouver cet endroit intéressant. »
 
 Zhan Konglie fixa la plaine et hocha la tête: « Je présume que le frère Shengong l'a aussi remarqué. L'apparition de cette formation est bien trop suspecte... »
 
@@ -102,7 +102,7 @@ Shengong Hu ne bougea pas, tout comme Zhan Konglie. Ils échangèrent un regard 
 
 « Cette formation a été brisée bien trop facilement! »
 
-Hormis eux deux, plusieurs autres cultivateurs restèrent immobiles. La plupart d'entre eux avaient franchi le sommet du stade avancé de l'Ascendant et se trouvaient au stade de l'Yin Illusoire.
+Hormis eux deux, plusieurs autres cultivateurs restèrent immobiles. La plupart d'entre eux avaient atteint l'Ascendant à la grande perfection et se trouvaient au stade de l'Yin Illusoire.
 
 Après un long moment, alors que de plus en plus de cultivateurs pénétraient dans le tunnel, une explosion sourde retentit. Des cris de douleur s'élevèrent sans interruption avant que le tunnel ne s'effondre totalement. Tous les cultivateurs à l'intérieur furent désintégrés avec la structure.
 

@@ -44,7 +44,7 @@ Simultanément, les feux indigo, bleus et violets se refermèrent sur l'âme dé
 
 L'expression de l'homme d'âge moyen à l'horizon changea. D'un geste de la main droite, il projeta la marque située entre ses sourcils. Celle-ci fonça à une vitesse fulgurante vers le feu aux sept couleurs.
 
-Au même moment, sur la Planète des Grands Empereurs, le corps de Wang Lin fut enveloppé d'une lumière septicolore. De fines fissures apparurent sur sa peau et le sang commença à suinter. C'était une scène effroyable.
+Au même moment, sur la Planète du Grand Empereur, le corps de Wang Lin fut enveloppé d'une lumière septicolore. De fines fissures apparurent sur sa peau et le sang commença à suinter. C'était une scène effroyable.
 
 Le vieux Oiseau Vermillon n'hésita pas et se précipita près du second bâton d'encens en flammes. Ignorant la rapidité de sa combustion, il y posa sa main droite et y injecta son puissant Sens Divin.
 
@@ -68,7 +68,7 @@ Le Sens Divin du vieux Oiseau Vermillon parvint sur les lieux, mais dès qu'il e
 
 Le Sens Divin du Maître du Dao Rêve Bleu suivit, mais au contact de cette étrange puissance, des lueurs bleues clignotèrent et il fut lui aussi expulsé de l'épreuve.
 
-Sur la Planète des Grands Empereurs, la main droite du vieux Oiseau Vermillon fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
+Sur la Planète du Grand Empereur, la main droite du vieux Oiseau Vermillon fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
 
 « Quel genre de pouvoir est-ce là?! »
 
@@ -110,7 +110,7 @@ Le visage de Wang Lin demeurait calme alors que le feu aux huit couleurs l'encer
 
 Les neuf rétributions karmiques commençaient par un feu noir et se terminaient par un feu noir, formant un cycle perpétuel.
 
-Alors que le feu noir convergeait, Wang Lin ferma lentement les yeux. Un grondement de tonnerre retentit lorsque l'obscurité s'engouffra, poussant le feu aux huit couleurs à atteindre la limite du feu aux neuf couleurs!
+Alors que le feu noir convergeait, Wang Lin ferma lentement les yeux. Un grondement de tonnerre retentit lorsque l'obscurité s'engouffra, poussant le feu aux huit couleurs à se muer en feu aux neuf couleurs, à la perfection du ciel et de la terre!
 
 Les neuf rétributions karmiques étaient toutes apparues, formant une tempête apocalyptique. Wang Lin se trouvait au cœur du chaos, ses cheveux ondulant sans qu'aucun vent ne soufflât. Outre les sept feux de couleurs différentes dans son corps, le feu noir et blanc se condensa rapidement.
 
@@ -130,7 +130,7 @@ Le Oiseau Vermillon aux neuf couleurs semblait être né de nouveau au sein du l
 
 Le cri du quatrième éveil!
 
-Sur la Planète des Grands Empereurs, l'écho du réveil retentit. Le bâton d'encens terrestre ne s'était brûlé qu'à moitié lorsqu'il s'arrêta soudainement, dégageant une lumière aux neuf couleurs qui illumina la planète entière.
+Sur la Planète du Grand Empereur, l'écho du réveil retentit. Le bâton d'encens terrestre ne s'était brûlé qu'à moitié lorsqu'il s'arrêta soudainement, dégageant une lumière aux neuf couleurs qui illumina la planète entière.
 
 Le vieux Oiseau Vermillon fut stupéfait avant de laisser échapper un rire tonitruant, l'excitation brillant dans ses yeux.
 

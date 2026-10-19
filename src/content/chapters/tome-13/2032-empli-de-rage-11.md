@@ -34,9 +34,9 @@ En entendant le nom de « Li Muwan », la femme ressentit un murmure douloureux,
 
 L'Empereur Dao Antique afficha un regard venimeux et, au moment où il s'apprêtait à agir, il entendit le froid reniflement de Wang Lin.
 
-Ce bruit fut comme un coup de tonnerre qui fit pousser un cri misérable à l'Empereur Dao Antique. Le sang jaillit de ses orifices et il recula de plusieurs pas. Rapidement, Wang Lin leva la main droite et pointa l'espace entre les sourcils de la femme. Une gouttelette de son sang d'âme glissa par son doigt pour pénétrer en elle. Dès que cette trace de sang entra en elle, elle se mit à trembler.
+Ce bruit fut comme un coup de tonnerre qui fit pousser un cri misérable à l'Empereur Dao Antique. Le sang jaillit de ses orifices et il recula de plusieurs pas. Rapidement, Wang Lin leva la main droite et pointa l'espace entre les sourcils de la femme. Une gouttelette du sang d'âme de l'Ancêtre Ancestral, qu'il avait fusionné avec le sien, glissa par son doigt pour pénétrer en elle. Dès que cette trace de sang entra en elle, elle se mit à trembler.
 
-Une fine ligne qui ne semblait pas appartenir à ce monde apparut sur son front. Elle était reliée à l'Empereur Dao Antique situé derrière elle.
+Une fine ligne qui ne semblait pas appartenir à ce monde apparut sur son front. Elle était reliée à l'Empereur Dao Antique, qui se tenait derrière Wang Lin.
 
 Sans hésiter, Wang Lin leva la main gauche et trancha cette ligne ténue.
 
@@ -62,7 +62,7 @@ Jusqu'à ce qu'elle entende Wang Lin murmurer « Wan Er » lors du banquet, ce q
 
 Elle s'en souvenait faiblement: la voix du rêve appartenait à l'homme devant elle. Elle se souvint de la Mer des Démons, où elle se tenait devant la grotte, le visage pâle mais gardant fermement l'entrée.
 
-Elle se souvint qu'un homme était assis derrière elle, raffinant la puissance des pilules, sur le point de former son Noyau!
+Elle se souvint qu'un homme était assis derrière elle, raffinant la puissance des pilules, en train de former son Noyau!
 
 Elle se souvint aussi que lorsqu'elle fut épuisée et ne put plus empêcher les cultivateurs démoniaques de pénétrer dans la grotte, alors que leurs rires résonnaient, elle tomba contre une poitrine chaude. Elle avait alors entendu une voix froide qui, pourtant, lui avait procuré un étrange sentiment de chaleur pour la première fois.
 
@@ -70,7 +70,7 @@ Elle se souvint aussi que lorsqu'elle fut épuisée et ne put plus empêcher les
 
 Son corps trembla et des larmes coulèrent de ses yeux. La confusion qui embrumait son regard disparut en grande partie. Elle regarda Wang Lin, ce visage qui devenait de plus en plus familier.
 
-« Wang... Lin... » La voix de la femme était rauque, comme si elle n'avait pas parlé depuis une éternité. Pourtant, ce qu'elle prononça fit vibrer l'esprit de Wang Lin comme si des millions d'éclairs avaient explosé.
+« Wang... Lin... » La voix de la femme était rauque, comme si elle n'avait pas parlé depuis une éternité. Pourtant, ce qu'elle prononça fit vibrer l'esprit de Wang Lin comme si des millions de coups de tonnerre avaient retenti.
 
 Wang Lin fut transporté par l'émotion et rit aux éclats vers le ciel tout en serrant la femme contre lui. Il se tourna vers l'Empereur Dao Antique et son père, qui étaient en proie à la panique. Cependant, contrairement à son père, l'Empereur Dao Antique conservait une pointe de calme.
 
@@ -86,9 +86,9 @@ Mais au moment où la paume de Wang Lin allait frapper, un grondement tonnerre r
 
 En voyant cette lumière violette, l'Empereur Dao Antique se mit immédiatement à rire. La panique dans ses yeux s'évanouit pour laisser place au calme. Il fixa Wang Lin avec férocité.
 
-« Je suis l'Empereur Dao Antique, le descendant de l'Ancêtre Ancestral! Comment pourriez-vous me tuer? Dans ce monde, nul ne peut m'abattre! » L'Empereur Dao Antique agita sa manche et rugit vers la foule à l'extérieur du palais.
+« Je suis l'Empereur Dao Antique, le descendant direct de l'Ancêtre Ancestral! Comment pourriez-vous me tuer? Dans ce monde, nul ne peut m'abattre! » L'Empereur Dao Antique agita sa manche et rugit vers la foule à l'extérieur du palais.
 
-« Tous les membres du Dao Antique, tuez cet homme! Quiconque désobéira à cet ordre sera considéré comme un traître! » Alors que ses paroles résonnaient, les dizaines de milliers de membres du Dao Antique sur la place, ainsi que les milliers autres qui venaient d'arriver, l'entendirent. Ils se tournèrent vers le palais et s'élancèrent tel un immense nuage noir.
+« Tous les membres du Dao Antique, tuez cet homme! Quiconque désobéira à cet ordre sera considéré comme un traître! » Alors que ses paroles résonnaient, les dizaines de milliers de membres du Dao Antique sur la place, ainsi que ceux qui arrivaient peu à peu, jusqu'à plus de cent mille, l'entendirent. Ils se tournèrent vers le palais et s'élancèrent tel un immense nuage noir.
 
 Une lueur meurtrière traversa les yeux de Wang Lin et il leva à nouveau la main pour frapper l'Empereur Dao Antique. La lumière violette brilla de nouveau, résistant à l'assaut.
 
@@ -102,16 +102,16 @@ Des grondements tonnerres résonnèrent: c'était le Chant du Tonnerre!
 
 Les nuages se déchaînèrent sous l'effet du vent et de la foudre, créant le Chant de la Flûte des Nuages du Monde Mortel!
 
-La pluie tomba également, composant le Chant de la Pluie! Puis les Chants du Ciel et de la Terre apparurent, suivis par le septième chant émanant du corps de Wang Lin.
+La pluie tomba également, composant le Chant de la Pluie, qui fait croître toutes choses! Puis les Chants du Ciel et de la Terre apparurent, suivis par le septième chant émanant du corps de Wang Lin.
 
 Le huitième chant était celui des organes internes; il était indescriptible tant il résonnait à travers tout le palais du Dao Antique!
 
-« Dans ce monde, il existe une autre personne aux côtés du Grand Empyréen Gu Dao capable de te tuer... l'Ancêtre Ancestral! » dit lentement Wang Lin. À mesure que ses paroles s'échappaient, son sang d'âme libéra le neuvième chant!
+« Dans ce monde, en dehors du Grand Empyréen Gu Dao, il existe une autre personne capable de te tuer... l'Ancêtre Ancestral! » dit lentement Wang Lin. À mesure que ses paroles s'échappaient, son sang d'âme libéra le neuvième chant!
 
 Le dernier fut le Chant de la Lignée. Lorsque celui-ci retentit, les yeux de Wang Lin devinrent argentés, révélant une aura de suprême divinité!
 
 Derrière Wang Lin, surplombant le palais, une ombre gigantesque apparut. Cette silhouette avait les mains derrière le dos, une longue chevelure flottante, et contemplait le ciel avec mépris. Son apparence était identique à celle de la statue de l'Ancêtre Ancestral de la ville!
 
-« L'Ancêtre... l'Ancêtre Ancestral! » Tout le monde sur la place, dans le palais et tous les membres du clan Antique de la ville furent secoués par cette vision. Un bourdonnement de murmures s'éleva, mêlant excitation et terreur.
+« L'Ancêtre... l'Ancêtre Ancestral! » Tout le monde sur la place, dans le palais et tous les membres des trois lignées antiques de la ville furent secoués par cette vision. Un bourdonnement de murmures s'éleva, mêlant excitation et terreur.
 
 « Nous, vos descendants, saluons l'Ancêtre Ancestral! » On ne sut qui s'agenouilla le premier, mais en un instant, les cent mille personnes présentes sur la place et dans le palais se prosternèrent.

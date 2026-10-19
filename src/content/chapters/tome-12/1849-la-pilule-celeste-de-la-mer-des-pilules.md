@@ -42,7 +42,7 @@ Soudain, Wang Lin leva sa main droite et les pointa du doigt!
 
 « Figés! »
 
-D'un seul mot, d'innombrables filaments remplirent le monde et enveloppèrent la femme et le jeune homme. Leurs corps tremblèrent, totalement immobilisés par Wang Lin. La peur se figea sur le visage du jeune homme, tandis que la main gauche de la femme, à moins d'un pouce de la boussole, resta pétrifiée en plein air!
+D'un seul mot, d'innombrables filaments remplirent le monde et enveloppèrent la femme et le jeune homme. Leurs corps se figèrent, totalement immobilisés par Wang Lin. La peur se figea sur le visage du jeune homme, tandis que la main gauche de la femme, à moins d'un pouce de la boussole, resta pétrifiée en plein air!
 
 Wang Lin s'approcha instantanément et arracha la boussole des mains de la femme. Sans la moindre pitié pour sa beauté, il abattit sa paume gauche sur le front de la femme. Le corps de celle-ci se changea en une brume de sang, et même son âme originelle s'effondra avec elle. Wang Lin agita sa manche, propageant un souffle de vent qui emporta la brume sanglante vers le jeune homme. Tandis que la brume l'enveloppait, Wang Lin balaya l'air d'un geste, déclenchant un éclat de lumière rouge. Une épée de sang jaillit et trancha la tête du jeune homme.
 
@@ -64,7 +64,7 @@ Dès son apparition, il remarqua que la mer autour de lui tournait et que des gr
 
 « Peut-être n'ai-je pas besoin d'abandonner les 30 millions d'âmes dao... » songea Wang Lin, cessant toute progression. Au lieu de cela, il sombra vers les abysses pour s'y dissimuler.
 
-Des vagues monstrueuses déferlèrent sur la Mer des Pilules tandis que les grondements persistaient. Huit vortex tourbillonnaient le long des bordures, tandis qu'un neuvième se trouvait au centre même de la mer. Ce dernier tournait de plus en plus vite. Rapidement, les huit vortex convergèrent pour entraîner toute la masse marine vers le centre, autour du neuvième vortex.
+Des vagues monstrueuses déferlèrent sur la Mer des Pilules tandis que les grondements persistaient. Huit vortex tourbillonnaient le long des bordures, tandis qu'un neuvième se trouvait au centre même de la mer. Ce dernier tournait de plus en plus vite. Rapidement, les huit vortex se mirent à tourner autour du neuvième, entraînant toute la masse marine dans leur rotation.
 
 Au cœur de ce neuvième tourbillon siégeait Yun Kong. Le visage pâle, ses mains ne cessaient de tracer des sceaux.
 
@@ -74,7 +74,7 @@ Au cœur de ce neuvième tourbillon siégeait Yun Kong. Le visage pâle, ses mai
 
 La Mer des Pilules ressemblait à un bassin dont le centre était un gigantesque tourbillon aspirant l'eau. Dans le ciel, des dizaines de milliers de cultivateurs du Continent du Démon Vert observaient la scène. Ils attendaient que Yun Kong condense cette demi-Pilule Céleste pour briser la barrière entourant le Continent du Taureau Céleste!
 
-Wang Lin se cachait également au sein du vortex, attendant que la Pilule Céleste soit formée pour lancer son assaut!
+Wang Lin se cachait également sous le vortex, attendant que la Pilule Céleste soit formée pour lancer son assaut!
 
 Le temps s'écoulait lentement. Yun Kong était incapable d'observer ses environs; toute l'attention des dizaines de milliers de cultivateurs était braquée sur lui. Personne ne s'attendait à ce que des cultivateurs du Continent du Taureau Céleste subsistent dans la Mer des Pilules après qu'elle ait été purgée maintes fois. Avec les restrictions en place, nul n'avait besoin de s'inquiéter de ce qui se passait sous la surface!
 

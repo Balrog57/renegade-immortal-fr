@@ -30,7 +30,7 @@ L'Omniscient resta silencieux un instant pour réfléchir, puis une intention me
 
 « Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Tous les êtres issus du Dao Céleste ne sont que des fourmis devant moi, et tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
-L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il frappa l'Omniscient.
+L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il l'enveloppa.
 
 L'expression de l'Omniscient devint féroce. Au moment même où le Maître du Dao Rêve Bleu attaquait, il poussa un rugissement.
 

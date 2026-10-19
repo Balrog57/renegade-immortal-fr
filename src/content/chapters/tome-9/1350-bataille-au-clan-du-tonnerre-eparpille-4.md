@@ -24,7 +24,7 @@ C'était comme si toute la lumière, le tonnerre et la vie étaient aspirés par
 
 Cette scène terrifiante choqua même Wang Lin, dont les pupilles se rétractèrent. Il savait quel sort l'adversaire utilisait, car il l'avait lui-même appris. À cet instant, ses yeux s'illuminèrent et il leva la main droite comme s'il s'apprêtait à soutenir le ciel.
 
-« Empreinte de Tonnerre Géante! » La voix de Wang Lin résonna, et tout le tonnerre qui convergeait vers l'Ancien trembla. Une marque de tonnerre apparut dans l'œil droit de Wang Lin, accompagnée d'un éclair tourbillonnant autour d'elle. L'œil droit de Wang Lin brilla, dégageant une aura démoniaque!
+« Empreinte de Tonnerre Géante! » La voix de Wang Lin résonna, et tout le tonnerre qui convergeait vers l'Ancien trembla. Une marque de tonnerre apparut dans l'œil droit de Wang Lin, accompagnée d'un Tonnerre Spirituel qui tournoyait autour d'elle. L'œil droit de Wang Lin brilla, dégageant une aura démoniaque!
 
 Le tonnerre de ce monde fut scindé en deux. Une moitié chargea la main droite de Wang Lin pour former instantanément une sphère de tonnerre gigantesque.
 
@@ -46,7 +46,7 @@ Les yeux de l'Ancien brillèrent d'une lueur étrange et il bondit soudainement.
 
 « Meurs! »
 
-Tout ce que Wang Lin possédait, il l'avait acquis étape par étape, depuis l'instant où il avait dévoré la moitié d'un ancien dragon du tonnerre jusqu'à la formation de sa propre essence de tonnerre. Bien qu'elle ne puisse égaler l'Éclair Éternel, elle se situait au même niveau d'existence!
+Tout ce que Wang Lin possédait, il l'avait acquis étape par étape, depuis l'instant où il avait dévoré la moitié d'un dragon du tonnerre antique jusqu'à la formation de sa propre essence de tonnerre. Bien qu'elle ne puisse égaler l'Éclair Éternel, elle se situait au même niveau d'existence!
 
 Au moment où l'Ancien fondit sur lui, Wang Lin bondit également avec son tonnerre compressé 3 000 000 de fois. Il poussa un rugissement en s'élançant!
 
@@ -110,7 +110,7 @@ Les ondes réfléchies se précipitèrent vers lui, fusionnant avec l'onde de ch
 
 Une crise de vie ou de mort, qu'il n'avait pas connue depuis fort longtemps, surgit soudainement dans son cœur. Il n'eut pas le temps de réfléchir avant que les ondes ne l'engloutissent complètement!
 
-Un grondement tonitruant résonna à travers le monde et ne s'apaisa pas pendant un long moment. Wang Lin utilisa le Monde de Vent et de Pluie tout en battant en retraite.
+Un grondement tonitruant résonna à travers le monde et ne s'apaisa pas pendant un long moment. Wang Lin utilisa le Monde du Vent et de la Pluie tout en battant en retraite.
 
 Cependant, à cet instant précis, un rugissement assourdissant chargé d'une colère infinie éclata. Lorsque l'impact se dissipa, une silhouette enveloppée d'un tonnerre éternel apparut!
 

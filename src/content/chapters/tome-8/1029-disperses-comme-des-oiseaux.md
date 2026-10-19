@@ -8,11 +8,11 @@ slug: disperses-comme-des-oiseaux
 ---
 Le vortex s'élança dans les airs et une force d'aspiration inimaginable éclata. L'Ancêtre Sainte du Clan du Tatouage fut incapable de lutter, et les chaînes la tirèrent lentement vers le vortex ascendant.
 
-La femme afficha une expression sombre, tandis que le tatouage entre ses sourcils vacillait. Chaque scintillement provoquait un grondement assourdissant et l'une des chaînes autour d'elle se brisait, se transformant en âmes gémissantes qui étaient aspirées dans le Vortex Funéraire Céleste.
+La femme afficha une expression sombre, tandis que le tatouage entre ses sourcils vacillait. Chaque scintillement provoquait un grondement assourdissant et une grande partie des chaînes autour d'elle se brisait, se transformant en âmes déchiquetées qui s'évanouissaient dans des cris, aspirées dans le Vortex Funéraire Céleste.
 
 Au moment où les chaînes s'effondrèrent, d'innombrables âmes jaillirent du vortex pour former de nouvelles entraves qui continuèrent à la traîner vers les profondeurs.
 
-Ce spectacle poussa tous les témoins à une réflexion silencieuse; ils étaient stupéfaits et leurs esprits étaient en émoi.
+Ce spectacle réduisit tous les témoins au silence; ils étaient stupéfaits et leurs esprits étaient en émoi.
 
 La femme eut un sourire amer. Elle avait été scellée ici pendant trop d'années et n'avait plus la puissance de son âge. Si l'avatar du Sens Divin de Qing Lin n'avait pas été là, elle aurait peut-être eu une chance de se libérer, mais désormais, tout espoir était perdu.
 
@@ -62,7 +62,7 @@ Après avoir jeté le tatouage, la femme devint extrêmement faible et sombra pr
 
 Elle afficha une ultime fois un sourire misérable et se poignarda impitoyablement les deux orbites. Elle en extirpa le gaz vert et le projeta. Celui-ci se transforma en deux rayons de lumière verte qui fusionnèrent pour ne former qu'un seul faisceau, projeté vers Wang Lin.
 
-« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Tatouage Fané. Voici la méthode du Tatouage Fané. Puisque tu as aidé mon Clan du Tatouage, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
+« Outre le tatouage vital de mon clan, une autre chose qui nous rendait célèbres dans le royaume extérieur était le sortilège du Tatou Flétri. Voici la méthode du Tatou Flétri. Puisque tu as aidé mon Clan du Tatouage, tu devrais pouvoir obtenir l'aide d'un descendant pour acquérir le pouvoir des tatouages. »
 
 Wang Lin saisit la lumière verte et entendit son message instantanément.
 
@@ -70,9 +70,9 @@ Elle fixa profondément la silhouette glaciale de Qing Lin alors qu'elle s'enfon
 
 Seul le grondement du vortex en rotation subsistait. Le tourbillon descendit lentement, sur le point de disparaître dans le gouffre profond.
 
-En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatouage Fané exigeait l'aide du Clan du Tatouage, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
+En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatou Flétri exigeait l'aide du Clan du Tatouage, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
 
-« Si elle est si confiante, c'est que le Tatouage Fané ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie d'origine à Luotian...
+« Si elle est si confiante, c'est que le Tatou Flétri ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie originelle à Luotian...
 
 « Serait-ce possible...? » Ses yeux se plissèrent.
 

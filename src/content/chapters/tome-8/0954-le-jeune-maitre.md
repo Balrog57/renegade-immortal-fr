@@ -16,7 +16,7 @@ Wang Lin se souvint que, pendant la bataille, tous trois n'avaient pas été aff
 
 L'expression de Wang Lin resta calme alors qu'il ouvrait les yeux et avançait d'un pas. Des ondulations apparurent sous ses pieds et il disparut.
 
-« Le sort céleste "Effondrement de la Montagne" était extrêmement puissant. Bien que je m'attendais à ce que les trois derniers sorts de l'Empereur Céleste Bai Fan soient plus puissants que les trois premiers, cet Effondrement de la Montagne dépassait mon imagination... Effondrement de la Montagne, Effondrement de la Montagne... quelle compréhension l'Empereur Céleste Bai Fan a-t-il dû avoir pour créer un sort aussi dévastateur... Je ne sais même pas quand je serai capable de créer mon propre sort... »
+« Le sort céleste "Effondrement de la Montagne" était extrêmement puissant. Bien que je m'attendais à ce que les trois derniers sorts de l'Empereur Céleste Bai Fan soient plus merveilleux que les trois premiers, cet Effondrement de la Montagne dépassait mon imagination... Effondrement de la Montagne, Effondrement de la Montagne... quelle compréhension l'Empereur Céleste Bai Fan a-t-il dû avoir pour créer un sort aussi dévastateur... Je ne sais même pas quand je serai capable de créer mon propre sort... »
 
 Un rocher flottait lentement loin à l'est de Wang Lin. Ce rocher provenait manifestement d'une planète de culture effondrée. En dérivant, de petits fragments s'en détachaient.
 
@@ -54,7 +54,7 @@ La grande silhouette commença à se déplacer encore plus vite après avoir ré
 
 Le cultivateur à la grosse tête eut un sourire amer en contemplant les étoiles devant lui, son regard devenant encore plus morne. Il sembla apercevoir sa mère, telle qu'elle était il y a de nombreuses années. Elle ne semblait pas le gronder, mais le regardait d'un air doux en l'appelant.
 
-« Mère... » murmura le garçon, tandis qu'une aura de mort enveloppait son corps. En plein délire, il semblait voir sa famille et toutes les personnes qu'il avait tuées.
+« Mère... » murmura le garçon, tandis qu'une aura de mort enveloppait son corps. En plein délire, il semblait voir sa famille et toutes les personnes qu'il avait tuées au fil de plusieurs siècles.
 
 Ces êtres apparurent devant lui un à un, le fixant froidement du regard.
 

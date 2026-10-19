@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1150 - Shocking Change
 slug: changement-de-toute-ampleur
 ---
-Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer des Nuages, où environ 40 % des continents appartenaient à des sectes.
+Ce vaste système stellaire était saturé de brume stellaire. Bien qu'il semblât calme, une pesante intention meurtrière imprégnait ce brouillard. Il s'agissait de la région de rang 5 de la Mer des Nuages, où environ 40 % des continents appartenaient à des sectes de rang 5.
 
 Pour les régions de rang 1 à 4, la région de rang 5 représentait une existence inaccessible. Si un membre d'une secte de rang 5 se rendait dans une région de rang 4, il y serait accueilli avec les plus grands honneurs.
 
@@ -14,7 +14,7 @@ Pour les régions de rang 1 à 4, la région de rang 5 représentait une existen
 
 Le brouillard se mit à tourbillonner avec une intensité accrue, et les bêtes environnantes s'éparpillèrent, terrifiées. Plusieurs autres rayons de lumière passèrent en revue le paysage.
 
-Ce n'était pas un cas isolé. En l'espace de sept courtes minutes, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
+Ce n'était pas un cas isolé. En l'espace de quelques courtes minutes, plusieurs dizaines de traînées lumineuses percèrent la brume pour traverser rapidement la région de rang 5.
 
 Diverses bêtes spirituelles se trouvaient au sein de ces éclats de lumière, chacune portant un cultivateur sur son dos.
 
@@ -42,7 +42,7 @@ Le singe noir galopait sur le sol, et chaque grondement était le fruit de ses p
 
 En quelques respirations à peine, il atteignit le sommet. D'innombrables bêtes semblables à des aigles, qui tournoyaient au-dessus du sommet, chargèrent le singe noir.
 
-Pourtant, avant même de pouvoir s'approcher, elles explosèrent en une pluie de sang sous un revers de bras du singe. Il semblait qu'aucune bête féroce ne puisse l'arrêter. Il déferla sur le sommet de la montagne, où se trouvait un nid.
+Pourtant, avant même de pouvoir s'approcher, elles explosèrent en une pluie de sang sous un revers de bras du singe. Il semblait qu'aucune bête féroce ne puisse l'arrêter. Il déferla sur le sommet de la montagne, où se trouvait un nid d'une taille de plusieurs centaines de pieds.
 
 Le singe noir s'en approcha et écrasa directement le nid de sa main.
 
@@ -92,7 +92,7 @@ Shi Luoxing resta pensif. Il n'ouvrit pas les yeux, mais la tristesse se lut sur
 
 Lui et ses disciples se trouvaient dans cette vallée saturée de brume. Des âmes errantes emplissaient ce brouillard et, à l'extérieur de la vallée, huit crânes géants flottaient, reliés par des éclairs verts pour former une formation.
 
-Cette formation était d'une grande complexité. Elle recueillait les âmes de ceux qui étaient morts au fil des innombrables années sur le continent sauvage, les transformait en quelque chose de tangible et les utilisait pour alimenter la structure.
+Cette formation était d'une grande complexité. Elle recueillait les âmes de ceux qui étaient morts au fil des innombrables années sur le continent sauvage, les transformait en quelque chose de tangible et les utilisait pour alimenter la structure et en faire un sort redoutable.
 
 Ces âmes mortes ne pouvaient être raffinées en pilules, car l'alchimie exigeait les âmes de bêtes vivantes! Une âme morte n'était guère plus qu'un vestige de ressentiment formé au moment du trépas et refusant de se dissiper.
 
@@ -104,12 +104,12 @@ Une voix lugubre résonna dans toute la vallée, pénétrant clairement les orei
 
 — Shi Luoxing, il ne vaut pas la peine de perdre la vie pour un simple bien matériel. Bien que votre niveau de culture soit élevé, vous avez été empoisonné par le venin de ma Secte des Cinq Poisons. Si vous tentez d'utiliser toute votre puissance prochainement, vous mourrez à coup sûr. Réfléchissez-y à deux fois.
 
-Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte de la Fleur Claire dans la région 6, et il se trouvait au stade avancé du Purificateur du Nirvana. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région 3 pour mener des recherches.
+Le visage de Shi Luoxing se crispa alors qu'il ouvrait lentement les yeux. Son regard brillait intensément, mais une pointe d'amertume marquait ses traits. Il était le disciple principal de la Secte de la Fleur Claire dans la région de rang 6, et il se trouvait au stade avancé du Purificateur du Nirvana. Après avoir trouvé quelques indices, il avait secrètement emmené ses disciples dans la région de rang 3 pour mener des recherches.
 
 À l'origine, il ne pensait pas que ces indices soient fiables, mais il s'avéra qu'ils étaient vrais et que tout se déroulait sans encombre. Cependant, une fois l'objet trouvé, non seulement sa position fut révélée, mais la nature même de ce qu'il avait obtenu fut divulguée. Il fut alors assiégé et perdit d'innombrables disciples. Il avait même été frappé par un poison étrange et avait dû fuir vers cette vallée pour tenter de l'expulser.
 
 Toutefois, avant qu'il ne puisse dissiper ce venin mystérieux, il fut intercepté par cette vieille femme de la Secte des Cinq Poisons. Elle avait utilisé la formation de sa secte pour le piéger dans la vallée. Il avait déjà envoyé un message secret à sa propre secte, mais il faudrait du temps avant que les renforts n'arrivent.
 
-— Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
+— Compagnon cultivateur Shi, même si votre Secte de la Fleur Claire envoie des renforts, cela sera inutile! D'après ce que cette vieille femme sait, au sein de la région de rang 6, outre ma Secte des Cinq Poisons, les sectes du Pic Spirituel, des Sorts Daoïstes, de l'Évasion et de la Collection Démoniaque sont déjà sur les talons et convoitent ce que vous détenez!
 
-— Le jade de la Secte Céleste Brise-Ciel de la région 8 et la recette légendaire d'une pilule du Nirvana Vide!
+— Le jade de la Secte Céleste Brise-Ciel de la région de rang 8 et la recette légendaire d'une pilule du Nirvana Vide!

@@ -36,7 +36,7 @@ Pourtant, Ling Tianhou avait osé s'opposer à l'Omniscient pendant des dizaines
 
 « Quel genre de secret se cache entre eux deux... » Wang Lin resta silencieux et observa attentivement.
 
-« Tu n'as pas respecté l'accord! » La voix de l'Omniscient apparut lentement. Bien qu'aucun signe de joie ou de colère ne s'en dégageât, au moment où la voix se fit entendre, le ciel radieux s'obscurcit soudainement!
+« Tu n'as pas respecté l'accord! » La voix de l'Omniscient apparut lentement. Bien qu'aucun signe de joie ou de colère ne s'en dégageât, au moment où la voix se fit entendre, le ciel, qui commençait à peine à s'éclaircir, s'obscurcit soudainement!
 
 Le soleil qui s'élevait progressivement à l'est sembla être totalement occulté par un sortilège surpuissant. En un instant, le monde fut plongé dans les ténèbres!
 
@@ -74,7 +74,7 @@ Alors qu'il était plongé dans cette pensée, le corps de Wang Lin trembla comm
 
 Ce n'est pas que l'Omniscient ne se soit jamais trompé auparavant. Il y avait une signification profonde derrière l'enseignement de l'Art du Massacre Céleste. C'était la première fois qu'il plaçait en moi une amorce, comme le jour de l'Extrême Yang lors de la naissance de Bai Wei!
 
-Dans le passé, l'Omniscient était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de l'Omniscient!
+Dans le passé, l'Omniscient était une existence parfaite qui ne pouvait commettre d'erreur! Cependant, dans la Terre des Esprits Démoniaques, grâce à l'aide involontaire de l'ancien démon, j'ai pu découvrir la faille de l'Art du Massacre Céleste! Cela a causé une légère déviation dans le plan de l'Omniscient!
 
 Puis, le Démon Dispersé est apparu et a une fois de plus perturbé ses desseins. Finalement, j'ai pu percer le karma de l'Art du Massacre Céleste et j'ai résolument renoncé à cette puissante énergie de massacre!
 

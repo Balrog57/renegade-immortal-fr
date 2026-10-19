@@ -28,7 +28,7 @@ Ce n'était pas que les restrictions disparaissaient, elles fusionnaient. Chaque
 
 Au fil du temps, la vitesse de fusion s'accéléra. Bientôt, à presque chaque respiration, une multitude de restrictions disparaissait pour laisser place à de nouvelles formations.
 
-« L'essence de la restriction est une forme de calcul, et le calcul englobe tout. Il peut même servir à diviner l'avenir et à le modifier. Cela requiert un Sens Divin extrêmement puissant... L'Omniscient maîtrisait parfaitement cet art, et je ne l'avais pas remarqué auparavant. Je crains qu'il n'ait dissimulé ses capacités prodigieuses au sein de ces restrictions! » Wang Lin ouvrit les yeux, laissant poindre un éclat de froideur.
+« L'essence de la restriction est une forme de calcul, et le calcul englobe tout. Il peut même servir à diviner l'avenir et à le modifier. Cela requiert un Sens Divin extrêmement puissant... L'Omniscient a effacé cet art, et je n'y voyais pas clair auparavant. Je crains qu'il n'ait dissimulé ses capacités prodigieuses au sein de ces restrictions! » Wang Lin ouvrit les yeux, laissant poindre un éclat de froideur.
 
 Il redoutait toujours l'Omniscient. Ce dernier était comme une présence l'observant depuis les ténèbres, provoquant en lui un malaise constant. Mais lorsqu'il tentait de retourner le regard, il ne trouvait aucune source à cette surveillance.
 

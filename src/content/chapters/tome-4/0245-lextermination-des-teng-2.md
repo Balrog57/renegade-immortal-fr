@@ -119,5 +119,3 @@ Wang Lin frappa son sac de rangement et le drapeau de restriction apparut dans s
 L'expression de Teng Huayuan changea; il fixa Wang Lin avec une haine profonde et répondit: « Vous ne le saurez jamais! »
 
 Le visage de Wang Lin s'assombrit. Il agita la main et plus de quatre-vingt-dix restrictions s'élancèrent. Plusieurs centaines de membres de la famille Teng poussèrent des cris alors qu'ils mouraient.
-
-« Allez-vous parler? »

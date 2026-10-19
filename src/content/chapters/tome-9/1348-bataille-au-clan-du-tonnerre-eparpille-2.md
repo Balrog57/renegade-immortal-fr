@@ -20,7 +20,7 @@ L'âme originelle de Wang Lin flottait dans l'espace. Tandis que la lumière de 
 
 Il n'y avait ni ruse ni stratagème: Wang Lin était venu aujourd'hui pour un combat!
 
-Tout ce qu'il avait accompli jusqu'ici visait cette bataille! C'était la raison pour laquelle il avait abandonné le corps de Yu Fei et révélé son âme originelle. Tout cela servait à attirer l'Ancien. Wang Lin était convaincu que si l'Ancien ne remarquait normalement rien, le fait d'exposer son âme originelle lui permettrait de déceler des indices!
+Tout ce qu'il avait accompli jusqu'ici visait cette bataille! C'était la raison pour laquelle il avait abandonné le corps de Yu Fei et révélé son âme originelle. Tout cela servait à attirer l'Ancien. Wang Lin était convaincu qu'en temps ordinaire l'Ancien ne remarquerait pas la différence de son âme originelle, mais qu'en la déployant entièrement, celui-ci ne pourrait manquer de la voir!
 
 Il s'utilisait comme appât pour affronter l'être le plus puissant du Clan du Tonnerre Dispersé: l'Ancien!
 
@@ -44,11 +44,11 @@ Même les neuf auras qui avaient ciblé Wang Lin se manifestèrent, révélant n
 
 Sa marche n'était pas rapide, mais en quelques pas seulement, il franchit une distance incommensurable, comme si le monde s'était contracté devant lui.
 
-Wang Lin fonça tel un éclair, mais après un instant, il fit brusquement demi-tour. L'Ancien n'avait eu besoin que de deux pas pour laisser les membres du clan loin derrière lui et réapparaître à mille pieds derrière Wang Lin!
+Wang Lin fonça tel un éclair, mais après un instant, il fit brusquement demi-tour. L'Ancien n'avait eu besoin que de deux pas pour laisser les membres du clan loin derrière lui et réapparaître à moins de mille pieds derrière Wang Lin!
 
 L'endroit était déjà très éloigné de la terre sainte du Clan du Tonnerre Dispersé, et seul l'infini lac de tonnerre les entourait. Ils étaient seuls au monde!
 
-« Le Tonnerre de la Rétribution, le Tonnerre Spirituel, et un tonnerre éternel semblable à celui de la terre sainte de mon clan... Pas mal. Tu possèdes donc quelque chose capable d'attirer ce vieil homme, voilà pourquoi tu es si sûr que je me montrerais! » L'Ancien restait calme. Ayant vécu bien trop longtemps, il était extrêmement rusé. Toutes les intentions de Wang Lin étaient claires à ses yeux.
+« Le Tonnerre de la Tribulation, le Tonnerre Spirituel, et un tonnerre éternel semblable à celui de la terre sainte de mon clan... Pas mal. Tu possèdes donc quelque chose capable d'attirer ce vieil homme, voilà pourquoi tu es si sûr que je me montrerais! » L'Ancien restait calme. Ayant vécu bien trop longtemps, il était extrêmement rusé. Toutes les intentions de Wang Lin étaient claires à ses yeux.
 
 « Tu n'es pas de taille face à ce vieil homme, alors fais sortir ton allié. » Même à cet instant, l'Ancien ne montrait aucune émotion; du début à la fin, il restait aussi calme qu'une eau dormante tout en émanant une aura terrifiante.
 
@@ -56,7 +56,7 @@ Après avoir parlé, il leva la main droite et fit un geste désinvolte. Instant
 
 Des dragons de tonnerre en sortirent frénétiquement. Un, deux, trois... en un clin d'œil, neuf cent quatre-vingt-dix-neuf dragons de tonnerre apparurent, chacun long de cent mille pieds. À leur apparition, une foudre infinie les enveloppa et tous poussèrent des rugissements en chargeant Wang Lin!
 
-Les pupilles de Wang Lin se contractèrent. C'était la première fois qu'il affrontait quelqu'un au cinquième niveau du Fléau Céleste. Bien que ce ne fût pas encore le troisième pas, c'était la puissance la plus élevée sous ce stade! L'adversaire était capable de créer neuf cent quatre-vingt-dix-neuf dragons de tonnerre d'un simple revers de main. Ce sortilège faisait trembler les cieux et dépassait déjà tout ce que l'on pouvait qualifier de simple technique!
+Les pupilles de Wang Lin se contractèrent. C'était la première fois qu'il affrontait quelqu'un au cinquième niveau du Fléau Céleste. Bien que ce ne fût pas encore la troisième étape, c'était la puissance la plus élevée sous ce stade! L'adversaire était capable de créer neuf cent quatre-vingt-dix-neuf dragons de tonnerre d'un simple revers de main. Ce sortilège faisait trembler les cieux et dépassait déjà tout ce que l'on pouvait qualifier de simple technique!
 
 Ces dragons ne laissèrent aucun répit à Wang Lin et se précipitèrent sur lui. Il recula tout en formant un sceau de ses mains. La foudre clignotait autour de son âme originelle, formant un halo protecteur.
 
@@ -80,7 +80,7 @@ Chaque dragon de tonnerre contenait la volonté de l'Ancien principal. Non seule
 
 C'était la première fois que Wang Lin était confronté à une telle force, et son esprit vacilla. Sous le bombardement, il recula encore plus vite!
 
-Tout se déroula en un éclair, à une vitesse dépassant l'imagination. Cependant, lorsqu'il eut reculé de plusieurs dizaines de milliers de pieds, son expression changea. Sans hésiter, il cracha une bouffée d'énergie essentielle et fit un pas en avant, tandis que son âme originelle se contractait rapidement.
+Tout se déroula en un éclair, à une vitesse dépassant l'imagination. Cependant, lorsqu'il eut reculé de plusieurs dizaines de milliers de pieds, son expression changea. Sans hésiter, il cracha une bouffée d'essence spirituelle et fit un pas en avant, tandis que son âme originelle se contractait rapidement.
 
 Au moment même où il changeait brusquement de direction, des ondulations apparurent là où il se trouvait. Une main antique surgit et frappa impitoyablement vers lui!
 
@@ -90,7 +90,7 @@ Bien que Wang Lin ait esquivé le danger immédiat, il fut percuté par l'onde d
 
 « Tu as prétendu vouloir prendre l'éclair éternel de mon clan et détruire le Clan du Tonnerre Dispersé. Si c'est là toute ta puissance, tu n'y parviendras jamais. »
 
-Wang Lin ne prononça pas un mot; il recula et changea sa forme humaine en celle d'un ancien dragon de tonnerre, chargeant vers le lac de tonnerre au loin.
+Wang Lin ne prononça pas un mot; il recula et changea sa forme humaine en celle d'un dragon du tonnerre antique, chargeant vers le lac de tonnerre au loin.
 
 L'Ancien principal ricana et agita la main droite. Les centaines de dragons restants se lancèrent à la poursuite de Wang Lin. C'était une scène qui aurait terrifié n'importe quel témoin!
 

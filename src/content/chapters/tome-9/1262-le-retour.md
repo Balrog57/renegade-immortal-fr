@@ -62,7 +62,7 @@ Le maître de la Secte se leva et sourit. « Le camarade cultivateur Lu est trop
 
 Le Grand Ancien se leva également et joignit les mains, souriant.
 
-Wang Lin hocha la tête d'un air serein. « Soyez rassurés, je ferai de mon mieux! J'ai quitté la Secte de l'Origine depuis cent ans, je ne vous dérangerai donc plus et j'irai rejoindre mes juniors. »
+Wang Lin hocha la tête d'un air serein. « Soyez rassurés, je ferai de mon mieux! J'ai quitté la Secte de l'Origine depuis cent ans, je ne vous dérangerai donc plus et j'irai retrouver mes juniors. »
 
 Le sourire du maître de la Secte s'élargit encore: « Le frère Lu se soucie également de ses juniors, ce vieil homme ne vous retiendra pas. Sun De, raccompagne le camarade cultivateur Lu là où se trouve la Secte de l'Origine! »
 
@@ -74,7 +74,7 @@ Il avait senti l'aura d'ancien dieu sous la montagne devenir encore plus intense
 
 C'est pourquoi il devait partir précipitamment!
 
-En seulement le court laps de temps passé sur cette montagne, la sixième étoile effondrée s'était reformée pour devenir un léger vortex. Bien qu'elle ne fût pas totalement restaurée, elle était, comparée à son état antérieur, aussi vaste que le ciel et la terre!
+En seulement le court laps de temps passé sur cette montagne, la sixième étoile effondrée s'était reformée pour devenir un léger vortex. Bien qu'elle ne fût pas totalement restaurée, la différence avec son état antérieur était celle du ciel à la terre!
 
 « C'est dommage... Cependant, tant que personne ne s'en aperçoit, j'aurai de nombreuses occasions d'absorber davantage d'énergie d'ancien dieu en ce lieu! Même cette épée formée par une étoile finira entre mes mains! » L'expression de Wang Lin resta neutre tandis qu'il se calmait pour suivre le disciple de la Secte Éternelle.
 

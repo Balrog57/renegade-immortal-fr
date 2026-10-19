@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1008 - Burial Flower
 slug: fleur-funeraire
 ---
-Lorsque le fragment céleste s'effondra, l'effluve des fleurs atteignit Wang Lin. Il ressentit un impact inimaginable frapper son corps; ses entrailles se déchirèrent et il cracha une bouchée de sang. La terreur envahit les yeux de Wang Lin et il se retira précipitamment!
+Lorsque le fragment céleste s'effondra, l'effluve des fleurs atteignit Wang Lin. Il ressentit un impact inimaginable frapper son corps; des bruits sourds résonnèrent dans son corps et il cracha une bouchée de sang. La terreur envahit les yeux de Wang Lin et il se retira précipitamment!
 
 « Qui est-elle, bon sang?! Serait-elle vraiment une Céleste Fleur?! » Le cuir chevelu de Wang Lin était engourdi. Il savait qu'il avait de la chance d'avoir le corps d'un Dieu Ancien. S'il n'avait été qu'un cultivateur ordinaire, il serait sans aucun doute mort!
 
@@ -122,7 +122,7 @@ Wang Lin redoutait énormément cette femme, mais il devait impérativement perc
 
 Wang Lin jouait rarement sa vie au jeu, mais maintenant, il n'avait plus d'autre choix que de parier!
 
-« Si j'échoue, je devrai m'enfuir pour trouver le Démon Ancien Bei Lou afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort « Arrêt » apparut soudainement.
+« Si j'échoue, je devrai m'enfuir pour trouver le Démon Ancien Bei Luo afin qu'il m'aide à franchir cette grotte céleste. Peu importe, je dois entrer! » Wang Lin serra les dents, leva la main et pointa le doigt. Le sort « Arrêt » apparut soudainement.
 
 Dès que la femme en blanc vit le sort « Arrêt », son expression changea radicalement.
 

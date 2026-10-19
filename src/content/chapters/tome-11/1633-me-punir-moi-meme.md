@@ -52,7 +52,7 @@ Le jeune homme aux cheveux blancs trembla et son expression changea radicalement
 
 Mais Wang Lin avait attendu ce moment trop longtemps pour laisser cet individu s'échapper. Il chargea et sa paume percuta la poitrine du jeune homme aux cheveux blancs. Ses doigts se refermèrent violemment avant de se retirer.
 
-« Empreinte Karmique! »
+« Empreinte du Karma! »
 
 Ses essences furent extraites, arrachant au jeune homme un cri misérable tandis qu'il crachait du sang. Il parvint à peine à entrouvrir les yeux, mais alors qu'il le faisait, la main gauche de Wang Lin, imprégnée de vie, s'abattit entre ses sourcils.
 
@@ -62,7 +62,7 @@ Au même instant, la main droite de Wang Lin absorba les essences précédemment
 
 « Impossible!! » Le visage du jeune homme aux cheveux blancs devint livide, ses yeux emplis d'incrédulité. Il cracha une quantité massive de sang et son corps faillit s'effondrer alors qu'il reculait.
 
-Tout cela se produisit en un éclair. Dès que l'Empreinte Karmique et le Sceau de la Vie et de la Mort eurent gravement blessé son adversaire, Wang Lin ferma les yeux. Il fit un pas en avant, puis les rouvrit, révélant un regard d'un calme terrifiant.
+Tout cela se produisit en un éclair. Dès que l'Empreinte du Karma et le Sceau de la Vie et de la Mort eurent gravement blessé son adversaire, Wang Lin ferma les yeux. Il fit un pas en avant, puis les rouvrit, révélant un regard d'un calme terrifiant.
 
 Son regard plongea dans celui du jeune homme aux cheveux blancs, faisant vaciller l'esprit de ce dernier. Il ressentit une peur véritable et hésita. Il ne savait s'il devait fermer les yeux car, s'il le faisait et que Wang Lin disparaissait de ses sens, ce serait un désastre!
 
@@ -90,7 +90,7 @@ Cette chance survint lorsque le jeune homme aux cheveux blancs ferma les yeux, p
 
 Tout cela avait été anticipé alors que Wang Lin était sous l'effet du sort « Arrêt », et il l'avait mis en œuvre sans la moindre hésitation pour obtenir ce résultat.
 
-Sans cette ruse, il aurait été extrêmement difficile de tuer cette rétribution divine qui ne différait pas de lui. Même ainsi, Wang Lin n'aurait eu aucun moyen de terrasser ce jeune homme en si peu de temps. Il avait ressenti profondément la difficulté de l'épreuve et le malaise de combattre son propre reflet.
+Sans cette ruse, il aurait été extrêmement difficile de tuer cette rétribution divine qui ne différait pas de lui. Même ainsi, Wang Lin n'aurait pas pu anéantir le corps de ce jeune homme en si peu de temps. Il avait ressenti profondément la difficulté de l'épreuve et le malaise de combattre son propre reflet.
 
 À cet instant, le jeune homme aux cheveux blancs comprit enfin la raison; les pupilles de Wang Lin se contractèrent lorsqu'il vit son adversaire fuir vers la barrière d'eau.
 

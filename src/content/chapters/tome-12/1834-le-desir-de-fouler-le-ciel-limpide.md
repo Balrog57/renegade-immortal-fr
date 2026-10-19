@@ -10,23 +10,23 @@ Une lueur sanglante jaillit. Wang Lin leva la main droite et l'épée de sang s'
 
 « Cette épée devrait suffire! »
 
-Le regard de Yan Lu parcourut l'épée de sang. Elle savait qu'il s'agissait d'un trésor du clan Dao Antique, digne d'être parié contre son parapluie bleu.
+Le regard de Yan Luan parcourut l'épée de sang. Elle savait qu'il s'agissait d'un trésor du clan Dao Antique, digne d'être parié contre son parapluie bleu.
 
-« Bien! Je ferai un pari avec toi. Je veux voir comment tu seras repoussé par les restrictions du septième étage! » Les pupilles de Yan Lu se rétractèrent soudainement. Elle ne parvenait plus à percer le mystère de Wang Lin.
+« Bien! Je ferai un pari avec toi. Je veux voir comment tu seras repoussé par les restrictions du septième étage! » Les pupilles de Yan Luan se rétractèrent soudainement. Elle ne parvenait plus à percer le mystère de Wang Lin.
 
 « Sortir une telle épée... Est-il absolument certain de pouvoir pénétrer au septième étage? »
 
-L'expression de Wang Lin était calme et il ne prêta plus attention à Yan Lu. Il se dirigea vers l'escalier menant au septième étage, d'un pas ni trop rapide, ni trop lent. Chaque pas provoquait une ondulation, comme s'il piétinait le cœur même de Yan Lu. Celle-ci cessa de tenter de comprendre le corps spirituel au-dessus d'elle et fixa Wang Lin, l'esprit troublé par la nervosité.
+L'expression de Wang Lin était calme et il ne prêta plus attention à Yan Luan. Il se dirigea vers l'escalier menant au septième étage, d'un pas ni trop rapide, ni trop lent. Chaque pas provoquait une ondulation, comme s'il piétinait le cœur même de Yan Luan. Celle-ci cessa de tenter de comprendre le corps spirituel au-dessus d'elle et fixa Wang Lin, l'esprit troublé par la nervosité.
 
 Elle ressentit un vague regret; elle n'aurait pas dû chercher à provoquer Wang Lin. Ce parapluie bleu était un trésor puissant doté d'une force défensive redoutable.
 
-« Humph, cet homme est très rusé, et c'est un menteur. Je crains qu'après sa défaite, il ne trouve un moyen de se retirer du pari! » lança Yan Lu en regardant Wang Lin marcher vers les marches antiques.
+« Humph, cet homme est très rusé, et c'est un menteur. Je crains qu'après sa défaite, il ne trouve un moyen de se retirer du pari! » lança Yan Luan en regardant Wang Lin marcher vers les marches antiques.
 
 Wang Lin observa l'escalier. Il y avait au total dix-neuf marches pour atteindre le septième étage. L'ascension semblait aisée au premier abord, mais dès qu'il s'en approcha, l'aura périlleuse le mit en garde. Si sa volonté flanchait, gravir ces marches reviendrait à tenter de survivre sur une mer déchaînée depuis un esquif solitaire.
 
-« Quoi, n'oses-tu pas? » Lorsque Yan Lu vit Wang Lin s'arrêter devant l'escalier, elle se détendit légèrement. Elle craignait vraiment qu'il ne monte calmement ces marches sans aucun problème, bien que cela fût presque impossible.
+« Quoi, n'oses-tu pas? » Lorsque Yan Luan vit Wang Lin s'arrêter devant l'escalier, elle se détendit légèrement. Elle craignait vraiment qu'il ne monte calmement ces marches sans aucun problème, bien que cela fût presque impossible.
 
-Wang Lin se retourna soudain et lança un regard plein de sens à Yan Lu.
+Wang Lin se retourna soudain et lança un regard plein de sens à Yan Luan.
 
 « Regarde attentivement! » Après ces mots, ses yeux brillèrent et son pied se posa sur la première marche. À l'instant même où il toucha le sol, le ciel au-dessus de la Secte de la Grande Âme changea radicalement.
 
@@ -72,9 +72,9 @@ Cependant, peu après, il ouvrit soudainement les yeux et fixa le sommet de l'es
 
 À chaque pas, un grondement tonitruant résonnait dans toute la Secte de la Grande Âme. En un éclair, Wang Lin franchit cinq marches!
 
-Au sixième étage, Yan Lu fixait Wang Lin. Après l'avoir vu gravir ces cinq marches, son expression changea, avant de redevenir normale.
+Au sixième étage, Yan Luan fixait Wang Lin. Après l'avoir vu gravir ces cinq marches, son expression changea, avant de redevenir normale.
 
-« Humph, et alors s'il parvient à monter cinq marches? Il ne pourra jamais atteindre la septième! » Yan Lu serra les poings, oubliant totalement de comprendre le corps spirituel au-dessus d'elle. Toute son attention était désormais rivée sur Wang Lin.
+« Humph, et alors s'il parvient à monter cinq marches? Il ne pourra jamais atteindre la septième! » Yan Luan serra les poings, oubliant totalement de comprendre le corps spirituel au-dessus d'elle. Toute son attention était désormais rivée sur Wang Lin.
 
 Wang Lin restait calme, mais son cœur était en proie à une tempête. Après avoir atteint la cinquième marche, il eut l'impression d'être immergé dans un abîme sans fin. À chaque pas, un puissant Sens Divin s'engouffrait dans son corps et bombardait son esprit.
 
@@ -84,13 +84,13 @@ Wang Lin restait calme, mais son cœur était en proie à une tempête. Après a
 
 « Recule!!! »
 
-Bien que cette voix n'ait prononcé que deux mots, ils résonnaient sans fin dans l'esprit de Wang Lin. C'était comme si des centaines de milliers de personnes hurlaient à son encontre.
+Bien que cette voix n'ait prononcé que deux mots, ils résonnaient sans fin dans l'esprit de Wang Lin. C'était comme si des centaines, voire des milliers de personnes hurlaient à son encontre.
 
 Cette voix donnait à Wang Lin la sensation que son corps allait être déchiré. Il avait l'impression qu'il serait effacé de ce monde s'il ne faisait pas demi-tour!
 
 Sous le choc de cette voix, le pied de Wang Lin s'immobilisa sur la cinquième marche. Il leva les yeux vers l'escalier, le regard empreint d'une détermination farouche.
 
-« Corps véritable d'essence, rassemblez-vous! » La main de Wang Lin traça un sceau et pointa vers l'avant. Une partie de la Secte de la Grande Âme trembla et une mer de feu jaillit de la Montagne des Veines de Feu. Ce brasier couvrit le ciel et un visage gigantesque apparut.
+« Corps véritable d'essence, rassemblez-vous! » La main de Wang Lin traça un sceau et pointa vers l'avant. Une partie de la Secte de la Grande Âme trembla et une mer de feu jaillit de la Montagne du Filon de Feu. Ce brasier couvrit le ciel et un visage gigantesque apparut.
 
 Ce visage était le corps véritable d'essence de Wang Lin!
 
@@ -102,7 +102,7 @@ Dès que son corps véritable apparut, ses yeux brillèrent d'un éclat intense.
 
 Sixième marche, septième marche, huitième marche... Wang Lin ne marqua aucune pause; il atteignit la treizième marche en un éclair!
 
-Au moment où son pied toucha le sol, Yan Lu, qui l'observait, se leva brusquement. Son beau visage était marqué par l'incrédulité et son corps tremblait. Elle ne réalisa pas que sa main droite était devenue blanche à force de serrer les poings.
+Au moment où son pied toucha le sol, Yan Luan, qui l'observait, se leva brusquement. Son beau visage était marqué par l'incrédulité et son corps tremblait. Elle ne réalisa pas que sa main droite était devenue blanche à force de serrer les poings.
 
 « Impossible! »
 
@@ -118,7 +118,7 @@ Le corps véritable d'essence de Wang Lin n'était pas un concept connu de tous 
 
 Toute la Secte de la Grande Âme était en émoi. Même certains des vieux monstres en culture isolée furent tirés de leur méditation.
 
-« Treize marches... » Au Pic Céleste Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
+« Treize marches... » Au Pic du Ciel Vert, l'Estimé Taureau Vert devint sérieux. Cependant, il resta assis sans sortir.
 
 « Je l'avais sous-estimé... Son corps véritable d'essence est très proche de devenir un véritable Céleste... Corps véritable d'essence, véritable Céleste. Il n'y a qu'un mot de différence, mais l'écart est un gouffre! »
 
@@ -130,12 +130,12 @@ Toute la Secte de la Grande Âme était en émoi. Même certains des vieux monst
 
 Le rugissement résonnait dans son esprit et continuait de marteler son âme originelle. Bien qu'il paraisse calme, sa vision devenait floue.
 
-Cette confusion fut remarquée par Yan Lu, par les innombrables cultivateurs de la Secte de la Grande Âme et par les vieux monstres en retraite méditative!
+Cette confusion fut remarquée par Yan Luan, par les innombrables cultivateurs de la Secte de la Grande Âme et par les vieux monstres en retraite méditative!
 
-« Il est sur le point d'échouer! » Un sourire de joie apparut sur le visage de Yan Lu.
+« Il est sur le point d'échouer! » Un sourire de joie apparut sur le visage de Yan Luan.
 
 « Il semble qu'il ne soit toujours pas capable de pénétrer au septième étage... » La plupart des cultivateurs de la Secte de la Grande Âme secouèrent silencieusement la tête.
 
 Pourtant, à cet instant précis, la confusion dans les yeux de Wang Lin disparut soudainement, remplacée par une lumière monstrueuse!
 
-« Yan Lu, tu célèbres trop tôt. Je vais m'emparer de ton parapluie! »
+« Yan Luan, tu célèbres trop tôt. Je vais m'emparer de ton parapluie! »

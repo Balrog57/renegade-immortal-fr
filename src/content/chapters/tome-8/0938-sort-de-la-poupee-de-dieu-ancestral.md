@@ -66,7 +66,7 @@ Ce rugissement contenait une énergie originelle d'une puissance colossale; en s
 
 « Explosez! » hurla Wang Lin. Tandis qu'il avançait, son âme originelle fut ébranlée. Sans son corps d'Ancien Dieu, il aurait explosé et serait mort sur le coup. Même à cet instant, la douleur était atroce.
 
-Pourtant, il n'avait aucune crainte. Alors qu'il criait, les épées volantes qu'il avait dissimulées dans les points sensibles du Serpent aux yeux de lune explosèrent soudainement!
+Pourtant, il n'avait aucune crainte. Alors qu'il criait, les épées volantes qu'il avait dissimulées dans plus d'une dizaine de points sensibles du Serpent aux yeux de lune explosèrent soudainement!
 
 Le Serpent aux yeux de lune possédait plusieurs points extrêmement sensibles. Bien que ces explosions ne puissent pas le blesser gravement, l'endommagement de ces zones infligeait une douleur inimaginable au serpent.
 

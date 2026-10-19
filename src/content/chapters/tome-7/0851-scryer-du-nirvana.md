@@ -16,13 +16,13 @@ Après avoir médité silencieusement un instant, Wang Lin se leva et, d'un simp
 
 D'un pas, Wang Lin s'éclipsa pour fusionner avec le monde. Lorsqu'il réapparut, il se trouvait parmi les étoiles. Sans s'attarder, il disparut de nouveau rapidement.
 
-« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la tribulation divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la tribulation divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
+« D'abord, je dois trouver Li Yuan et obtenir la restriction du cœur! Si quiconque ose se mettre sur mon chemin, j'activerai la rétribution divine et emprunterai leur pouvoir pour m'aider à la surmonter! » Les yeux de Wang Lin étaient glacials. Il avait déjà affronté la rétribution divine à plusieurs reprises et ne ressentait plus l'effroi qu'il éprouvait autrefois.
 
-À cet instant, il fusionna avec le monde et fonça vers le Domaine du Sud. La famille Li se trouvait dans le Domaine du Sud, sur la Planète de l'Annihilation.
+À cet instant, il fusionna avec le monde et fonça vers le Domaine Sud. La famille Li se trouvait dans le Domaine Sud, sur la Planète de l'Annihilation.
 
 Wang Lin, fusionné avec le monde, se déplaçait à une vitesse incroyable en suivant la carte que lui avait donnée Li Yuan. Cependant, avec son niveau de culture, il ne pouvait maintenir cette fusion très longtemps. Chaque fois qu'il réapparaissait, il devait se reposer un moment.
 
-Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de fusionner avec le monde. Ce jour-là, lorsqu'il réapparut dans le Domaine du Sud et s'élança en avant, son expression changea soudainement alors qu'il s'apprêtait à nouveau à fusionner avec le monde.
+Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de fusionner avec le monde. Ce jour-là, lorsqu'il réapparut dans le Domaine Sud et s'élança en avant, son expression changea soudainement alors qu'il s'apprêtait à nouveau à fusionner avec le monde.
 
 Un puissant sentiment de crise envahit les environs. Le regard de Wang Lin se fit froid et son corps vacilla. L'espace dans lequel il se trouvait s'effondra brusquement dans un fracas, propageant une onde de choc. Calme, Wang Lin fixa l'horizon d'un œil glacial.
 
@@ -60,7 +60,7 @@ Un éclair de froideur traversa son regard alors qu'il levait la tête vers le c
 
 Yao Yun progressait rapidement à travers l'espace, l'expression impassible. Soudain, son visage se décomposa en voyant une masse de nuages rouges s'accumuler. Ces nuages différaient radicalement de ceux qu'il avait sous ses pieds; ils contenaient une puissance qui le terrifiait.
 
-« Ceci... Ceci est un nuage de tribulation divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète de Sang, des millénaires plus tôt, étaient totalement embrumés.
+« Ceci... Ceci est un nuage de rétribution divine! » Ses pupilles se rétractèrent brusquement. Il avait atteint le stade initial du Purificateur du Nirvana il y a des milliers d'années, mais pour une raison inconnue, sa culture avait régressé au milieu du stade Scruteur du Nirvana. Non seulement cela, mais il semblait avoir perdu la mémoire. En particulier, ses souvenirs de son départ de la Planète du Sang, des millénaires plus tôt, étaient totalement embrumés.
 
 Il avait beau s'efforcer, il ne parvenait à rien se remémorer.
 
@@ -72,7 +72,7 @@ C'était comme si ce carnage était le seul moyen d'évacuer la douleur qui lui 
 
 Au début, il parvenait à réprimer cet instinct grâce à sa culture. Cependant, avec le temps et la régression de ses pouvoirs, la douleur s'intensifiait. Il devenait de plus en plus difficile de contenir l'envie de massacrer toute forme de vie dans ce monde!
 
-Il pressentait que cela était lié à une rencontre sur la Planète de Sang, mais malgré tous ses efforts, le souvenir lui échappait.
+Il pressentait que cela était lié à une rencontre sur la Planète du Sang, mais malgré tous ses efforts, le souvenir lui échappait.
 
 Il avait un jour interrogé le Dieu de Sang, sans jamais obtenir de réponse.
 
@@ -80,7 +80,7 @@ Se sentant impuissant, il s'était muré au sein de sa famille, s'adonnant à un
 
 Il avait obtenu tous les détails sur cette cible auprès de l'Ancêtre afin de maîtriser la situation.
 
-À cet instant précis, face au nuage de tribulation divine, une onde de choc frappa son esprit. Ce choc ne venait pas seulement de lui, mais d'une part immense de son âme. C'était comme si la foudre de la tribulation était son ennemi naturel.
+À cet instant précis, face au nuage de rétribution divine, une onde de choc frappa son esprit. Ce choc ne venait pas seulement de lui, mais d'une part immense de son âme. C'était comme si ce nuage de rétribution divine était son ennemi naturel.
 
 Le sentiment fut si violent qu'il devint une douleur atroce, comme si un pieu avait été planté dans son cerveau. Cette souffrance injecta ses yeux de sang.
 
@@ -88,17 +88,17 @@ Un rugissement de rage s'échappa de sa bouche, se propageant comme le tonnerre.
 
 Ses cheveux volèrent et les veines de son visage saillirent, féroce. Une lueur verte apparut sur son visage, et un second visage apparut au sein de cette lueur.
 
-C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa les nuages de tribulation qui s'accumulaient et laissa échapper un rugissement silencieux.
+C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa les nuages de rétribution qui s'accumulaient et laissa échapper un rugissement silencieux.
 
-Ce cri n'avait aucun son, mais il fit trembler les nuages de tribulation et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
+Ce cri n'avait aucun son, mais il fit trembler les nuages de rétribution et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
 
-En un clin d'œil, la zone fut saturée par un nuage de tribulation divine de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
+En un clin d'œil, la zone fut saturée par un nuage de rétribution divine de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
 
 La douleur sur le visage de Yao Yun s'accentua. L'ombre démoniaque qui l'entourait bondit immédiatement hors de son corps, se précipitant vers l'éclair rouge pour tenter de le dévorer.
 
 Un fracas retentit alors que l'ombre démoniaque tremblait, frôlant l'effondrement. Simultanément, une quantité massive de foudre traversa l'ombre pour pénétrer dans le corps de Yao Yun, exacerbant sa souffrance.
 
-Une partie de la tribulation divine pénétra dans le miroir de bronze.
+Une partie de la foudre de rétribution pénétra dans le miroir de bronze.
 
 À cet instant précis, un léger craquement s'échappa du miroir. Puis, d'autres bruits de rupture se succédèrent.
 

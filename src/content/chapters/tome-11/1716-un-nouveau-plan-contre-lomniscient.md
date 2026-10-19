@@ -36,7 +36,7 @@ Wang Lin leva sa main droite et fit un geste. Les lignes de sang dans ses yeux a
 
 Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes floues des lois apparurent devant lui. D'un mouvement de la main droite, il fit converger une multitude de ces lignes autour de la rivière argentée.
 
-« Cela devrait permettre au Royaume Céleste de rester en sécurité pendant la recherche de la troisième âme! » Wang Lin médita silencieusement un instant, puis se dirigea vers la rivière argentée.
+« Cela devrait permettre au Royaume Céleste de rester en sécurité pendant ce fléau qu'est la recherche de la troisième âme! » Wang Lin médita silencieusement un instant, puis se dirigea vers la rivière argentée.
 
 Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur culture et s'élancèrent dans les airs.
 
@@ -88,7 +88,7 @@ Treize était un homme simple qui ne se compliquait pas l'esprit. Il ne souhaita
 
 Quant à Situ Nan, il passait ses journées à boire du vin avec Wang Lin en lui tapotant le dos. Il paraissait très heureux et, lorsqu'ils buvaient, c'était comme s'il avait oublié tous ses soucis.
 
-Parfois, ivre, il fixait Wang Lin avec mélancolie. Ce n'était pas la croissance de Wang Lin qui l'attristait, mais le fait qu'il n'avait plus été roi depuis longtemps.
+Parfois, ivre, il fixait Wang Lin avec mélancolie. Ce n'était pas la croissance de Wang Lin qui l'attristait, mais le fait qu'il n'avait plus été prince depuis longtemps.
 
 Zhou Yi vint également une fois. Sa tristesse s'intensifia après avoir partagé un verre avec Wang Lin. Il ne dit mot et se contenta de boire à ses côtés. Il regarda Wang Lin d'un air profond, esquissa son premier sourire, puis partit d'un signe de tête.
 
@@ -98,7 +98,7 @@ Bientôt, un mois s'écoula au nouveau Royaume Céleste. Durant ce temps, Wang L
 
 Ils organiseraient la transmission de ces sorts, ce qui accroîtrait la puissance globale du Royaume Céleste.
 
-Pendant ce temps, à l'extérieur du royaume, un immense chaos se préparait. Les quatre généraux célestes utilisaient une méthode singulière pour traquer la troisième âme. Ils avaient combiné leurs pouvoirs et, avec l'appui de la lignée céleste de nombreux êtres, ils avaient formé une formation de recherche.
+Pendant ce temps, à l'extérieur du royaume, un immense chaos se préparait. Les quatre grands généraux du Royaume Céleste Antique utilisaient une méthode singulière pour traquer la troisième âme. Ils avaient combiné leurs pouvoirs et, avec l'appui de la lignée céleste de nombreux êtres, ils avaient formé une formation de recherche.
 
 Bien entendu, il existait des méthodes spéciales inconnues; des secrets que même Wang Lin ignorait.
 
@@ -106,7 +106,7 @@ Hormis les anciens êtres célestes menés par les quatre généraux, le Vieux F
 
 Il ne cachait nullement ses intentions, et bien que les quatre généraux l'aient senti, ils s'en moquaient étrangement. Ils semblaient avoir un appui sur lequel compter, et peu leur importait d'être surveillés.
 
-Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer des Nuages, il avait convoqué le Souverain et ses concubines. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
+Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer des Nuages, il avait convoqué le Souverain et quelques concubines venues du Royaume Extérieur. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
 
 Ils semblaient employer un type de sort spécifique, né des batailles entre les Royaumes Intérieur et Extérieur. Les morts innombrables de ces cultivateurs semblaient avoir offert une opportunité au Daoïste aux Sept Couleurs.
 

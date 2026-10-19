@@ -58,7 +58,7 @@ Le visage de l'homme âgé s'illumina et, d'un geste de la main, le vin dans les
 
 Wang Lin était resté silencieux durant tout ce temps. Il ne parvenait absolument pas à discerner le niveau de culture de cet homme et, n'étant pas porté sur la conversation, il jugea préférable de laisser Qiu Siping gérer l'échange.
 
-De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la rétribution divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais au fil de ses paroles, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
+De plus, Wang Lin s'interrogeait sur la raison pour laquelle cet homme les avait arrêtés. Il soupçonnait que cela soit lié à la rétribution divine ou à sa récente frénésie meurtrière. Bien sûr, il était possible que l'homme recherche Qiu Siping, mais à voir son expression, Wang Lin eut le sentiment que la véritable cible n'était pas Qiu Siping, mais lui-même.
 
 L'homme âgé ouvrit la bouteille, en renifla l'arôme et dit: « Un excellent vin de fruits Can Yun. Pas mal. Petit gars, tu me plais bien. Dis-moi, veux-tu devenir mon disciple? »
 
@@ -92,7 +92,7 @@ Le regard du vieillard se posa sur Qiu Siping. Ce dernier hésita un instant, pu
 
 L'homme âgé roula des yeux: « Je te donne un mois. Après cela, rends-toi dans le pavillon de raffinage des trésors de n'importe quelle ville, donne mon nom, Sun Dian, et ils sauront. »
 
-Sur ce, l'homme regarda Wang Lin en riant. Il tapa la tortue du pied et disparut en un clin d'œil.
+Sur ce, l'homme regarda Wang Lin en riant. Il tapa la tortue du pied, s'envola au loin et disparut en un clin d'œil.
 
 Qiu Siping resta pensif un moment avant de lancer à Wang Lin un regard effrayé. Sans poser de questions sur l'homme, il dit d'un ton pesant: « Frère Wang, je vais accélérer le bateau pour que nous arrivions dans deux jours. Je te laisse gérer la question des restrictions dans la grotte. »
 
@@ -174,9 +174,9 @@ La porte s'ouvrit sur une pièce vide.
 
 Qiu Siping jeta un regard à Wang Lin et dit lentement: « Mon maître et mon frère aîné se trouvent dans la pièce à droite. Une fois ouverte, nous prendrons chacun une Âme Naissante. L'Âme Naissante de mon maître te reviendra, et je prendrai celle de mon frère aîné. Frère Wang, je sais que nos premières rencontres furent marquées par des malentendus, mais je crois qu'ils sont désormais résolus. »
 
-Wang Lin répondit calmement: « Et si votre conclusion est erronée et que les deux Âmes Naissantes ne se trouvent pas à Gui Xi? »
+Wang Lin répondit calmement: « Et si votre conclusion est erronée et que les deux Âmes Naissantes ne sont pas en état de Gui Xi? »
 
-Qiu Siping secoua la tête: « Frère Wang, soyez sans crainte, elles sont bien là. Mais j'ai tout de même préparé une précaution. » Il prit une profonde inspiration et sortit un bâton d'encens violet. En l'allumant, un parfum de bois de santal emplit la pièce.
+Qiu Siping secoua la tête: « Frère Wang, soyez sans crainte, elles sont bien là, toutes deux en état de Gui Xi. Mais j'ai tout de même préparé une précaution. » Il prit une profonde inspiration et sortit un bâton d'encens violet. En l'allumant, un parfum de bois de santal emplit la pièce.
 
 « Le Parfum Confus du Cœur? » Les yeux de Wang Lin s'illuminèrent. Il reconnut immédiatement cette substance utilisée pour la fabrication de pilules. Combiné à d'autres composants, il calme le cœur et aide à résister aux démons extérieurs. Mais utilisé seul sur quelqu'un attaqué par un démon, il aggrave les blessures et facilite l'invasion du démon.
 
@@ -230,13 +230,13 @@ Son noyau s'élargit brusquement et s'assombrit. Sa taille continua de croître 
 
 Mais!
 
-À cet instant précis, le Royaume Ji au sein de sa conscience s'activa hors de son contrôle. Il quitta sa conscience pour voyager à travers son corps vers son noyau.
+À cet instant précis, le Sens Divin du Royaume Ji, sous forme d'éclair, se mit pour la première fois en mouvement sans son contrôle. Il jaillit de sa conscience, traversa sa Mer de Connaissance Zifu et frappa son noyau à travers son corps.
 
 Wang Lin écarquilla les yeux. Malgré tous ses efforts pour maîtriser le Royaume Ji, il ne put l'enrayer. Dès que le Royaume Ji percuta son noyau, celui-ci explosa.
 
 L'onde de choc interne fit entrer en collision l'énergie libérée par l'explosion du noyau et celle provenant de l'Âme Naissante dévorée. L'impact projeta toute cette énergie hors des méridiens de Wang Lin, balayant son corps.
 
-Éjecté par l'explosion intérieure, il cracha plusieurs bouffées de sang, le visage livide.
+Projeté violemment dans les airs par l'explosion intérieure, il retomba lourdement au sol et cracha plusieurs bouffées de sang, le visage livide.
 
 Il lutta pour se redresser, les yeux ternes et le silence pour seul compagnon. Après un long moment, une lueur revint dans son regard avant qu'il ne referme les paupières. En inspectant son corps, il laissa échapper un rire maniaque qui, malgré la folie, laissait transparaître une profonde tristesse.
 
@@ -258,7 +258,7 @@ Dans sa confusion, il se souvint soudain de la grotte de Qiu Siping. Elle conten
 
 Pensant cela, il retourna vers la grotte de Qiu Siping.
 
-Cinq jours plus tard, il arriva. Peu importait la présence de Qiu Siping; si celui-ci tentait de l'entraver, Wang Lin le tuerait sans hésiter. Bien que Qiu Siping ait obtenu une Âme Naissante, sa formation demandait plus de quinze jours, Wang Lin ne craignait donc pas de le croiser.
+Cinq jours plus tard, il arriva dans cette étendue désolée. Peu importait la présence de Qiu Siping; si celui-ci tentait de l'entraver, Wang Lin le tuerait sans hésiter. Bien que Qiu Siping ait obtenu une Âme Naissante, sa formation demandait plus de quinze jours, Wang Lin ne craignait donc pas de le croiser.
 
 Il s'enfonça dans la terre pour atteindre la grotte. Les restrictions n'étaient aucunement un problème pour lui. Après les avoir toutes brisées, il pénétra à l'intérieur.
 

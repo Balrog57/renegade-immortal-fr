@@ -32,7 +32,7 @@ Chen Fengxiao hocha la tête amèrement, tentant encore d'assimiler ce qu'il ven
 
 Wang Lin séjourna à la Secte Tian Dao.
 
-Hormis quelques membres de chaque secte, tous les autres cultivateurs de Zhao retournèrent dans leurs propres clans.
+Hormis les dirigeants de chaque secte, tous les autres cultivateurs de Zhao retournèrent dans leurs propres sectes.
 
 Au sein de la Secte Tian Dao, Wang Lin donna une conférence sur le Dao à tous les cultivateurs du stade de la Formation du Noyau. Cela laissa en eux une empreinte du Dao qui augmenta considérablement leurs chances d'atteindre le stade de l'Âme Naissante.
 
@@ -40,9 +40,9 @@ Il fit de même pour les rares cultivateurs de l'Âme Naissante. Il ne retint ri
 
 Trois jours plus tard, Wang Lin et Wang Zhuo quittèrent la Secte Tian Dao. Avant son départ, Wang Lin y installa une formation protectrice. Elle interdirait l'accès à tout cultivateur de la Formation de l'Âme; seuls les experts de la Transformation de l'Âme pourraient la briser.
 
-Pour un pays de culture de rang 3, posséder une telle formation était sans précédent. Normalement, seul un pays de rang 5 disposerait d'une formation de protection de secte aussi puissante.
+Pour un pays de culture de rang 3, posséder une telle formation était sans précédent. Normalement, seul un pays de rang 5 disposerait d'une formation de protection de secte encore plus puissante.
 
-Après avoir accompli ce dernier acte pour Zhao, Wang Lin n'avait plus aucune inquiétude concernant le pays qui l'avait élevé. Il suivit ensuite Wang Zhuo pour observer silencieusement les descendants de la famille Wang.
+Après avoir accompli ce dernier acte pour Zhao, Wang Lin n'avait plus aucune attache envers le pays qui l'avait élevé. Il suivit ensuite Wang Zhuo pour observer silencieusement les descendants de la famille Wang.
 
 Puis, dans la demeure ancestrale, Wang Lin vit Yu Er et ses parents. En voyant la fillette, Wang Lin se remémora Da Niu et Zhou Ru lorsqu'ils étaient enfants. Une pointe de mélancolie l'envahit en cet instant.
 
@@ -50,7 +50,7 @@ Wang Zhuo prit Yu Er comme disciple et lui transmit des méthodes de culture.
 
 Avant de partir, Wang Lin récupéra le Royaume Ji contenu dans la pierre de jade de la demeure ancestrale et le remplaça par son propre Sens Divin.
 
-Wang Zhuo ne retourna pas à la Secte Tian Dao mais resta auprès de la famille Wang, dans la capitale. Deux cents ans auparavant, il avait été placé dans le ventre d'une femme enceinte de la lignée Wang. Il était resté physiquement proche de la famille Wang, tant dans sa vie passée que dans l'actuelle; ses sentiments pour eux étaient donc bien plus profonds que ceux de Wang Lin.
+Wang Zhuo ne retourna pas à la Secte Tian Dao mais resta auprès de la famille Wang, dans la capitale. Deux cents ans auparavant, il avait été placé dans le ventre d'une femme enceinte de la lignée Wang. Il était né dans la famille Wang, tant dans sa vie passée que dans la présente; ses sentiments pour eux étaient donc bien plus profonds que ceux de Wang Lin.
 
 Il avait l'intention de consacrer sa vie à protéger les descendants de la famille Wang.
 
@@ -74,7 +74,7 @@ Wang Lin soupira, essuya la poussière et resta silencieusement à les contemple
 
 Peu après, il déploya son Sens Divin et se dirigea sur le côté. Il brisa la formation qui protégeait une porte et pénétra à l'intérieur. Là, des rangées d'étagères portaient des pierres de jade qui émettaient de faibles lueurs fantomatiques.
 
-Dans un coin, un cadavre reposait en position du lotus. Les ossements étaient en bon état, ce qui signifiait que cette personne était morte de vieillesse. L'index droit du défunt pointait vers le sol.
+Dans un coin, un cadavre reposait en position du lotus. Les ossements étaient intacts, sans fissure ni trace de blessure, ce qui signifiait que cette personne était morte de vieillesse. L'index droit du défunt pointait vers le sol.
 
 Wang Lin s'approcha, nettoya la poussière au sol et découvrit les mots gravés:
 
@@ -88,7 +88,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Le mot "inutile" décrit bien ce vieil homme. Puisque je ne peux pas utiliser mon Sens Divin pour contrôler les épées, je suis incapable de les manier au combat. Je suis une honte pour mon maître. »
 
-« À 80 ans, j'ai rêvé que j'étais un esprit d'épée balayant la terre. J'étais le roi des épées. »
+« À 80 ans, j'ai rêvé que j'étais un esprit d'épée balayant la terre et rugissant sur les Neuf Provinces. J'étais le roi des épées. »
 
 « À mon réveil, l'épée de mon rêve était restée gravée dans mon esprit comme si c'était ma quête ultime, comme si c'était ma vie antérieure... J'ai renoncé à dépasser le stade de l'Établissement des Fondations pour me consacrer à la forge! »
 
@@ -102,7 +102,7 @@ Après un soupir, il ramassa les pierres de jade une à une pour les examiner av
 
 « Une fois l'épée achevée, j'ai soudainement ressenti un signe céleste; j'ai donc recouvert l'épée d'or et elle s'est mise à briller. »
 
-« En contemplant l'épée, les sensations de mon rêve sont revenues subitement. À cet instant, je fus transporté dans mon rêve et je devins l'esprit de cette épée. »
+« En contemplant l'épée, les sensations de mon rêve sont revenues subitement. Mon corps m'échappa, je saisis l'épée, et à cet instant je fus transporté dans mon rêve et devins l'esprit de cette épée. »
 
 « C'était le sentiment que je recherchais. J'ai nommé l'épée Richesse. Bien que ce nom ne soit guère prestigieux, il traduisait exactement ce que je ressentais. »
 
@@ -130,8 +130,8 @@ Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un
 
 « Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 
-« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yue. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai mis toute une vie à obtenir. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et deviens le prochain Suzaku. »
+« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yue. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et deviens le prochain Suzaku. »
 
 Il fit un pas et disparut.
 
-Dans une ancienne matrice de téléportation du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte de l'Affinement de l'Âme.
+Dans une ancienne matrice de téléportation du nord du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte de l'Affinement de l'Âme.

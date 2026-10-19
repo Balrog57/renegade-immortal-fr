@@ -16,7 +16,7 @@ Peut-être que certains percevraient la lumière dès la première fois et obtie
 
 Certains seraient comme Wang Lin, qui n'obtiendrait rien d'autre qu'un léger renforcement de la puissance de son essence.
 
-Mais d'autres pourraient acquérir la majeure partie de la compréhension de l'essence de l'absolu commencement en seulement deux tentatives. Ils ne repartiraient pas avec une simple graine, mais avec une graine déjà germée.
+Mais d'autres pourraient acquérir la majeure partie de la compréhension de l'essence de l'absolu commencement en seulement deux tentatives. Ils ne repartiraient pas avec une simple graine, mais avec une graine déjà germée et une compréhension encore confuse.
 
 Wang Lin ignorait si quelqu'un avait jamais réussi à s'approprier l'essence complète de l'absolu commencement. À cet instant, il était plongé dans un état étrange, semblant avoir tout oublié de ce qui l'entourait. La vision de son œil droit était floue, et pourtant, son œil gauche contenait toutes les étapes de cette essence spéciale de l'absolu commencement.
 
@@ -38,7 +38,7 @@ Il s'immergea et utilisa le Dao de la tromperie pour échapper à l'inspection d
 
 « Cette essence de l'absolu commencement était la source de toute chaleur issue de la lumière... » Wang Lin était transporté par cette voix, et il voyait clairement la lumière de son œil gauche l'envelopper totalement. Dans cette clarté, c'était comme s'il contemplait des centaines de millions de levers de soleil.
 
-À travers ces millions d'aurores, Wang Lin ressentit une aura. Cette aura était une existence pure, directe et juste!
+À travers ces millions d'aurores, Wang Lin ressentit une aura. Cette aura était un souffle de droiture immense, intègre et inflexible, une existence qui se dressait entre ciel et terre!
 
 Ceux qui étaient imprégnés par cette aura devaient être des êtres de droiture. Ils ne portaient peut-être pas le poids du monde sur leurs épaules, mais ils étaient des êtres capables d'assumer chacune de leurs décisions!
 
@@ -56,7 +56,7 @@ Le temps passa. Wang Lin restait immergé dans le Bassin Dong Lin, et à mesure 
 
 Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé dans l'obscurité, Wang Lin ouvrit les yeux au fond du bassin. Son œil gauche libéra une lumière infinie et un soleil apparut en son sein!
 
-Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore environ le temps d'un bâton d'encens. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
+Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore environ le temps d'un bâton d'encens. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une heure d'avance.
 
 « Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Nuit Brisée n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
 

@@ -12,7 +12,7 @@ Le troisième niveau était un stade de culture légendaire. Dans le Domaine Sce
 
 Ils étaient comme des empereurs parmi les cultivateurs. Tous les autres n'étaient que des fourmis face à eux, prêtes à être anéanties d'un simple geste!
 
-Un cultivateur Briseur du Nirvana pouvait être un enseignant au sein d'une secte, et un cultivateur du Fléau Céleste pouvait être un Grand Ancien, mais devant un cultivateur du troisième niveau, ils n'étaient que des insectes que l'on pouvait écraser à sa guise!
+Un cultivateur Briseur du Nirvana pouvait être le chef d'une secte, et un cultivateur du Fléau Céleste pouvait être un Grand Ancien, mais devant un cultivateur du troisième niveau, ils n'étaient que des insectes que l'on pouvait écraser à sa guise!
 
 C'était cela la force, la cruelle vérité du monde de la culture. La loi de la jungle!
 
@@ -72,7 +72,7 @@ Alors que le sang se dissipait et que les tatouages étaient détruits, le monde
 
 Une restriction n'était pas un sort; elle était formée d'un fragment d'aura des temps anciens qui s'était transformé en son propre Dao!
 
-En particulier, Wang Lin avait fusionné les trois grandes restrictions, atteignant presque l'origine même des restrictions. À ce moment-là, les cent continents sauvages commencèrent à trembler et à pivoter rapidement sous le contrôle de Wang Lin, s'abattant vers Shui Daozi!
+En particulier, Wang Lin avait fusionné les trois grandes restrictions, atteignant presque l'origine même des restrictions. À ce moment-là, les cent continents sauvages commencèrent à trembler et à rétrécir rapidement sous le contrôle de Wang Lin, s'abattant vers Shui Daozi!
 
 « Restriction d'Annihilation, scelle le monde! Restriction de la Vie et de la Mort, scelle le corps! Restriction du Temps, scelle l'âme originelle! Trois grandes restrictions n'en font qu'une: Scelle! Scelle! Scelle! Scelle ton monde, scelle ton corps et scelle ton âme originelle! » Wang Lin pointa le doigt vers l'avant.
 
@@ -102,7 +102,7 @@ Pourtant, Wang Lin était très ingénieux. Il avait utilisé le sang des innomb
 
 « Le sort d'une simple fourmi. Même en utilisant le sang pour le compléter, cela reste inutile! » Le garçon aux cheveux blancs fit un pas en avant et cessa d'utiliser des sorts. Au lieu de cela, il força simplement son passage.
 
-Il avait atteint le troisième niveau et avait accompli sa Loi. Là où la Loi réside, les sorts ne peuvent rien. Alors qu'il avançait, le monde semblait lui ouvrir un chemin!
+Il avait atteint le troisième niveau et avait accompli sa Loi. Là où la Loi réside, les sorts ne peuvent rien. Alors qu'il avançait, le monde semblait redevenir ce qu'il était à l'aube de la création et lui ouvrir un chemin!
 
 Même la fusion des trois restrictions trembla, car aucun sort ne pouvait l'arrêter. La Restriction du Temps céda la première, ne scellant plus son âme originelle. Ensuite, la Restriction de la Vie et de la Mort s'effondra, ne scellant plus son corps. Enfin, la Restriction d'Annihilation se dissipa, ne scellant plus le monde.
 
@@ -118,6 +118,6 @@ Après la lance, les sept épines du char de guerre aux sept couleurs formèrent
 
 À cet instant, toutes les lois s'effondrèrent devant ces Chars de Guerre Divins! Les lois ne pouvaient les arrêter, le monde ne pouvait les arrêter; aucune puissance ne pouvait stopper ces deux Chars de Guerre Divins!
 
-C'était le véritable Char de Guerre Divin! Il possédait le pouvoir d'égorger les dieux!
+C'était le véritable Char de Guerre Divin! Il possédait le pouvoir d'abattre les dieux du ciel!
 
 L'expression de Shui Daozi changea pour la toute première fois!

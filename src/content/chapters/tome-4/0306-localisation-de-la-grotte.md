@@ -37,11 +37,11 @@ Wang Lin laissa échapper un sourire amer. Son âme originelle était gravement 
 
 Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa main. Il le scruta de son Sens Divin et constata que ce prétendu jade céleste ressemblait beaucoup à une pierre spirituelle. Cependant, là où les pierres spirituelles libéraient de l'énergie spirituelle, les jades célestes libéraient de l'énergie spirituelle céleste.
 
-Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la culture. Plus on en possédait, mieux c'était.
+Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus de comprendre ses domaines, l'énergie spirituelle du monde ne suffisait plus à la culture. Plus on en possédait, mieux c'était.
 
 Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang; même le Pays de Suzaku serait intervenu pour s'en emparer.
 
-Après un bref examen, Wang Lin rangea le jade. Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine. Il prit une profonde inspiration avant de sortir un autre objet: le morceau de métal provenant de la poitrine du squelette.
+Après un bref examen, Wang Lin rangea le jade. Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine. Il prit une profonde inspiration avant de sortir un autre objet: le morceau de métal doré provenant de la poitrine du squelette.
 
 Sun Lei avait prétendu qu'il s'agissait d'un trésor céleste de type défensif, mais dès que Wang Lin l'eut saisi, il comprit que cet objet n'était aucunement un trésor céleste. Il n'avait pas eu le temps de l'examiner plus en détail alors, mais à présent, il déploya son Sens Divin pour l'étudier de près.
 
@@ -75,7 +75,7 @@ Alors qu'il s'apprêtait à s'envoler de nouveau, il ressentit soudainement une 
 
 À cet instant, l'individu en tête remarqua Wang Lin. Il changea brusquement de direction et cria: « Camarade cultivateur, sauvez-moi! »
 
-Le visage du cultivateur en robe blanche s'assombrit; il rangea son éventail et fit un geste de la main. Soudain, une main gigantesque apparut pour saisir l'homme qui fuyait. Ce dernier changea d'expression, semblant incapable d'esquiver, mais son corps se transforma soudainement en une multitude de petits insectes, lui permettant de s'échapper de l'emprise.
+Le visage du cultivateur en robe blanche s'assombrit; il referma son éventail et fit un geste de la main. Soudain, une main gigantesque apparut pour saisir l'homme qui fuyait. Ce dernier changea d'expression, semblant incapable d'esquiver, mais son corps se transforma soudainement en une multitude de petits insectes, lui permettant de s'échapper de l'emprise.
 
 L'homme réapparut à 330 mètres de Wang Lin. En y regardant de plus près, Wang Lin le reconnut: c'était le jeune homme aux yeux empreints de soif de sang de Suzaku. Son visage était livide. Une fois apparu, il ne continua pas sa fuite mais se retourna pour faire face au jeune homme en blanc qui le poursuivait.
 

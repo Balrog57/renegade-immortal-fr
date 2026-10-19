@@ -32,7 +32,7 @@ Wang Lin était assis en position du lotus sous terre, les yeux clos. Entouré d
 
 Une quantité immense de jades célestes était nécessaire pour atteindre le stade avancé de la Transformation de l'Âme. Wang Lin ne prit aucun repos, se concentrant intensément sur l'absorption de cette énergie dans son corps. Il n'avait pas le temps de la fusionner avec sa propre essence; il la condensa donc en une substance similaire au cristal démoniaque.
 
-Il avait étudié le cristal démoniaque pendant longtemps au sein du Clan de l'Affinage d'Âmes, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
+Il avait étudié le cristal démoniaque pendant longtemps au sein de la Tribu du Affinement de l'Âme, il en connaissait donc parfaitement la structure. Si l'énergie spirituelle démoniaque pouvait être condensée en un cristal, alors l'énergie spirituelle céleste le pouvait tout autant.
 
 Auparavant, il n'avait pas voulu gaspiller de jades célestes pour tenter l'expérience, mais maintenant qu'il en avait suffisamment, il commença ses tentatives. Une fois qu'une masse colossale d'énergie spirituelle céleste eut accumulé, un changement s'opéra.
 
@@ -54,11 +54,11 @@ Wang Lin était vêtu de blanc comme Yao Xixue, ses cheveux flottant au vent, lu
 
 « Tu arrives juste à temps. Maintenant, je dois ouvrir la formation pour que personne d'autre ne remarque l'anomalie ici! » Tout en parlant, Yao Xixue frappa son sac de rangement et en sortit plusieurs statues de couleur sang.
 
-Ces statues étaient petites, mesurant chacune environ 3,3 centimètres de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
+Ces statues étaient petites, mesurant chacune environ 10 centimètres de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
 
 La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. Puis, elle mordit le bout de sa langue pour cracher un filet de sang et s'en servit pour dessiner un symbole dans l'air. Elle frappa le symbole de sa paume, provoquant son expansion immédiate jusqu'à atteindre une taille d'environ 330 mètres, avant de s'imprimer dans le sol.
 
-Simultanément, les statues s'animèrent et chacune prit place en sept positions distinctes. Un éclair de lumière rouge sang jaillit, et elles se fondirent dans le sol.
+Simultanément, les statues s'animèrent et chacune prit place sur l'un des sept points alentour. Un éclair de lumière rouge sang jaillit, et elles se fondirent dans le sol.
 
 Une fois les statues intégrées au sol, une force mystérieuse enveloppa le Mont Gu entier. Wang Lin vit clairement que le symbole n'était qu'un catalyseur et que la véritable puissance émanait des sept statues.
 
@@ -94,7 +94,7 @@ La lueur violette s'estompa progressivement jusqu'à disparaître totalement.
 
 L'ascension biannuelle du Démon Pourpre venait de s'achever.
 
-Wang Lin avait expérimenté les tableaux de transfert trop souvent pour être déstabilisé par l'inconfort. En pénétrant dans la lumière rouge sang, il comprit immédiatement qu'il s'agissait d'un transfert ponctuel.
+Wang Lin avait expérimenté les tableaux de transfert trop souvent pour être déstabilisé par l'inconfort. En pénétrant dans la lumière rouge sang, il comprit immédiatement qu'il s'agissait d'un transfert d'un point à un autre.
 
 Cela signifiait que quelqu'un avait placé un point de transmission à l'endroit désigné par Yao Xixue. Tant qu'on pouvait accéder à ce point, on pouvait atteindre ce lieu depuis n'importe où.
 

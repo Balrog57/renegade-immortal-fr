@@ -64,7 +64,7 @@ C'était comme si Wang Lin avait été frappé par la foudre en entendant les pa
 
 « Qu'est-ce que cet extrême Yin et cet extrême Yang... qui ont poussé l'Omniscient à traverser tout cela pour les obtenir? » Wang Lin regarda Bai Wei. En se fiant à son intuition, il croyait soixante-dix pour cent de ce qu'il disait.
 
-Le visage de Bai Wei prit une expression féroce et il éclata de rire. « Wang Lin, mon plan a échoué, et je ne peux tout simplement pas rivaliser avec Maître. Il doit savoir que je savais tout depuis le début. Je ne suis qu'une fourmi devant lui, et peu importe les efforts d'une fourmi, elle est incapable de renverser le destin!
+Le visage de Bai Wei prit une expression féroce et il éclata de rire. « Wang Lin, mon plan a échoué, et je ne peux tout simplement pas rivaliser avec Maître. Il doit savoir que je savais tout depuis le début. Je ne suis qu'une fourmi devant lui, et peu importe les efforts d'une fourmi, elle est incapable de bouleverser le ciel et la terre!
 
 « Cependant, moi, cette fourmi, cette expérience de son œuvre, je vais faire quelque chose pour le choquer! Je ne crois pas qu'il puisse prévoir avec certitude cette idée qui vient soudainement de germer dans mon esprit!
 
@@ -94,7 +94,7 @@ S'il refusait, sa confiance face à l'Omniscient s'effondrerait lors de leur fut
 
 S'il agissait ainsi, son cœur de Dao deviendrait timoré. Que parler alors de compréhension du karma, d'énergie d'origine ou de suivre la voie du Dao? Sa culture stagnerait et il vivrait à jamais sous l'ombre de la prévoyance omnipotente de l'Omniscient!
 
-« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux dans la Terre des Esprits Démoniaques. Comment un simple Omniscient pouvait-il être comparé aux cieux?!
+« Je suis un cultivateur qui défie les cieux! » Les yeux de Wang Lin s'illuminèrent en repensant à la façon dont il avait défié les cieux au stade de l'Ascendant, dans la Terre des Esprits Démoniaques. Comment un simple Omniscient pouvait-il être comparé aux cieux?!
 
 « Bai Wei n'a pas de bonnes intentions. Avant de mourir, il veut m'entraîner avec lui pour défier l'Omniscient! Il veut voir de ses propres yeux l'Omniscient se tromper sur une chose avant son dernier souffle! »
 

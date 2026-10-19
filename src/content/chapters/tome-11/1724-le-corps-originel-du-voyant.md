@@ -22,7 +22,7 @@ Seul un Corps Dao Antique, d'innombrables fois plus puissant qu'un corps de Dieu
 
 La tempête destructrice s'abattait sur le corps de Wang Lin, mais ne lui infligeait aucun dommage. Au contraire, la tempête elle-même semblait pousser un gémissement de défaite avant de s'effondrer.
 
-Dans le Vide Brillant, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, son impitoyable Sens Divin du Dao Antique balaya les environs.
+Dans le Vide Brillant, une immense faille surgit de nulle part. Le puissant corps de Wang Lin en émergea. À cet instant, les yeux clos, il balaya les environs de son Sens Divin du Dao Antique.
 
 Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 
@@ -88,11 +88,11 @@ Bien que ses yeux fussent clos, son corps fusionnait rapidement. Cette fusion co
 
 C'était son 99e éveil. Une fois éveillé, il pourrait retrouver l'autre amas de brouillard qui lui avait été séparé. En fusionnant avec lui, il pourrait reprendre le contrôle de la réincarnation!
 
-À ce moment-là, il deviendrait un Dao Céleste extraordinaire, doté d'une conscience et d'une sagesse dépassant celles de n'importe quel autre être!
+À ce moment-là, il deviendrait un Dao Céleste extraordinaire, doté d'une conscience et d'une sagesse dépassant celles de bien des êtres!
 
 Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne serait pas exagérer de dire qu'une fois la réincarnation reprise en main et le Dao Céleste devenu complet, le destin des innombrables vies nées dans le monde caverneux serait entre ses mains. Si la vie était manipulée par un Dao Céleste dépourvu de conscience, cela ne poserait pas de problème. Mais si ce Dao Céleste possédait sa propre volonté, ce serait terrifiant!
 
-S'il le désirait, il pourrait même dévorer tout ce qui émanait du Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
+S'il le désirait, il pourrait même dévorer tous les êtres engendrés par le Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
 
 En peu de temps, plus de la moitié de la fusion était accomplie. Quelques respirations plus tard, le processus prit fin et l'Omniscient ouvrit les yeux!
 

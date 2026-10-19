@@ -82,7 +82,7 @@ Ce vide était d'une immensité sans nom. Wang Lin ne croyait pas pouvoir locali
 
 Un jour, alors qu'il se tenait au sommet d'un pilier en forme de cône, ses yeux s'illuminèrent. Il avait volé horizontalement parmi des piliers de cette dimension pendant très longtemps, et il venait enfin de repérer l'anneau de lumière ovale.
 
-Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il avait réussi les quatre épreuves, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé ce dont il avait besoin, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
+Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il avait réussi les quatre épreuves, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé ce dont il avait besoin, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de survivre en ce lieu.
 
 Il poussa un soupir de regret et s'élança vers l'anneau de lumière. Cependant, au moment où il allait le toucher, des éclairs violets apparurent. Les décharges s'entrecroisèrent pour former un motif concave et rhombique.
 

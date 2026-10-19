@@ -50,7 +50,7 @@ Wang Lin essuya le sang au coin de ses lèvres et rugit face au vortex de la ré
 
 « Quatre Divins... Infini... » Une voix vague, dénuée de toute émotion, résonna à travers le monde comme pour répondre à Wang Lin.
 
-Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaillirent du vortex. Un Dragon Azure émergea lentement, suivi d'un Oiseau Vermillon rouge qui poussa un cri faisant trembler les cieux.
+Tandis que l'écho de cette voix se propageait, des rugissements de bêtes jaillirent du vortex. Un Dragon Azure émergea en rugissant, suivi d'un Oiseau Vermillon rouge qui poussa un cri faisant trembler les cieux.
 
 Une intention meurtrière se propagea alors qu'un Tigre Blanc chargeait en rugissant, et une Tortue Noire fit également son apparition!
 

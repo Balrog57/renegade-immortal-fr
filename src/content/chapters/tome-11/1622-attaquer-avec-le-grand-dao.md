@@ -24,7 +24,7 @@ Une lueur de froideur traversa les yeux de Wang Lin. Plus la porte était diffic
 
 « Tonnerre! » En un instant, le tonnerre emplit le monde et fusa vers la Porte du Vide.
 
-« Feu! » Le feu rugit comme une tempête et embrasa tout sur son passage!
+« Feu! » Le feu rugit comme une tempête et consuma des myriades d'ossements!
 
 « Empreinte Karmique! » Wang Lin ouvrit et referma sa main droite.
 

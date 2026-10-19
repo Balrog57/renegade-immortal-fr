@@ -52,7 +52,7 @@ S'il n'avait pas eu ce fourneau, il serait déjà retourné au néant.
 
 La planète Yun Xia était très calme, et il avait réussi à s'enfoncer profondément vers le trésor qu'il percevait. Le trésor qu'il convoitait était la Fleur de Lune du Serpent aux yeux de lune.
 
-En chemin, il avait aperçu le filon métallique et, après avoir hésité un instant, il y avait enfoncé la montagne de pierre. Sa cupidité l'avait poussé à vouloir arracher de larges sections d'un coup.
+En chemin, il avait aperçu le filon métallique et, après avoir hésité un instant, il y avait enfoncé la montagne de pierre. Sa cupidité l'avait poussé à vouloir arracher d'un coup cette large section pour l'emporter, puis la dégager morceau par morceau.
 
 Malheureusement, cette douleur intense avait réveillé le Serpent aux yeux de lune. S'il n'avait pas sorti le fourneau assez rapidement, il aurait déjà été tué.
 

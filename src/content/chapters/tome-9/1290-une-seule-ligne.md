@@ -30,21 +30,21 @@ Une telle faille dans le jade de l'âme signifiait que Li Qianmei traversait une
 
 L'expression de la vieille femme à ses côtés changea radicalement en voyant la fissure s'étendre. Ses yeux étaient emplis de chagrin.
 
-Wang Lin fixa le jade. La douleur dans son cœur s'intensifia à mesure que la fracture progressait. En cet instant fugace, Wang Lin eut l'impression que dix années s'étaient écoulées. Puis, la progression s'arrêta. Le jade de l'âme de Li Qianmei ne se brisa pas, mais il était devenu extrêmement fragile.
+Wang Lin fixa le jade. La douleur dans son cœur s'intensifia à mesure que la fracture progressait. En cet instant fugace, Wang Lin eut l'impression que dix années s'étaient écoulées. Puis, la progression s'arrêta. Le jade de l'âme de Li Qianmei ne se brisa pas, mais l'âme qu'il contenait était devenue extrêmement faible.
 
 Les yeux de Wang Lin s'illuminèrent d'une lueur sanglante et une aura terrassante jaillit de son corps, formant une tempête qui le liait au monde entier. Un grondement tonnerre résonna alors que la cinquième étoile apparut soudainement, suivie, un instant plus tard, par la sixième!
 
 Un Dieu Ancien à 6 étoiles! Un véritable Dieu Ancien Royal à 6 étoiles!
 
-Cependant, Wang Lin n'était pas joyeux. L'anxiété le rongeait. Li Qianmei ne disposait que de peu de temps, et il ne pouvait perdre un instant de plus avec la Secte Éternelle. Désormais, personne ne pourrait l'arrêter!
+Cependant, Wang Lin n'était pas joyeux. L'anxiété le rongeait. Li Qianmei ne disposait que de peu de temps, et il ne pouvait perdre un instant de plus avec la Secte Éternelle. Quiconque se mettrait en travers de sa route ne serait pas toléré!
 
 Les dix millions de rayons d'énergie d'épée résonnèrent alors que les six Anciens de la Secte Éternelle tentaient de percer la défense de Wang Lin. Ils étaient entourés de sorts imprégnés de lois, dont la puissance était stupéfiante!
 
 « Vous cherchez tous la mort! » Le pied droit de Wang Lin s'abattit impitoyablement sur la montagne. Sa puissance divine ancestrale se mua en une force inimaginable et pénétra dans la montagne par ses pieds. La puissance se propagea avec une rapidité fulgurante, provoquant l'effondrement total du massif!
 
-La montagne de la Secte Éternelle s'écroula. Une quantité massive de poussière fut soulevée et l'onde de choc engendra une tempête!
+La montagne et la porte de la Secte Éternelle s'écroulèrent. Une quantité massive de poussière fut soulevée et l'onde de choc engendra une tempête!
 
-À l'origine, Wang Lin ne souhaitait pas en arriver là, car il voulait préserver la montagne. C’est pourquoi il se contentait d’absorber doucement l’aura divine ancestrale, espérant récupérer le trésor tout en épargnant l'essentiel de la structure.
+À l'origine, Wang Lin ne souhaitait pas en arriver là, car il ne voulait pas détruire la porte de la Secte Éternelle. C’est pourquoi il se contentait d’absorber doucement l’aura divine ancestrale, espérant récupérer le trésor tout en épargnant l'essentiel de la structure.
 
 Pourtant, il devait désormais détruire la montagne pour obtenir ce qui reposait en dessous!
 
@@ -62,7 +62,7 @@ Un chant d'épée s'éleva, contenant une pointe d'excitation et de joie, comme 
 
 C’était comme si cette épée de sang lui avait toujours appartenu, qu'elle était son essence même!
 
-Alors qu'il maniait l'épée de sang, les dix millions de rayons d'énergie d'épée environnants étaient affaiblis par les six membres de la Secte Éternelle. Au moment où ils chargèrent, la puissance divine ancestrale de Wang Lin jaillit dans l'épée et il fendit l'espace autour de lui!
+Alors qu'il maniait l'épée de sang, les dix millions de rayons d'énergie d'épée environnants s'affaiblissaient, tandis que les six membres de la Secte Éternelle fonçaient à travers eux. Au moment où ils chargèrent, la puissance divine ancestrale de Wang Lin jaillit dans l'épée et il fendit l'espace autour de lui!
 
 Un grondement tonnerre secoua le monde!
 
@@ -70,7 +70,7 @@ Il était impossible de décrire ce coup. Cette entaille pouvait briser les cieu
 
 Un autre Ancien de la Secte Éternelle à ses côtés vit également son corps voler en éclats!
 
-Les quatre autres crachèrent du sang et reculèrent comme des possédés. Leurs corps furent transpercés par la lumière rouge et commencèrent à dégager une fumée écarlate. Puis, leurs chairs se flétrirent rapidement jusqu'à ne devenir que de simples sacs d'os!
+Les quatre autres crachèrent du sang et reculèrent précipitamment. Leurs corps furent transpercés par la lumière rouge et commencèrent à dégager une fumée écarlate. Puis, leurs chairs se flétrirent rapidement jusqu'à ne devenir que de simples sacs d'os!
 
 « Quelle épée! »
 

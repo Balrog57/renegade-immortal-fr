@@ -16,11 +16,11 @@ Le vieil homme au corps semblable à une montagne de chair était extrêmement s
 
 Wang Lin esquissa un faible sourire alors que son regard se posait sur Ling Tianhou, et il dit calmement: « Veuillez m'instruire, Saint de l'Épée! »
 
-Ling Tianhou agita sa main droite et l'une des quatre épées d'âme originelle derrière son dos s'envola. Cette épée oscillait entre la lumière et les ténèbres. À cet instant, un rayon d'énergie d'épée jaillit.
+Ling Tianhou agita sa main droite et l'une des quatre épées d'âme originelle devant lui s'envola. Cette épée oscillait entre la lumière et les ténèbres. À cet instant, un rayon d'énergie d'épée jaillit.
 
 L'énergie d'épée était semblable à un arc-en-ciel!
 
-Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans la Terre des Esprits Démoniaques étaient toutes extrêmement puissantes; il n'était donc même pas nécessaire de mentionner la puissance de celle qui émanait directement de la source. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
+Avec la culture de Ling Tianhou, les énergies d'épée qu'il laissait à ses disciples lorsqu'ils pénétraient dans la Terre des Esprits Démoniaques étaient toutes extrêmement puissantes; à plus forte raison celle qu'il déployait lui-même à cet instant. L'énergie d'épée prit la forme d'un dragon et siffla vers Wang Lin.
 
 Des craquements tonnèrent dans le ciel, comme si celui-ci ne pouvait supporter la puissance de l'énergie d'épée.
 
@@ -68,7 +68,7 @@ Quant au vieil homme ressemblant à une montagne de chair, son esprit trembla. I
 
 Ling Tianhou était surnommé le « Saint de l'Épée » et possédait une maîtrise et une intuition exceptionnelles en matière d'armement. En voyant ces 27 épées, ses yeux brillèrent.
 
-« De telles épées volantes, une telle formation... Wang Lin, tu es digne de m'affronter! » Ling Tianhou agita les mains et les trois épées d'âme originelle restantes derrière lui s'envolèrent. Alors que les quatre épées tournaient, des rayons d'énergie d'épée jaillirent, formant un filet d'épées.
+« De telles épées volantes, une telle formation... Wang Lin, tu es digne de m'affronter! » Ling Tianhou agita les mains et les trois épées d'âme originelle restantes devant lui s'envolèrent. Alors que les quatre épées tournaient, des rayons d'énergie d'épée jaillirent, formant un filet d'épées.
 
 Les 27 épées volantes rattrapèrent l'impact de son coup sous le contrôle de Wang Lin. Elles fusionnèrent pour former une tempête d'épées ayant pour cœur l'impact de son coup. D'innombrables formations y étaient contenues, et elles entrèrent en collision avec les quatre épées d'âme originelle tournoyantes de Ling Tianhou.
 
@@ -80,11 +80,11 @@ Chaque fois qu'une épée volante était repoussée, elle revenait vers Wang Lin
 
 Sous la force du coup, les quatre épées d'âme originelle de Ling Tianhou furent toutes refoulées!
 
-Cette scène fut un choc pour quiconque la vit!
+Pour quiconque la voyait, cette scène semblait être un affrontement d'égal à égal!
 
 Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Scruteur du Nirvana, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts!
 
-Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Sacrifice, Trou, Brise! Épée de sacrifice, première phase, invocation par le sang! »
+Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Sacrifice, Trou, Brise! Épée de sacrifice, première phase, forger l'épée avec le sang! »
 
 À ces mots, les cultivateurs environnants furent tous ébranlés. Le nom de Ling Tianhou était illustre; c'était un maître dont les sorts pouvaient ébranler les cieux. Chaque cultivateur savait que Ling Tianhou n'avait qu'un seul ennemi mortel: l'Omniscient!
 
@@ -102,7 +102,7 @@ Instantanément, des rayons de lumière argentée jaillirent de son sac pour s'u
 
 Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Tranchants Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
 
-Wang Lin avait obtenu ces épées dans le Royaume de la Massacre et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Massacre pourraient désormais les identifier.
+Wang Lin avait obtenu ces épées dans le Royaume de la Boucherie et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Massacre pourraient désormais les identifier.
 
 À cet instant, ce vortex d'épées contenant la puissance d'innombrables Tranchants Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
 
@@ -122,7 +122,7 @@ Les environs étaient plongés dans un silence total. Que ce soient les disciple
 
 Le visage de Zhao Xingsha était d'une pâleur mortelle et son regard vers Wang Lin était empreint de terreur. Il n'osait plus nourrir la moindre intention malveillante.
 
-Il y avait aussi la quatrième sœur, qui était restée abattue tout ce temps. La confusion dans ses yeux s'évanouit et elle fixa Wang Lin d'un regard mystérieux.
+Il y avait aussi la quatrième sœur, qui était restée indifférente à tout jusque-là. La confusion dans ses yeux s'évanouit et elle fixa Wang Lin d'un regard mystérieux.
 
 « S'il peut m'aider... » La femme se mordit la lèvre inférieure et prit une décision.
 
@@ -130,7 +130,7 @@ Non seulement eux, mais presque tous ceux qui connaissaient Wang Lin étaient pl
 
 Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Senior, suis-je qualifié? »
 
-Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'Omniscient: « Camarade cultivateur Omniscient, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
+Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'Omniscient: « Camarade cultivateur Omniscient, j'ai encore une fournée de pilules à raffiner, je ne vous dérangerai donc plus. »
 
 Sur ce, il cria aux quatre disciples qui le portaient: « Retour à la secte! »
 

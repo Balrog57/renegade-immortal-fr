@@ -50,7 +50,7 @@ Un garde céleste et ce papillon étaient deux trésors que Wang Lin possédait.
 
 Wang Lin prit une profonde inspiration et détourna le regard. Il se déplaça avec rapidité pour charger vers un trésor qui flottait parmi les étoiles et qu'il convoitait depuis un moment.
 
-Ce trésor était la sculpture en bois que le Saint Démon du Mal Noir avait sortie. Bien qu'il n'en restât que la moitié, elle dégageait toujours une pression colossale.
+Ce trésor était la sculpture en bois que le Saint Démon Noir avait sortie. Bien qu'il n'en restât que la moitié, elle dégageait toujours une pression colossale.
 
 Le visage de Wang Lin était sombre. La bataille actuelle n'était plus de son ressort; le meilleur choix consistait désormais à pêcher dans ces eaux troubles. Il fonça avec célérité vers cette sculpture en bois partiellement brisée.
 
@@ -60,7 +60,7 @@ L'arrivée de Wang Lin attira immédiatement l'attention des combattants, qui ch
 
 Le visage de Wang Lin restait calme alors qu'il formait un sceau de la main droite avant de l'agiter. Une bourrasque chargea furieusement en avant et, dans la foulée, Wang Lin lança un coup de poing impitoyable.
 
-Un fracas retentit; les ondulations violentes du coup, combinées à la bourrasque, créèrent une puissance unique à Wang Lin. La puissance de l'Ancien Dieu alliée à celle des sorts constituait le fondement de sa propre force!
+Un fracas retentit; les ondulations violentes du coup, combinées à la bourrasque, créèrent une puissance unique à Wang Lin. La puissance de l'Ancien Dieu alliée à celle des sorts constituait le point de départ de sa propre force!
 
 Cependant, ces deux forces venaient à peine de commencer leur fusion et n'avaient pas encore révélé leur véritable potentiel. En balayant les cultivateurs de l'Alliance, leurs corps et leurs âmes primitives tremblèrent face à une force mystérieuse et inimaginable. Ils ne purent que reculer, sentant que s'ils ne le faisaient pas, ils mourraient instantanément!
 
@@ -74,7 +74,7 @@ Pourtant, au moment où il allait s'en saisir, un rayon d'énergie d'épée jail
 
 Wang Lin n'était pas étranger à cette énergie; elle appartenait à Ling Tianhou!
 
-« Ce trésor appartient à Chen Long de ma Secte de l'Épée Da Lou! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
+« Ce trésor appartient à Chen Long de ma Secte de l'Épée Da Luo! » La voix glaciale résonna tandis que le rayon d'énergie se rapprochait. Si Wang Lin tentait de prendre le trésor, il serait frappé par cette attaque.
 
 L'expression de Wang Lin resta neutre et il n'hésita pas une seconde à saisir la sculpture en bois à moitié détruite. Ses yeux brillaient d'une lueur mystérieuse alors qu'il ouvrait la bouche pour cracher un objet afin de se protéger.
 
@@ -110,7 +110,7 @@ Un sourire étira le visage de l'Estimé Xuan Bao tandis qu'il tendait la main d
 
 Le corps de Wang Lin trembla. En regardant de plus près, il vit une flèche jaillir de la faille.
 
-Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sept pieds de large. Elle était entièrement verte, avec une pointe à six arêtes. À son extrémité se trouvaient des plumes violettes. En outre, quelques taches de sang rouge foncé maculaient la flèche.
+Cette flèche était démesurée: elle mesurait plus de 300 pieds de long et sept pieds de large. Elle était entièrement verte, avec une pointe à six arêtes. À son extrémité, des plumes violettes étaient disposées en quatre directions. En outre, quelques taches de sang rouge foncé maculaient la flèche.
 
 Ce qui fit vaciller tous les cultivateurs environnants, c'étaient ces taches de sang rouge foncé!
 

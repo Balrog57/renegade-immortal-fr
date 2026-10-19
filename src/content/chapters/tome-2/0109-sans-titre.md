@@ -16,7 +16,7 @@ Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix 
 
 Il fixa Wang Lin et ricana: « Petit morveux, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 
-Le front du chef de la Secte He Huan se détendit. Après avoir échangé quelques mots avec les membres de sa secte, ils reculèrent tous lentement.
+Le front du chef de la Secte He Huan se détendit. Après avoir échangé quelques mots avec les membres de sa secte — plus de dix, hommes et femmes —, ils reculèrent tous lentement.
 
 Le regard de Wang Lin balaya le groupe avant de se poser sur l'arrogant vieillard. Puis, sans dire un mot, il frappa son sac de rangement et un grain de riz cyan apparut en suspens dans l'air.
 
@@ -60,7 +60,7 @@ Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glac
 
 Le corps de la jeune femme trembla. Réprimant sa peur, elle répondit d'une voix vacillante: « Il y en a sept en tout. »
 
-L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de la Secte Xuan Dao et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la Secte des Cadavres avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
+L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de Li Shan et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la Secte des Cadavres avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
 
 Avant d'entrer dans la Vallée Jue Ming, Ye Zizai lui avait expliqué que la compétition consistait à dérober les jetons d'autrui. Grâce à cela et aux explications de Situ Nan sur l'accès au champ de bataille étranger, il commençait à entrevoir l'ensemble du mécanisme. Il se tourna vers la disciple et demanda soudainement:
 

@@ -40,9 +40,9 @@ S’avançant sous la pluie, Wang Lin entra dans la salle sous les regards envie
 
 Wang Lin avait déjà vu cette scène dans les souvenirs de la troisième âme. Il savait qu'après avoir donné quelques instructions, le maître de Su Dao leur enseignerait un art.
 
-Il s'agissait de l'un des trois arts les plus puissants de la Secte Dong Lin: l'Introduction au Dao Céleste des Nuages. Si l'on parvenait à atteindre le sommet de cet art, on pouvait en comprendre l'essence même.
+Il s'agissait de l'un des trois arts les plus puissants de la Secte Dong Lin: l'Introduction à l'Art Céleste du Dao des Nuages. Si l'on parvenait à atteindre le sommet de cet art, on pouvait en comprendre l'essence même.
 
-L'art introductif était court mais mystérieux, et tout le monde n'était pas capable de le cultiver. Une fois l'art activé, des nuages apparaissaient. Si les nuages étaient ténus, cela signifiait que la personne n'était pas apte à apprendre cet art. S'ils étaient denses et qu'une ombre se dessinait en leur sein, alors l'aptitude était confirmée.
+L'art introductif était court mais mystérieux, et tout le monde n'était pas capable de le cultiver. Une fois l'art mémorisé et activé, des nuages apparaissaient. Si les nuages étaient ténus, cela signifiait que la personne n'était pas apte à apprendre cet art. S'ils étaient denses et qu'une ombre se dessinait en leur sein, alors l'aptitude était confirmée.
 
 De plus, le temps nécessaire pour compléter le cycle servait de test. Au cours des innombrables années de la Secte Dong Lin, le plus rapide avait mis sept respirations, tandis que le plus lent avait pris plusieurs heures.
 
@@ -58,13 +58,13 @@ Wang Lin le savait grâce aux souvenirs qu'il possédait, et cela semblait immua
 
 Aujourd'hui, la scène se répétait. Wang Lin restait là, songeant en silence. Il ignorait s'il devait suivre le cours des souvenirs et subir le même sort que Sept-Couleurs, ou s'opposer au destin pour tout changer.
 
-Logiquement, il devrait suivre les souvenirs de Sept-Couleurs afin de fusionner davantage avec la troisième âme. Peut-être finirait-il par fusionner suffisamment pour découvrir où se trouvait la véritable porte.
+Logiquement, il devrait suivre les souvenirs de Sept-Couleurs afin de fusionner davantage avec la troisième âme. Peut-être, des années plus tard, finirait-il par fusionner suffisamment pour découvrir où se trouvait la véritable porte.
 
 Mais rien ne garantissait que cela arriverait. De plus, Wang Lin ne voulait pas fusionner totalement avec la troisième âme. S'il le faisait, Xie Qing ne pourrait jamais s'éveiller. Dès l'instant où la fusion serait complète, Xie Qing disparaîtrait et Wang Lin deviendrait le nouveau Sept-Couleurs.
 
 Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi!
 
-«...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme le Dao Céleste des Nuages. Vos niveaux de culture ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction: seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
+«...Cet art est l'un des trois plus puissants de la Secte Dong Lin, il se nomme l'Art Céleste du Dao des Nuages. Vos niveaux de culture ne sont pas encore assez élevés pour le maîtriser, vous devez donc d'abord apprendre l'art introductif. Cependant, cet apprentissage comporte une restriction: seule une personne par lignée peut l'étudier en cette génération. Aujourd'hui, je vous ai choisis tous les deux pour trouver celui qui sera le plus apte... » La voix de l'homme d'âge moyen résonna. Il commença à expliquer la méthode de sélection, précisant l'importance de la densité des nuages et du temps requis pour un cycle.
 
 Zhou Li baissa la tête, ses yeux trahissant un désir qu'il peinait à dissimuler.
 
@@ -100,9 +100,9 @@ Simultanément, la place à l'extérieur, la montagne, la chaîne de montagnes, 
 
 Telle fut la scène stupéfiante qui se produisit après la modification de la mémoire!
 
-« Bien! Su Dao, tu es la deuxième personne de ta lignée à être apte à apprendre le Dao Céleste des Nuages! » rit l'homme d'âge moyen alors que sa forme se déformait. Il lança un regard à Zhou Li, terrifié, et reprit:
+« Bien! Su Dao, tu es la deuxième personne de ta lignée à être apte à apprendre l'Art Céleste du Dao des Nuages! » rit l'homme d'âge moyen alors que sa forme se déformait. Il lança un regard à Zhou Li, terrifié, et reprit:
 
-« Zhou Li, bien que tu n'aies pas la qualification pour le Dao Céleste des Nuages, ton Maître t'enseignera la Technique Céleste aux Sept Couleurs! »
+« Zhou Li, bien que tu n'aies pas la qualification pour l'Art Céleste du Dao des Nuages, ton Maître t'enseignera la Technique Céleste aux Sept Couleurs! »
 
 Alors que les paroles de l'homme résonnaient, une douleur déchirante lacéra l'esprit de Wang Lin, comme si tout allait s'écrouler. L'aura des huit portes apparut soudainement avant de se dissiper rapidement. Puis, la distorsion s'estompa lentement pour laisser place à la normale.
 
@@ -112,7 +112,7 @@ Cependant, une vague immense s'était déchaînée dans le cœur de Wang Lin!
 
 « Voilà ma seule méthode! Modifier les souvenirs du Souverain Céleste aux Sept Couleurs! »
 
-« Su Dao, tu dois consacrer du temps à la pratique de ce sort. Dans cinq mois, la compétition entre les membres de ta génération au sein de la Secte Dong Lin débutera. Les dix premiers pourront accéder au Bassin Dong Lin. Si tu y parviens, tes accomplissements futurs seront incommensurables! »
+« Su Dao, tu dois consacrer du temps à la pratique de ce sort. Dans cinq mois, la compétition entre les membres de ta génération au sein de la Secte Dong Lin débutera. Les dix premiers pourront accéder au Bassin de Dong Lin. Si tu y parviens, tes accomplissements futurs seront incommensurables! »
 
 Tout avait changé.
 

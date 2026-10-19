@@ -98,7 +98,7 @@ L'expression de Wang Lin resta neutre; il n'esquissa même pas un mouvement pour
 
 Des éclairs crépitaient autour du corps de Wang Lin.
 
-« Cette infime quantité de foudre ne suffit pas! » Wang Lin leva la main droite et une partie de son Âme Originelle se dirigea immédiatement vers sa paume. Une sphère de tonnerre apparut soudainement au creux de sa main.
+« Cette infime quantité de foudre ne suffit pas! » Wang Lin leva la main droite et une partie de son âme originelle se dirigea immédiatement vers sa paume. Une sphère de tonnerre apparut soudainement au creux de sa main.
 
 Bien que cette sphère ne fût que de la taille d'un poing, elle provoqua un bouleversement dans les nuages sombres et rendit toute la foudre environnante folle. En un instant, tous les éclats se précipitèrent vers la sphère de tonnerre tenue par Wang Lin.
 
@@ -116,7 +116,7 @@ La sphère de tonnerre approchait dans un fracas assourdissant, mais fut immédi
 
 Tandis que la foudre coulait le long de la barre, toutes les runes se mirent à briller comme si elles absorbaient frénétiquement une énergie.
 
-Cependant, la sphère était trop puissante. L'instant d'après, elle se brisa dans un bruit de rupture, des fissures apparaissant à sa surface. Mais les lignes rouge sombre s'engouffrèrent dans ces crevasses, agissant comme un liant pour empêcher la barre métallique de céder.
+Cependant, la sphère était trop puissante. L'instant d'après, la barre métallique émit un craquement de rupture, et des fissures apparurent à sa surface. Mais les lignes rouge sombre s'engouffrèrent dans ces crevasses, agissant comme un liant pour empêcher la barre métallique de céder.
 
 La sphère de tonnerre grondait avec majesté. Bien qu'une grande partie de son énergie eût été absorbée par le métal, elle finit par entrer violemment en collision avec la barre.
 
@@ -128,7 +128,7 @@ Soudain, la barre métallique parut incapable de contenir la puissance de la fou
 
 Ce fut comme un coup de tonnerre apocalyptique; la planète Ran Yun en trembla. De nombreux sommets montagneux s'effondrèrent dans un tumulte colossal.
 
-La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de dix pas, le visage pâle, il hurla: « Tu es ce Xu Mu qui se fait passer pour un messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
+La barre explosa et une puissance tonitruante jaillit, prenant le Daoïste du Tonnerre pour centre. Forcé de reculer de plus de dix pas, le visage pâle, il hurla: « Tu es ce Xu Mu qui se fait passer pour un messager du Temple Céleste du Tonnerre! Quel est donc ton véritable niveau de culture?! »
 
 L'onde de choc de la barre fit disparaître les éclairs entourant la garde céleste, laquelle s'avança alors.
 

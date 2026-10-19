@@ -8,7 +8,7 @@ slug: rendre-grâce
 ---
 « Xu Mu! Le Xu Mu qui a massacré des planètes dans le Domaine de l'Ouest! »
 
-« Cet homme était traqué par la famille Yao et a fini par les forcer à battre en retraite. La première personne à avoir survécu à l'Ordre Céleste! »
+« Cet homme était traqué par la famille Yao et a fini par les forcer à battre en retraite. La première personne à avoir survécu indemne à l'Ordre Céleste! »
 
 « Les rumeurs disent que la famille Yao a subi de lourdes pertes et que de nombreux membres de sa lignée ont été tués par le Maître Démon Xu Mu! »
 

@@ -8,7 +8,7 @@ slug: qian-feng
 ---
 Le jeune homme au regard malveillant hocha doucement la tête et dit: « Je ne pensais pas que le frère Ceng connaissait mon nom. Je crois que c'est ma jeune sœur apprentie, si espiègle, qui vous l'a dit. Elle a dû dire beaucoup de mal de moi. »
 
-D'une voix glaciale, Du Tian trancha: « Assez. Qian Feng, ouvre la formation. Je n'ai pas de temps à perdre avec toi. Si tu ne l'ouvres pas maintenant, tu y resteras pour toujours. »
+D'une voix glaciale, Du Tian trancha: « Assez. Qian Feng, ouvre la formation. Je n'ai pas de temps à perdre avec toi. Si tu ne l'ouvres pas maintenant, tu ne repartiras pas d'ici aujourd'hui. »
 
 Qian Feng éclata de rire. « Aîné, je n'ai aucune intention malveillante. Se pourrait-il que le successeur que vous avez choisi n'ait même pas le courage de me combattre? Soyez rassuré, Aîné; je n'utiliserai aucun mouvement mortel, nous ne ferons que nous mesurer. »
 
@@ -44,9 +44,9 @@ Du moment où Qian Feng sortit du rideau de lumière verte jusqu'à ce qu'il soi
 
 Après tout, il ne comprenait pas Wang Lin et le méprisait secrètement. Autrement, avec son niveau de culture, il n'aurait jamais laissé à Wang Lin l'opportunité d'utiliser l'étendard des âmes.
 
-De son point de vue, Wang Lin était simplement trop mesquin. Compte tenu de son statut, peu importe qui il affrontait, l'adversaire prendrait au moins le temps de discuter avant de commencer le combat. Pourtant, ce Wang Lin l'avait inopinément coupé dans son élan pour l'attaquer dès sa sortie. Un tel acte n'était rien de moins qu'une attaque sournoise.
+De son point de vue, Wang Lin était tout bonnement vil. Compte tenu de son statut, peu importe qui il affrontait, l'adversaire prendrait au moins le temps de discuter avant de commencer le combat. Pourtant, ce Wang Lin l'avait inopinément coupé dans son élan pour l'attaquer dès sa sortie. Un tel acte n'était rien de moins qu'une attaque sournoise.
 
-Même lorsqu'il combattait le jeune maître du Clan des Immortels Délaissés, il n'avait jamais été placé dans une position aussi humiliante.
+Même lorsqu'il combattait le jeune chef du Clan des Immortels Délaissés, il n'avait jamais été placé dans une position aussi humiliante.
 
 Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte de l'Affinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
 

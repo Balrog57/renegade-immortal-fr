@@ -58,7 +58,7 @@ Les grondements tonitruants retentirent une fois de plus et, alors que le pont v
 
 « Bien que les restrictions de ce navire soient puissantes, moins de 20 % sont activées... Avec seulement 20 %, je crains qu'il ne puisse pas arrêter le Daoïste aux Sept Couleurs... » Les yeux de Wang Lin s'illuminèrent. C'était un moment de vie ou de mort. Le Daoïste aux Sept Couleurs ne chercherait peut-être pas à le tuer pour une raison quelconque, mais il allait s'emparer de l'Arc et de la Flèche de Li Guang.
 
-Wang Lin ne pouvait pas remettre l'Arc de Li Guang; il lui était d'une utilité immense. C'était le seul objet capable de lui permettre de réprimer tous les cultivateurs du Vide Arcanique! Plus important encore, il ne voulait pas laisser sa vie entre les mains d'autrui. Il refusait que son existence soit contrôlée par une simple pensée!
+Wang Lin ne pouvait pas remettre l'Arc de Li Guang; il lui était d'une utilité immense. C'était son appui pour traiter avec ces grands cultivateurs du Vide Arcanique! Plus important encore, il ne voulait pas laisser sa vie entre les mains d'autrui. Il refusait que son existence soit contrôlée par une simple pensée!
 
 « Même s'il était à pleine puissance, ce Navire Démon des Âmes pourrait l'arrêter pendant des dizaines d'heures. » À cet instant précis, une voix froide retentit derrière Wang Lin.
 
@@ -92,7 +92,7 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 « Au sein de la Secte des Sept Dao, certains m'écoutaient, en particulier ma petite sœur. J'ai utilisé le sortilège de mon maître pour tout lui révéler, et c'est ainsi que la guerre éclata! » La femme relata lentement les événements passés.
 
-« Je savais qu'il devait avoir ouvert le fragment et obtenu ce qu'il contenait. Je savais aussi qu'il avait attiré Ye Mo à l'intérieur et scellé la Secte des Sept Dao. Mais comment pouvais-je le laisser réussir? J'ai révélé la nouvelle à Lian Daofei, qui avait toujours convoité ma beauté, et je l'ai attiré vers la Secte!
+« Je savais qu'il devait avoir ouvert le fragment et obtenu ce qu'il contenait. Je savais aussi qu'il avait éloigné Ye Mo et scellé la Secte des Sept Dao. Mais comment pouvais-je le laisser réussir? J'ai révélé la nouvelle à Lian Daofei, qui avait toujours convoité ma beauté, et je l'ai attiré vers la Secte!
 
 « Grâce au lien avec ma sœur, la plupart de ses concubines ont fait défection, provoquant la division des disciples de la Secte des Sept Dao. C'est ainsi que les Royaumes Intérieur et Extérieur se sont formés! » À ce moment-là, la femme regarda Wang Lin.
 

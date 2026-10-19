@@ -10,7 +10,7 @@ Dans un éclat de lumière, Wang Lin apparut sur la plateforme où se trouvait l
 
 Si ce n'était les traces de sang que Yao Xixue avait crachées au sol, il aurait pu soupçonner une erreur lors du transfert.
 
-Wang Lin tenait le jeton de cristal dans sa main. Outre l'incantation permettant d'entrer et de sortir de la grotte, celui-ci contenait également certaines informations. Après avoir réfléchi un instant, le corps de Wang Lin s'élança et se déplaça rapidement le long du Chemin du Dragon Vénéré.
+Wang Lin tenait le jeton de cristal dans sa main. Outre l'incantation permettant d'entrer et de sortir de la grotte, celui-ci contenait également certaines informations. Après avoir réfléchi un instant, le corps de Wang Lin s'élança et se déplaça rapidement le long du Chemin du Dragon Sacré.
 
 Il franchit promptement les onze plateformes. Aucun changement n'était à noter sur celles-ci; les statues de pierre demeuraient scellées par les marques de Yao Xixue.
 
@@ -48,13 +48,13 @@ Il y en avait trop pour pouvoir les estimer! Wang Lin effectua un balayage somma
 
 Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il rangeait ce sac pour diriger son Sens Divin vers le second. En regardant à l'intérieur, ses yeux brillèrent d'excitation.
 
-Le deuxième sac contenait pas moins de 1 000 jades rouge sang.
+Le deuxième sac contenait pas moins de 1 000 jades de sang.
 
 Durant le temps passé avec Yao Xixue, il avait développé un sentiment ambivalent envers ces jades: une fascination mêlée d'une grande crainte. Une fois qu'un jade est brisé, la lumière rouge qu'il libère possède une force de scellement extrêmement puissante!
 
 Outre le scellement, cette lumière peut également agir comme un puissant sort de protection. Selon l'analyse de Wang Lin, elle devrait aussi pouvoir attaquer, mais il serait impossible de s'en servir sans l'incantation et la méthode appropriées.
 
-Les yeux de Wang Lin s'illuminèrent; il toucha le sac et un jade rouge apparut dans sa main. Après avoir réfléchi, il pressa le jade jusqu'à ce qu'il éclate.
+Les yeux de Wang Lin s'illuminèrent; il toucha le sac et un jade de sang apparut dans sa main. Après avoir réfléchi, il pressa le jade jusqu'à ce qu'il éclate.
 
 Un rayon de lumière rouge jaillit immédiatement du fragment brisé et flotta devant lui.
 

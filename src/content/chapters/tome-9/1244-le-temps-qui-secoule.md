@@ -14,7 +14,7 @@ Seul le regard du roi des moustiques changeait lorsqu'il se posait sur Wang Lin.
 
 En vérité, dans le cœur du roi des moustiques, Wang Lin était son parent.
 
-Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la culture des Purificateur du Nirvana se dégageait d'elles.
+Quatre bêtes moustiques d'un bleu profond volaient aux côtés du roi des moustiques, tels des gardes. Une aura correspondant au sommet de la culture du Purificateur du Nirvana se dégageait d'elles.
 
 Avec le roi des moustiques menant une troupe de 5 000 bêtes, une force puissante était en train de se former. Les bêtes moustiques avaient progressivement accepté l'existence de Wang Lin, mais ce n'était qu'une acceptation superficielle. Dès que le roi des moustiques disparaîtrait, tout s'effondrerait instantanément.
 
@@ -34,7 +34,7 @@ Son regard était aussi calme que la surface d'un puits. Malgré cette sérénit
 
 À cet instant, il vit une planète de culture. Là-bas, un père marchait avec son enfant à travers les montagnes et les rivières. Ils parlaient et riaient en désignant divers sommets et cours d'eau.
 
-Le père prit l'enfant par la main et ils continuèrent à conquérir montagne après montagne, à traverser rivières et lacs. Il prit également l'enfant et rugit au bord de l'océan, comme si leur cri provoquait les vagues géantes de l'abîme.
+Le père prit l'enfant par la main et ils continuèrent à conquérir montagne après montagne, à traverser rivières et lacs. Au milieu de la mer, il rugit avec l'enfant vers le ciel, et l'océan se souleva en vagues géantes.
 
 Tous ces souvenirs empreints du passage du temps défilèrent devant les yeux de Wang Lin. C'étaient des souvenirs mêlés de douleur et de bonheur. Ils faisaient partie de sa vie; ils étaient des fragments indispensables de son être.
 

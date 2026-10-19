@@ -60,7 +60,7 @@ Lorsqu'il réapparut, il était déjà loin. À peine arrivé, il se téléporta
 
 La silhouette et la voix de Wang Lin devinrent un nuage noir pesant lourdement sur son âme naissante. Il craignait d'être trop lent et de se faire rattraper.
 
-Il effectua plus de dix téléportations et parcourut plus de 50 000 kilomètres. Durant cette course effrénée pour sa survie, il dévora une quantité colossale de pilules. Il avait même brisé le jade de sa secte pour appeler à l'aide les membres des sectes environnantes!
+Il effectua plus de dix téléportations et parcourut près de 50 000 kilomètres. Durant cette course effrénée pour sa survie, il dévora une quantité colossale de pilules. Il avait même brisé le jade de sa secte pour appeler à l'aide les membres des sectes environnantes!
 
 Il existait de nombreuses petites sectes comme la Secte du Tonnerre Céleste. Le clan n'intervenait naturellement pas et encourageait même les gens à former ou à rejoindre des sectes.
 
@@ -90,7 +90,7 @@ Le visage de Qiu Dehai était livide de peur. Il voulut parler, mais la voix qui
 
 L'homme d'âge mûr sortit un jade et le brisa pour demander de l'aide, avant même Qiu Dehai. Il détestait ce dernier jusqu'à la moelle et s'il ne pouvait pas entraîner d'autres personnes dans sa chute, il ne pourrait apaiser sa rage.
 
-Une heure plus tard, une scène extrêmement étrange se déroulait sur cette planète. Quatre cultivateurs de l'Âme Naissante fuyaient en panique. Trois d'entre eux affichaient une haine et une terreur indescriptibles!
+Deux heures plus tard, une scène extrêmement étrange se déroulait sur cette planète. Quatre cultivateurs de l'Âme Naissante fuyaient en panique. Trois d'entre eux affichaient une haine et une terreur indescriptibles!
 
 Wang Lin marchait calmement derrière eux. En chemin, les appels à l'aide de Qiu Dehai et ses compagnons avaient attiré deux autres Anciens. Les quatre s'enfuirent ensemble, contraints par la demande de Wang Lin de se diriger vers la Secte du Tonnerre Céleste.
 
@@ -98,7 +98,7 @@ Une montagne apparut au loin. Elle n'était pas imposante, mais elle était enve
 
 Lorsque les quatre cultivateurs terrifiés amenèrent Wang Lin sur place, Qiu Dehai s'exclama d'une voix tremblante: « Ai... Aîné... Voici... Voici la Secte du Tonnerre Céleste... »
 
-Tout au long du trajet, ils avaient été forcés de courir à perdre haleine. Entre la panique et l'effroi, leurs esprits avaient été torturés durant tout le voyage.
+Tout au long du trajet, ils avaient été forcés de courir à perdre haleine, leur énergie spirituelle presque épuisée. Entre la panique et l'effroi, leurs esprits avaient été torturés durant tout le voyage.
 
 Wang Lin observa la montagne et agita sa main droite. Une bourrasque de vent surgit et enveloppa les quatre cultivateurs de l'Âme Naissante. Ils poussèrent des cris tandis que leurs marques de tonnerre éclataient, libérant une pluie de trésors. Wang Lin les ramassa, puis, dans le même mouvement, la rafale perça les nuages et projeta les quatre hommes directement sur la place de la Secte du Tonnerre Céleste!
 

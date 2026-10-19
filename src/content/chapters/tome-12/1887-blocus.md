@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1887 - Blockade
 slug: blocus
 ---
-La neige tombait et un vent glacial soufflait dans la nuit tandis que Wang Lin marchait vers la ville. Il ignorait pourquoi il avait ressenti le besoin de venir ici après avoir détecté sa présence.
+La neige tombait et un vent glacial soufflait au crépuscule tandis que Wang Lin marchait dans la ville. Il ignorait pourquoi il avait ressenti le besoin de venir ici après avoir détecté sa présence.
 
 « Peut-être suis-je en quête d'un sentiment d'ordinaire... » Wang Lin avança dans la neige, produisant un crissement sous ses pas. Quelques flocons se posèrent sur son visage; ils étaient glacials.
 
@@ -32,11 +32,11 @@ Derrière lui, les dizaines de milliers de lumières brillaient et dégageaient 
 
 Le hurlement du vent résonnait dans la neige, composant peu à peu un chant mélancolique qui accompagnait la silhouette solitaire de Wang Lin.
 
-Quelques mois plus tard, dans la Mer de Pilules effondrée. Cet endroit était devenu un bassin gigantesque; il n'y avait plus rien ici. Nulle trace de vitalité, seulement désolation et mort.
+Quelques mois plus tard, dans la Mer des Pilules effondrée. Cet endroit était devenu un bassin gigantesque; il n'y avait plus rien ici. Nulle trace de vitalité, seulement désolation et mort.
 
-La silhouette de Wang Lin apparut dans le ciel au-dessus de la Mer de Pilules. C'était la deuxième fois qu'il revenait ici. Comparé à son précédent passage, il semblait habité par un esprit d'adieu.
+La silhouette de Wang Lin apparut dans le ciel au-dessus de la Mer des Pilules. C'était la deuxième fois qu'il revenait ici. Comparé à son précédent passage, il semblait habité par un esprit d'adieu.
 
-Alors qu'il traversait la Mer de Pilules désolée, Wang Lin déploya son Sens Divin. Plus il se rapprochait du Continent du Démon Vert, plus il se faisait prudent. Après un mois, lorsqu'il posa le pied sur le Continent du Démon Vert, il sentit une aura lugubre envelopper l'intégralité du territoire.
+Alors qu'il traversait la Mer des Pilules désolée, Wang Lin déploya son Sens Divin. Plus il se rapprochait du Continent du Démon Vert, plus il se faisait prudent. Après un mois, lorsqu'il posa le pied sur le Continent du Démon Vert, il sentit une aura lugubre envelopper l'intégralité du territoire.
 
 Cette aura sombre exsudait la froideur et la soif de sang, imprégnée d'une pointe de malveillance. Les mortels, les bêtes et même les cultivateurs nés ici portaient en eux une trace de nature démoniaque.
 
@@ -64,11 +64,11 @@ Derrière ces deux sources d'énergie, une énergie d'épée monstrueuse régnai
 
 C'était la première fois que Wang Lin rencontrait une puissance capable de l'entraver sur le Continent du Démon Vert. Il sentit une aura familière émaner de l'épée.
 
-Cela confirmait que sa décision de traverser le Continent du Démon Vert était la bonne. S'il avait pris une autre direction, il aurait rencontré des obstacles bien plus redoutables encore.
+Cela confirmait que sa décision de traverser le Continent du Démon Vert était la bonne. S'il avait pris une autre direction, il aurait rencontré bien plus d'obstacles encore.
 
 « Trois personnes... Ils m'accordent trop de crédit. » Wang Lin resta imperturbable et marcha vers la montagne. Dès qu'il fit un pas en avant, deux auras démoniaques jaillirent. De loin, elles ressemblaient à deux féroces Scorpions du Démon Vert s'élançant du sommet vers lui.
 
-Peu après, l'ombre d'épée antique au sommet de la montagne émit un puissant chant d'épée. Il balaya le monde et s'abattit, suivant les deux ombres.
+Peu après, l'ombre d'épée antique au sommet de la montagne émit un puissant chant d'épée. Il balaya le monde et s'abattit, suivant les deux ombres, avec une force digne d'ouvrir le ciel.
 
 Le monde trembla. La puissance de cette épée semblait éclipser toute autre lumière sur terre. C'était comme un rayon de lumière jaillissant du vide.
 
@@ -92,20 +92,20 @@ Lorsque les deux messagers explosèrent, les yeux de Wang Lin s'illuminèrent et
 
 Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodestruction. C'était d'une étrangeté absolue. De plus, derrière eux se trouvait Yun Kong, qui avait déchaîné la puissante énergie d'épée. À trois, ils avaient largement de quoi combattre Wang Lin; l'autodestruction n'était absolument pas nécessaire!
 
-C'était une anomalie extrême!
+Ce qui sort de l'ordinaire cache forcément un démon!
 
 Pour être prêt à sacrifier deux messagers du stade intermédiaire de la Tribulation du Vide, le Continent du Démon Vert devait manigancer quelque chose de monstrueux. Ils ne permettraient pas à Wang Lin de quitter les lieux si facilement.
 
 Des grondements tonitruants résonnèrent et les yeux de Wang Lin brillèrent. Sa main droite s'élança vers le vide et l'armure élémentaire de terre humanoïde apparut. D'un geste, une lumière jaune terreuse enveloppa son corps.
 
-Aussitôt, Wang Lin libéra toute sa puissance et ne cacha plus son aura du Dao Ancien. Une fois cette aura pleinement déployée, une silhouette gigantesque capable de soutenir le monde se matérialisa.
+Aussitôt, Wang Lin libéra toute sa puissance et ne cacha plus son aura du Dao Antique. Une fois cette aura pleinement déployée, une silhouette gigantesque capable de soutenir le monde se matérialisa.
 
-À l'instant où la figure apparut, elle fut visible par quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres. Une ondulation nette de puissance du Dao Ancien se propagea.
+À l'instant où la figure apparut, elle fut visible par quiconque se trouvait dans un rayon de dizaines de milliers de kilomètres. Une ondulation nette de puissance du Dao Antique se propagea.
 
-L'ombre du Dao Ancien poussa un rugissement vers le ciel et protégea Wang Lin contre l'onde de choc des deux autodestructions.
+L'ombre du Dao Antique poussa un rugissement vers le ciel et protégea Wang Lin contre l'onde de choc des deux autodestructions.
 
-Un fracas de tonnerre retentit lorsque la force destructrice de la première explosion percuta l'ombre du Dao Ancien. L'ombre trembla et montra des signes d'effondrement sous l'impact de la seconde explosion.
+Un fracas de tonnerre retentit lorsque la force destructrice de la première explosion percuta l'ombre du Dao Antique. L'ombre trembla et montra des signes d'effondrement sous l'impact de la seconde explosion.
 
-Le grondement fut apocalyptique, et l'ombre du Dao Ancien, pourtant renforcée par la culture de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement!
+Le grondement fut apocalyptique, et l'ombre du Dao Antique, pourtant renforcée par la culture de Wang Lin au stade initial de la Tribulation du Vide, s'effondra soudainement!
 
 Alors que l'ombre se brisait, une partie de la force destructrice des deux explosions subsista et s'abattit sur la première couche de protection de Wang Lin: son armure élémentaire de terre humanoïde.

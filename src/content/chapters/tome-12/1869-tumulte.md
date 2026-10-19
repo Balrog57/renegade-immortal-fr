@@ -12,9 +12,9 @@ Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade interméd
 
 Avec la force de Wang Lin, il pouvait combattre des cultivateurs au stade précoce de la Tribulation du Vide. Les tuer serait difficile, mais pas impossible. Cependant, s'il devait affronter un ancien monstre comme le Souverain Céleste aux Sept Couleurs au sommet de sa puissance, l'écart serait trop grand.
 
-Même s'il possédait neuf essences et atteignait le stade précoce du Vide Arcane, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
+Même s'il possédait neuf essences et atteignait le stade précoce du Vide Arcanique, la différence resterait immense. Au mieux, il gagnerait la capacité de riposter.
 
-Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé du Vide Arcane, ou son Dao Ancestral devrait traverser la dernière épreuve!
+Pour véritablement résister aux anciens monstres du stade intermédiaire de la Tribulation du Vide, Wang Lin devrait atteindre le stade avancé du Vide Arcanique, ou son Dao Antique devrait traverser la dernière épreuve!
 
 Mais Wang Lin avait passé sa vie dans le danger. Parfois, tuer ne dépendait pas seulement de la culture — d'autres facteurs entraient parfois en jeu!
 
@@ -28,7 +28,7 @@ Derrière lui, Zhang Daozong suivait calmement, mais une intention meurtrière m
 
 Quant à l'impact de son départ du champ de bataille, il s'en moquait. La raison pour laquelle il osait partir était que tout cela faisait partie d'un plan orchestré par le Continent du Démon Vert contre Wang Lin!
 
-Ce plan consistait à sacrifier un grand nombre de cultivateurs pour retarder la bataille et attirer Wang Lin hors de sa zone de sécurité!
+Ce plan consistait à sacrifier un grand nombre de cultivateurs pour retarder la bataille et faire apparaître Wang Lin!
 
 En vérité, si le Continent du Démon Vert l'avait voulu, il aurait pu mettre fin rapidement à la seconde bataille car leurs renforts étaient arrivés deux jours auparavant!
 
@@ -42,7 +42,7 @@ Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Z
 
 Cette série d'actes faisait de Wang Lin la cible numéro un à éliminer pour le Continent du Démon Vert au début de cette guerre!
 
-Au moment où Zhang Daozong commença sa poursuite, à 100 000 kilomètres du champ de bataille, quatre auras éclatèrent soudainement. Toutes étaient au stade intermédiaire de la Tribulation du Vide!
+Au moment où Zhang Daozong commença sa poursuite, à 10 000 kilomètres du champ de bataille, quatre auras éclatèrent soudainement. Toutes étaient au stade intermédiaire de la Tribulation du Vide!
 
 Plus choquant encore, après l'apparition de ces quatre auras, le ciel au-dessus de la Prairie de l'Extrême Ciel prit une étrange teinte verdâtre. Cette couleur se condensa pour former un scorpion géant.
 

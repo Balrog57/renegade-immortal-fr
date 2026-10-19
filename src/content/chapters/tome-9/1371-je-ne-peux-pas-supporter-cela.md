@@ -212,7 +212,7 @@ Non seulement lui, mais tous les cultivateurs du Clan du Scorpion Noir en pleine
 
 Trois respirations passèrent en un éclair et la main droite de Wang Lin s'abattit. Des grondements tonitruants éclatèrent alors qu'une quantité infinie d'éclairs convergeait de toutes les directions, formant un gigantesque filet de foudre qui s'abattit sur la ville.
 
-Ce spectacle de foudre infinie choqua le cœur de tous ceux qui fuyaient. Dans un fracas assourdissant, la terre trembla violemment et le filet de foudre s'écrasa. La ville entière s'effondra; même la tour fut pulvérisée, transformant la cité en un champ de ruines.
+Ce spectacle de foudre infinie choqua le cœur de tous ceux qui fuyaient. Dans un fracas assourdissant, la terre trembla violemment et le filet de foudre s'écrasa. La ville entière s'effondra; même la salle principale fut pulvérisée, transformant la cité en un champ de ruines.
 
 D'innombrables fissures s'ouvrirent dans la terre, qui s'enfonça profondément de mille pieds!
 

@@ -6,15 +6,15 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 600 - Celestial Ascension Fruit
 slug: fruit-de-lascension-celeste
 ---
-À cet instant, dans le Pays du Démon Céleste, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
+À cet instant, dans le Pays des Démons Célestes, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
 
 « Il vient tout juste d'atteindre le stade d'Ascendant, son énergie originelle n'a donc pas encore totalement fusionné avec son corps. Il lui faudra quarante-neuf jours pour achever ce processus, et cette fenêtre est une opportunité que j'attends depuis dix ans... »
 
-La lueur fantomatique à l'intérieur de l'armure vacilla, puis des rugissements tonitruants retentirent à l'extérieur de la tour noire. À cet instant, un vortex noir gigantesque apparut soudainement dans le ciel.
+La lueur fantomatique à l'intérieur de l'armure vacilla, puis des grondements de tonnerre retentirent à l'extérieur de la tour noire. À cet instant, un vortex noir gigantesque apparut soudainement dans le ciel.
 
 Ce vortex était d'une démesure absolue. Lorsqu'il tournait, il semblait capable d'absorber tout ce qui existait au monde. Le ciel changea de couleur et même les innombrables âmes du champ de bataille antique commencèrent à trembler.
 
-La lumière fantomatique émanant de la tour brilla intensément tandis qu'un puissant Sens Divin se propageait depuis l'édifice, couvrant rapidement l'intégralité de l'ancien champ de bataille. Le sol, par endroits, se dérogea et bientôt, plusieurs os noirs jaillirent de la terre pour s'élancer dans les airs.
+La lumière fantomatique émanant de la tour brilla intensément tandis qu'un puissant Sens Divin se propageait depuis l'édifice, couvrant rapidement l'intégralité de l'ancien champ de bataille. Le sol, par endroits, se desserra et bientôt, plusieurs os noirs jaillirent de la terre pour s'élancer dans les airs.
 
 Ces fragments osseux fusionnèrent rapidement dans le ciel pour former un bras d'os noir.
 
@@ -44,7 +44,7 @@ Ce coup fit vaciller la silhouette dématérialisée de Wang Lin, qui finit par 
 
 Le bras d'os noir marqua un temps d'arrêt avant de retourner dans le vortex, lequel disparut à son tour.
 
-Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays du Démon de Feu, et Wang Lin en émergea!
+Une distorsion se produisit dans le ciel au-dessus d'une plaine infinie du Pays des Démons de Feu, et Wang Lin en émergea!
 
 Son visage était sombre. Quiconque subirait une telle scène étrange juste après avoir atteint le stade d'Ascendant ne saurait s'en réjouir.
 
@@ -60,7 +60,7 @@ Wang Lin fixait le vortex d'un regard lugubre. Cette fois, il ne s'enfuit pas; i
 
 Aucun vent ni aucun nuage n'accompagnaient ce geste. Aucune fluctuation ne trahissait l'usage de sorts; cette attaque semblait aussi naturelle que le mouvement d'un simple mortel agitant le bras.
 
-Wang Lin fronça légèrement les sourcils, leva sa main droite et utilisa, pour la première fois au stade d'Ascendant, le Doigt de la Mort. La lumière noire était dix fois plus vaste qu'auparavant, parcourue de cercles concentriques!
+Wang Lin fronça légèrement les sourcils, leva sa main droite et utilisa, pour la première fois au stade d'Ascendant, le Doigt de la Mort. La lumière noire était plus de dix fois plus vaste qu'auparavant, parcourue de cercles concentriques!
 
 La lueur noire jaillit comme un coup de tonnerre et percuta le bras d'os. À cet instant, une quantité stupéfiante d'énergie spirituelle démoniaque jaillit de l'armure. Cette énergie était si dense qu'elle devint solide, bloquant immédiatement le Doigt de la Mort.
 
@@ -90,7 +90,7 @@ Le bras osseux n'était pas la véritable menace; ce qui était terrifiant, c'é
 
 Au moment où Wang Lin partit, une exclamation étouffée retentit depuis la tour noire sur l'ancien champ de bataille.
 
-« Pas étonnant qu'il soit un cultivateur défiant les cieux; il a pu résister de force à mon Vent Démoniaque Céleste grâce à son cœur de massacre! Mais plus tu excelles, plus ton énergie originelle m'attire! Dans ces terres des esprits démoniaques, ceux qui cultivent la voie de l'ancien démon ne peuvent former d'énergie originelle. Celle-ci n'apparaît que lorsque les cultivateurs atteignent le stade d'Ascendant. Durant ces innombrables années, presque chaque Ascendant de ce pays a vu son énergie dévorée par moi... Tu ne feras pas exception! »
+« Pas étonnant qu'il soit un cultivateur défiant les cieux; il a pu résister de force à mon Vent Démoniaque Céleste grâce à son cœur de massacre! Mais plus tu es ainsi, plus ton énergie originelle m'intéresse! Dans ces terres des esprits démoniaques, ceux qui cultivent la voie de l'ancien démon ne peuvent former d'énergie originelle. Celle-ci n'apparaît que lorsque les cultivateurs atteignent le stade d'Ascendant. Durant ces innombrables années, presque chaque Ascendant de ce pays a vu son énergie dévorée par moi... Tu ne feras pas exception! »
 
 Wang Lin réapparut après sa téléportation. Il se trouvait dans une zone désolée, dépourvue de montagnes ou de cours d'eau. Seuls des arbres desséchés jonchaient le paysage. Cependant, ses yeux se plissèrent aussitôt en remarquant des restrictions au loin.
 

@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1413 - Change To The Heaven Defying Bead!"
 slug: changement-vers-la-perle-defiant-le-ciel
 ---
-Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Épreuve Terrestre commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
+Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Épreuve Terrestre marqua un bref temps d'arrêt, puis commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
 
-Les fragments du lotus de feu aux neuf couleurs formèrent une armure multicolore autour de l'Oiseau Vermillon. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
+Les fragments du lotus de feu aux neuf couleurs formèrent une armure aux neuf couleurs autour de l'Oiseau Vermillon. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
 
-De loin, il ne ressemblait plus à un Oiseau Vermillon, mais à un esprit de feu éternel! Le feu intérieur avait déjà atteint le sommet du feu corporel et n'avait plus qu'une étape à franchir pour atteindre le royaume du Feu Éthéré!
+De loin, il ne ressemblait plus à un Oiseau Vermillon, mais à un esprit de feu éternel! Le feu qui emplissait son corps, à l'intérieur comme à l'extérieur, avait déjà atteint le sommet du feu corporel et n'avait plus qu'une étape à franchir pour atteindre le royaume du Feu Éthéré!
 
 L'esprit de feu de l'Oiseau Vermillon sembla se distordre sous les rugissements des flammes; il traversait sa phase finale de transformation. Ce processus pouvait être long ou court, mais il ne devait en aucun cas être perturbé. Si une telle interruption survenait, cette opportunité unique dans une vie s'évanouirait et le quatrième éveil serait annulé, sans aucune possibilité de le recommencer!
 
@@ -20,7 +20,7 @@ Cependant, à cet instant précis, un changement stupéfiant que Wang Lin n'aura
 
 Les dizaines de milliers de cultivateurs fixaient tous l'encens terrestre, mais seuls quelques-uns remarquèrent le bouleversement choquant qui s'opérait dans le brouillard magnétique entourant la Planète du Grand Empereur. La force magnétique faisait tourbillonner le brouillard, et des grondements sourds résonnaient en son sein.
 
-La Planète du Grand Empereur avait la forme d'une barre et, normalement, sa rotation était très difficile à détecter. Pourtant, à cet instant, la planète entière trembla et le ciel changea de couleur. Les cultivateurs environnants eurent l'impression que la terre vacillait et que le ciel s'effondrait!
+La Planète du Grand Empereur avait la forme d'une barre et, normalement, sa rotation était très difficile à détecter. Pourtant, à cet instant, la planète entière trembla et le ciel changea de couleur. Les cultivateurs environnants eurent l'impression que la terre vacillait et que le ciel se déchirait!
 
 La Planète du Grand Empereur commença à tourner lentement!
 
@@ -30,7 +30,7 @@ Ce changement modifia immédiatement l'expression des cultivateurs aux alentours
 
 La main de la Grande Maîtresse Yun Luo était encore en train de former des sceaux quand, dans un fracas assourdissant, sa main droite fut réduite en une masse sanglante. Son corps fut projeté en arrière, son visage pâlit et elle cracha une bouchée de sang.
 
-« Le soulèvement de la Planète du Grand Empereur... une calamité va s'abattre sur le Système Stellaire Antique! » trembla la Grande Maîtresse Yun Luo, reculant avec effroi dans les yeux.
+« Le bouleversement de la Planète du Grand Empereur... une calamité va s'abattre sur le Système Stellaire Antique! » trembla la Grande Maîtresse Yun Luo, reculant avec effroi dans les yeux.
 
 Sa divination venait d'atteindre un point critique et elle était sur le point de percer la vérité lorsque, surgissant de nulle part, une force fit exploser sa main droite.
 
@@ -72,7 +72,7 @@ Les dizaines de milliers de cultivateurs alentour fuirent, le regard empli d'eff
 
 Seul le vieil Oiseau Vermillon et sa compagnie restèrent immobiles, fixant le vortex magnétique imminent.
 
-Le vortex descendit brusquement. Il ne visait pas la tortue géante, mais l'encens terrestre! En un éclair, le vortex s'engouffra dans l'encens terrestre.
+Le vortex descendit brusquement. Il ne visait pas la tortue géante, mais le deuxième encens, l'encens terrestre! En un éclair, le vortex s'engouffra dans l'encens terrestre.
 
 De loin, la scène était terrifiante. C'était comme si l'encens terrestre était devenu un trou noir dévorant tout le brouillard magnétique environnant.
 

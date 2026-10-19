@@ -64,11 +64,11 @@ Wang Lin fronça les sourcils et, après réflexion, devina pourquoi Ming Dao ag
 
 « Franchir le 13e palais signifie que vous pouvez être considéré comme étant au sommet de mon clan céleste. Je viendrai vous trouver! » Le Grand Empyréen Wu Feng sourit et hocha la tête à Wang Lin.
 
-« Haha, petit ami Wang Lin, puisque tu te souviens de notre accord précédent, je viendrai également à ta rencontre. Quant aux conditions spécifiques, nous pourrons en discuter en détail lors de notre entrevue. » Une lueur d'admiration apparut dans les yeux du Grand Empyréen Dao Yi.
+« Haha, jeune ami Wang Lin, puisque tu te souviens de notre accord précédent, je viendrai également à ta rencontre. Quant aux conditions spécifiques, nous pourrons en discuter en détail lors de notre entrevue. » Une lueur d'admiration apparut dans les yeux du Grand Empyréen Dao Yi.
 
 Wang Lin joignit une fois de plus les mains devant Dao Yi et Wu Feng. Il continua d'ignorer l'Ascendant Empyréen Ming Dao tout en volant vers l'ancien réseau de transfert pour quitter les lieux.
 
-Il sentait qu'il avait déjà stupéfié tout le monde et atteint son objectif. Dans le 13e palais, s'il n'avait pas utilisé une partie du pouvoir de son avatar dans le vide, il n'aurait pu le franchir avec la seule armure de l'âme.
+Il sentait qu'il avait déjà stupéfié tout le monde et atteint son objectif. Dans le 13e palais, s'il n'avait pas utilisé une partie du pouvoir de son avatar dans le vide, il n'aurait pu le franchir avec la seule armure de l'âme face aux neuf âmes étrangères.
 
 À cet instant, il décida de s'arrêter là. Le 13e palais suffisait pour attirer l'attention des Grands Empyréens.
 
@@ -98,7 +98,7 @@ Wang Lin s'arrêta et, après un court instant de réflexion, se tourna vers lui
 
 En entendant cela, Wang Lin éclata soudain de rire et ne prêta plus attention à Ming Dao. Il entra dans le réseau de transfert qui s'illumina. Cependant, à cet instant même, une lueur d'intention meurtrière traversa les yeux du jeune homme en noir.
 
-« Arrogant! » Tout en prononçant ces mots, il leva la main droite et pointa le réseau de transfert. Aussitôt, l'ensemble de l'Épreuve Empyrée sembla trembler. Un doigt gigantesque apparut et fonça vers le réseau de transfert!
+« Insolent! » Tout en prononçant ces mots, il leva la main droite et pointa le réseau de transfert. Aussitôt, l'ensemble de l'Épreuve Empyrée sembla trembler. Un doigt gigantesque apparut et fonça vers le réseau de transfert!
 
 Le combat était interdit dans l'Épreuve Empyrée — c'était une règle ancestrale. Pourtant, à cet instant, l'Ascendant Empyréen Ming Dao attaquait sans aucun égard pour cette loi!
 
@@ -114,7 +114,7 @@ Dès que le doigt géant apparut, il agita l'énergie ambiante. Tous les cultiva
 
 Le doigt géant poussa un rugissement fracassant qui déchira le ciel en fonçant vers Wang Lin. Si Wang Lin ne bougeait pas, son Sens Divin risquait d'être endommagé durant le transfert et pourrait s'effondrer.
 
-Mais s'il se cachait, il serait expulsé du réseau de transfert et ne pourrait plus partir.
+Mais s'il l'esquivait, il serait expulsé du réseau de transfert et ne pourrait plus partir.
 
 Ce serait comme briser l'élan de Wang Lin et porter une atteinte grave à la gloire qu'il venait d'acquérir en franchissant le 13e palais.
 

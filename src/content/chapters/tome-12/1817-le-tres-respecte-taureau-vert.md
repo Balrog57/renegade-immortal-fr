@@ -58,19 +58,19 @@ La salle d'alchimie était également somptueuse. Tout ce qu'elle contenait prov
 
 En entendant cela, Du Qing comprit l'intention de Wang Lin. Après une courte réflexion, il s'assit face à lui et répondit:
 
-« Le Continent du Taureau Céleste abrite l'élément feu et est composé majoritairement de veines de terre-feu. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste fut massacré par l'Ancêtre Céleste; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
+« Le Continent du Taureau Céleste abrite l'élément feu et est composé majoritairement de veines de feu terrestre. La rumeur prétend que ces veines sont interconnectées pour former une formation qui réprime le Taureau Céleste. La légende raconte que le Taureau Céleste fut massacré par l'Ancêtre Céleste; son corps devint le continent et son âme originelle est maintenue sous pression par le feu. »
 
 « Ce n'est qu'une rumeur. Beaucoup ont cherché pendant des éternités sans trouver de piste. »
 
-« Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Taureau Céleste... La principale veine de terre-feu que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
+« Cependant, il existe une autre théorie. Les veines de feu n'auraient pas été placées par l'Ancêtre Céleste, mais seraient les propres veines du Taureau Céleste... La principale veine de feu terrestre que vous cherchez devrait être la plus grande de toutes, celle qui traverse tout le continent! »
 
 « Cette veine possède un point de jonction au sein de la Secte de la Grande Âme! » En prononçant ces derniers mots, la voix de Du Qing se fit soudainement basse. Il agita sa main droite et des restrictions apparurent pour sceller la zone.
 
 Du Qing murmura: « La Secte de la Grande Âme fait partie des neuf sectes et treize factions du Continent de l'Est. Ils possèdent d'innombrables experts et de nombreux sorts mystérieux. Lorsqu'on évoque cette secte, il faut rester prudent. »
 
-« Le feu est l'une de mes essences et j'ai une forte affinité avec la terre-feu. Chaque fois que je me rends à la Secte de la Grande Âme, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
+« Le feu est l'une de mes essences et j'ai une forte affinité avec le feu terrestre. Chaque fois que je me rends à la Secte de la Grande Âme, le feu en mon corps est réprimé. C'est comme si une volonté puissante forçait tout feu à plier. »
 
-« Selon mon analyse, c'est là que se situe la principale veine de terre-feu du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte de la Grande Âme. »
+« Selon mon analyse, c'est là que se situe la principale veine de feu terrestre du continent. Il est même probable qu'un individu possédant une essence de feu extrêmement puissante réside au sein de la Secte de la Grande Âme. »
 
 « Je connais également l'Ancêtre de la Secte de la Grande Âme, le Très Respecté Taureau Vert; son niveau de culture est très élevé. Il possède lui aussi, comme vous, un corps véritable d'essence! » Lorsque Du Qing parla du Très Respecté Taureau Vert, ses yeux trahirent une profonde crainte.
 
@@ -78,7 +78,7 @@ Les yeux de Wang Lin se rétrécirent; il retint ce nom.
 
 « Avec mon niveau actuel, je ne suis qualifié que pour être un Ancien extérieur à la Secte de la Grande Âme. J'ai un aîné de mon clan qui est Ancien intérieur. C'est grâce à cette relation et à mon rang d'Ancien extérieur que la Secte du Dragon Bleu bénéficie de la protection de la Secte de la Grande Âme. »
 
-« Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de terre-feu, alors... » Du Qing laissa sa menace en suspens.
+« Le camarade cultivateur Wang possédant un trésor offert par un Grand Empyréen, vous devez être traité comme un hôte d'honneur. Mais si jamais vous veniez à affecter la principale veine de feu terrestre, alors... » Du Qing laissa sa menace en suspens.
 
 L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personnes à la Secte de la Grande Âme.
 
@@ -108,4 +108,4 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 Ses pupilles se contractèrent brusquement et une pensée audacieuse traversa son esprit. Cette idée le fit haleter et son regard vers Wang Lin devint empreint d'une immense incertitude.
 
-« Puisque le Continent du Taureau Céleste possède des veines de terre-feu, l'un des continents environnants possède-t-il des veines de tonnerre? » Wang Lin esquiva ainsi le sujet que Du Qing venait d'aborder.
+« Puisque le Continent du Taureau Céleste possède des veines de feu terrestre, l'un des continents environnants possède-t-il des veines de tonnerre? » Wang Lin esquiva ainsi le sujet que Du Qing venait d'aborder.

@@ -14,7 +14,7 @@ Seul resta le duo père et fils du Clan du Dragon Blindé, les traits sombres.
 
 « Père, la culture de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan du Dragon Blindé.
 
-Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis il a éliminé des dizaines de milliers de cultivateurs avant de s'enfuir, et il est recherché par le Conseil Souverain par un ordre du Système Stellaire Antique! »
+Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis il a réprimé des dizaines de milliers de cultivateurs avant de s'enfuir, et il est recherché par le Conseil Souverain par un ordre du Système Stellaire Antique! »
 
 « Quoi?! » Le jeune maître du Clan du Dragon Blindé fut stupéfait, son expression changeant radicalement.
 

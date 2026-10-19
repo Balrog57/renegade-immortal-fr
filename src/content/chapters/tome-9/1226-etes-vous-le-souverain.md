@@ -32,7 +32,7 @@ Un fracas tonitruant retentit et Wang Lin eut l'impression d'être frappé par u
 
 L'expression de Wang Lin était féroce, révélant une folie mêlée à une volonté défiant les cieux. Il avait vécu une existence semée de dangers, et plus la situation devenait périlleuse, plus il se montrait inflexible!
 
-Qu'il s'agisse de vie ou de mort, il serait un héros!
+Vivant, il serait un héros parmi les hommes; mort, un héros parmi les fantômes!
 
 Au moment où Wang Lin ordonna l'effondrement, le Fourneau du Dieu Antique émit un grondement de tonnerre. En tournant, une aura capable de faire trembler les cieux jaillit et forma une tempête. Le Fourneau du Dieu Antique s'effondra au cœur de la tempête et chargea l'index!
 
@@ -116,4 +116,4 @@ Même cette existence mystérieuse, restée imperturbable durant d'innombrables 
 
 « Êtes-vous le Souverain du Domaine Extérieur? » Wang Lin s'élança dans les airs pour charger l'annulaire.
 
-« Ce vieil homme est issu du Clan de la Soie Bleue de l'Ancien Haut, le Maître du Dao Rêve Bleu! »
+« Ce vieil homme est issu du Clan de la Soie Bleue des Astres de l'Ancien Haut, le Maître du Dao Rêve Bleu! »

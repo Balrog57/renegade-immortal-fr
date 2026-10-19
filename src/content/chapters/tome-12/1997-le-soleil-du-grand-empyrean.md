@@ -14,7 +14,7 @@ Les grondements tonitruants de leur combat se propagèrent dans toutes les direc
 
 L'expression de Wang Lin resta aussi froide qu'à l'accoutumée. Lorsque Dao Yi arriva, une rare trace d'intention de combat apparut dans ses yeux. Cette intention ne l'avait pas habité depuis longtemps; elle provenait de sa compréhension de la loi du combat, acquise dans le monde des grottes!
 
-C'était l'apogée de l'adage: « Nous, les cultivateurs, ne reculons jamais devant un combat! »
+C'était l'apogée de l'adage: « Nous, les cultivateurs, pourquoi hésiterions-nous devant un combat à son apogée? »
 
 « Dao Yi! » Wang Lin se tint sur la tête de l'Ancêtre Céleste et poussa un rugissement vers le ciel. Ses cheveux noirs ondulaient sans qu'aucun vent ne souffle, et il leva la main droite. Un fragment d'épée doré apparut dans sa paume. Il s'agissait du fragment de l'épée de l'Ancêtre Céleste que Jiu Di lui avait donné sur la longue rue!
 
@@ -38,7 +38,7 @@ Dao Yi poussa un rugissement. Empruntant la puissance de son soleil, il intégra
 
 Alors que les grondements tonitruants résonnaient, le corps du Wang Lin aux cheveux noirs s'effondra une fois de plus en d'innombrables filaments de gaz noir. Ils semblaient animés de vie et se précipitèrent vers Dao Yi. Le gaz noir se rassembla devant lui, et un doigt en émergea, tendu vers Dao Yi!
 
-Dao Yi fit soudain volte-face; son visage n'était plus qu'un crâne presque parfait. La chair et le sang tombaient tandis qu'une eau sanglante suintait de son corps. Il lança un coup de poing et le monde entier sembla s'immobiliser, y compris le gaz noir. Lorsque son coup porta, le doigt de Wang Lin se désintégra et le gaz noir fut repoussé. Ce dernier se reforma en le corps de Wang Lin à cent pieds de là.
+Dao Yi fit soudain volte-face; son visage avait presque entièrement pris l'aspect d'un crâne. La chair et le sang tombaient tandis qu'une eau sanglante suintait de son corps. Il lança un coup de poing et le monde entier sembla s'immobiliser, y compris le gaz noir. Lorsque son coup porta, le doigt de Wang Lin se désintégra et le gaz noir fut repoussé. Ce dernier se reforma en le corps de Wang Lin à cent pieds de là.
 
 Mais Dao Yi recula de trois pas. L'aura de massacre, déjà difficile à dissiper, semblait s'être fusionnée avec la malédiction ancestrale. Cela le fit pousser un hurlement de douleur vers les cieux.
 
@@ -80,7 +80,7 @@ Il craignait non seulement Wang Lin, mais aussi la malédiction ancestrale qui v
 
 « Essence de restriction, scelle le firmament! »
 « Essence du commencement absolu, Nuit Brisée! »
-« Vie et mort, karma, vrai et faux, recouvrez le monde! » crièrent en même temps le Wang Lin aux cheveux noirs et le corps véritable des cinq éléments de Wang Lin!
+« Vie et mort, karma, vrai et faux, dispersion du vide, recouvrez le monde! » crièrent en même temps le Wang Lin aux cheveux noirs et le corps véritable des cinq éléments de Wang Lin!
 
 Alors que Dao Yi s'apprêtait à partir, le ciel déchiré au-dessus de lui flasha soudainement et une rune apparut. C'était la puissance de scellement de l'essence de restriction de Wang Lin!
 
@@ -123,9 +123,9 @@ Ses cheveux n'étaient ni totalement noirs, ni totalement blancs, mais mi-noirs,
 
 C'était sa forme la plus puissante après son avatar dans le vide! C'était son apogée, après avoir absorbé une partie de l'héritage de l'Ancêtre Céleste et fusionné ses corps véritables du massacre et des cinq éléments!
 
-Derrière lui apparut la silhouette immense et étrange d'un soleil noir et blanc. Ce soleil était vaporeux, n'étant qu'un contour, mais il fit trembler les cœurs de Hai Zi, Jiu Di, Gémeaux et même de l'en fuite Dao Yi!
+Derrière lui apparut la silhouette immense et étrange d'un soleil noir et blanc. Ce soleil était vaporeux, n'étant qu'un contour, mais il fit trembler les cœurs de Hai Zi, Jiu Di, Gémeaux et même du fuyard Dao Yi!
 
 « Ceci... ceci est... »
 « Ce n'est pas un sortilège, c'est... le soleil du Grand Empyréen! »
-« C'est impossible. Il n'est jamais allé dans le Royaume des Dieux Immémoriaux, comment pourrait-il posséder un soleil du Grand Empyréen?! Bien qu'il soit flou, c'est bel et bien la silhouette d'un soleil du Grand Empyréen! »
+« C'est impossible. Il n'est jamais allé dans le Royaume Divin Immémorial, comment pourrait-il posséder un soleil du Grand Empyréen?! Bien qu'il soit flou, c'est bel et bien la silhouette d'un soleil du Grand Empyréen! »
 « Il... il a réellement utilisé sa propre puissance pour condenser de force un soleil du Grand Empyréen! Cet homme... cet homme... »

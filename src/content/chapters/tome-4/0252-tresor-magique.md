@@ -48,7 +48,7 @@ Un jour, Wang Lin tenait une sculpture inachevée entre ses mains. Pour une rais
 
 Ce dragon était la première bête spirituelle que Wang Lin avait rencontrée lorsqu'il se trouvait avec Li Muwan dans la Mer des Démons.
 
-Alors qu'il sculptait, la cloche sonna et la porte fut poussée. Un garçon à l'allure robuste scruta l'intérieur avec attention.
+Alors qu'il sculptait, la clochette tinta et la porte fut poussée. Un garçon à l'allure robuste scruta l'intérieur avec attention.
 
 En voyant Wang Lin, le garçon fut surpris, mais il fut aussitôt émerveillé par les sculptures qui emplissaient la pièce. Il demanda: « Oncle, est-ce vous qui avez sculpté tout cela? C'est magnifique! Pouvez-vous m'en donner une? »
 

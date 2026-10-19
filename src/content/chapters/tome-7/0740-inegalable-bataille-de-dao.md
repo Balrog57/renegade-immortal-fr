@@ -12,7 +12,7 @@ Alors que sa silhouette élancée émergeait de la poussière, son visage était
 
 « Tu es très bon, très bon! » Une voix glaciale s'échappa de ses lèvres, entre ses dents serrées par la rage. Être poussé à bout par un cultivateur du premier niveau était une humiliation! Il avait oublié qu'il était venu chercher les fragments de trésors enfouis sous terre; la seule chose qui occupait désormais son esprit était de tuer Wang Lin!
 
-Wang Lin soupira intérieurement. Tuer un cultivateur du deuxième niveau était une tâche extrêmement difficile. Tous ses calculs et ses attaques n'avaient eu qu'un seul but: offrir au garde céleste l'opportunité de porter ce coup. Si cela avait été n'importe quel autre cultivateur du premier niveau, il n'aurait pu parer une telle attaque.
+Wang Lin soupira intérieurement. Tuer un cultivateur du deuxième niveau était une tâche extrêmement difficile. Tous ses calculs et ses attaques n'avaient eu qu'un seul but: offrir au garde céleste l'opportunité de porter ce coup. Si cela avait été n'importe quel autre cultivateur du premier niveau, il n'aurait pu résister à de telles attaques.
 
 Cependant, il ne pouvait que blesser, et non tuer, un cultivateur de l'étape Yin Illusoire qui ne pouvait même pas être considéré comme ayant véritablement atteint le deuxième niveau.
 
@@ -72,7 +72,7 @@ L'esprit vengeur vola en éclats, redevenant d'innombrables fils de ressentiment
 
 La rivière des enfers était son Dao, et son effondrement signifiait l'effondrement de son propre Dao. Lorsque Wang Lin ressentit les conséquences de cette rupture, son visage pâlit instantanément et il recula en titubant. La puissance de la flamme démoniaque s'était transmise à la rivière des enfers et, lors de son effondrement, elle fut injectée directement dans l'âme originelle de Wang Lin.
 
-Cette flamme démoniaque brûlait comme si elle voulait consumer le monde entier. Le visage de Wang Lin devint rouge cramoisi, puis il cracha une large traînée de sang avant d'être instantanément envahi par une intention meurtrière!
+Cette flamme démoniaque brûlait comme si elle voulait consumer le monde entier. Le visage de Wang Lin rougit légèrement, puis il cracha une large traînée de sang avant d'être instantanément envahi par une intention meurtrière!
 
 « Troisième capacité, Pouvoir de la Rivière des Enfers! » La tête de Wang Lin se redressa brusquement et il fixa le fleuve dévasté. Sa nature inflexible transparaissait dans son regard.
 

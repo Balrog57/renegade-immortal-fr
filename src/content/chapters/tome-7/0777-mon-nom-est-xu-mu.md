@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 777 - My Name is Xu Mu
 slug: mon-nom-est-xu-mu
 ---
-Les yeux de Li Yuan s'illuminèrent et il recula de quelques pas pour se replier dans l'obscurité de la cavité. Sa main gauche traça un sceau qu'il pointa ensuite entre ses sourcils. Des lignes noires jaillirent instantanément, se muant en restrictions qui se déployèrent autour de lui.
+Les yeux de Li Yuan s'illuminèrent et il recula de quelques pas pour se replier dans l'obscurité de la cavité et s'assit en tailleur. Sa main gauche traça un sceau qu'il pointa ensuite entre ses sourcils. Des lignes noires jaillirent instantanément, se muant en restrictions qui se déployèrent autour de lui.
 
 Son niveau de culture n'était pas assez élevé pour apporter une aide directe, mais s'il disposait de suffisamment de temps pour poser ces restrictions, il pourrait garantir que personne ne puisse pénétrer dans la zone pendant un court laps de temps.
 
@@ -50,7 +50,7 @@ Il sentait même ses battements de cœur devenir plus rapides et plus violents �
 
 Après dix pas, Wang Lin s'interrompit, leva le pied et se stabilisa en fixant froidement l'homme d'âge moyen. Lorsque ce pas final retomba, l'homme cracha une immense quantité de sang et recula avec frénésie, comme s'il avait perdu la raison.
 
-Il ne réalisa même pas qu'il avait déjà franchi la limite de la zone interdite de 3,3 kilomètres établie par Wang Lin. Lorsque le dernier pas de Wang Lin eut résonné, son rythme cardiaque avait atteint son point de rupture.
+Il ne réalisa même pas qu'il était déjà sorti de la zone interdite de 3,3 kilomètres établie par Wang Lin. Lorsque le dernier pas de Wang Lin eut résonné, son rythme cardiaque avait atteint son point de rupture.
 
 *Boum, boum, boum... Bang!*
 

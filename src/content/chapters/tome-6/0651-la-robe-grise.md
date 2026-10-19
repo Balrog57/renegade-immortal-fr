@@ -58,7 +58,7 @@ Les trois épées appartenaient aux Douze Épées; en ajoutant celle contenue da
 
 Wang Lin possédait désormais sept des Douze Épées.
 
-La formation des trois épées s'éleva également de son sac pour se poser à ses côtés. Wang Lin agita la main droite et les sept épées se mirent aussitôt à tournoyer autour de lui. Il ouvrit la bouche pour expulser une bouffée d'énergie originelle qui enveloppa les sept lames.
+La Formation des Trois Talents à l'Épée s'éleva également de son sac pour se poser à ses côtés. Wang Lin agita la main droite et les sept épées se mirent aussitôt à tournoyer autour de lui. Il ouvrit la bouche pour expulser une bouffée d'énergie originelle qui enveloppa les sept lames.
 
 Un filament de tonnerre imprégnait son énergie originelle. Dès qu'il toucha les armes, des éclairs parcoururent les lames. Les sept épées étaient désormais liées par la foudre, formant une mystérieuse formation d'épée.
 

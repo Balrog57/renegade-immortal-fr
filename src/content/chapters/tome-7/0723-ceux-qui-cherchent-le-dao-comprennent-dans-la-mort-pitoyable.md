@@ -32,7 +32,7 @@ Il ne voyait que cette scène étrange de sphères de lumière défiler devant s
 
 Cette force était partout, et inconsciemment, il voulut en chercher la source.
 
-Il ne réalisa pas à quel point cette scène ressemblait à celle où il comprenait les cieux, cherchant l'origine du domaine de la vie et de la mort...
+Il ne réalisa pas à quel point cette scène ressemblait à celle où il comprenait les cieux, cherchant l'origine du cycle de la vie et de la mort...
 
 Alors qu'il traquait instinctivement la source de ce pouvoir, le temps passait, mais cela lui importait peu. Des éons s'écoulèrent sans qu'il ne s'arrête. Il était devenu tel un esprit errant, une poursuite perpétuelle.
 
@@ -60,7 +60,7 @@ Au cours de ce processus, où le concept de temps n'existait plus, Wang Lin vit 
 
 À ses côtés se trouvaient deux planètes plus petites. Elles étaient très proches l'une de l'autre, dégageant un sentiment d'attachement profond.
 
-Au moment où Wang Lin s'en approcha, l'une des petites planètes émit une ondulation. Elle semblait vibrer de joie, dégageant une émotion puissante.
+Au moment où Wang Lin s'en approcha, l'une des petites planètes émit une ondulation. Elle semblait vibrer de joie, dégageant une émotion puissante, empreinte d'un profond attachement.
 
 En voyant ces trois planètes, l'esprit de Wang Lin trembla alors qu'il découvrait quelque chose. Instinctivement, il voulut lever la main, sans réaliser que dans son état actuel, il n'avait même plus de corps.
 

@@ -12,7 +12,7 @@ Cependant, la concubine impériale céleste rouge affichait une expression sombr
 
 La concubine impériale céleste rouge laissa échapper un ricanement glacial et lança un regard à Rêve Pourpre de la Rivière Invoquée. Sans accorder plus d'attention à qui que ce soit, elle s'élança vers l'ouverture de la Formation de Scellement du Royaume.
 
-Personne ne tenta de l'arrêter, et les yeux de Maître Nan Yunzi s'illuminèrent. La concubine impériale céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
+Personne ne tenta de l'arrêter, et le regard de Maître Nan Yunzi jeta un éclair à peine perceptible. La concubine impériale céleste rouge venait de pénétrer dans le Système Stellaire Antique et avait disparu sans laisser de trace.
 
 Quant au jeune homme au regard froid et aux autres, ils restèrent silencieux, plongés dans leurs pensées, tandis qu'ils se retiraient et quittaient l'ouverture un à un.
 
@@ -60,7 +60,7 @@ Ce rugissement semblait venir d'un univers lointain, mais il devint monstrueux e
 
 Il vit une scène qu'il ne pourrait jamais oublier de sa vie!
 
-Neuf planètes de culture ardentes, neuf mondes brûlant comme des soleils, traversaient le système stellaire.
+Neuf planètes de culture ardentes, neuf mondes brûlant comme des soleils, traversaient le système stellaire en file.
 
 L'espace lui-même se brisait sous leur vitesse et d'innombrables ondulations se propageaient à cause de leur chaleur extrême.
 
@@ -102,7 +102,7 @@ On pouvait clairement voir une marque en forme de croissant de lune apparaître 
 
 Le mot « Bataille » provoqua l'effondrement du croissant de lune!
 
-« Les gens savent seulement qu'il a utilisé la puissance d'un rugissement pour vous expulser, mais ils ignorent l'avertissement contenu dans ce cri. Si tu oses faire un seul pas dans le Royaume Intérieur, tu mourras sans aucun doute! »
+« Les gens savent seulement qu'il a utilisé la puissance d'un rugissement pour te chasser, mais ils ignorent l'avertissement contenu dans ce cri. Si tu oses faire un seul pas dans le Royaume Intérieur, tu mourras sans aucun doute! »
 
 « Tu es aussi timide qu'une souris. Petit Serviteur à l'Empreinte de Paume, oses-tu te prétendre 'Souverain'? Hormis les membres de la famille Li, personne d'autre ne peut la reconnaître comme son maître. Puisque tu l'as utilisée comme appât, ce vieil homme l'accepte à sa place! » La voix de la silhouette floue était calme tandis qu'il avançait vers l'arc qui flottait là.
 

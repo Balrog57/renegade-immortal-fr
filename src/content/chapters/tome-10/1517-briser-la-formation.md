@@ -28,7 +28,7 @@ Un hurlement d'intention meurtrière enveloppa tout le domaine stellaire!
 
 « Les gardes du Palais de la Punition Céleste du Conseil Souverain sont issus du Clan de l'Épée! »
 
-« La rumeur dit que chaque membre du Clan de l'Épée possède un pouvoir terrifiant. Ils cultivent également le Coup Perçant l'Âme, une technique d'une puissance incroyable! »
+« La rumeur dit que chaque membre du Clan de l'Épée possède un pouvoir terrifiant. Ils cultivent également le Coup Briseur d'Âme, une technique d'une puissance incroyable! »
 
 « Le Clan de l'Épée est apparu. Il doit s'agir du Palais de la Punition Céleste du Conseil Souverain! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
 
@@ -50,7 +50,7 @@ On pouvait clairement voir de nombreux royaumes de Flammes Joss à l'intérieur 
 
 Dans l'Ancien Système Stellaire, il existait un monde qui n'aurait pas dû exister, niché au sein d'une faille spatiale qui avait été ouverte.
 
-Cet endroit était imprégné d'énergie spirituelle céleste. On y trouvait une montagne céleste dont le sommet se perdait dans les nuages. Une femme se tenait sur ce pic.
+Cet endroit était imprégné d'énergie spirituelle céleste, où nuages et lueurs flamboyaient à perte de vue. On y trouvait une montagne céleste dont le sommet se perdait dans les nuages. Une femme se tenait sur ce pic.
 
 Cette femme semblait d'âge mûr. Elle n'était pas d'une beauté absolue, mais dégageait une grâce et une élégance infinies. Vêtue d'une robe de palais, elle portait une marque ovale rouge vif entre les sourcils!
 
@@ -58,7 +58,7 @@ Levant les yeux vers le ciel, un éclat de froideur traversa son regard. Elle le
 
 À leur floraison, neuf pétales tombèrent, formant un vortex qui disparut sans laisser de trace.
 
-« Puisque vous n'avez pas encore tranché, je vais vous donner un coup de main! » murmura la femme en retirant une broche dorée de sa chevelure de la main gauche avant de la projeter en avant!
+« Puisque vous n'avez pas encore tranché, je vais vous donner un coup de main! » murmura la femme en retirant une épingle dorée de sa chevelure de la main gauche avant de la projeter en avant!
 
 Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan de la Soie Bleue. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
 
@@ -66,11 +66,11 @@ Le Maître du Dao Rêve Bleu ferma les yeux, ses mains dansant sur la cithare. I
 
 Li Qianmei était assise calmement en face de son père. Elle l'observait en silence, sans dire un mot.
 
-À cet instant précis, des ondulations résonnèrent au-dessus du Mont Bleu et un éclat de lumière dorée jaillit. C'était une broche, une parure que seule une femme porterait dans ses cheveux!
+À cet instant précis, des ondulations résonnèrent au-dessus du Mont Bleu et un éclat de lumière dorée jaillit. C'était une épingle, une parure que seule une femme porterait dans ses cheveux!
 
-La broche fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et le Maître du Dao Rêve Bleu!
+L'épingle fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et le Maître du Dao Rêve Bleu!
 
-La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa la broche devant lui; une lutte douloureuse se lisait dans son regard.
+La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa l'épingle devant lui; une lutte douloureuse se lisait dans son regard.
 
 Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Maître du Dao Rêve Bleu se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
 
@@ -100,15 +100,15 @@ Bien qu'assise, sa robe rouge n'était pas ample mais très ajustée à son corp
 
 Son visage était d'une beauté éclatante et d'une pâleur extrême. Ses cils tremblèrent lorsqu'elle ouvrit lentement les yeux. Une pointe de tristesse naturelle y perçait, et elle leva lentement sa main de jade pour mordre son doigt. Cette image seule suffisait à rendre n'importe qui fou!
 
-Après un soupir, elle se mordit le doigt. D'un geste de la main, elle fit jaillir trois gouttes de sang qui se transformèrent en trois spectres hideux et gigantesques. Ces fantômes étaient terrifiants et poussèrent des rugissements qui déchirèrent le ciel alors qu'ils s'élançaient dans les airs!
+Après un soupir, elle se mordit le doigt. D'un geste de la main, elle fit jaillir trois gouttes de sang qui se transformèrent en trois spectres hideux et gigantesques. Ces fantômes étaient terrifiants et poussèrent des rugissements qui déchirèrent le ciel alors que leurs corps, semblables à d'épaisses volutes de fumée, s'élevaient et envahissaient le ciel!
 
-Un instant plus tard, les trois spectres s'inclinèrent devant la femme en rouge avant de disparaître!
+Un instant plus tard, les trois spectres s'inclinèrent devant la femme en rouge, puis s'avancèrent d'un même pas et disparurent!
 
 À l'extérieur de la Formation de Scellement du Royaume, une lumière spectrale jaillit aux côtés de l'épée de cristal, de la corde et des neuf pétales. Un œil fantomatique apparut soudainement, doté de trois pupilles, offrant un spectacle saisissant!
 
 À l'instant même où cet œil aux trois pupilles se manifesta, un rugissement retentit. Les trois spectres géants déchirèrent l'espace pour apparaître!
 
-Les divers trésors invoqués par les puissants cultivateurs du Royaume Extérieur convergèrent. Dans l'Ancien Système Stellaire, au sein de ce palais flottant appartenant au Souverain, l'homme en robe noire qui avait été repoussé par ce rugissement leva les yeux. Il tendit sa main flétrie avec véhémence vers l'avant!
+Les divers trésors invoqués par les puissants cultivateurs du Royaume Extérieur convergèrent. Dans l'Ancien Système Stellaire, au sein de ce palais flottant appartenant au Souverain, l'homme en robe noire qui avait été repoussé et de nouveau blessé par ce rugissement, leva les yeux, assis en tailleur devant la flamme d'une bougie. Il referma sa main flétrie avec véhémence, comme pour saisir quelque chose, et la tendit vers l'avant!
 
 « Pêcher la Lune dans le Puits! » lança l'homme en noir d'une voix rauque et faible qui résonna dans tout le palais.
 

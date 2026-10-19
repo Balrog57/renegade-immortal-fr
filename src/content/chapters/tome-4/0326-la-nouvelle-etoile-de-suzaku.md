@@ -46,7 +46,7 @@ L'expression de Wang Lin resta cependant imperturbable. Il observa calmement les
 
 Après un long moment, le vieil homme revint, enveloppé d'une puissante aura meurtrière. Ses yeux étaient encore plus rouges que précédemment lorsqu'il fixa Wang Lin. Après un long silence, il lança un morceau de jade qui jaillit comme l'éclair. Wang Lin l'attrapa.
 
-« Durant ces mille ans, je te protégerai une fois! Tu as intérêt à rester en vie pour moi! » Une fois ses mots prononcés, le vieil homme monta sur son cercueil et disparut.
+« Durant ces mille ans, je t'aiderai une fois! Tu as intérêt à rester en vie pour moi! » Une fois ses mots prononcés, le vieil homme monta sur son cercueil et disparut.
 
 Wang Lin réfléchit un instant avant de frapper son sac de rangement pour en sortir la boussole stellaire. Il sauta dessus, puis se retourna vers Chi Hu: « Frère Chi Hu, montez. Retournons à Suzaku. »
 
@@ -70,7 +70,7 @@ Lorsqu'ils approchèrent du vortex, Wang Lin rangea la boussole stellaire. Lui e
 
 Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Chi Hu, rencontrons-nous à nouveau à Suzaku. » Sur ces mots, il frappa son sac de rangement et le chaudron de retour apparut dans sa main.
 
-Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir me voir pour que nous puissions boire ensemble. »
+Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir au Clan des Démons Géants pour que nous puissions boire ensemble. »
 
 Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se forma devant lui. Il jeta un dernier regard vers le Royaume Céleste avant de s'engouffrer dans le vortex et de disparaître.
 

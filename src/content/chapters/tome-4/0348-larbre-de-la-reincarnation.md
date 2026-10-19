@@ -56,7 +56,7 @@ Dès que la vieille femme aperçut le Taotie, ses yeux brillèrent d'avidité. E
 
 Le vieil homme aux cheveux blancs qui poursuivait Wang Lin tourna également son regard gourmand vers la tortue. Après avoir jeté un dernier regard à la vieille femme, il délaissa Wang Lin pour foncer sur le Taotie.
 
-À ses yeux, plutôt que de traquer un étranger, il valait mieux s'emparer du sang de cette créature pour renforcer ses propres tatouages. Quant à la bête moustique, ils l'ignorèrent tous deux, car elle n'avait aucune valeur à leurs yeux.
+À ses yeux, plutôt que de traquer un étranger, il valait mieux s'emparer du sang de cette créature pour renforcer un peu ses propres tatouages. Quant à la bête moustique, ils l'ignorèrent tous deux, car elle n'avait aucune valeur à leurs yeux.
 
 Wang Lin dépassa rapidement le vieil homme Hu et cria: « Camarade Hu, ne tergiversez pas! Il n'y aura pas que deux sauvages ici. Si nous perdons du temps, d'autres arriveront. Partons! »
 

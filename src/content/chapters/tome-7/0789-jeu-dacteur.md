@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Strike
 slug: jeu-dacteur
 ---
-À cet instant, Wang Lin était sous les feux de la rampe. Non seulement Shengong Hu, Zhan Konglie, Tang Yanfeng et les deux derniers cultivateurs du Yang Corporel le scrutaient, mais tous les cultivateurs des diverses familles avaient également les yeux rivés sur lui.
+À cet instant, Wang Lin était sous les feux de la rampe. Non seulement Shengong Hu, Zhan Konglie, Tang Yanfeng et les deux derniers cultivateurs du Yang Corporel le scrutaient, mais tous les cultivateurs des familles des quatre domaines (est, ouest, nord et sud) du système stellaire de Luotian avaient également les yeux rivés sur lui.
 
 Tout cela parce que Wang Lin était apparu à 165 mètres de la porte céleste et, plus important encore, avait projeté Li Yuan vers l'extérieur. Li Yuan était devenu le premier et unique cultivateur à réussir à quitter le Royaume Céleste du Tonnerre!
 
@@ -60,7 +60,7 @@ Les yeux de l'homme aux cheveux blancs s'illuminèrent et sa main droite tendit 
 
 Au même moment, la main droite de Wang Lin forma un sceau et pressa en avant. Le Tatouage d'Os de Bête se transforma immédiatement en l'immense os de bête doté de quatre pointes. Un éclat fantomatique jaillit tandis que l'aura maléfique fonçait vers l'homme aux cheveux blancs.
 
-« La Paire du Dao Flétri du Maître Xiaoyaozi!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
+« La Paire de Dao Flétrie du Maître Xiaoyaozi!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
 
 Les yeux de l'os de bête projetèrent un éclat spectral et l'aura maléfique fit apparaître une teinte grise au pied de l'homme aux cheveux blancs, qui se propagea rapidement. Ce dernier esquissa un sourire sinistre et fit un pas impitoyable en avant. Un bang retentit à l'intérieur de son corps, et les zones grises externes s'effondrèrent instantanément!
 

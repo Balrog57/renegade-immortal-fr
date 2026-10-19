@@ -44,7 +44,7 @@ Un rugissement s'échappa de la gorge du garçon tandis que ses yeux devenaient 
 
 Le pied droit de Wang Lin fit un pas, créant des ondulations dans l'air. Lorsqu'il fit le second pas, l'espace sembla se contracter, lui permettant d'atteindre n'importe quel point en un seul mouvement.
 
-Déformation spatiale!
+Rétrécir la terre en un pouce!
 
 Au pas suivant, Wang Lin apparut aux côtés du garçon à la grosse tête. Ses deux doigts droits formèrent une épée et son idéal du Dao se fondit à son énergie et à sa main. D'un geste, les poissons yin et yang apparurent.
 
@@ -80,7 +80,7 @@ Wang Lin ne s'arrêta pas. Tout en poursuivant sa course, il frappa son sac de c
 
 Dès l'apparition du drapeau, un rugissement de tigre féroce retentit. Une brume violette enveloppa la bannière qui se mua en un tigre impétueux, rugissant directement vers les cultivateurs de Luotian suspendus dans le ciel.
 
-« Je mène un duel. Tous, attendez à l'extérieur. Quiconque osera désobéir sera tué! » Wang Lin ne daigna même pas regarder en arrière tandis que ses doigts se posaient une nouvelle fois entre les sourcils du garçon. De nouveaux craquements déchirèrent le corps de ce dernier avant qu'il ne soit impitoyablement broyé contre le sol.
+« Je m'exerce avec quelqu'un. Vous tous, attendez à l'extérieur. Quiconque osera désobéir sera tué! » Wang Lin ne daigna même pas regarder en arrière tandis que ses doigts se posaient une nouvelle fois entre les sourcils du garçon. De nouveaux craquements déchirèrent le corps de ce dernier avant qu'il ne soit impitoyablement broyé contre le sol.
 
 Un immense cratère se forma dans un fracas assourdissant, faisant trembler la terre environnante.
 
@@ -96,7 +96,7 @@ Wang Lin le regarda avec froideur. Il leva la main et une lueur verdâtre en jai
 
 En un instant, une sphère de tonnerre se forma dans sa paume, émettant des grésillements incessants. D'innombrables arcs électriques s'en échappaient. De loin, on aurait dit que le tonnerre des cieux était intégralement sous le contrôle de Wang Lin.
 
-En voyant ce déploiement de puissance, le garçon à la grosse tête trembla de tous ses membres. La scène du royaume d'une ligne vers le ciel, qui lui avait glacé le sang, ressurgit dans son esprit. Cette fois, il n'était pas seulement effrayé; il était terrifié au plus profond de son âme!
+En voyant ce déploiement de puissance, le garçon à la grosse tête trembla de tous ses membres. La scène de l'épreuve « Une Ligne vers les Cieux », qui lui avait glacé le sang, ressurgit dans son esprit. Cette fois, il n'était pas seulement effrayé; il était terrifié au plus profond de son âme!
 
 « Frère Xu, mes deux mille ans de culture n'ont pas été faciles! Si vous avez une exigence, je vous en prie, parlez! Tant que vous ne me tuez pas, j'accepterai tout! » Les pupilles du garçon se contractèrent alors qu'il fixait la sphère de foudre. Il n'était pas stupide. Depuis le début de l'affrontement, Wang Lin n'avait utilisé aucun sort dévastateur; il n'était donc manifestement pas résolu à l'exécuter. S'il avait su reculer plus tôt, il aurait peut-être évité ce désastre.
 

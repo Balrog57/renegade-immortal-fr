@@ -88,8 +88,8 @@ Cependant, il n'avait aucune intention de retourner à l'Épreuve Céleste pour 
 
 « J'irai à la Secte Dong Lin, puis je retournerai à l'Épreuve Céleste pour voir combien de niveaux je peux franchir! Après cela, je devrai choisir un Grand Empyréen, puis je rejoindrai ma dernière étape au sein du clan céleste: la cité impériale du Continent Central!! »
 
-« Une fois le problème de la cité impériale résolu, je quitterai le clan céleste pour me rendre au Pays Ancien. Je trouverai mon maître, Xuan Luo, et j'accomplirai ma promesse! » Wang Lin prit une profonde inspiration et disparut des pins. Il se changea en un rayon de lumière et s'envola vers le lointain Continent de l'Est.
+« Une fois le problème de la cité impériale résolu, je quitterai le clan céleste pour me rendre aux trente-six États de l'Ancien Pays. Je trouverai mon maître, Xuan Luo, et j'accomplirai ma promesse! » Wang Lin prit une profonde inspiration et disparut des pins. Il se changea en un rayon de lumière et s'envola vers le lointain Continent de l'Est.
 
 « Je sens que je deviens de plus en plus fort. Wan Er, le jour où je deviendrai un Grand Empyréen sera celui où je ressusciterai personnellement ma femme! »
 
-« Ce jour n'est pas loin. Il est très proche, très proche... Wan Er, il est très proche. » Alors que Wang Lin fonçait vers l'avant, une rare lueur de tendresse illumina son regard. Ce regard chaleureux contenait des millénaires d'une persévérance sans aucun regret.
+« Ce jour n'est pas loin. Il est très proche, très proche... Wan Er, il est très proche. » Alors que Wang Lin fonçait vers l'avant, une rare lueur de tendresse illumina son regard. Ce regard chaleureux contenait des souvenirs, des scènes loin d'être romantiques, et des millénaires d'une persévérance sans aucun regret.

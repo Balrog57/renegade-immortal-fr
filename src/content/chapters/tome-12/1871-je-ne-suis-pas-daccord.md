@@ -48,7 +48,7 @@ Wang Lin était assis à l'intérieur de la grotte. Ses yeux s'illuminèrent, ma
 
 À l'extérieur de la grotte, le vieil homme nommé Zhou se mordit la langue et cracha du sang. De sa main droite, il saisit le sang pour former un sceau sanguin.
 
-« Ô âme sainte du Taureau Céleste, j'utilise mon sang pour guider ton essence! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
+« Ô âme sainte du Taureau Céleste, par mon sang, je guide ton âme pour qu'elle revienne! » L'expression du vieil homme était solennelle lorsqu'il projeta le sceau de sang. Celui-ci libéra une lumière rouge éclatante qui enveloppa tout le palais souterrain.
 
 « Compagnons cultivateurs, transférez votre culture dans cette lumière sanguine! » cria soudainement le vieil homme nommé Zhou.
 
@@ -58,7 +58,7 @@ Cette lumière infinie absorba toute la force et retourna dans le sceau sanguin.
 
 Le sceau sanguin se trouvait au centre de la brume et tourna lentement jusqu'à former un vortex. Ce dernier s'accéléra progressivement.
 
-Au fur et à mesure de sa rotation, des grondements de tonnerre commencèrent à résonner. Les profondeurs du vortex semblaient mener vers un espace mystérieux d'où jaillit un rugissement de folie.
+Au fur et à mesure de sa rotation, des grondements de tonnerre commencèrent à résonner. Les profondeurs du vortex semblaient mener vers un espace mystérieux d'où jaillirent des rugissements furieux, chargés d'une colère immense.
 
 GROAAAR!!
 
@@ -74,7 +74,7 @@ Son exaltation intérieure avait atteint un paroxysme. Ses yeux brillaient de d�
 
 Dans la grotte, Wang Lin fixait le vortex dans le ciel. Il écoutait le rugissement du Taureau Céleste. Ce cri ne lui était pas étranger!
 
-La première étape pour invoquer l'âme du Taureau Céleste consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé. L'empreinte sanguine constituait la seconde étape!
+La première étape pour invoquer l'âme du Taureau Céleste consistait à tracer l'empreinte sanguine. La seconde consistait à utiliser la culture de plus de mille cultivateurs pour ouvrir un vortex vers le Taureau Céleste scellé!
 
 « Compagnons cultivateurs, prélevez 450 grammes de sang, ni plus ni moins, et concentrez-les sur votre index droit! » Le vieil homme nommé Zhou agita sa main droite et une plaie apparut au bout de son doigt. La quantité exacte de sang s'en échappa.
 
@@ -88,7 +88,7 @@ Le cri devint encore plus puissant et Lu Wenran fut transporté par l'excitation
 
 « Ceci est à moi; cela m'appartient, Lu Wenran! Avec l'armure d'âme du Taureau Céleste, je pourrai me frayer un chemin par le massacre. Bien que cette puissance ne soit que temporaire, je ne rendrai pas cette armure si facilement! » Lu Wenran fixait le vortex avec ferveur. Il avait attendu ce jour pendant une éternité!
 
-S'il avait ciblé Wang Lin, c'était à cause de l'attitude de l'Estimable Taureau Vert envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
+S'il avait ciblé Wang Lin, c'était à cause de l'attitude du Très Respecté Taureau Vert envers ce dernier, ce qui l'avait fait se sentir menacé. Le fait qu'ils aient tous deux été envoyés ici avait poussé Lu Wenran à agir ainsi.
 
 La chaîne rouge continua de tirer, et le rugissement du Taureau Céleste devint plus limpide encore. Une silhouette de taureau commençait à être extraite.
 
@@ -98,7 +98,7 @@ Cependant, la chaîne montra bientôt des signes de rupture. Voyant cela, une lu
 
 Le vieil homme nommé Zhou sourit amèrement intérieurement. Il serra les dents et joignit les mains en signe de respect vers Yan Luan et son groupe.
 
-« Le Taureau Céleste ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à extraire l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
+« Le Taureau Céleste ne sort pas... Je demande aux chers aînés de libérer leurs âmes originelles pour m'aider à faire venir l'âme! » Après avoir parlé, le vieil homme toucha son front et son âme originelle s'en échappa. Elle vola vers le vortex pour saisir la chaîne.
 
 Sous le regard rouge et menaçant de Lu Wenran, les trois cultivateurs au stade initial de la Tribulation du Vide issus des sectes proches de la Prairie de l'Extrême Ciel s'assirent et fermèrent les yeux. Ils se sentaient impuissants alors que leurs âmes originelles s'envolaient pour prêter main-forte au vieil homme Zhou.
 
@@ -112,7 +112,7 @@ Alors que ce cri retentissait, une silhouette gigantesque de Taureau Céleste fu
 
 Dès l'apparition de cette silhouette, elle brilla d'un éclat intense, captivant tous les regards des cultivateurs en contrebas. Sous leurs yeux, la silhouette se contracta rapidement pour se transformer en une armure flottant dans les airs!
 
-L'armure était d'un noir absolu et dégageait une puissante aura d'âme!
+L'armure était d'un noir profond et dégageait une puissante aura d'âme!
 
 Au moment où l'armure apparut, les âmes originelles de Yan Luan et de ses compagnons retournèrent dans leurs corps, et ils affichèrent des expressions complexes. Lu Wenran, lui, éclata de rire en chargeant vers l'armure.
 

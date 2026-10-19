@@ -136,7 +136,7 @@ Alors que l'écho du tambour parcourait le ciel et que le grondement se répanda
 
 Seuls les commandants en chef possédaient ce privilège!
 
-Ciel, Xuan, Jaune, Univers, Éternité et Désolé. Les six vice-commandants en chef descendirent du ciel pour prendre place aux deux étages supérieurs des tribunes nord et sud. Le visage du Vice-Commandant Xuan était extrêmement pâle. Dès qu'il s'assit, il ferma les yeux pour cultiver, ignorant tout ce qui l'entourait.
+Ciel, Xuan, Jaune, Univers, Éternité et Désolé. Les six vice-commandants en chef descendirent du ciel pour prendre place au deuxième étage des tribunes nord et sud. Le visage du Vice-Commandant Xuan était extrêmement pâle. Dès qu'il s'assit, il ferma les yeux pour cultiver, ignorant tout ce qui l'entourait.
 
 Une fois les six arrivés, un rugissement encore plus assourdissant que celui du Tambour du Démon Céleste retentit dans toute la ville. Les huit commandants en chef marchèrent dans les airs vers la place. Parmi eux, il y avait sept hommes et une femme!
 

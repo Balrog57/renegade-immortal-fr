@@ -10,7 +10,7 @@ C'était comme si le ciel s'effondrait sur eux sous l'effet d'une puissante bour
 
 Ces talismans formèrent une multitude d'écrans de lumière autour de lui. Puis, au moment où le vent s'abattit, il bondit sur le côté.
 
-Simultanément, le Seigneur Démon des Six Désirs et l'Empereur Antique cessèrent tout mouvement. Les deux ne perdirent pas de temps en paroles inutiles. L'Empereur Antique affichait une expression d'une grande gravité alors qu'il lançait une cloche antique. Dès son apparition, la relique grandit instantanément et se mit à osciller violemment. À chaque tintement, des ondes de choc étaient projetées, faisant éclater les piliers de pierre environnants.
+Simultanément, le Seigneur Démon des Six Désirs et l'Empereur Antique cessèrent tout mouvement. Les deux ne perdirent pas de temps en paroles inutiles. L'Empereur Antique affichait une expression d'une grande gravité alors qu'il lançait une cloche antique. Dès son apparition, la relique grandit instantanément et se mit à osciller légèrement. À chaque tintement, des ondes de choc étaient projetées, faisant éclater les piliers de pierre environnants.
 
 Le serpent qui descendait du ciel tordit son corps pour amorcer une rotation et percuta de plein fouet l'onde de choc. Il laissa échapper un rugissement immédiat et cracha une fumée noire.
 
@@ -38,7 +38,7 @@ La main droite posée sur l'épée noire, le Seigneur Démon des Six Désirs ém
 
 Tout cela se produisit en un éclair. À cet instant précis, le serpent entra en collision avec l'onde de choc de la cloche et cracha de nouveau sa fumée noire. Le Seigneur Démon des Six Désirs ordonna: « Va! »
 
-L'épée noire s'élança soudainement et s'abattit sur le haut du crâne de la créature serpentine. L'impact provoqua une douleur intense à la bête, qui fit brusquement basculer sa tête, projetant l'épée noire au loin.
+L'épée noire s'élança soudainement et s'abattit sur le point vital du crâne de la créature serpentine. L'impact provoqua une douleur intense à la bête, qui fit brusquement basculer sa tête, projetant l'épée noire au loin.
 
 Ce mouvement fit jaillir le sang du nez et de la bouche du jeune homme aux côtés du Seigneur Démon des Six Désirs. Son corps devint d'une faiblesse extrême, et la confusion dans son regard s'accentua.
 
@@ -76,7 +76,7 @@ Au contact des yeux de la bête, les épées se transformèrent en fumée pour s
 
 Le corps de la créature s'immobilisa un instant avant de laisser échapper un hurlement de folie. Ses yeux étaient injectés de sang et deux courants de fumée — l'un rouge violacé, l'autre noir — furent expulsés de ses orbites. Elle ouvrit à nouveau la gueule, et le petit serpent en sortit pour dévorer ces deux flux de gaz.
 
-À cet instant, une lueur de froideur traversa les yeux de Wang Lin. C'était le moment qu'il attendait. Il bondit brusquement et, profitant de l'aspiration du vortex, s'engouffra dans la gueule de la créature.
+À cet instant, une lueur de froideur traversa les yeux de Wang Lin. C'était le moment qu'il attendait. Il bondit brusquement; l'aspiration du vortex doublait sa vitesse, et il s'engouffra dans la gueule de la créature.
 
 Au même moment, une lumière verte passa à ses côtés: c'était le Bossu Meng qui, observant la scène d'un regard froid depuis la distance, avait eu la même idée. Le bossu fut brièvement surpris par la présence de Wang Lin avant de laisser échapper un léger sourire d'admiration.
 
@@ -102,7 +102,7 @@ Wang Lin maniait son épée de cristal pour progresser dans les entrailles du se
 
 Plus il s'enfonçait, plus son cœur se serrait. Hormis le petit serpent, il n'y avait rien d'autre que les parois de chair noire qui l'entouraient.
 
-Wang Lin contrôlait son épée volante et frappait la chair de toutes ses forces, sans parvenir à laisser la moindre trace. La colonne vertébrale se trouvait juste sous cette paroi, et son incapacité à l'atteindre le fit froncer les sourcils.
+Wang Lin contrôlait son épée volante et frappait la chair de toutes ses forces, sans parvenir à laisser la moindre trace. La colonne vertébrale devait être profondément enfouie sous cette paroi, et son incapacité à l'atteindre le fit froncer les sourcils.
 
 Ses yeux brillèrent alors qu'il se déplaçait rapidement vers un autre point: la jonction entre la tête et le cou.
 

@@ -10,7 +10,7 @@ Ce rugissement strident fit trembler toute la place ainsi que tous ceux qui se t
 
 Mais la mort des 107 Jins et leurs corps explosés témoignaient de la vérité de cette déclaration.
 
-Avant que les gens ne puissent réagir au rugissement, un cri encore plus puissant retentit. Une paume géante de mille pieds de large surgit. Cette empreinte de paume était très étrange: elle possédait dix doigts. À mesure qu'elle s'approchait, une lumière verte enveloppa la place et percuta l'empreinte.
+Avant que les gens ne puissent réagir au rugissement, un cri encore plus puissant retentit. Une paume géante de plusieurs milliers de pieds de large surgit. Cette empreinte de paume était très étrange: elle possédait dix doigts. À mesure qu'elle s'approchait, une lumière verte enveloppa la place et percuta l'empreinte.
 
 Un grondement assourdissant retentit, faisant trembler tout le palais. La paume à dix doigts se dissipa, mais le rideau de lumière verte vacilla violemment avant de s'effondrer en d'innombrables fragments.
 
@@ -50,7 +50,7 @@ En le voyant clairement, des exclamations de stupeur parcoururent la foule. Il a
 
 C'était Wang Lin!!
 
-Il avait semé la mort à chaque pas, massacrant une multitude de personnes sur son chemin vers le palais. C'était la deuxième fois qu'il se présentait ici aujourd'hui. Auparavant, il était venu remettre un cadeau de félicitations de la part de son maître; désormais, il venait pour reprendre quelqu'un!
+Il avait semé la mort à chaque pas, massacrant une multitude de personnes sur son chemin vers le palais. C'était la deuxième fois qu'il se présentait ici aujourd'hui. Auparavant, il était venu remettre un cadeau de félicitations de la part de son maître; désormais, il venait reprendre un objet et emmener quelqu'un!
 
 « Wang Lin, que prétends-tu faire?! » L'Empereur du Dao Ancien fixa Wang Lin à travers la place, devant les près de 10 000 membres des trois clans.
 
@@ -66,11 +66,11 @@ Il était reconnu par le Grand Empyréen Gu Dao. Nul ne pouvait décider de son 
 
 « Je t'ai traité avec bonté, et pourtant tu as tué des membres du Dao Ancien et forcé notre entrée. Et maintenant, tu prétends emporter mon impératrice devant tous les témoins!!!
 
-« Wang Lin, tu es allé trop loin! Comment comptes-tu protéger mon Dao Ancien? Tu cherches manifestement à le détruire!! Un scélérat pareil mérite d'être châtié par tous!! »
+« Wang Lin, tu es allé trop loin! Loin de protéger mon Dao Ancien, tu cherches manifestement à le détruire!! Un scélérat pareil mérite d'être châtié par tous!! »
 
 L'Empereur du Dao Ancien agita la main et rugit: « Venez! Tuez ce Wang Lin et apportez-moi sa tête!! » Simultanément, il jeta un regard sombre vers le Temple du Dao Ancien.
 
-Wang Lin ferma silencieusement les yeux. Afin de ne pas peiner son maître, il s'était efforcé de rester calme à son arrivée. Il avait laissé une chance à l'Empereur du Dao Ancien. Si celui-ci avait remis Song Zhi, une voie de rédemption aurait pu subsister entre lui, son maître et le Dao Ancien...
+Wang Lin ferma silencieusement les yeux. Afin de ne pas peiner son maître, il s'était efforcé de rester calme à son arrivée. Il avait laissé une chance à l'Empereur du Dao Ancien. Si celui-ci avait remis Song Zhi, en qui le fragment d'âme de Wan Er était fusionné, une voie de rédemption aurait pu subsister entre lui, son maître et le Dao Ancien...
 
 Mais désormais...
 
@@ -98,7 +98,7 @@ Les grondements tonitruants secouèrent le palais et d'innombrables fissures lac
 
 Le corps de Wang Lin tremblait, la folie dans ses yeux devenant plus ardente encore. Il continuait sa marche et, en un clin d'œil, il atteignit le centre de la place, plus proche que jamais de l'Empereur du Dao Ancien!
 
-« Sonnez le tambour et activez la Formation de la Cité Volante! Convoquez tous les membres du clan au palais pour anéantir cet homme!! » La terreur de l'Empereur du Dao Ancien atteignit son paroxysme. Il recula de quelques pas en poussant un cri de commandement.
+« Sonnez le tambour et activez la Formation de la Cité flottante! Convoquez tous les membres du clan au palais pour anéantir cet homme!! » La terreur de l'Empereur du Dao Ancien atteignit son paroxysme. Il recula de quelques pas en poussant un cri de commandement.
 
 À ce signal, d'innombrables silhouettes jaillirent des profondeurs du palais pour charger vers le centre! Tout le monde à l'intérieur se mobilisa!
 

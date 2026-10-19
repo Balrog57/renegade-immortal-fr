@@ -16,7 +16,7 @@ L'expression de Wang Lin resta calme. Il savait depuis longtemps que Du Qing le 
 
 Les deux forces n'étaient plus très éloignées. Alors qu'elles convergeaient, elles entrèrent immédiatement en collision. Bien que Du Qing ait voulu charger, il eut un instant de retard.
 
-Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de l'Oiseau Vermillon, pointa la main vers le bas.
+Les seize dragons de feu furent les premiers à entrer en contact avec l'âme de la veine terrestre, provoquant un grondement tonitruant qui fit vibrer la terre. Au moment du choc, Wang Lin, debout sur la tête de l'Oiseau Vermillon, pointa la main vers l'avant.
 
 Les seize dragons de feu rugirent et enveloppèrent la veine de feu terrestre tels des chaînes, la ligotant. L'âme de la veine laissa échapper un cri assourdissant.
 
@@ -70,7 +70,7 @@ L'expression de Du Qing changea, ses yeux trahissant un regard sombre. Il avait 
 
 Lorsqu'il leva les yeux, le regard froid de Wang Lin rencontra celui de Du Qing pour la première fois!
 
-Grâce à cet échange, Wang Lin avait percé le niveau de culture de Du Qing. Cet homme n'avait pas atteint le stade de la Tribulation du Vide, il se trouvait encore au stade de la Tribulation Arcanique. À en juger par la puissance de son attaque, il était plus fort que le Souverain, mais ne pouvait rivaliser avec des êtres tels que le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan!
+Grâce à cet échange, Wang Lin avait percé le niveau de culture de Du Qing. Cet homme n'avait pas atteint le stade de la Tribulation du Vide, il se trouvait encore au stade de la Tribulation Arcane. À en juger par la puissance de son attaque, il était plus fort que le Souverain, mais ne pouvait rivaliser avec des êtres tels que le Daoïste aux Sept Couleurs ou le Vieux Fantôme Zhan!
 
 Wang Lin avait évalué la force de Du Qing, mais Du Qing ne parvenait pas à lire en Wang Lin.
 
@@ -82,7 +82,7 @@ Wang Lin avait évalué la force de Du Qing, mais Du Qing ne parvenait pas à li
 
 Du Qing était un homme prudent, et chaque événement rencontré jusqu'ici l'avait poussé à la méfiance. Après avoir vu son attaque repoussée, ses yeux brillèrent d'une lueur intense alors qu'il fixait Wang Lin, refusant d'agir de manière imprudente.
 
-« Qui êtes-vous? Pourquoi avez-vous détruit la Secte du Dragon Bleu? Si vous ne me donnez pas d'explication, vous resterez ici pour toujours! » lança Du Qing avec une froideur glaciale.
+« Qui êtes-vous? Pourquoi avez-vous détruit la Secte du Dragon Bleu? Si vous ne me donnez pas d'explication, vous resterez ici aujourd'hui! » lança Du Qing avec une froideur glaciale.
 
 « Votre disciple de la Secte du Dragon Bleu voulait me transformer en marionnette. Je me suis contenté de détruire votre secte sans tuer une seule personne. C'était par pure bonté de ma part. » Les seize dragons de feu contrôlés par la main gauche de Wang Lin, qui maintenaient le grand dragon, tremblèrent. L'âme du feu terrestre poussa un rugissement alors que son corps se désagrégeait davantage. L'ombre de l'Oiseau Vermillon commençait à fusionner avec le dragon, la dévoration étant sur le point de s'achever.
 

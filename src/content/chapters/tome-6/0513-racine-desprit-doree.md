@@ -22,7 +22,7 @@ Non loin de là, la femme nommée Qian Qin observait Wang Lin avec confusion. El
 
 « Serait-il nécessaire d'utiliser une formation pour récolter le Fruit d'Or Brillant? » L'incompréhension dans les yeux de Qian Qin s'accentua.
 
-Après avoir posé le dernier jade, l'expression pensive de Wang Lin disparut, remplacée par une clarté absolue.
+Après avoir posé le dernier jade, l'expression pensive de Wang Lin disparut, remplacée par une lueur de lucidité.
 
 « Selon les souvenirs de l'Ancien Dieu, ce n'est qu'une fois que le fruit a poussé naturellement, mûri naturellement et fané naturellement que la Racine d'Esprit Dorée se forme.
 
@@ -96,7 +96,7 @@ Les yeux de Wang Lin s'illuminèrent et il projeta son Sens Divin dans le cocon.
 
 La main droite de Wang Lin s'étendit et le cocon doré fut rangé dans son sac de rangement. Après l'avoir fait, il réfléchit un instant et agita la main, faisant apparaître un rayon de lumière verte.
 
-À l'apparition de cette lueur, elle se transforma en une gigantesque grenouille de tonnerre qui atterrit avec un bruit sourd. Ses yeux étaient empreints de paresse.
+À l'apparition de cette lueur, elle se transforma en une gigantesque grenouille de tonnerre, grande comme une petite colline, qui atterrit avec un bruit sourd. Ses yeux étaient empreints de paresse.
 
 Toutefois, cette léthargie disparut instantanément lorsqu'elle vit les deux filaments dans la main de Wang Lin. Le regard paresseux se mua en un regard d'une intensité absolue.
 
@@ -108,7 +108,7 @@ Wang Lin pressa l'air pour renvoyer la grenouille de tonnerre dans son sac de ra
 
 En croisant le regard de Wang Lin, le corps de Qian Qin trembla. Elle s'inclina rapidement sans oser dire un mot.
 
-« J'ai pu obtenir cette Racine d'Esprit Dorée grâce à votre chance. Vous pouvez prendre ce dernier filament! » Sur ces mots, Wang Lin arracha l'ultime fragment et rangea la racine principale pour son corps original. Il fit un pas, puis son corps se mua en une vapeur verte et disparut sans laisser de trace.
+« J'ai pu obtenir cette Racine d'Esprit Dorée en prenant une part de votre chance. Vous pouvez prendre ce dernier filament! » Sur ces mots, Wang Lin arracha l'ultime fragment et rangea la racine principale pour son corps original. Il fit un pas, puis son corps se mua en une vapeur verte et disparut sans laisser de trace.
 
 Qian Qin fut saisie de stupeur et attrapa machinalement le filament qui flottait vers elle. Tout ce qu'elle venait de vivre lui semblait être un rêve; elle n'osait croire que tout cela était réel.
 

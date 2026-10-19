@@ -28,7 +28,7 @@ Ici, une immense quantité de vapeur d'eau s'élevait dans les airs. Cette vapeu
 
 « Je comprends! » Wang Lin laissa échapper un rire en ouvrant les bras et en désignant le sol. L'énergie originelle jaillit de son corps et la vapeur d'eau du monde devint plus dense. Comme si elle était manipulée, la vapeur se condensa rapidement. L'espace se distordit près des mains de Wang Lin et, un instant plus tard, des nuages sombres apparurent!
 
-Dès leur apparition, ces nuages sombres se densifièrent avec rapidité. Finalement, une masse de nuages noirs se forma soudainement entre les mains de Wang Lin!
+Dès leur apparition, ces nuages sombres se densifièrent avec rapidité. Finalement, une masse de nuages noirs d'environ dix pieds se forma soudainement entre les mains de Wang Lin!
 
 Alors que son sens divin balayait la masse nuageuse, le tonnerre éclata à l'intérieur des nuages. Son sens divin fit vibrer les nuages, provoquant des grondements et une pluie torrentielle.
 
@@ -54,7 +54,7 @@ Ce n'était pas une prouesse qu'un simple sort céleste pouvait offrir. Très pe
 
 « Je ne pensais pas que Situ maîtrisait la loi à l'époque... » La scène où Situ Nan émergeait de la perle défiant le ciel revint dans l'esprit de Wang Lin. Il pleuvait lorsque Situ avait crié: « Dispersez-vous pour moi! »
 
-À cet instant précis, la pluie s'était transformée en nuages avant de disparaître rapidement. Tous les nuages du ciel s'étaient effondrés, révélant un ciel pur!
+À cet instant précis, la pluie s'était transformée en brume avant de disparaître rapidement. Tous les nuages du ciel s'étaient effondrés, révélant un ciel pur!
 
 À ce moment-là, des années auparavant, il n'avait ressenti qu'un impact indicible émanant du corps de Situ Nan, faisant trembler le firmament. C'était comme si toutes les créatures vivantes devaient reculer et lui céder la place.
 
@@ -70,7 +70,7 @@ En vérité, quelque chose avait toujours existé autour de lui, mais à moins d
 
 À cet instant, Wang Lin comprit parfaitement.
 
-« Je comprends enfin la dimension liée à la loi de l'eau de la perle défiant le ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'en ai que saisi l'essence. » Wang Lin toucha l'espace entre ses sourcils, empreint de regret.
+« Je comprends enfin la dimension liée à la loi de l'eau de la perle défiant le ciel après mille ans... Cette partie était la première étape révélée par la perle... Même maintenant, je ne l'ai pas pleinement maîtrisée, je n'ai fait que l'effleurer. » Wang Lin toucha l'espace entre ses sourcils, empreint de regret.
 
 Il regarda la pluie tomber du ciel et agita légèrement la main en murmurant: « Dispersez-vous! »
 
@@ -98,7 +98,7 @@ En observant cela, les pupilles du garçon à la grosse tête se rétractèrent.
 
 Lei Ji s'éveilla de sa contemplation, les yeux étincelants. Une vague d'émotion parcourut son cœur et il pensa: « C'est cela, le pouvoir de la loi. Je ne l'ai vu que dans les sorts de cultivateurs extrêmement puissants. »
 
-En réfléchissant, sa détermination à suivre Wang Lin ne fit que croître.
+Il fut pleinement convaincu et empli de respect pour Wang Lin.
 
 Quant à Ta Shan, il semblait aveugle à tout cela, continuant sa culture, les yeux fermés.
 
@@ -112,9 +112,9 @@ Après avoir pénétré dans la région occidentale, elles rencontrèrent peu ap
 
 Tout au long du trajet, il faisait preuve d'une prudence extrême. Son sens divin était déployé afin que, au moindre signe de trouble, il puisse réagir immédiatement.
 
-Dès que les silhouettes aperçurent le cultivateur aux six doigts et les cent autres derrière lui, elles pivotèrent toutes pour foncer vers eux.
+Dès que les silhouettes aperçurent le cultivateur aux six doigts et plus d'une centaine d'autres derrière lui, elles pivotèrent toutes pour foncer vers eux.
 
-Alors qu'il progressait, le cultivateur aux six doigts ressentit soudain un sentiment de danger. Une douleur aiguë irradia de son sixième doigt, le terrifiant et le forçant à s'arrêter net. C'est alors qu'il vit les innombrables silhouettes s'abattre sur eux.
+Alors qu'il progressait, le cultivateur aux six doigts ressentit soudain un sentiment de danger. Une douleur aiguë irradia de son sixième doigt, celui de la main droite, le terrifiant et le forçant à s'arrêter net. C'est alors qu'il vit les innombrables silhouettes s'abattre sur eux.
 
 Ses pupilles se contractèrent sous le choc. Il frappa son sac de rangement pour en sortir une rune de message et la broya. Plutôt que de fuir, il chargea, mais à cet instant, la moitié des figures illusoires encerclèrent le cultivateur aux six doigts tandis que le reste s'élançait sur les cultivateurs derrière lui.
 
@@ -126,4 +126,4 @@ Regardant son propre corps, le cultivateur aux six doigts esquissa un sourire si
 
 Derrière lui, les cultivateurs Luotian sortirent un à un, arborant tous des sourires étranges.
 
-« Le plan du Temple Mystérieux pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »
+« Le plan du Palais Xuan pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Saint Démon Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »

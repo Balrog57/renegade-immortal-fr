@@ -8,7 +8,7 @@ slug: retour-au-foyer
 ---
 Il était évident que l'Empereur Céleste Qing Lin avait conçu le sort de garde céleste après avoir créé ces sceaux. Les gardes célestes imitaient les dieux anciens, tandis que ces sceaux servaient à contrôler leurs serviteurs.
 
-Une distinction existait entre les deux. Les gardes célestes se concentraient sur le corps physique et la magie n'était qu'accessoire. Une fois invoqués, ils ne trahiraient jamais leur maître, à moins que celui-ci ne les libère.
+Une distinction existait entre les deux. Les gardes célestes se concentraient sur le corps physique et la magie n'était qu'accessoire. Une fois raffinés, ils ne trahiraient jamais leur maître, à moins que celui-ci ne les libère.
 
 Le sort de scellement, quant à lui, n'atteignait pas la perfection en matière de loyauté. Tant qu'il s'agirait d'un sort, il resterait imparfait. Avec le passage du temps, divers problèmes pourraient surgir et briser l'enchantement.
 
@@ -76,7 +76,7 @@ Lorsqu'il croisa Wang Lin, l'homme tourna négligemment le regard vers le groupe
 
 L'expression de Wang Lin était complexe alors qu'il marchait lentement derrière les calèches. À la porte, des gardes vérifiaient les laissez-passer; sans eux, nul ne pouvait entrer.
 
-Cela n'importunait aucunement Wang Lin. Aucun des gardes ne remarqua son passage. Une fois dans la ville, les rues étaient bondées de piétons, bordées de boutiques et d'une animation vibrante.
+Wang Lin n'y prêta aucune attention. Aucun des gardes ne remarqua son passage. Une fois dans la ville, les rues étaient bondées de piétons, bordées de boutiques et d'une animation vibrante.
 
 Wang Lin marchait lentement, le cœur lourd de solitude. Tout ce qui l'entourait lui était étranger.
 
@@ -100,7 +100,7 @@ Le serveur n'avait aucune intention de lui répondre, mais après avoir aperçu 
 
 La mélancolie dans les yeux de Wang Lin s'intensifia et son cœur se serra d'amertume. Il continua sa route, s'enfonçant plus profondément dans la ville, suivi par Ta Shan et le garçon à la grosse tête.
 
-Voyant Wang Lin partir, le serveur poussa un reniflement méprisant avant de regagner la boutique. À ce moment-là, un vieil homme sortit de la demeure, appuyé sur une canne et soutenu par un serviteur. Il demanda d'une voix rauque: « Que se passe-t-il dehors? »
+Voyant Wang Lin partir, le serveur poussa un reniflement méprisant avant de regagner la boutique. À ce moment-là, un vieil homme sortit de la demeure, appuyé sur une canne à tête de dragon et soutenu par un serviteur. Il demanda d'une voix rauque: « Que se passe-t-il dehors? »
 
 Le serveur s'approcha avec un sourire: « Patron, ce n'est rien. Quelques gens étranges demandaient s'il y avait un vieux robinier ici. J'ai grandi ici et je n'en ai jamais vu. Je pense qu'ils se sont trompés d'endroit. »
 
@@ -114,7 +114,7 @@ Soudain, Wang Lin eut un frisson. Ses plus de mille ans de culture devinrent ext
 
 Il était comme un homme ayant quitté son foyer depuis une éternité. Puis, après avoir côtoyé tous ces inconnus, il aperçut soudain quelque chose de familier.
 
-Wang Lin regarda devant lui. À mille pieds de là, une zone était entourée de murs de pierre. Des escouades de soldats patrouillaient les lieux. Il était évident que cet endroit était hautement protégé et que l'accès y était strictement interdit.
+Wang Lin regarda devant lui. Au loin, sur plusieurs milliers de pieds à la ronde, une zone était entourée de murs de pierre. Des escouades de soldats patrouillaient les lieux. Il était évident que cet endroit était hautement protégé et que l'accès y était strictement interdit.
 
 De plus, plusieurs dizaines d'auras appartenant à des cultivateurs encerclaient la zone.
 

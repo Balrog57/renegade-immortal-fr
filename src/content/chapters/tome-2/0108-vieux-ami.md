@@ -16,13 +16,13 @@ Si Li Shan avait pu venir, c'est parce qu'il excellait dans la fabrication de fa
 
 Grâce à ces talents, Pu Nanzi avait enfreint les règles pour le laisser passer. Ce dernier lui avait également confié un trésor magique capable de dissimuler sa présence. Le revers de la médaille était que plus il l'utilisait, moins ce trésor s'avérait efficace.
 
-Li Shan possédait réellement du savoir-faire. Sous la protection de ses compagnons, il avait réussi à dérober de nombreux objets au cours des combats, dont deux jetons.
+Li Shan possédait réellement du savoir-faire. Sous la protection de ses compagnons, il avait réussi à dérober de nombreux objets au cours des combats, dont trois jetons.
 
-En ajoutant le jeton que la Secte Xuan Dao possédait déjà, ils en détenaient désormais trois.
+En ajoutant le jeton que la Secte Xuan Dao possédait déjà, ils en détenaient désormais quatre.
 
 Les sectes ayant perdu leurs jetons attaquaient sans relâche dans l'espoir d'en récupérer un, ce qui expliquait les nombreux affrontements précédents.
 
-Mais cela était aussi dû à la cupidité de Li Shan. Dès son entrée dans la Vallée Jue Ming, chaque fois qu'il croisait quelqu'un, il utilisait ce trésor pour masquer sa présence et commettre un vol. À force d'usage, le trésor magique perdait progressivement de son efficacité; lorsqu'il tenta de voler le quatrième jeton, l'artefact perdit totalement ses pouvoirs. Il fut démasqué, mais les disciples de la Secte Xuan Dao réagirent assez promptement pour lui sauver la vie. La nouvelle se répandit et toutes les sectes ayant perdu un jeton comprirent aussitôt ce qui s'était passé; elles cessèrent leurs combats pour se précipiter vers le lieu de rassemblement de la Secte Xuan Dao.
+Mais cela était aussi dû à la cupidité de Li Shan. Dès son entrée dans la Vallée Jue Ming, chaque fois qu'il croisait quelqu'un, il utilisait ce trésor pour masquer sa présence et commettre un vol. À force d'usage, le trésor magique perdait progressivement de son efficacité; lorsqu'il tenta de voler le cinquième jeton, l'artefact perdit totalement ses pouvoirs. Il fut démasqué, mais les disciples de la Secte Xuan Dao réagirent assez promptement pour lui sauver la vie. La nouvelle se répandit et toutes les sectes ayant perdu un jeton comprirent aussitôt ce qui s'était passé; elles cessèrent leurs combats pour se précipiter vers le lieu de rassemblement de la Secte Xuan Dao.
 
 Les disciples de la Secte Xuan Dao étant acculés là-bas, Li Shan s'était échappé en secret par un tunnel qu'il avait creusé au préalable. Cependant, il ne s'attendait pas à être découvert et contraint à la fuite dès sa sortie du tunnel.
 
@@ -30,15 +30,15 @@ Il n'avait fait que quelques pas lorsqu'il se retourna et vit plus de cent écla
 
 Et c'est ainsi que la situation se présenta.
 
-Li Shan s'agenouilla et jeta les deux jetons au sol sans la moindre hésitation.
+Li Shan s'agenouilla et jeta les trois jetons au sol sans la moindre hésitation.
 
-Un silence soudain tomba sur les environs. Les deux sectes ayant perdu leurs jetons envoyèrent plusieurs hommes charger, mais comment les autres sectes auraient-elles pu les laisser récupérer leur bien? Elles dépêchèrent donc des combattants pour les en empêcher.
+Un silence soudain tomba sur les environs. Les trois sectes ayant perdu leurs jetons envoyèrent plusieurs hommes charger, mais comment les autres sectes auraient-elles pu les laisser récupérer leur bien? Elles dépêchèrent donc des combattants pour les en empêcher.
 
-Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les deux jetons au sol. Il se précipita vers eux. Quelqu'un remarqua son approche et tenta de l'intercepter, mais Wang Lin activa sa technique d'attraction et projeta l'individu au loin.
+Les yeux de Wang Lin s'illuminèrent alors qu'il fixait les trois jetons au sol. Il se précipita vers eux. Quelqu'un remarqua son approche et tenta de l'intercepter, mais Wang Lin activa sa technique d'attraction et projeta l'individu au loin.
 
 Ainsi, en quelques enjambées, Wang Lin fut presque sur les jetons.
 
-Les deux groupes qui s'affrontaient remarquèrent enfin Wang Lin. Beaucoup d'entre eux avaient déjà vu Wang Lin dans la Vallée Jue Ming et furent aussitôt saisis de stupeur. Ils se lamentèrent intérieurement, s'arrêtèrent et n'osèrent plus avancer.
+Les groupes qui s'affrontaient remarquèrent enfin Wang Lin. Beaucoup d'entre eux avaient déjà vu Wang Lin dans la Vallée Jue Ming et furent aussitôt saisis de stupeur. Ils se lamentèrent intérieurement, s'arrêtèrent et n'osèrent plus avancer.
 
 Toutefois, certains cultivateurs qui n'avaient entendu parler de lui que de nom se précipitèrent sans hésiter. Les yeux de Wang Lin brillèrent et une petite épée verte apparut soudainement, se mettant à scintiller. À chaque éclat de l'épée, un cultivateur était pétrifié dans la glace et mourait sur le coup.
 
@@ -50,7 +50,7 @@ Il faut dire que pour un cultivateur du Royaume Ji, le meilleur trésor magique 
 
 Wang Lin fit encore cinq pas. À chaque enjambée, plusieurs personnes périssaient sous les assauts de l'épée volante. Peu à peu, la foule autour de lui se raréfiait, la plupart ayant battu en retraite, n'osant plus faire un pas de plus.
 
-Wang Lin atteignit aisément Li Shan. Ce dernier était si terrifié qu'il n'osait même pas lever la tête. La main droite de Wang Lin s'étendit pour saisir les deux jetons. Après une courte réflexion, il les rangea dans son sac de rangement. Tandis que son regard glacial balayait l'assemblée, il tonna: « Remettez-moi tous vos jetons, ou mourez! »
+Wang Lin atteignit aisément Li Shan. Ce dernier était si terrifié qu'il n'osait même pas lever la tête. La main droite de Wang Lin s'étendit pour saisir les trois jetons. Après une courte réflexion, il les rangea dans son sac de rangement. Tandis que son regard glacial balayait l'assemblée, il tonna: « Remettez-moi tous vos jetons, ou mourez! »
 
 Li Shan, prostré au sol, reconnut cette voix familière et prit son courage à deux mains pour lever les yeux. Soudain, il eut l'impression d'être frappé par la foudre et s'exclama: « Tu... Wang Lin! »
 

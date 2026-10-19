@@ -18,7 +18,7 @@ Les cavernes du Clan du Tatouage étaient toujours là!
 
 En perçant les profondeurs, Wang Lin traversa la terre et apparut dans la 18e couche des grottes du Clan du Tatouage!
 
-Tout ici était resté identique à son départ. L'un des murs s'était effondré, et par l'ouverture se dévoilait le Champ de Bataille Extérieur!
+Tout ici était resté identique à son départ. L'un des murs de la chambre de pierre s'était effondré, et par l'ouverture se dévoilait le Champ de Bataille Extérieur!
 
 Pêcher la Lune dans le Puits était un sort extrêmement étrange, car il avait également extrait le Champ de Bataille Extérieur. Bien qu'il ne s'agisse que d'une projection, les innombrables âmes errantes et les corps sans vie étaient toujours présents!
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin trembla et s'effondra à nouveau. Cet effondrement se propa
 
 D'immenses nuages de brume se dispersèrent tandis que les âmes errantes faisaient rage. Le phénomène perdura jusqu'à ce que la brume se reforme pour reconstituer le corps du Maître Céleste Dieu du Vide!
 
-Ses yeux étaient empreints de regret lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Noire afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
+Ses yeux étaient empreints de regret lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Sombre afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
 
 Cependant, à cet instant précis, le corps de Wang Lin se reforma grâce aux innombrables âmes errantes. Désormais, il ne s'effondrerait plus pendant un certain temps. Ses yeux brillèrent intensément alors qu'il fixait le Maître Céleste Dieu du Vide qui fonçait sur lui.
 
@@ -94,7 +94,7 @@ Peu après, la main droite de Wang Lin saisit la corde et la tira en arrière. E
 
 Son corps était tendu comme un arc. Une lueur de froideur passa dans ses yeux, désormais emplis d'une intention meurtrière monstrueuse.
 
-Au moment où il banda la corde, une flèche à pointe arrondie apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les faibles cris de Nan Zhao et Tian Zhao.
+Au moment où il banda la corde, une flèche à pointe arrondie apparut. Le corps de la flèche était couvert de runes complexes, et l'on pouvait y entendre les hurlements stridents de Nan Zhao et Tian Zhao.
 
 Des décharges d'énergie de flèche enveloppèrent les environs et une aura antique se propagea. Cela fit changer radicalement l'expression du Maître Céleste Dieu du Vide, dont le corps se mit à trembler!
 
@@ -104,7 +104,7 @@ Des décharges d'énergie de flèche enveloppèrent les environs et une aura ant
 
 « Ce vieil homme ne s'implique pas! » Tout en battant en retraite, le Maître Céleste Dieu du Vide sortit un jade, mais celui-ci ne réagit pas!
 
-Les deux concubines impériales célestes connaissaient l'arc et la flèche bien mieux que lui. La femme entourée par la Lune Noire fut prise de panique et battit en retraite précipitamment.
+Les deux concubines impériales célestes connaissaient l'arc et la flèche bien mieux que lui. La femme entourée par la Lune Sombre fut prise de panique et battit en retraite précipitamment.
 
 L'autre concubine impériale céleste pâlit, perdant toute la fierté qu'elle affichait auparavant. Devant la flèche de Wang Lin, elle recula désespérément et brisa également son jade, mais sans aucun résultat.
 

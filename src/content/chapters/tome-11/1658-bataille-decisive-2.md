@@ -36,7 +36,7 @@ Les corps des cultivateurs du Royaume Extérieur s'écrasaient, mais leurs tête
 
 Cette cape ne cessait de croître à mesure que Wang Lin transperçait l'armée; le nombre de trophées augmentait sans relâche!
 
-Un grondement sourd accompagnait chacun de ses mouvements. L'expression de la concubine impériale céleste, prise pour cible par Wang Lin, changea radicalement et elle battit en retraite précipitamment. Bien que Wang Lin ne fût qu'au stade intermédiaire du Vide Spirituel, elle ressentait une terreur profonde à son égard à cause de la Flèche de Li Guang; elle fit donc fi de son niveau de culture!
+Un grondement sourd accompagnait chacun de ses mouvements. L'expression de la concubine impériale céleste, prise pour cible par Wang Lin, changea radicalement et elle battit en retraite précipitamment. Bien qu'elle ne fût elle-même qu'au stade intermédiaire du Vide Arcanique, elle ressentait une terreur profonde à l'égard de Wang Lin à cause de la Flèche de Li Guang; cette peur lui faisait oublier le niveau de culture de ce dernier!
 
 À ses yeux, Wang Lin était un adversaire presque invincible. Combattre un tel être équivalait à la mort!
 
@@ -64,7 +64,7 @@ La douleur restait aussi insupportable qu'auparavant, et ses organes internes co
 
 Des grondements tonitruants éclatèrent. L'Ancienne Tête apparut devant lui, accompagnée des ombres des trois clans anciens. Toutes fusionnèrent dans son poing lors de l'impact.
 
-De loin, la scène était saisissante; le coup de Wang Lin fit trembler le système stellaire tout entier. Les innombrables cultivateurs du Royaume Extérieur reculèrent, terrifiés. Tandis qu'il frappait, une ombre haute de dix mille pieds s'élança vers la concubine impériale!
+De loin, la scène était saisissante; le coup de Wang Lin fit trembler tout le ciel étoilé. Les innombrables cultivateurs du Royaume Extérieur reculèrent, terrifiés. Tandis qu'il frappait, une ombre haute de dix mille pieds s'élança vers la concubine impériale!
 
 Instantanément, ce coup illusoire percuta la concubine et entra en collision avec les ondulations de son Sortilège des Cinq Enterrements.
 

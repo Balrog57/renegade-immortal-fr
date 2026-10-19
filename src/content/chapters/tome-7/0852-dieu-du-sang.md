@@ -22,13 +22,13 @@ Puis, le deuxième éclair de la rétribution divine descendit sur l'image du yi
 
 Dévorer la rétribution divine!
 
-L'âme originelle de Wang Lin trembla violemment, la puissance de la rétribution résonnant en son sein. Cependant, l'ancien dragon de tonnerre vivait au cœur des éclairs et du tonnerre. Il poussa un rugissement avant de regagner le corps de Wang Lin, qui recula promptement.
+L'âme originelle de Wang Lin trembla violemment, la puissance de la rétribution résonnant en son sein. Cependant, l'ancien dragon de tonnerre vivait au cœur des éclairs et du tonnerre. Il poussa un rugissement avant de regagner le corps de Wang Lin, dont des arcs électriques jaillissaient, et ce dernier recula promptement.
 
 Pourtant, Wang Lin ne montra aucun signe de panique. Bien que la rétribution divine fût puissante, il n'en avait aucune crainte, d'autant plus qu'un autre portait la moitié du fardeau.
 
 Quant à l'ancien démon, alors qu'il reculait avec acharnement, le nuage de rétribution divine s'étendit frénétiquement. Bien qu'il eût dévoré les deux éclairs, il devint encore plus flou et laissa échapper des rugissements silencieux tout en continuant sa retraite. Sa vitesse était telle que même le nuage de rétribution divine ne pouvait le suivre. Il semblait prêt à emporter Yao Yun pour quitter la zone d'influence du nuage.
 
-Les yeux de Wang Lin s'illuminèrent et il cria: « Yao Yun, te souviens-tu des deux sœurs, Yao Bingyun et Yao Mengyun?! Te souviens-tu, sur la Planète de Sang, de la scène où la lampe antique dévorait cette âme! »
+Les yeux de Wang Lin s'illuminèrent et il cria: « Yao Yun, te souviens-tu des deux sœurs, Yao Bingyun et Yao Mengyun?! Te souviens-tu, sur la Planète du Sang, de la scène où la lampe antique dévorait cette âme! »
 
 La voix de Wang Lin était imprégnée de son sens divin. Elle se propagea avec puissance pour atteindre les oreilles de Yao Yun en pleine retraite.
 
@@ -38,7 +38,7 @@ Toutes les veines de son visage saillirent. Son expression était féroce alors 
 
 « Je me fiche de qui tu es, sors de mon corps! » Yao Yun redressa brusquement la tête, les yeux injectés de sang par la folie. C'était comme s'il pouvait voir l'ancien démon au-dessus de lui, émergeant de son propre corps.
 
-L'expression de l'ancien démon devint plus sombre encore. Il fixa Wang Lin d'un regard glacial. Au lieu de reculer, il s'étendit rapidement depuis Yao Yun pour charger vers Wang Lin.
+L'expression de l'ancien démon devint plus sombre encore. Il fixa Wang Lin d'un regard glacial. Au lieu de reculer, il s'étendit rapidement depuis Yao Yun pour foncer sur Wang Lin et le dévorer d'une bouchée.
 
 Les yeux de Wang Lin brillèrent et il cracha un gaz blanc. Un objet se trouvait dissimulé dans ce gaz: le Sceau Céleste. Il s'élargit soudainement devant lui et, alors que sa main traçait un sceau, des centaines de milliers de runes furent projetées vers l'ancien démon.
 
@@ -50,7 +50,7 @@ Ces centaines de milliers de sceaux dorés semblèrent perdre leur cible. Les é
 
 Tandis que des grondements assourdissants résonnaient, l'ancien démon esquissa un sourire. En ce moment critique, Wang Lin ne montra aucune trace de panique. Sa main droite s'élança vers le vide et tous les sceaux dorés convergèrent rapidement vers lui.
 
-On aurait dit que Wang Lin allait se sceller lui-même. Les éclairs de la rétribution divine descendirent avec rapidité.
+On aurait dit que Wang Lin allait se sceller lui-même. Plus d'une dizaine d'éclairs de la rétribution divine descendirent avec rapidité.
 
 À cet instant précis, une lueur jaillit devant Wang Lin et un fourneau illusoire apparut. Dès son apparition, une puissante aura d'ancien dieu se propagea. L'ancien démon eut un hoquet de surprise, ses yeux s'ouvrirent en grand, emplis d'incrédulité.
 
@@ -72,6 +72,6 @@ Cependant, à ce moment précis, le visage de Wang Lin changea radicalement. Une
 
 « Il est temps d'en finir! » Une voix antique émana de la brume. Au même moment, un bras desséché surgit derrière Yao Yun et saisit le sceau démoniaque. La main ignora l'énergie originelle de Yao Yun pour presser le sceau directement entre ses sourcils.
 
-« Le Dieu du Sang! » Les pupilles de Wang Lin se rétractèrent brusquement!
+« Le Dieu de Sang! » Les pupilles de Wang Lin se rétractèrent brusquement!
 
 À cet instant, à l'intérieur du Temple Céleste du Tonnerre, le Seigneur Qing Shui ouvrit soudainement les yeux. Après un moment de réflexion silencieuse, il laissa échapper un reniflement froid et disparut.

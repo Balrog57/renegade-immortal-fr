@@ -28,7 +28,7 @@ Un pavillon imposant trônait sur ce fragment. Cependant, sa disparition immédi
 
 Li Yuan déclara: « Frère Xu, j'ai besoin de temps! » Chaque fois qu'il s'attaquait à des restrictions, une aura d'assurance absolue émanait de lui.
 
-Une fois ses paroles prononcées, il s'assit dans le vide. Sa main gauche continuait de former des sceaux, libérant des restrictions qui fusionnaient entre elles. Parfois, il pressait son doigt contre son entresourcil, projetant des lignes noires qui venaient envelopper les restrictions extrêmement complexes pour s'enfoncer dans le néant.
+Une fois ses paroles prononcées, il s'assit dans le vide. Sa main gauche continuait de former des sceaux, libérant des restrictions qui fusionnaient entre elles. Parfois, il pressait son doigt contre son entresourcil, projetant des lignes noires qui enveloppaient les restrictions pour former une marque extrêmement complexe, laquelle s'enfonçait dans le néant.
 
 Lors de ces instants, l'ombre du fragment réapparaissait soudainement avant de s'évanouir l'instant d'après. Ce cycle était trop rapide pour que quiconque puisse s'y engouffrer durant la brève ouverture.
 
@@ -42,7 +42,7 @@ Quatre individus étaient assis au sommet de ces cornes. Ils demeuraient parfait
 
 Les pupilles de Wang Lin se contractèrent, une lueur de froideur traversant son regard.
 
-Li Yuan reprit: « Frère Xu, pour briser totalement cette restriction, il me faudra plusieurs mois. Mais si nous voulons simplement vous introduire à l'intérieur, avec votre vitesse alliée à mes restrictions, nous avons 80 % de chances de réussir! »
+Li Yuan reprit: « Frère Xu, pour briser totalement cette restriction, il me faudra plusieurs mois. Mais si nous voulons simplement vous introduire à l'intérieur, avec votre vitesse alliée à mes restrictions, nous avons 80 % de chances de réussir! À vous de décider, Frère Xu! »
 
 Wang Lin fit un pas en avant et atteignit la lisière du fragment. Il dit d'une voix lente: « Alors, envoyez-moi! Frère Li, cachez-vous bien, car cet endroit est dangereux. Ne vous laissez pas entraîner dans mes ennuis; une fois que j'aurai obtenu le sort céleste, nous partirons! »
 
@@ -70,7 +70,7 @@ Wang Lin se déplaça avec une célérité extrême pour charger directement ver
 
 « Je vous observe depuis longtemps. Pour avoir violé ce lieu interdit, mourez! »
 
-Sa main droite vacilla et une onde d'impact puissante s'élança. Wang Lin recula immédiatement et agita sa main droite. La collision de leurs énergies originelles provoqua un fracas assourdissant qui se propagea à travers tout le fragment.
+Sa main droite vacilla et une onde d'impact puissante s'élança. Wang Lin recula immédiatement et frappa de sa main droite. La collision de leurs énergies originelles provoqua un fracas assourdissant qui se propagea à travers tout le fragment.
 
 L'homme en robe noire avait le regard glacial. Il avait depuis longtemps remarqué que le niveau de culture de Wang Lin était identique au sien: le stade Corporel Yang. À cet instant, il fit un pas en avant, forma un sceau de la main droite et murmura une incantation. Une force colossale descendit soudainement du ciel.
 
@@ -114,7 +114,7 @@ Quant aux deux autres, ils se précipitèrent vers Wang Lin comme des éclairs, 
 
 Tandis que Wang Lin reculait, chaque pas provoquait de vastes ondulations, comme si son corps fusionnait avec le monde. Après plusieurs pas de retrait, il s'arrêta brusquement et fit un pas en avant.
 
-D'un seul mouvement, le corps de Wang Lin disparut sans laisser de trace, pour réapparaître derrière l'homme en robe noire. Ce dernier fut pris de stupeur. Il se retourna précipitamment alors que l'épée volante fonçait sur lui.
+D'un seul mouvement, le corps de Wang Lin disparut sans laisser de trace, pour réapparaître derrière l'homme en robe noire. Ce dernier fut pris de stupeur. Il se retourna précipitamment alors que l'épée volante fonçait vers Wang Lin.
 
 Le regard de Wang Lin resta calme; il pointa le doigt en avant et s'écria: « Figé! »
 
@@ -124,9 +124,9 @@ Le corps de l'homme s'effondra aussitôt et son âme originelle fut projetée ho
 
 Au même instant, l'autre cultivateur fondit sur lui avec sa gigantesque tornade, voulant manifestement entraver les actions de Wang Lin.
 
-Wang Lin ne daigna même pas un regard à cet assaillant; le tatouage de bête sur le dos de sa main droite s'anima et se matérialisa, chargeant férocement le cultivateur à la tornade.
+Wang Lin ne daigna même pas un regard à cet assaillant; l'os de bête sur le dos de sa main droite s'anima et se matérialisa, chargeant férocement le cultivateur à la tornade.
 
-Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Mille Millions d'Âmes en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de l'Ancêtre Sanguin scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
+Simultanément, Wang Lin frappa son sac de rangement et le Drapeau des Âmes d'un Milliard en sortit. Il se transforma en une vaste brume noire tentant d'engloutir l'homme en robe noire. Ce dernier s'apprêtait à résister, mais il aperçut alors l'âme originelle féroce de l'Ancêtre Sanguin scintiller à l'intérieur du drapeau. Ce visage familier le terrifia et lui fit perdre tout contrôle. Il se retrouva aussitôt encerclé par la brume noire.
 
 Tout cela fut exécuté avec une précision chirurgicale. Après avoir capturé l'âme originelle de l'homme en robe noire, Wang Lin agita ses manches, propageant la brume noire sur un rayon de 330 mètres. Il fixa les trois survivants et dit d'un ton sombre: « Je veux entrer dans le Pavillon des Collections! »
 
@@ -138,9 +138,9 @@ Si Wang Lin réagissait ainsi, que dire des trois autres? Dès l'apparition de c
 
 Lorsque le regard de l'os de bête se posa sur lui, le visage du cultivateur devint livide et il recula aussitôt. Mais à cet instant précis, cette aura riche et maléfique réapparut.
 
-Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La décomposition se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement sa main droite. Ignorant le sang qui jaillissait de partout, il recula de plus de 3,3 kilomètres et s'assit immédiatement en position de lotus.
+Les yeux du cultivateur furent envahis par la panique et sa main droite devint instantanément grise. La grisaille se propagea avec frénésie; face à l'urgence, il n'hésita pas à lever sa main gauche pour trancher directement sa main droite. Ignorant le sang qui jaillissait de partout, il recula de plus de 3,3 kilomètres et s'assit immédiatement en position de lotus.
 
-Bien qu'il eût amputé son propre bras, la grisaille ne disparut pas et se propagea depuis sa main gauche. Ses yeux étaient remplis de désespoir alors qu'il serrait les dents. Au moment où le gris recouvrit presque tout son corps, son âme originelle s'échappa, abandonnant son enveloppe charnelle.
+Bien qu'il eût amputé son propre bras, la grisaille ne disparut pas et se propagea depuis sa main gauche. Ses yeux étaient remplis de désespoir alors qu'il serrait les dents. Au moment où le gris recouvrit tout son corps, son âme originelle s'échappa, abandonnant son enveloppe charnelle.
 
 Au moment où l'âme partait, toute son âme originelle se mua en une statue de pierre sans la moindre trace de vitalité. Dans les airs, seule restait son âme originelle, solitaire et désolée.
 

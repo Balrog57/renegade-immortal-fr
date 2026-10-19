@@ -44,7 +44,7 @@ Il y avait naturellement des cultivateurs ici, mais grâce au niveau de culture 
 
 C'était la Formation Céleste Qing Lin qu'il avait apprise lors de sa fusion avec Qing Lin. Elle pouvait masquer toutes ses traces et empêcher quiconque de le trouver. Une fois la formation établie, il sortit quelques jades célestes et les disposa autour de la formation, puis s'assit en tailleur en son centre.
 
-Il pointa son doigt entre ses sourcils et une partie de son âme originelle s'en échappa.
+Il toucha de deux doigts entre ses sourcils et une partie de son âme originelle s'en échappa.
 
 « Âme, prends forme! » Les mains de Wang Lin formèrent rapidement plusieurs sceaux. L'âme originelle se transforma en une fumée verte qui tourbillonna autour de lui avant de se condenser en une forme humaine.
 
@@ -52,7 +52,7 @@ Il pointa son doigt entre ses sourcils et une partie de son âme originelle s'en
 
 L'âme originelle brilla instantanément d'un éclat rouge, et les rochers au sol tremblèrent comme s'ils étaient attirés par une force invisible. Rapidement, la pierre vola vers l'âme originelle.
 
-C'était comme si un vortex s'était formé dans la grotte; d'innombrables fragments de roche convergeaient vers l'âme originelle qui se solidifiait progressivement. Après environ sept minutes, une copie de Wang Lin apparut.
+C'était comme si un vortex s'était formé dans l'âme originelle; d'innombrables fragments de roche convergeaient vers l'âme originelle qui se solidifiait progressivement. Après environ sept minutes, une copie de Wang Lin apparut.
 
 « Le sort de formation du corps de l'Empereur Céleste Qing Lin est très réaliste! » Wang Lin ferma les yeux. Même avec son niveau de culture, il ne pouvait distinguer si l'âme originelle devant lui était réelle ou une illusion.
 
@@ -62,7 +62,7 @@ Après dix jours, cet avatar s'effondrerait. Même s'il était tué, cela n'infl
 
 Parallèlement, son corps original ne pourrait pas bouger durant ces dix jours et tomberait dans un sommeil profond. C'est pourquoi il devait être utilisé avec la formation pour masquer sa présence.
 
-La main droite de Wang Lin s'étira et l'ouverture de son espace de stockage se révéla. Le cadavre féminin argenté en sortit. Sans dire un mot, elle s'assit à l'intérieur de la formation, aux côtés de Wang Lin.
+La main droite de Wang Lin saisit le vide, et une ouverture de son espace de stockage apparut. Le cadavre féminin argenté en sortit. Sans dire un mot, elle s'assit à l'intérieur de la formation, aux côtés de Wang Lin.
 
 La formation servait à le cacher, et le cadavre féminin était là pour le garder. Après avoir réfléchi un instant, Wang Lin plaça plusieurs restrictions puissantes avant de se sentir enfin en paix. Il ferma les yeux comme s'il était mort; sa respiration ralentit progressivement jusqu'à s'arrêter, son rythme cardiaque disparut, tel un homme sans vie.
 
@@ -72,7 +72,7 @@ Après avoir légèrement déplacé son corps, Wang Lin observa son enveloppe da
 
 Lorsqu'il passa près des cultivateurs environnants, quatre personnes ouvrirent les yeux comme si elles avaient perçu quelque chose, mais elles n'arrêtèrent pas Wang Lin. Après tout, au cours des derniers jours, de nombreux vieux monstres errants s'étaient précipités ici.
 
-Rares étaient les cultivateurs ayant pénétré dans la Terre de l'Ancien Dieu qui connaissaient la planète Suzaku mieux que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer des Diables.
+Rares étaient les cultivateurs ayant pénétré dans la Terre de l'Ancien Dieu qui connaissaient la planète Suzaku mieux que Wang Lin. Une fois sur la planète Suzaku, il se dirigea directement vers la Mer des Démons.
 
 En chemin, il n'utilisa pas la téléportation pour arriver rapidement, mais prit le temps d'adapter son corps. Ce n'est qu'après s'être pleinement familiarisé avec sa condition qu'il accéléra sa progression.
 
@@ -82,7 +82,7 @@ Il fixa le dragon d'il y a mille ans, bien que plus de la moitié fût endommag�
 
 Wang Lin détourna le regard et disparut.
 
-Il traversa plus de la moitié de la Mer des Diables et atteignit l'entrée de la Terre de l'Ancien Dieu. Le silence y régnait, absolu; pas un seul cultivateur n'était présent. Il était évident qu'ils étaient tous déjà entrés dans la Terre de l'Ancien Dieu.
+Il traversa plus de la moitié de la Mer des Démons et atteignit l'entrée de la Terre de l'Ancien Dieu. Le silence y régnait, absolu; pas un seul cultivateur n'était présent. Il était évident qu'ils étaient tous déjà entrés dans la Terre de l'Ancien Dieu.
 
 Wang Lin s'engouffra sans hésitation par l'entrée et apparut dans le vide.
 
@@ -90,7 +90,7 @@ Dès son entrée, une puissante odeur de sang l'assaillit. D'innombrables pierre
 
 De nombreux corps dérivaient dans l'espace. Des cultivateurs, des bêtes féroces... On pouvait voir le cadavre d'une araignée bleue de mille pieds, un python géant de dix mille pieds et une multitude de créatures de tailles diverses. Il y avait même une créature ressemblant à un dragon mais dotée de deux ailes, ainsi que des groupes d'insectes volants de la taille d'un bras.
 
-Des fluctuations d'énergie originelle subsistaient encore; il était clair qu'une bataille titanesque s'était déroulée ici! La plupart des cadavres étaient brûlés, certains gelés, et d'autres suintaient du pus, signe évident d'empoisonnement.
+Des fluctuations d'énergie originelle subsistaient encore; il était clair qu'une bataille titanesque s'était déroulée ici! La plupart des cadavres étaient brûlés, certains transformés en cristaux de glace ou réduits en poudre, et d'autres suintaient du pus, signe évident d'empoisonnement.
 
 Plus il avançait, plus la densité de cadavres augmentait, tout comme la diversité des causes de décès. Il vit un python géant, transpercé par d'innombrables épées, gisant sur un rocher; pourtant, ses yeux restaient ouverts, empreints d'un regard féroce.
 

@@ -12,7 +12,7 @@ Après dix respirations, le tatouage de tonnerre autour de Wang Lin brilla inten
 
 « Dans votre monde, vous l'appelez l'Ancien Empereur Céleste. À mon époque, on l'appelait l'Ancien Souverain Céleste... » répondit lentement le premier Oiseau Vermillon. Ses paroles étaient dépourvues de toute émotion.
 
-Cependant, à l'instant même où il finit de parler, le feu de la paume dans laquelle se trouvait Wang Lin s'intensifia de nouveau. Les flammes se transformèrent rapidement en un géant Oiseau Vermillon. Cet oiseau semblait très ancien, comme s'il avait vécu durant d'innombrables années. Il poussa un cri à ébranler le ciel et la terre avant de charger vers Wang Lin.
+Cependant, à l'instant même où il finit de parler, le feu de la paume dans laquelle se trouvait Wang Lin s'intensifia de nouveau. Les flammes se transformèrent rapidement en un géant Oiseau Vermillon. Cet oiseau semblait très ancien, aux yeux sinistres, comme s'il avait vécu durant d'innombrables années. Il poussa un cri à ébranler le ciel et la terre avant de charger vers Wang Lin.
 
 Onzième respiration!
 
@@ -96,7 +96,7 @@ Les yeux du premier Oiseau Vermillon brillèrent d'une lueur étrange. Il regard
 
 Le feu aux neuf couleurs entre ses sourcils étincela, et des Flammes Éthérées jaillirent vers son poing. Bien qu'invisibles, ces flammes enveloppèrent toute sa paume dès qu'elles pénétrèrent son poing.
 
-« Je peux décider de ta vie ou de ta mort d'une simple pensée. Et pourtant, tu ne me diras toujours pas la vérité, même maintenant. J'ai percé ton secret lorsque tu étais au sein du Clan du Dragon Armuré. Si je t'ai laissé vivre, c'est uniquement parce que je voulais connaître ta véritable identité! J'ai orchestré ton ascension en tant que Jeune Empereur pour t'attirer ici. J'ai fait apparaître la deuxième génération pour te guider vers cette épreuve! »
+« Je peux décider de ta vie ou de ta mort d'une simple pensée. Et pourtant, tu ne me diras toujours pas la vérité, même maintenant. J'ai percé ton secret lorsque tu étais sur la planète du Clan du Dragon Armuré. Si je t'ai laissé vivre, c'est uniquement parce que je voulais connaître ta véritable identité! J'ai orchestré ton ascension en tant que Jeune Empereur pour t'attirer ici. J'ai fait apparaître la deuxième génération pour te guider vers cette épreuve! »
 
 « Maintenant que tu es enfin là, dis-moi qui tu es! Pourquoi usurpes-tu l'identité d'un membre de mon clan? Les cadets ne voient peut-être pas clair dans ton secret, mais rien ne peut me rester caché! »
 
@@ -132,4 +132,4 @@ Le premier Oiseau Vermillon soupira et ferma lentement les yeux. Sa voix résonn
 
 « Sais-tu pourquoi les humains ont cinq doigts à chaque main? À mon époque, il existait aussi les cinq Fléaux Célestes, mais on les appelait les Cinq Doigts Brise-Vide... La culture, la culture... en vérité, toi et moi ne cultivons qu'une main. La première étape est la paume, et la seconde est l'empreinte de la paume. L'empreinte est la Loi, et comme l'empreinte de chacun est unique, leurs Lois le sont aussi. »
 
-« Les Cinq Doigts Brise-Vide ou les cinq Fléaux Célestes sont les doigts de ta paume. Si tu veux couvrir le ciel de ta main, tu dois posséder les cinq doigts. Si tu comprends cela, tu le comprendras. Sinon, tu n'auras aucune chance de briser le vide. »
+« Les Cinq Doigts Brise-Vide ou les cinq Fléaux Célestes sont les doigts de ta paume. Si tu veux couvrir le ciel de ta main, tu dois posséder les cinq doigts. Si tu as compris ces paroles, tu as compris. Sinon, tu n'auras aucune chance de briser le vide. »

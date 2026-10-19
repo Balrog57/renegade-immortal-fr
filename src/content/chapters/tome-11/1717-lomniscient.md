@@ -44,9 +44,9 @@ C'était l'essence karmique, la véritable essence karmique!
 
 Plus stupéfiant encore, une flamme faisait rage dans l'œil gauche de l'Omniscient, tandis qu'un éclair jaillissait de son œil droit.
 
-« Je connais cela... Ce vieil homme possède aussi l'essence de la boucherie... » Entre les sourcils de l'Omniscient, un vortex diffus apparut. Un autre Omniscient se tenait là, à l'intérieur, vêtu d'une robe grise!
+« Je connais cela... Ce vieil homme possède aussi l'essence du massacre... » Entre les sourcils de l'Omniscient, un vortex diffus apparut. Un autre Omniscient se tenait là, à l'intérieur, vêtu d'une robe grise!
 
-« Très bien... Ce vieil homme a tout accepté, et maintenant, cette septième essence... » Les yeux de l'Omniscient s'illuminèrent et ses pupilles se couvrirent de lignes sanguines. En un laps de temps infime, ces lignes recouvrirent presque entièrement ses yeux, et des restrictions commencèrent à apparaître.
+« Très bien... Ce vieil homme a tout reçu, il ne manque plus que cette septième essence... » Les yeux de l'Omniscient s'illuminèrent et ses pupilles se couvrirent de lignes sanguines. En un laps de temps infime, ces lignes recouvrirent presque entièrement ses yeux, et des restrictions commencèrent à apparaître.
 
 Toutefois, il faudrait un certain temps pour que les restrictions contenues dans ses yeux fusionnent totalement avec les lignes sanguines. Il ne faudrait pas longtemps pour que l'Omniscient maîtrise l'essence complète de cette restriction.
 

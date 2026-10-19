@@ -6,47 +6,47 @@ bookTitle: Light of the coming end
 en: "Chapter 2064 - Taking a Step to Trample the Heavens!"
 slug: faire-un-pas-pour-pietiner-les-cieux
 ---
-Tous les Grands Empyréens du Continent Astral Immortel furent stupéfaits. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancestral étaient d'une rapidité extrême.
+Tous les Grands Empyréens du Continent Astral Immortel furent alertés. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancien étaient d'une rapidité extrême.
 
 Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.
 
-Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancestral. Les innombrables sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des milliers de pieds tandis que la lumière qui l'enveloppait s'effondrait.
+Au centre du vaste bassin, là où la tempête marine faisait rage, un grondement tonnerreux résonna du côté faisant face au clan Ancien. Près de dix mille sphères de brume entourant Wang Lin explosèrent et, après leur disparition, du sang jaillit du coin de sa bouche. Il fut repoussé sur des centaines de pieds tandis que la lumière qui l'enveloppait s'effondrait.
 
 La brume autour de Gu Dao se brisa complètement dans un cri misérable. Elle disparut rapidement avec la bête de brume. Une fois la brume dissipée, son visage mystérieux allait être révélé.
 
-À des milliers de pieds de Wang Lin, Gu Dao dit lentement: « Afin de voir mon apparence, vous n'avez pas hésité à vous blesser... » La brume autour de lui devint très ténue, ne laissant que quelques mèches de brouillard qui masquaient à peine son visage.
+À des centaines de pieds de Wang Lin, Gu Dao dit lentement: « Afin de voir mon apparence, vous n'avez pas hésité à vous blesser... » La brume autour de lui devint très ténue, ne laissant que quelques mèches de brouillard qui masquaient à peine son visage.
 
 « Puisque vous voulez voir, alors regardez... Vous êtes la première personne à découvrir mon visage depuis d'innombrables années... » Le corps de Gu Dao était svelte et il portait une robe verte dont la manche droite manquait. Ses cheveux étaient gris, et il fixait Wang Lin alors que la brume autour de son visage se dissipait totalement.
 
-Wang Lin le regarda également à des milliers de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empyréen Gu Dao. Il ne fut pas surpris et poussa un long soupir.
+Wang Lin le regarda également à des centaines de pieds de distance. Lorsque le brouillard se dispersa, Wang Lin put enfin voir à quoi ressemblait le Grand Empyréen Gu Dao. Il ne fut pas surpris et poussa un long soupir.
 
 « C'est bien vous! »
 
 Gu Dao resta silencieux.
 
-Wang Lin contemplait ce visage familier et dit lentement: « Dois-je vous appeler l'Ancêtre Ancestral, ou Gu Dao? »
+Wang Lin contemplait ce visage familier et dit lentement: « Dois-je vous appeler l'Ancêtre Ancien, ou Gu Dao? »
 
-Gu Dao ressemblait trait pour trait à la statue de l'Ancêtre Ancestral dans les trois capitales!
+Gu Dao ressemblait trait pour trait à la statue de l'Ancêtre Ancien dans les trois capitales!
 
 « Ou, pour être plus précis, votre apparence est la vôtre. Les statues des capitales ont été sculptées selon vos traits! » Wang Lin regarda Gu Dao, qui dégageait une aura antique.
 
-Gu Dao afficha une expression mélancolique et déclara lentement: « Je suis Gu Dao... et aussi l'Ancêtre Ancestral. J'ai obtenu une partie de la mémoire et de la volonté de l'Ancêtre Ancestral... pour protéger le clan Ancestral et les descendants des familles impériales... Mon apparence a lentement changé après avoir absorbé cette mémoire et cette volonté... » La voix de Gu Dao était basse.
+Gu Dao afficha une expression mélancolique et déclara lentement: « Je suis Gu Dao... et aussi l'Ancêtre Ancien. J'ai obtenu une partie de la mémoire et de la volonté de l'Ancêtre Ancien... pour protéger le clan Ancien et les descendants des familles impériales... Mon apparence a lentement changé après avoir absorbé cette mémoire et cette volonté... » La voix de Gu Dao était basse.
 
 « La distance maximale que vous pouvez parcourir est cet endroit! Les rumeurs disent que vous avez tué un Grand Empyréen du clan Céleste sur les terres du clan Céleste, mais c'est probablement une erreur. Il est probable que, lors de leur invasion, ils aient dépassé la ligne centrale de la vaste mer et que c'est pour cela que vous avez pu les éliminer. » L'esprit de Wang Lin fut soudainement illuminé. Il venait d'obtenir les réponses à tant de questions.
 
 Il était perplexe car, avec le niveau de culture de Gu Dao, il aurait pu facilement anéantir le clan Céleste pour qu'il n'en reste plus un seul; pourtant, après d'innombrables années, le clan Céleste existait toujours.
 
-« Vous avez obtenu la mémoire et la volonté de l'Ancêtre Ancestral. Vous avez dû également recevoir certaines restrictions avec cet héritage. » Wang Lin regarda Gu Dao en poussant un soupir.
+« Vous avez obtenu la mémoire et la volonté de l'Ancêtre Ancien. Vous avez dû également recevoir certaines restrictions avec cet héritage. » Wang Lin regarda Gu Dao en poussant un soupir.
 
-« Lorsque mon changement fut complet, j'ai ressenti la restriction... Je ne peux pas m'éloigner trop du clan Ancestral, et si je le fais, toute ma puissance disparaîtra... » Gu Dao restait très calme, ne montrant ni impuissance ni amertume.
+« Lorsque mon changement fut complet, j'ai ressenti la restriction... Je ne peux pas m'éloigner trop du clan Ancien, et si je le fais, toute ma puissance disparaîtra... » Gu Dao restait très calme, ne montrant ni impuissance ni amertume.
 
 « Pourquoi voulez-vous m'empêcher de partir? » demanda une fois de plus Wang Lin.
 
-Gu Dao secoua la tête et, au lieu de répondre, murmura pour lui-même: « Après avoir obtenu la mémoire de l'Ancêtre Ancestral, j'ai lentement ressenti certaines choses au fil des âges... des choses que je ne peux comprendre, que je ne peux croire, mais qui sont bien réelles. » Gu Dao soupira en regardant vers la terre et le clan Ancestral.
+Gu Dao secoua la tête et, au lieu de répondre, murmura pour lui-même: « Après avoir obtenu la mémoire de l'Ancêtre Ancien, j'ai lentement ressenti certaines choses au fil des âges... des choses que je ne peux comprendre, que je ne peux croire, mais qui sont bien réelles. » Gu Dao soupira en regardant vers la terre et le clan Ancien.
 
 « Peut-être est-ce réel, peut-être n'est-ce qu'une illusion... » Ses yeux brillaient de détermination.
 
-« Battons-nous. Si vous gagnez contre moi, je n'aurai plus la force de vous arrêter et vous pourrez partir! Je sens que vous n'avez pas utilisé toute votre puissance, alors je ne me retiendrai plus non plus! J'ai les deux sorts les plus puissants. L'un est le Monde Ancestral. Dans les souvenirs de l'Ancêtre Ancestral, il est né du vide. Il croyait fermement que ses yeux pourraient devenir le soleil et la lune, son sang les rivières et les mers, ses os les chaînes de montagnes, ses mains jointes le ciel, et son corps la terre. Par sa foi et ses pensées, il utilisa sa force vitale pour créer ce sort: le Monde Ancestral! Je ne l'ai jamais utilisé depuis que j'ai reçu l'héritage... Aujourd'hui sera la première fois... » dit lentement Gu Dao en fixant Wang Lin.
+« Battons-nous. Si vous gagnez contre moi, je n'aurai plus la force de vous arrêter et vous pourrez partir! Je sens que vous n'avez pas utilisé toute votre puissance, alors je ne me retiendrai plus non plus! J'ai les deux sorts les plus puissants. L'un est le Monde Ancien. Dans les souvenirs de l'Ancêtre Ancien, il est né du vide. Il croyait fermement que ses yeux pourraient devenir le soleil et la lune, son sang les rivières et les mers, ses os les chaînes de montagnes, ses mains jointes le ciel, et son corps la terre. Par sa foi et ses pensées, il utilisa sa force vitale pour créer ce sort: le Monde Ancien! Je ne l'ai jamais utilisé depuis que j'ai reçu l'héritage... Aujourd'hui sera la première fois... » dit lentement Gu Dao en fixant Wang Lin.
 
 Wang Lin réfléchit un instant en silence, son regard rencontrant celui de Gu Dao.
 
@@ -56,17 +56,17 @@ Après avoir entendu Wang Lin dire qu'il avait franchi le cinquième pont, Gu Da
 
 D'un geste, d'innombrables particules de lumière se rassemblèrent derrière lui et, un instant plus tard, une ombre lumineuse apparut. Cette silhouette était enveloppée de clarté, rendant son apparence invisible. Cependant, dès qu'elle fut apparue, elle ouvrit la bouche et inspira. Une quantité colossale d'énergie du monde fut rapidement aspirée. Cette aspiration couvrit instantanément des millions de kilomètres, englobant même le vaste bassin tout entier.
 
-L'énergie infinie du monde fut absorbée et l'ombre lumineuse s'étendit. Le vortex d'aspiration se propagea vers le clan Céleste et le clan Ancestral.
+L'énergie infinie du monde fut absorbée et l'ombre lumineuse s'étendit. Le vortex d'aspiration se propagea vers le clan Céleste et le clan Ancien.
 
-Du côté du clan Céleste, près de la vaste mer, les quatre Grands Empyréens Célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancestral avec Song Tian et ses compagnons; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
+Du côté du clan Céleste, près de la vaste mer, les quatre Grands Empyréens Célestes s'immobilisèrent tous. Ils regardaient au loin, l'impression de perdre la raison. Il en fut de même pour le clan Ancien avec Song Tian et ses compagnons; ils sentirent cette force d'aspiration titanesque drainer l'énergie du monde vers le bassin.
 
-Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les 100 000 pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
+Au centre de la vaste mer, l'ombre lumineuse grandissait rapidement à mesure qu'elle absorbait l'énergie du monde. Elle dépassait déjà les dizaines de milliers de pieds de haut et ne cessait de croître. En quelques instants, Wang Lin ne pouvait plus voir que les jambes de cette ombre — le torse avait disparu!
 
 Wang Lin eut le souffle coupé. Il ignorait jusqu'à quelle hauteur l'ombre atteindrait, mais il imaginait que si l'on regardait depuis l'extérieur du Continent Astral Immortel, on y verrait un géant colossal! Elle transperçait les cieux!
 
 « Ancêtre... » Wang Lin observait l'ombre continuer de s'étendre. Il ne savait pas quelle serait sa taille finale. Peut-être que si elle recevait assez d'énergie, elle deviendrait un système stellaire entier... Elle continuerait de croître jusqu'à ce que toute l'énergie du monde sur le Continent Astral Immortel soit absorbée. Pourtant, sa taille actuelle suffisait déjà à exercer sur Wang Lin une pression indescriptible.
 
-« Monde Ancestral... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent: l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains s'élevèrent vers la voûte céleste, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
+« Monde Ancien... » Wang Lin leva les yeux au ciel et déploya son Sens Divin. Il perçut alors une scène étrange. Les yeux de cette immense ombre lumineuse changèrent: l'un devint le soleil éclatant, l'autre la lune. Le sang qui s'en écoulait se mua progressivement en rivières et en mers. Ses mains s'élevèrent vers la voûte céleste, tandis que son corps s'abattait pour devenir la terre, ses os devenant des chaînes de montagnes.
 
 Alors qu'il observait ce spectacle, Wang Lin ressentit soudain une douleur atroce dans les yeux. C'était comme si une puissance immense voulait lui arracher les globes oculaires pour en faire le soleil et la lune! Ses mains tremblaient également, semblant vouloir s'élever pour devenir le ciel, tandis que son corps était attiré par une force étrange pour se fondre dans la terre.
 

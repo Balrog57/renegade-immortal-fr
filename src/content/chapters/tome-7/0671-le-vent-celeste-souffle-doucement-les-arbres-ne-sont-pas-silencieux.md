@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 671 - The Celestial Wind Blows Gently, the Trees are Not Silent
 slug: le-vent-celeste-souffle-doucement-les-arbres-ne-sont-pas-silencieux
 ---
-On dit que la vie et la mort sont les choses les plus imprévisibles au monde. C'est parce que les mortels ignorent quand ils mourront. Les mystères de la mort sont comme une lame imprévisible suspendue au-dessus de leurs têtes, plongeant les hommes dans une peur profonde, issue des tréfonds de leur âme.
+On dit que la vie et la mort sont les choses les plus imprévisibles au monde. C'est parce que les mortels ignorent quand ils mourront. Les mystères de la mort sont insondables, plongeant les hommes dans une peur profonde, issue des tréfonds de leur âme.
 
-Cependant, ils ignorent que la vie et la mort ne sont qu'une infime partie d'un tout plus vaste. S'ils remontaient jusqu'à la source, ils découvriraient qu'il ne s'agit que d'une forme de karma.
+Cependant, ils ignorent que la vie et la mort ne sont qu'une seule manifestation. S'ils remontaient jusqu'à la source, ils découvriraient qu'il ne s'agit que d'une forme de karma.
 
 Nul ne peut échapper à la cause karmique d'hier ni à l'effet karmique d'aujourd'hui.
 
-Tout comme Liu Mei, qui était actuellement assise en tailleur dans une pièce sur la planète Mille Illusions. Tout en effleurant son sac de rangement, elle contemplait l'environnement étrange à l'extérieur, et son cœur se sentait plus serein.
+Tout comme Liu Mei, qui était actuellement assise en tailleur dans un pavillon de la famille Huan sur la planète Mille Illusions. Tout en effleurant son sac de rangement, elle contemplait l'environnement inconnu, et son cœur se sentait plus serein.
 
 C'était comme si elle ne ressentirait jamais la solitude tant qu'elle posséderait cet objet dans son sac de rangement.
 
@@ -24,7 +24,7 @@ Après avoir ressenti ces fluctuations, Liu Mei se mordit le bout du doigt. Elle
 
 Liu Mei soupira. « Le trésor que j'avais préparé pour lui est désormais inutile... »
 
-Un événement majeur se déroulait sur la planète Mille Illusions. Un ancêtre, parti il y a des milliers d'années, était revenu. Il avait également ramené un disciple au talent prodigieux, et dans trois mois, un rituel de lignée aurait lieu pour ce disciple afin de faire d'elle un membre central de la famille Huan.
+Un événement majeur se déroulait sur la planète Mille Illusions. Un ancêtre, parti il y a des milliers d'années, était revenu. Il avait également ramené un disciple au talent prodigieux, et dans trois mois, un rituel de lignée aurait lieu pour ce disciple afin de faire d'elle une disciple directe de la famille Huan.
 
 La nouvelle se répandit comme une traînée de poudre jusqu'à ce que chaque planète liée à Mille Illusions en soit informée.
 
@@ -34,7 +34,7 @@ Après le départ de Sun Tai, Wang Lin cultiva tranquillement dans sa pièce. Il
 
 En ajoutant les jades célestes précédents, Wang Lin possédait un total d'un peu moins de trois cents mille jades célestes. Ses yeux s'illuminèrent et il murmura pour lui-même: « Cela devrait à peine suffire! »
 
-Il se leva et disparut de la pièce. Lorsqu'il réapparut, il se trouvait à plus de cinquante mille kilomètres de la demeure. Son sens divin balaya les environs avant qu'il ne frappe son sac de rangement, libérant une immense quantité de jades célestes.
+Il se leva et disparut de la pièce. Lorsqu'il réapparut, il se trouvait à plus de cinquante mille kilomètres de la ville de la famille Sun. Son sens divin balaya les environs avant qu'il ne frappe son sac de rangement, libérant une immense quantité de jades célestes.
 
 Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déployant des restrictions. Une fois plusieurs restrictions établies, les jades célestes chutèrent un à un, formant une formation gigantesque d'environ cinq kilomètres de rayon.
 
@@ -62,7 +62,7 @@ La deuxième personne était un homme d'âge moyen situé dans les profondeurs d
 
 La troisième personne se trouvait au centre de la planète Ran Yun, là où résidait la famille Ran.
 
-Dans la demeure ancestrale de la famille Ran, un vieil homme aux cheveux d'un blanc immaculé plissa les yeux en écoutant le rapport d'un membre de sa famille concernant l'enchère. Apprenant qu'une pilule de rang 8 avait été vendue pour un seul jade céleste, il laissa échapper un reniflement méprisant et ses yeux se remplirent de mécontentement.
+Dans la demeure ancestrale de la famille Ran, un vieil homme aux cheveux d'un blanc immaculé plissa les yeux en écoutant le rapport d'un homme revenu de la petite ville de la famille Sun concernant l'enchère. Apprenant qu'une pilule de rang 8 avait été vendue pour un seul jade céleste, il laissa échapper un reniflement méprisant et ses yeux se remplirent de mécontentement.
 
 Juste au moment où il allait parler, il détecta l'apparition de la tempête d'énergie spirituelle céleste. Il se leva immédiatement et regarda la tempête d'un air sombre.
 
@@ -74,7 +74,7 @@ Ce mot unique fut comme un coup de tonnerre capable de briser le vortex. Wang Li
 
 Une image vague du fleuve des enfers apparut autour de lui. Le fleuve gravitait autour de Wang Lin, formant une force invisible qui condensa le tourbillon d'énergie spirituelle céleste.
 
-Le tourbillon était inhalé par Wang Lin, comme s'il dévorait les cieux eux-mêmes. De vastes quantités de jades célestes entourèrent Wang Lin, et ses méridiens se gonflèrent instantanément de multiples fois. L'énergie spirituelle fut immédiatement dévorée dès qu'elle pénétra dans son âme originelle.
+Le tourbillon était inhalé par Wang Lin, comme s'il dévorait les cieux eux-mêmes. De vastes quantités de jades célestes parcoururent son corps, et ses méridiens se gonflèrent instantanément de multiples fois. L'énergie spirituelle fut immédiatement dévorée dès qu'elle pénétra dans son âme originelle.
 
 À cet instant, le corps de Wang Lin était semblable à l'Abîme des Marées, et son âme originelle était le trou noir qui dévorait tout ce qui s'y trouvait.
 

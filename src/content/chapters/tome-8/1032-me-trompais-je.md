@@ -24,13 +24,13 @@ Après un temps indéterminé, l'homme ouvrit lentement les yeux, laissant appar
 
 « Bien que je n'aie pas encore absorbé tout le tatouage sacré de l'Ancêtre, j'ai acquis une grande compréhension de l'art du Tatou Flétri... Cependant, le souvenir de la silhouette de mon ancien maître ne s'efface pas... » L'homme réfléchit en silence avant de laisser échapper un soupir et de refermer les yeux.
 
-Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard de la grande épée. Il la rappela, retira le Tatou Flétri et le rangea dans sa sacoche.
+Wang Lin, qui se trouvait dans les profondeurs de l'océan, détacha son regard de la grande épée. Il la rappela, retira le Tatou Flétri et le rangea dans son sac de rangement.
 
 « Avec ce Tatou Flétri, j'aurai un moyen supplémentaire de me sauver en cas de danger, mais il est véritablement mystérieux. Après avoir quitté la Terre des Esprits Démoniques, je devrai trouver l'occasion d'en fabriquer d'autres. Cependant, d'après le gaz vert, le meilleur matériau consiste à utiliser la peau située entre les sourcils d'une bête féroce. »
 
 « Plus la bête est féroce, plus cette peau sera de qualité; cela affecte même la puissance du Tatou Flétri lui-même. Il faut utiliser un sortilège pour capturer l'âme et l'essence sanguine de la bête entre ses sourcils avant de prélever la peau... »
 
-Tout en réfléchissant, Wang Lin prit une profonde inspiration et frappa sa sacoche de rangement. Un éclat de lumière jaune jaillit, et le cristal jaune apparut dans sa main.
+Tout en réfléchissant, Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un éclat de lumière jaune jaillit, et le cristal jaune apparut dans sa main.
 
 En fixant le cristal, le regard de Wang Lin devint d'une extrême gravité. Ce cristal jaune était la chose qui l'intriguait le plus. Il pouvait vaguement ressentir des fluctuations terrifiantes émaner de l'objet, si bien qu'il n'osait pas l'examiner avec son Sens Divin.
 
@@ -38,7 +38,7 @@ En fixant le cristal, le regard de Wang Lin devint d'une extrême gravité. Ce c
 
 Il se souvenait clairement que la lumière cristalline qui était l'avatar de Qing Lin avait pénétré ce cristal. Pourtant, peu importe ses observations, il ne parvenait à trouver aucun indice. C'était comme si l'avatar de Qing Lin s'était volatilisé et que ce que Wang Lin voyait n'était qu'une illusion.
 
-Après l'avoir observé longuement, Wang Lin détourna le regard. Il ne prit pas le risque d'utiliser son Sens Divin et réprima de force cette impulsion, avant de ranger le cristal dans sa sacoche. Il avait le sentiment mystérieux que s'il y projetait son Sens Divin, quelque chose d'imprévisible se produirait sans lui apporter le moindre bénéfice.
+Après l'avoir observé longuement, Wang Lin détourna le regard. Il ne prit pas le risque d'utiliser son Sens Divin et réprima de force cette impulsion, avant de ranger le cristal dans son sac de rangement. Il avait le sentiment mystérieux que s'il y projetait son Sens Divin, quelque chose d'imprévisible se produirait sans lui apporter le moindre bénéfice.
 
 Ce genre de pressentiment était très vague; c'était une infime parcelle de perception spirituelle qu'il avait développée après plus de mille ans de culture.
 
@@ -88,8 +88,8 @@ Dès l'apparition de Wang Lin, une haine pure émana des yeux de Yao Xixue au se
 
 La peau qu'elle montrait était balafrée de manière terrifiante. Wang Lin observa de plus près et son expression devint une fois de plus amère. Il crut vaguement apercevoir la silhouette froide et magnifique qui lui était apparue autrefois. Pourtant, malgré ses efforts, il ne parvenait pas à faire coïncider cette image avec la personne devant lui.
 
-« Qui peut dire avec certitude qui avait raison ou tort... L'âme de son père est scellée par le Sceau Céleste et, pour se venger, elle est devenue ainsi. Me trompais-je... » Dans sa vie, la seule règle de Wang Lin était de ne jamais agir contre sa propre conscience. Pourtant, à cet instant, un sentiment complexe envahissait son cœur.
+« Qui peut dire avec certitude qui avait raison ou tort... L'âme de son père est scellée par le Sceau Céleste et, pour se venger, elle est devenue ainsi. Me trompais-je... » Dans sa vie, Wang Lin s'était toujours efforcé d'agir sans honte devant le ciel et la terre. Pourtant, à cet instant, un sentiment complexe envahissait son cœur.
 
-« Wang Lin, tu m'as scellée pendant des centaines d'années. Bien que je te haïsse, je peux passer outre, car c'est moi qui ai comploté contre toi la première. Je peux endurer cela, mais mon père est mort à cause de toi! La vengeance de mon père est une dette que je ne peux oublier. Je ne peux pas te tuer, mais il y a quelqu'un d'autre qui le pourra!! » Yao Xixue fixait Wang Lin, les dents serrées par la rage.
+« Wang Lin, tu m'as scellée pendant des centaines d'années. Bien que je te haïsse, je peux passer outre, car c'est moi qui ai comploté contre toi la première. Je peux endurer cela, mais mon père est mort à cause de toi! Pour venger mon père, nous ne pouvons pas vivre sous le même ciel! Je ne peux pas te tuer, mais il y a quelqu'un d'autre qui le pourra!! » Yao Xixue fixait Wang Lin, les dents serrées par la rage.
 
 Wang Lin resta silencieux, plongé dans ses pensées.

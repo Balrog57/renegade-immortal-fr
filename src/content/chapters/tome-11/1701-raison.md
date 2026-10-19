@@ -98,7 +98,7 @@ Wang Lin était stupéfait par ce spectacle. Après un instant de choc, le fou e
 
 « Vous m'avez attaqué par surprise en chemin, pourtant je vous ai laissé partir sans vous tuer. Savez-vous combien mon cœur en a souffert? Le savez-vous?! Et maintenant, vous amenez un étranger pour me supprimer, espèce de salope!!! Et toi, Lian Daofei, avec ton statut noble et tes innombrables partenaires taoïstes... Tu as jeté ton dévolu sur cette traînée il y a des années, crois-tu que je ne l'ai pas vu?! » hurla le Souverain Céleste aux Sept Couleurs, les yeux injectés de folie.
 
-Le fou, ou plus précisément Lian Daofei, affichait un air d'une immense fierté. Après avoir entendu ces accusations, il secoua la tête avec un sourire méprisant:
+Le fou, ou plus précisément Lian Daofei, affichait un air d'une immense fierté. Après avoir entendu ces accusations, il secoua la tête avec un léger sourire:
 
 « C'est elle qui a séduit ce roi, mais ce roi n'a aucun intérêt pour le partenaire taoïste d'autrui. Je ne suis venu que pour le fragment. Remets-le-moi et je m'en irai. Je ne m'immiscerai pas dans vos querelles de couple. »
 

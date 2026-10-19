@@ -20,7 +20,7 @@ Un instant plus tard, d'un revers de manche, Wang Lin fit disparaître le cercue
 
 Non loin de là, une lampe à huile brûlait. Cette lampe était très mystérieuse: même sans force extérieure, elle pourrait brûler pendant des milliers d'années. Elle vacillait désormais dans l'obscurité de la pièce.
 
-Cette lueur faisait danser l'ombre de Wang Lin.
+Cette lueur faisait apparaître et disparaître l'ombre de Wang Lin.
 
 La main gauche de Wang Lin s'élança vers le vide et un rayon de lumière dorée apparut. L'âme de l'Empereur Céleste se matérialisa dans sa paume. Les yeux de l'âme étaient clos et, bien qu'enveloppée d'une aura dorée, elle dégageait une puissante teinte grise de décomposition.
 
@@ -38,7 +38,7 @@ L'âme de l'Empereur Céleste, en cours de raffinage par le feu d'âme, n'avait 
 
 Wang Lin ne se souciait de rien de ce qui se passait à l'extérieur. Sa chambre secrète était gardée par de nombreux hommes, et nul n'était autorisé à y pénétrer.
 
-Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et fit ses préparatifs dans ce palais. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation.
+Pendant ces trois années, le Prince Ji Du ne quitta pas les lieux et fit ses préparatifs dans ce palais. Parfois, des émissaires venaient de l'extérieur pour s'entretenir secrètement avec lui; ils repartaient alors, transportés par l'excitation et le respect.
 
 Durant cette période, le Prince Ji Du était comme le vent et la pluie. Peu importait l'urgence des événements, il se tenait chaque matin personnellement devant la chambre secrète de Wang Lin, le regard empreint de ferveur, pendant une demi-heure avant de s'éclipser respectueusement.
 
@@ -58,11 +58,11 @@ C'était la sixième année depuis le début de la méditation de Wang Lin. Une 
 
 Quant à l'âme de l'Empereur Céleste, après six ans de combustion, la décomposition interne avait ralenti. Peut-être qu'un jour, une fois que la décomposition aurait totalement cessé de se propager, Wang Lin parviendrait à la raffiner lentement.
 
-Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors de la neuvième année de sa retraite, une autre ombre se superposa à son corps. Cette masse n'était pas encore capable de se condenser en une forme humaine. Une fois apparue, cette masse de lumière diffuse flotta au-dessus du corps de Wang Lin et s'arrêta à dix pieds derrière lui.
+Le temps ne laissait aucune trace et trois autres années s'écoulèrent. Lors de la neuvième année de sa retraite, une autre ombre se superposa à son corps. Cette masse n'était pas encore capable de se condenser en la forme d'un véritable corps. Une fois apparue, cette masse de lumière diffuse flotta au-dessus du corps de Wang Lin et s'arrêta à dix pieds derrière lui.
 
 Wang Lin ouvrit les yeux et observa ses trois véritables corps d'essence. Durant ces neuf années, il avait poussé son pouvoir ancestral à son apogée, tout en portant ses trois véritables corps d'essence à leurs sommets respectifs.
 
-Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au sommet de sa puissance sans subir de revers. Il sentait même qu'il serait capable de le supprimer!
+Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au sommet de sa puissance sans subir de revers. Il sentait même qu'il pourrait le surpasser!
 
 « Parmi les Grands Empyréens, le clan céleste possède le Dao Yi le plus faible. Avec ma force actuelle, bien que je ne sois pas de taille face à Jiu Di, je devrais être l'égal de Wu Feng... Même au sein du clan Ancien, je devrais pouvoir combattre Song Tian, dont la puissance est comparable à celle du Maître Xuan Luo, bien que l'issue reste incertaine.
 
@@ -70,7 +70,7 @@ Désormais, il était confiant de pouvoir affronter un Grand Empyréen Dao Yi au
 
 « Mon feu d'âme produit un effet, certes, mais c'est lent. Je me demande quand ce processus sera achevé. » Wang Lin fixa l'âme de l'Empereur Céleste durant un long moment avant de détourner les yeux.
 
-« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Lors de mon retour dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet du Vide Tribulant. Cela confirme que mes spéculations étaient justes!
+« Pour l'instant, je n'ai pas à me soucier du véritable corps des cinq éléments. Une fois parachevé dans la cité impériale de l'Ancien Dao, il avait atteint sa perfection et m'avait permis d'atteindre le sommet du Vide Tribulant. Cela confirme que mes spéculations étaient justes!
 
 « Si je veux élever mon niveau de culture, la prochaine étape est le véritable corps d'essence de tonnerre de massacre... » Wang Lin observa son véritable corps d'essence de tonnerre de massacre, ses yeux brillant d'une lueur étrange.
 
@@ -80,7 +80,7 @@ Après un long moment, Wang Lin rompit sa contemplation. Il avait décidé de ne
 
 Ce n'est qu'alors qu'il aurait l'assurance de pousser le Grand Empyréen Song Tian à choisir Ji Du et à l'introduire dans le temple ancestral.
 
-Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret de l'Ancien Maître Impérial du Dao.
+Plus important encore, il lui fallait la puissance nécessaire pour pénétrer dans le Royaume Divin Immémorial, afin de dissiper les brumes sur son chemin et de découvrir le but secret du Maître Impérial du Dao Ancien.
 
 « L'attitude du Grand Empyréen Gu Dao est très étrange... Il n'est pas venu me voir à cause des affaires de l'Ancien Dao, mais je dois toujours compter sur ma propre force pour résoudre mes problèmes. Je ne peux laisser ma vie être décidée par la volonté d'un autre. » Wang Lin fixa son véritable corps d'essence de tonnerre de massacre, les yeux étincelants.
 

@@ -28,7 +28,7 @@ Des grondements de tonnerre résonnèrent lorsque la femme porta son coup. La po
 
 Il tenta d'entrer dans la fissure de la Mer des Nuages en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais ce lieu scellé recelait une force qu'il ne pouvait briser; il ne parvenait pas à ressentir la créature.
 
-« Tu n'as aucune voie de survie, tu ne peux t'échapper! Mais si tu t'agenouilles et me supplies, je pourrais peut-être t'accorder une chance de vivre », dit doucement la femme en sortant de la glace pour marcher vers Wang Lin.
+« Tu n'as aucune voie de survie, tu ne peux t'échapper! Mais si tu te soumets, si tu t'agenouilles et me supplies, je pourrais peut-être t'accorder une chance de vivre », dit doucement la femme en sortant de la glace où se trouvait l'homme en blanc pour marcher vers Wang Lin.
 
 Le visage de Wang Lin était livide alors qu'il reculait de quelques pas supplémentaires.
 
@@ -38,7 +38,7 @@ Le visage de Wang Lin était livide alors qu'il reculait de quelques pas supplé
 
 La femme avait déjà aperçu la lumière dorée de Wang Lin. En la revoyant, ses magnifiques pupilles se rétractèrent et un profond doute s'éleva dans son cœur, mais elle ne dit mot. Elle fit un pas en avant, accélérant encore sa cadence. Elle leva ensuite sa main droite et la pressa une fois de plus vers Wang Lin.
 
-Le ciel gronda et treize dragons noirs émettant une lueur dorée apparurent en poussant des hurlements. Puis, une pluie dorée commença à tomber. Chaque goutte de pluie contenait une âme morte de la main de Wang Lin!
+Le ciel gronda et treize dragons noirs émettant une lueur dorée apparurent en poussant des hurlements. Puis, une pluie dorée se mit à tomber et à couvrir toutes les directions. Chaque goutte de pluie contenait une âme morte de la main de Wang Lin!
 
 En tombant, la pluie créa un Monde de Vent et de Pluie. Bien que beaucoup d'âmes se soient dissipées, une multitude subsistait encore. Toutes se précipitèrent vers cette femme.
 
@@ -94,15 +94,15 @@ La femme ne se sentait pas mieux non plus. Du sang commença à couler du coin d
 
 À mesure qu'elle se propageait, le sort révélait toute sa cruauté. La douleur atroce fit pousser un gémissement étouffé à la femme. À cet instant, elle était totalement défigurée, semblable à un fantôme!
 
-Les dégâts causés par *Lune Sombre, Ciel Clair* firent cracher du sang à la femme et la forcèrent à reculer de plusieurs centaines de pieds supplémentaires. Elle leva soudainement les yeux pour fixer Wang Lin. Puis, elle agita sa main droite et une harpe antique apparut devant elle.
+Les dégâts causés par *Lune Sombre, Ciel Clair* firent cracher du sang à la femme et la forcèrent à reculer de plusieurs centaines de pieds supplémentaires. Elle leva soudainement les yeux pour fixer Wang Lin. Puis, elle agita sa main droite et une cithare antique apparut devant elle.
 
 La femme regarda Wang Lin d'un air profond et toucha l'instrument ancien.
 
-La musique de la harpe résonna à travers le monde. À mesure qu'elle progressait, elle forgea une intention meurtrière qui ébranlait les cieux!
+La musique de la cithare résonna à travers le monde. À mesure qu'elle progressait, elle forgea une intention meurtrière qui ébranlait les cieux!
 
 Le rythme devint plus pressant et pénétra l'esprit de Wang Lin, lui donnant l'impression que des ondulations invisibles le bombardaient. Cela le repoussa de plusieurs milliers de pieds et provoqua des saignements par tous ses orifices!
 
-« La musique de ma harpe, jadis le Souverain Céleste l'a entendue. Pour que tu aies la chance de l'entendre aujourd'hui, tu peux sourire en mourant. Écoute mon chant: *Enterré dans les Enfers*... » La voix de la femme était calme, tandis que sa main sur la harpe s'agitait de plus en plus vite.
+« La musique de ma cithare, jadis le Souverain Céleste l'a entendue. Pour que tu aies la chance de l'entendre aujourd'hui, tu peux sourire en mourant. Écoute mon chant: *Enterré dans les Enfers*... » La voix de la femme était calme, tandis que sa main sur la cithare s'agitait de plus en plus vite.
 
 La musique emplissait le monde, mais Wang Lin avait l'impression que des pensées démoniaques envahissaient son esprit. Ces innombrables pensées voulaient lui déchirer le cœur. Wang Lin esquissa un sourire misérable alors que le sang coulait de sa bouche, puis il se mit à rire.
 
@@ -116,9 +116,9 @@ Elle laissa l'épée de sang la transpercer. Son corps était une illusion, comm
 
 Un ancien proverbe dit: « un seul regard en arrière et un sourire peuvent charmer toute vie ». Bien qu'elle ne se fût pas retournée, ce sourire sembla illuminer le monde d'une beauté inimaginable.
 
-« Je n'ai pas entendu la musique de harpe de Grande Sœur depuis longtemps. Pouvoir l'entendre aujourd'hui est entièrement grâce à toi. »
+« Je n'ai pas entendu la musique de cithare de Grande Sœur depuis longtemps. Pouvoir l'entendre aujourd'hui est entièrement grâce à toi. »
 
-L'épée de sang fut inefficace et fut repoussée, tournoyant autour de Wang Lin. Celui-ci s'était déjà retiré lorsqu'il avait lancé l'arme. La musique de la harpe, saturée d'intention meurtrière, emplissait désormais le monde.
+L'épée de sang fut inefficace et fut repoussée, tournoyant autour de Wang Lin. Celui-ci s'était déjà retiré lorsqu'il avait lancé l'arme. La musique de la cithare, saturée d'intention meurtrière, emplissait désormais le monde.
 
 « Je ne veux vraiment pas te tuer... » La femme sans corps réel regarda Wang Lin. Elle leva sa main semblable au jade et pointa doucement vers lui.
 

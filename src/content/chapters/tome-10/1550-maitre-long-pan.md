@@ -40,7 +40,7 @@ Une lueur glaciale passa dans ses yeux et il serra impitoyablement. Le dragon no
 
 Wang Lin projeta le dragon noir des Flammes Joss vers Maître Yan Leizi.
 
-« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un cultivateur du troisième niveau! »
+« Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un puissant cultivateur! »
 
 Le corps de Maître Yan Leizi trembla sous une émotion monstrueuse. Il saisit le dragon noir scellé par Wang Lin, incapable de trouver ses mots. Bouleversé par cette excitation et un sentiment complexe, il s'inclina profondément devant Wang Lin!
 
@@ -52,7 +52,7 @@ Les mains de Maître Yan Leizi tremblèrent tandis qu'il rangeait le dragon noir
 
 Une pointe de nostalgie traversa le regard de Wang Lin. Le souvenir de Shengong Hu refit surface. À l'époque, il était plus faible que lui, mais Shengong Hu avait décidé de reconnaître Wang Lin comme son seigneur. Chaque fois qu'il y pensait, un sourire étirait ses lèvres.
 
-« Ce Shengong Hu m'a aidé autrefois. Lorsque vous retournerez à Luotian, prenez soin de lui pour moi... » Wang Lin agita la main droite et le second dragon noir vola vers lui. Après avoir extrait les âmes des cultivateurs du Royaume Intérieur et scellé la créature, il la lança à Maître Yan Leizi.
+« Ce Shengong Hu et moi avons un passé commun. Lorsque vous retournerez à Luotian, prenez soin de lui pour moi... » Wang Lin agita la main droite et le second dragon noir vola vers lui. Après avoir extrait les âmes des cultivateurs du Royaume Intérieur et scellé la créature, il la lança à Maître Yan Leizi.
 
 « Aidez-moi à lui transmettre ceci. Dites-lui que c'est mon cadeau pour avoir reconnu ma seigneurie! »
 
@@ -62,7 +62,7 @@ Le regard doré de Wang Lin se posa sur le troisième dragon noir. Une froideur 
 
 « Tu peux comprendre mes paroles. Dévore tous les cultivateurs ici et détruis cette formation pour moi. Je te donnerai alors une chance de vivre! » Le dragon noir frémit et leva les yeux vers lui. Puis, il fit volte-face et poussa un rugissement avant de charger les cultivateurs du Royaume Extérieur.
 
-Des cris déchirants résonnèrent à travers les étoiles. Même Maître Yan Leizi en eut le teint qui se crispa. Bien qu'il fût lui-même un cultivateur du Royaume Intérieur, voir la lutte fragile et désespérée des cultivateurs du Royaume Extérieur face au dragon noir était un spectacle atroce.
+Des cris déchirants résonnèrent à travers les étoiles. Même Maître Yan Leizi eut les paupières qui tressaillirent. Bien qu'il fût lui-même un cultivateur du Royaume Intérieur, voir la lutte fragile et désespérée des cultivateurs du Royaume Extérieur face au dragon noir était un spectacle atroce.
 
 Observant cette scène avec une certaine satisfaction, il ressentit un respect encore plus profond pour la cruauté de Wang Lin.
 
@@ -100,7 +100,7 @@ Quant au vieil homme connecté à la planète, il en était la tête!
 
 Quel genre de planète de culture était-ce? C'était manifestement une personne!
 
-« Quelle audace! Il a fusionné son âme d'origine et son âme avec la planète de culture. D'une certaine manière, il a réussi à atteindre l'immortalité! » Wang Lin avait depuis longtemps pressenti une anomalie sur cette planète. C'est pour cela qu'il avait permis au dragon noir de porter l'attaque; et à cet instant précis, il comprenait enfin tout!
+« Quelle audace! Il a fusionné son âme d'origine et son âme avec la planète de culture, comme le coucou qui s'empare du nid de la pie. D'une certaine manière, il a réussi à atteindre l'immortalité! » Wang Lin avait depuis longtemps pressenti une anomalie sur cette planète. C'est pour cela qu'il avait permis au dragon noir de porter l'attaque; et à cet instant précis, il comprenait enfin tout!
 
 Le maître de Maître Zhong Xuan, le Maître Long Pan, devait être arrivé au crépuscule de sa vie lorsqu'il eut conçu cette idée prodigieuse. Il avait également réussi à la perfectionner pour la concrétiser!
 

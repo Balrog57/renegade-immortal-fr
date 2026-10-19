@@ -12,7 +12,7 @@ slug: le-silence-de-hai-zi
 
 Le corps véritable des cinq éléments de Wang Lin affichait une expression extrêmement grave. Il se tenait aux côtés de l'Exalté Empyréen Hai Zi, fixant le Wang Lin aux cheveux noirs. Autour de lui, l'essence du tonnerre, l'essence du commencement absolu et les trois essences éthérées s'illuminaient, comme si elles s'unissaient pour résister au Wang Lin aux cheveux noirs.
 
-« Le Massacre est descendu sur ce monde et a remplacé la lumière pour devenir destruction... Toute vie doit endurer une souffrance sans fin... » L'Exalté Empyréen Hai Zi recula de terreur lorsque le corps véritable des cinq éléments de Wang Lin fit un pas en avant. Il manifestait ses nombreuses essences pour affronter le Wang Lin aux cheveux noirs.
+« Le Massacre est descendu sur ce monde et a remplacé la lumière pour devenir destruction... Toute vie doit endurer d'innombrables éons... » L'Exalté Empyréen Hai Zi recula de terreur lorsque le corps véritable des cinq éléments de Wang Lin fit un pas en avant. Il manifestait ses nombreuses essences pour affronter le Wang Lin aux cheveux noirs.
 
 « Tu n'es que mon corps véritable des cinq éléments et mes essences, et tu prétends m'arrêter? » Le Wang Lin aux cheveux noirs regarda le corps véritable des cinq éléments.
 
@@ -34,7 +34,7 @@ Le visage de l'Exalté Empyréen Hai Zi était livide; elle ouvrit la bouche pou
 
 « Ce qui signifie que la secte de l'Enseignant Impérial provient de l'extérieur du Continent Astral Immortel... » dit calmement le Wang Lin aux cheveux noirs, chaque mot rendant le visage de l'Exalté Empyréen Hai Zi encore plus pâle. Elle mordit sa lèvre inférieure et resta silencieuse un long moment avant de lever les yeux vers Wang Lin.
 
-« Mon corps originel est encore un peu trop vulnérable... Il aurait dû s'en douter, mais il a choisi de ne pas y croire. » Le Wang Lin aux cheveux noirs secoua la tête. Son regard était impitoyable lorsqu'il leva sa paume et la frappa violemment, l'Exalté Empyréen Hai Zi.
+« Mon corps originel a encore le cœur un peu trop tendre... Il aurait dû s'en douter, mais il a choisi de ne pas y croire. » Le Wang Lin aux cheveux noirs secoua la tête. Son regard était impitoyable lorsqu'il leva sa paume et la frappa violemment, l'Exalté Empyréen Hai Zi.
 
 Il allait la tuer!
 
@@ -42,9 +42,9 @@ Cette paume suffisait à détruire le corps ainsi que l'âme originelle de l'Exa
 
 L'Exalté Empyréen Hai Zi ne chercha pas à esquiver. Elle ferma les yeux, des larmes coulant au coin de ses paupières. Elle n'essaya même pas de se justifier.
 
-La paume se referma sur l'Exalté Empyréen Hai Zi. À moins de trois pouces d'elle, elle semblait sur le point de s'effondrer. À cet instant précis, une force tranchante capable de briser le monde surgit de nulle part derrière l'Exalté Empyréen Hai Zi. Cette force prit la forme d'une silhouette voûtée, semblable à un vieil homme. De sa main gauche, il tira Hai Zi en arrière et, simultanément, leva la main droite pour contrer la paume de Wang Lin.
+La paume fondit sur l'Exalté Empyréen Hai Zi. À moins de trois pouces d'elle, elle semblait sur le point de s'effondrer. À cet instant précis, une force tranchante capable de briser le monde surgit de nulle part derrière l'Exalté Empyréen Hai Zi. Cette force prit la forme d'une silhouette voûtée, semblable à un vieil homme. De sa main gauche, il tira Hai Zi en arrière et, simultanément, leva la main droite pour contrer la paume de Wang Lin.
 
-Un grondement de tonnerre retentit et le corps du Wang Lin aux cheveux noirs trembla sous l'impact qui le projeta en arrière. Des craquements résonnèrent dans sa poitrine comme s'il allait exploser. Après avoir reculé de sept pas, son corps se dissipa en une brume noire avant de se reformer instantanément.
+Un grondement de tonnerre retentit et le corps du Wang Lin aux cheveux noirs trembla sous l'impact qui le projeta en arrière. Des craquements résonnèrent dans sa poitrine comme s'il allait exploser. Au septième pas, sa robe noire se dissipa en brume avant de se reformer aussitôt.
 
 Le Wang Lin aux cheveux noirs s'arrêta au neuvième pas. Son expression demeurait neutre et il ne parut nullement surpris alors qu'il fixait froidement le vieil homme qui avait sauvé Hai Zi.
 
@@ -52,7 +52,7 @@ Le Wang Lin aux cheveux noirs s'arrêta au neuvième pas. Son expression demeura
 
 Le vieil homme était le Grand Empyréen Jiu Di. Son visage était grave. Après avoir sauvé Hai Zi, il posa également son regard sur Wang Lin.
 
-Le Wang Lin aux cheveux noirs déclara calmement: « Dans ce piège, au-delà du pouvoir de l'Enseignant Impérial, il y a aussi vous. »
+Le Wang Lin aux cheveux noirs déclara calmement: « Dans ce piège, outre la lignée de l'Enseignant Impérial, il y a aussi vous. »
 
 « Destruction et massacre... Je me demandais ce que tu avais utilisé pour franchir le 17e niveau. Avec ton niveau de culture, une simple armure d'âme ne suffisait pas pour atteindre un tel niveau...
 
@@ -76,13 +76,13 @@ Le gaz noir fut balayé par la lumière avant de se reformer en Wang Lin aux che
 
 « Tu ne peux vaincre ce vieil homme! » Le Grand Empyréen Jiu Di regarda Wang Lin. Son visage vieilli montrait des signes de rajeunissement alors que ses yeux étincelaient.
 
-Le Wang Lin aux cheveux noirs dit lentement: « On ne peut échapper ni à la destruction, ni au massacre. »
+Le Wang Lin aux cheveux noirs dit lentement: « Tu ne peux dissimuler la destruction du massacre. »
 
 « L'Ascendant Empyréen aux cheveux blancs... L'Ascendant Empyréen aux cheveux noirs... Wang Lin, je t'ai sous-estimé! Cette fois, Hai Zi est innocente. Je te donne ceci, et l'affaire d'aujourd'hui est close! » Jiu Di tendit la main vers le vide et une lueur dorée jaillit. Un fragment doré de la taille d'une paume apparut dans sa main.
 
 « J'ai observé ton corps et j'y ai trouvé des traces de cette épée. Ce fragment peut aider ton essence métallique à atteindre la perfection! » Jiu Di agita la main droite et le fragment vola vers Wang Lin, flottant immobile devant lui.
 
-Après lui avoir remis le fragment, Jiu Di lança un regard profond à Wang Lin. Puis il se détourna et partit avec l'Exalté Empyréen Hai Zi, qui restait plongée dans une profonde réflexion.
+Après lui avoir remis le fragment, Jiu Di lança un regard profond à Wang Lin. Puis il se détourna et partit avec l'Exalté Empyréen Hai Zi, qui était restée silencieuse tout du long.
 
 Une fois leur présence disparue, le sceau qui entourait la rue s'évanouit, mais les ruines demeurèrent éternellement.
 
@@ -102,7 +102,7 @@ Wang Lin n'utilisa aucun moyen pour réprimer de force le massacre qui menaçait
 
 Le noir et le blanc restèrent éternellement ancrés en Wang Lin.
 
-Wang Lin soupira. Il n'avait plus l'intention de poursuivre Hai Zi. D'un revers de main, il saisit le fragment d'épée, ramassa l'armure spirituelle du Taureau Céleste et s'éloigna vers l'horizon.
+Wang Lin soupira. Il n'avait plus l'intention de poursuivre Hai Zi. D'un revers de main, il saisit le fragment d'épée, ramassa l'armure d'âme du Taureau Céleste et s'éloigna vers l'horizon.
 
 « Il est temps de partir... Tout ce qui concerne ce clan céleste, que ce soit ses secrets ou ses origines, je ne veux plus y penser. »
 

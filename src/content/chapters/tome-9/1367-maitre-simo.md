@@ -28,7 +28,7 @@ Wang Lin apparut dans une vallée, au plus profond du massif montagneux. Dès so
 
 Sous cette lueur, Wang Lin s'assit, forma des sceaux de ses mains et commença à raffiner frénétiquement!
 
-Il pensait auparavant pouvoir contenir les six types de tonnerre au sein de son âme originelle, mais il découvrit avec stupeur que celle-ci ne pouvait les dévorer en si peu de temps. Plus encore, le tonnerre s'échappait de son propre corps!
+Il pensait auparavant que les six types de tonnerre ne se manifesteraient pas dans son corps et que son âme originelle suffirait à les envelopper, mais il découvrit avec stupeur qu'une fois apparus, son âme originelle ne pouvait les dévorer en si peu de temps. Plus encore, le tonnerre s'échappait de son propre corps!
 
 Bien que ce tonnerre fût faible, il suffisait à attirer l'attention de certains cultivateurs de la planète!
 

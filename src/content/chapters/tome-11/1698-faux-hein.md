@@ -16,7 +16,7 @@ Une lueur de froideur passa dans les yeux de Fan Shanmeng et son regard s'illumi
 
 Au moment où elle entra, une lumière aux sept couleurs enveloppa tout le Navire Démon des Âmes. Le Daoïste aux Sept Couleurs atterrit sur le pont.
 
-Dès que le Daoïste aux Sept Couleurs eut touché terre, Wang Lin, qui se trouvait à la troisième couche, ouvrit soudainement les yeux et leva la tête. Il restait calme, une lueur dorée brillant dans son regard.
+Dès que le Daoïste aux Sept Couleurs eut touché terre, Wang Lin, qui se trouvait à la troisième couche, ouvrit soudainement les yeux et leva la tête. Il restait calme, un éclat vif traversant son regard.
 
 « Elle l'a bel et bien fait », ricana Wang Lin. Une fois le plan de Fan Shanmeng déjoué par lui et le danger caché neutralisé, elle avait naturellement choisi d'emprunter la puissance du Daoïste aux Sept Couleurs pour le supprimer.
 
@@ -58,7 +58,7 @@ L'expression de Fan Shanmeng était extrêmement sombre. Elle fixa Wang Lin un l
 
 Elle possédait en effet un dernier recours, et c'est précisément pour cela qu'elle s'était montrée si calme lorsqu'elle avait emprunté le pouvoir du Daoïste aux Sept Couleurs pour réprimer Wang Lin.
 
-Cependant, elle n'avait pas imaginé que Wang Lin puisse prendre le contrôle de deux couches du vaisseau et égaler sa propre maîtrise. Désormais, si elle voulait utiliser son atout, elle avait impérativement besoin de la coopération de Wang Lin.
+Cependant, elle n'avait pas imaginé que Wang Lin puisse prendre le contrôle de deux couches du vaisseau et lui arracher la moitié de son emprise. Désormais, si elle voulait utiliser son atout, elle avait impérativement besoin de la coopération de Wang Lin.
 
 Fan Shanmeng serra les dents et dit: « Quel est votre plan? Même si je le retiens, je ne pourrai pas vous gagner assez de temps pour briser les couches restantes! Si vous abandonnez le contrôle maintenant, nous pourrons encore partir. Si vous persistez, nous mourrons tous les deux! »
 
@@ -96,7 +96,7 @@ Wang Lin regarda également Fan Shanmeng et, après un long silence, il éclata 
 
 « Tu essaies encore de me mentir à cet instant précis... »
 
-« Je t'ai menti? » Les yeux de Fan Shanmeng trahirent une profonde douleur. Elle leva les yeux vers la troisième couche au-dessus d'eux où une fine fissure venait d'apparaître.
+« Je t'ai menti? » Les yeux de Fan Shanmeng trahirent une profonde douleur. Elle leva les yeux vers la troisième couche au-dessus d'eux où un réseau de fines fissures venait d'apparaître.
 
 Wang Lin soupira. Il ne semblait nullement inquiet des fissures qui se propageaient au-dessus de lui. Il la regarda et dit lentement: « Tu n'es pas Fan Shanmeng... »
 

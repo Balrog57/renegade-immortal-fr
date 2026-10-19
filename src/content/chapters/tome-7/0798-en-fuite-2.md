@@ -14,7 +14,7 @@ Même avec une personne de plus sur le fragment, sa vitesse n'en fut pas affect�
 
 « Xi Zifeng! » La femme sur le fragment se redressa brusquement.
 
-Les trois personnes au loin la remarquèrent immédiatement, leurs yeux s'illuminant de joie. Ils se précipitèrent vers le fragment sans l'ombre d'une hésitation.
+Les trois personnes au loin la remarquèrent immédiatement, leurs yeux s'illuminant de joie. Ils se précipitèrent vers le fragment en évitant les failles, sans l'ombre d'une hésitation.
 
 L'expression de Wang Lin demeura neutre. Il ne ralentit aucunement et poursuivit sa course à la même vitesse. Les trois individus semblaient incapables de le rattraper.
 
@@ -40,11 +40,11 @@ Fronçant les sourcils, Wang Lin sentit que la situation devenait embarrassante.
 
 Xi Zifeng fut surprise, mais avant qu'elle ne puisse répondre, Zhan Yun s'empressa de dire: « 10 000 jades célestes pour vous avoir sauvé la vie, et 10 000 autres par heure pour votre présence ici! »
 
-Xi Zifeng acquiesça: « C'est bien naturel! » Elle et ses deux compagnons sortirent immédiatement des jades célestes de leurs sacs et les tendirent respectueusement à Wang Lin.
+Xi Zifeng acquiesça: « C'est bien naturel! » Elle et ses deux compagnons sortirent immédiatement des jades célestes de leurs sacs et les rassemblèrent dans un même sac de rangement et les tendirent respectueusement à Wang Lin.
 
 Wang Lin les accepta, puis ferma les yeux en les ignorant.
 
-Aux côtés de Zhan Yun, les quatre s'assirent ensemble pour contempler le vide, habités par le sentiment de la survie.
+Aux côtés de Zhan Yun, les quatre s'assirent ensemble pour contempler le vide, habités par le sentiment d'avoir survécu, et se mirent à converser à voix basse.
 
 Le fragment était extrêmement rapide. À mesure qu'ils s'enfonçaient dans le Royaume Céleste, le froncement de sourcils de Wang Lin persistait. En chemin, il croisa de nombreux cultivateurs, certains dispersés, d'autres en groupes.
 
@@ -62,7 +62,7 @@ Alors que le fragment fendait le vide, l'affluence s'accentua. Finalement, plus 
 
 Les cultivateurs portés par ces lueurs ne pouvaient rattraper le fragment et ne connaissaient personne à bord. Sans l'aide d'un occupant, il leur était impossible de combler l'écart par leurs propres moyens.
 
-Toutefois, en suivant le fragment, ils étaient bien plus en sécurité. Les failles spatiales semblaient se refermer après le passage du fragment, ce qui était préférable à leur sort antérieur.
+Toutefois, en suivant le fragment, ils étaient bien plus en sécurité. Les failles spatiales semblaient se refermer après le passage du fragment, ce qui rendait le trajet bien plus praticable que le reste du vide.
 
 De plus en plus de cultivateurs commencèrent à s'agglutiner, formant une longue traînée derrière l'objet. C'était comme une immense queue suivant de près le fragment.
 
@@ -70,13 +70,13 @@ De plus en plus de cultivateurs commencèrent à s'agglutiner, formant une longu
 
 Cependant, une fois à bord, quel que soit leur niveau de culture, ils hésitaient toujours avant de remettre les jades célestes en échange d'une place.
 
-Une raison majeure de cette hésitation était la renommée que Wang Lin avait acquise lors de la bataille devant la porte céleste. Même des cultivateurs au stade du Yang Corporel l'appelaient respectueusement « Senior » après l'avoir aperçu.
+Une raison majeure de cela était la renommée que Wang Lin avait acquise lors de la bataille devant la porte céleste. Même des cultivateurs au stade du Yang Corporel l'appelaient respectueusement « Senior » après l'avoir aperçu.
 
 Après avoir réceptionné les sacs de rangement remplis de jades, Wang Lin soupira et ignora la foule. Il sentait que Shengong Hu n'était pas loin.
 
-Soudain, une vaste étendue de terre apparut devant eux. Cette masse mesurait environ 10 000 pieds de large, mais ses bords s'effondraient sans cesse. Une quantité massive de terre se détachait à chaque collision avec une faille spatiale.
+Soudain, une vaste étendue rocheuse apparut devant eux. Cette masse mesurait environ 10 000 pieds de large, mais ses bords s'effondraient sans cesse. Une quantité massive de roche se détachait à chaque collision avec une faille spatiale.
 
-Trois personnes se tenaient derrière cette étendue de terre, toutes au stade du Yang Corporel. Derrière elles, près de cent cultivateurs regardaient avec avidité le fragment de 1 000 pieds sur lequel Wang Lin voyageait.
+Trois personnes se tenaient derrière cette étendue rocheuse, toutes au stade du Yang Corporel. Derrière elles, près de cent cultivateurs regardaient avec avidité le fragment de 1 000 pieds sur lequel Wang Lin voyageait.
 
 « Laissez-nous ce fragment céleste! » L'homme situé à l'avant des trois portait une robe dorée, et sa voix sinistre résonna dans le vide.
 
@@ -100,7 +100,7 @@ Wang Lin ricana et frappa son sac de rangement pour en faire sortir le drapeau d
 
 Un sifflement aigu déchira soudain l'air.
 
-Les yeux de Wang Lin se rétrécirent. Avant que la lame de tonnerre ne l'atteigne, il sentit la richesse de l'énergie originelle qu'elle contenait. Au moment de l'impact, le corps de Wang Lin brilla et son âme originelle jaillit pour dévorer la lame de tonnerre.
+Les yeux de Wang Lin se rétrécirent. Avant que la lame de tonnerre ne l'atteigne, il sentit le souffle tranchant qu'elle contenait. Au moment de l'impact, le corps de Wang Lin brilla et son âme originelle jaillit pour dévorer la lame de tonnerre.
 
 Une fois son âme revenue dans son corps, le visage de Wang Lin devint légèrement rouge. Il se redressa et fixa froidement le vieil homme, avant de charger d'un pas décidé.
 

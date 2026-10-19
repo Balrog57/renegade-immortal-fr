@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 475 - Bai Wei
 slug: bai-wei
 ---
-« Aîné, la boutique du clan Shang est la plus enfoncée, tout au fond. Ce n'est pas un endroit où l'on peut entrer comme bon nous semble, il y aura donc des patrouilles... » Avant que Li Dannan ne puisse achever sa phrase, des ondulations bleues apparurent soudainement dans le vide et se propagèrent vers Wang Lin.
+« Senior, la boutique du clan Shang est la plus enfoncée, tout au fond. Ce n'est pas un endroit où l'on peut entrer comme bon nous semble, il y aura donc des patrouilles... » Avant que Li Dannan ne puisse achever sa phrase, des ondulations bleues apparurent soudainement dans le vide et se propagèrent vers Wang Lin.
 
 « Intrus, arrête-toi! » Une voix froide et arrogante jaillit du néant.
 
@@ -66,7 +66,7 @@ Wang Lin tourna la tête vers lui et, gardant son calme, répondit simplement: �
 
 « Wang Lin... Je suis Bai Wei! » Le jeune homme fit un geste et un éventail blanc apparut dans sa main, lui conférant l'allure d'un prince élégant.
 
-Non loin de là, le jeune homme dont la fondation céleste avait été anéantie affichait une pâleur extrême. Il s'approcha de la boutique en fixant Wang Lin avec haine et lança d'un ton malveillant: « Mon seigneur, tuez-le! »
+Non loin de là, le jeune homme dont la fondation céleste avait été anéantie affichait une pâleur extrême. Il s'approcha de Bai Wei en fixant Wang Lin avec haine et lança d'un ton malveillant: « Mon seigneur, tuez-le! »
 
 Bai Wei fronça les sourcils. Il se retourna et ordonna: « Tu n'as pas le droit de prendre la parole ici. Pars! »
 

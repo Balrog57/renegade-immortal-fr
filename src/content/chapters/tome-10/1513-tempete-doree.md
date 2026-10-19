@@ -8,7 +8,7 @@ slug: tempete-doree
 ---
 Cependant, tout cela était trop tard!
 
-Le Shui Daozi avait invoqué l'ancien être céleste et avait reçu la cloche dorée grâce à un sort secret transmis par le Seigneur du Royaume Scellé, et avec la carapace de tortue qu'il portait sur lui. L'aura de l'Ancien Royaume Céleste n'était perceptible que par lui lorsqu'il invoquait cet être antique.
+Le Shui Daozi avait invoqué l'ancien être céleste et avait reçu la cloche dorée grâce à un sort secret transmis par le Seigneur du Royaume Scellé, et avec la carapace de tortue qu'il portait sur lui. L'aura du Royaume Céleste Antique n'était perceptible que par lui lorsqu'il invoquait cet être antique.
 
 Par conséquent, tout le monde fut stupéfait lorsqu'il sortit la cloche pour contrer le coup de poing de Wang Lin!
 
@@ -24,7 +24,7 @@ Tandis qu'il rugissait, la cloche dorée, qui n'avait pas été endommagée, tre
 
 D'innombrables fissures apparurent sur la cloche dorée et, alors que l'aura destructrice se répandait, elle explosa!
 
-La cloche issue de l'Ancien Royaume Céleste, capable de gagner cent ans de répit pour le Royaume Intérieur, s'effondra soudainement!
+La cloche issue du Royaume Céleste Antique, capable de gagner cent ans de répit pour le Royaume Intérieur, s'effondra soudainement!
 
 Le Shui Daozi était devenu fou. Son rire dément et tordu résonna. Une tempête dorée, née de l'effondrement de la cloche, se forma et fonça vers Wang Lin!
 

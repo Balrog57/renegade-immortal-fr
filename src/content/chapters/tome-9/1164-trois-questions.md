@@ -10,7 +10,7 @@ Une bête spirituelle gigantesque, longue d'environ 3 000 pieds, se déplaçait 
 
 Plus de trente personnes étaient assises sur le dos du tigre. Elles étaient toutes calmes, pratiquant leur culture les yeux fermés. Parmi elles se trouvaient des hommes et des femmes, dégageant chacune des fluctuations de leur propre culture.
 
-Un homme se tenait aux côtés du tigre à la corne. C'était un homme d'âge moyen, vêtu d'une robe violette qui flottait sans qu'aucun vent ne souffle. Les mains derrière le dos, il fixait le brouillard stellaire qui s'étendait devant lui. Nul ne savait ce qu'il pensait.
+Un homme se tenait aux côtés du tigre à la corne. C'était un homme d'âge moyen, vêtu d'une robe pourpre qui flottait sans qu'aucun vent ne souffle. Les mains derrière le dos, il fixait le brouillard stellaire qui s'étendait devant lui. Nul ne savait ce qu'il pensait.
 
 Un vieil homme se tenait respectueusement derrière lui, accompagnant l'homme d'âge moyen alors que tous deux scrutaient l'horizon.
 

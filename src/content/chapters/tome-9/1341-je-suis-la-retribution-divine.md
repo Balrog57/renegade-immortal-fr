@@ -10,11 +10,11 @@ Des grondements tonitruants résonnèrent, et les milliers de cultivateurs repou
 
 Les nuages de la rétribution divine disparurent progressivement. Zhang Jingyun, n'en ayant pas assez, retourna dans les nuages.
 
-« Désolé, désolé, cela faisait longtemps que je n'avais pas incarné le Dao Céleste et je n'ai pas su me retenir... C'est dommage qu'il ait cultivé jusqu'au sommet du stade de la Formation de l'Âme, mais il est tout simplement trop médiocre pour avoir donné naissance au moindre Tonnerre Spirituel. » Zhang Jingyun secoua la tête, savourant encore la sensation.
+« Désolé, désolé, cela faisait longtemps que je n'avais pas incarné le Dao Céleste et je n'ai pas su me retenir et j'ai anéanti ces fourmis du royaume inférieur... C'est dommage qu'il ait cultivé jusqu'au sommet du stade de la Formation de l'Âme, mais il est tout simplement trop médiocre pour avoir donné naissance au moindre Tonnerre Spirituel. » Zhang Jingyun secoua la tête, savourant encore la sensation.
 
-« Peu importe. Il y a de nombreuses opportunités dans les 7 Millions de Mondes, et la naissance du Tonnerre Spirituel n'est pas aisée. Il y en aura d'autres plus tard; traitons d'abord ces nouveaux venus. » Le cultivateur nommé Zhou agita indifféremment sa main droite pour que les nuages de rétribution divine ne soient plus visibles. Puis, il lança un regard froid à Wang Lin et son groupe.
+« Peu importe. Il y a de nombreuses opportunités dans les 7 Millions de Mondes, et la naissance du Tonnerre Spirituel n'est pas aisée. Il y en aura d'autres plus tard; traitons d'abord ces nouveaux venus. » Le cultivateur nommé Zhou agita froidement sa main droite vers le bas, faisant déferler les nuages de rétribution divine qui masquèrent tout ce qui se trouvait en dessous. Puis, il lança un regard froid à Wang Lin et son groupe.
 
-Il n'était pas le seul. Outre le cultivateur à l'aura Yin Illusoire qui était assis sur le côté, les yeux clos, les quatre autres personnes, y compris Zhang Jingyun, encerclèrent le groupe de Wang Lin.
+Il n'était pas le seul. Outre le cultivateur à l'aura Yin Illusoire qui se tenait à l'écart, les yeux clos, les quatre personnes, dont Zhang Jingyun, encerclèrent Wang Lin et près de dix autres cultivateurs.
 
 « Vous tous... » L'expression de certains nouveaux venus changea, et certains d'entre eux rugirent immédiatement de colère.
 
@@ -24,7 +24,7 @@ Il n'était pas le seul. Outre le cultivateur à l'aura Yin Illusoire qui était
 
 « Allez-y! » Le cultivateur nommé Zhou ricana et s'avança. D'un mouvement de la main, il forma deux fouets de tonnerre. Il n'attaqua pas Wang Lin, mais deux autres personnes.
 
-Les trois autres attaquèrent simultanément. Ils étaient tous des cultivateurs du stade Ascendant au milieu de leur progression et avaient l'habitude de collaborer. Ils entamèrent immédiatement un massacre!
+Les trois autres attaquèrent simultanément. Ils étaient tous des cultivateurs du stade Ascendant intermédiaire ou supérieur et avaient l'habitude de collaborer. Ils entamèrent immédiatement un massacre!
 
 Des cris déchirants résonnèrent. Le cultivateur nommé Zhou était extrêmement cruel; il avait choisi deux personnes qui venaient tout juste d'atteindre le stade de la Transformation de l'Âme. Ces deux individus furent incapables de résister et moururent sur le coup!
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin resta calme tandis qu'il tendait la main droite. Le vis
 
 « Tu... Tu... » Sa voix tremblait alors qu'il contemplait Wang Lin avec terreur. Avant qu'il ne puisse prononcer un mot, un impact qui lui fit perdre la raison s'engouffra dans son corps. Son corps fut secoué et il poussa un cri déchirant qui frappa les oreilles des cultivateurs environnants!
 
-« Se prétendre le Dao Céleste et infliger la rétribution divine aux autres... Mais en cet instant, je suis ton Dao Céleste, je suis ta Rétribution Divine! » La voix de Wang Lin était glaciale et empreinte d'un sentiment inexplicable alors qu'il pressait sa poigne impitoyablement!
+« Se prétendre le Dao Céleste et infliger la rétribution divine aux autres... Mais en cet instant, je suis votre Dao Céleste, je suis votre Rétribution Divine! » La voix de Wang Lin était glaciale et empreinte d'un sentiment inexplicable alors qu'il pressait sa poigne impitoyablement!
 
 Dans un fracas, la chair de Zhang Jingyun s'effondra en un amas sanglant. Tout comme le vieil homme, son corps fut broyé et son âme fut détruite!
 
@@ -110,7 +110,7 @@ Un vieil homme au stade avancé de l'Âme Naissante fut stupéfait et demanda av
 
 Une telle chose devrait être impossible dans les 7 Millions de Mondes! Cela ne devrait jamais arriver! Si le Clan du Tonnerre Dispersé l'apprenait, cela provoquerait une onde de choc monumentale au sein du clan. Même l'ancêtre quitterait sa culture en retraite pour vérifier la situation!
 
-Au même moment, sur la planète où se trouvait Wang Lin, Xu Liguo rassemblait joyeusement des ressources avec des milliers de personnes. Son trône mesurait désormais 5 000 pieds de large et était entouré de magnifiques cultivatrices!
+Au même moment, hors des 7 Millions de Mondes, dans le territoire du Clan du Tonnerre Dispersé, sur la planète de cultivation que Wang Lin venait de quitter, Xu Liguo pillait joyeusement les ressources avec des milliers de personnes. Son trône, qui mesurait naguère près de 1 000 pieds de large, en faisait désormais 5 000 et était entouré de magnifiques cultivatrices!
 
 Parmi elles, une femme était d'une beauté stupéfiante. Elle restait assise là, glaciale, fixant Xu Liguo avec une haine profonde dans les yeux!
 

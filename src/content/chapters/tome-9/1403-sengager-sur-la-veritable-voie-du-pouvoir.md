@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1403 - Stepping Into the Proper Dao of Power
 slug: sengager-sur-la-véritable-voie-du-pouvoir
 ---
-Un fracas tonitruant retentit et le lac s'agita violemment. Une couche d'eau s'effondra soudainement, libérant d'innombrables gouttelettes. Puis une autre couche s'effondra à son tour, et ce cycle se répéta sans relâche. En un instant, les strates de l'eau du lac se dissipèrent en vapeur et s'élevèrent dans les airs.
+Un fracas tonitruant retentit et le lac s'agita violemment, des ondulations s'étendant à sa surface. Une couche d'eau s'effondra soudainement, libérant d'innombrables gouttelettes. Puis une autre couche s'effondra à son tour, et ce cycle se répéta sans relâche. En un instant, les strates de l'eau du lac se dissipèrent en vapeur et s'élevèrent dans les airs.
 
 Le niveau du lac chuta immédiatement de dix pieds.
 
 Cette scène paraissait très ordinaire et ne semblait pas spéciale pour autant. S'il s'agissait d'un sort, même transformer le lac entier en gaz serait un exercice fort simple.
 
-Oubliez ce vieil homme, même Wang Lin possédait des dizaines de méthodes pour asséner un coup paraissant bien plus puissant que celui-ci.
+Sans parler de ce vieil homme, même Wang Lin possédait des dizaines de méthodes pour asséner un coup paraissant bien plus puissant que celui-ci.
 
 « Très ordinaire, n'est-ce pas? » Le vieil homme regarda Wang Lin avec un sourire profond.
 
@@ -46,7 +46,7 @@ C'est pour cette raison que la perception de la force chez Wang Lin différait r
 
 « Quand j'étais enfant, en lisant des livres, j'ai entendu dire qu'une goutte d'eau pouvait percer la roche. L'eau peut sembler douce, mais en vérité, elle est extrêmement tenace. Lorsqu'elle tombe sur la pierre, elle doit supporter la force de réaction. Les innombrables gouttelettes créent une force de rebond qui finit par permettre à l'eau de pénétrer la roche! »
 
-« Oubliez les roches; si un Dieu Ancien se substituait à la roche, même lui finirait par être percé par ces gouttelettes après un long moment! » L'illumination brilla dans les yeux de Wang Lin alors qu'il tournait son regard vers le vieil homme.
+« Sans parler des roches; si un Dieu Ancien restait couché là, même lui finirait par être percé par ces gouttelettes après un long moment! » L'illumination brilla dans les yeux de Wang Lin alors qu'il tournait son regard vers le vieil homme.
 
 L'expression du vieil homme devint sérieuse, trahissant une pointe de choc. Il ne s'attendait pas à ce que Wang Lin saisisse l'essence de ce sort par lui-même!
 
@@ -56,15 +56,15 @@ Cependant, avant qu'il ne puisse parler, les yeux de Wang Lin s'illuminèrent et
 
 Le vieil homme fut stupéfait.
 
-« L'eau possède la ténacité et la souplesse, et une fois le lac formé, elle contient également une force de réaction... Plus la puissance contenue dans ma paume est grande, plus la force de réaction sera puissante! La force de réaction qui surgit à l'instant même où je lance mon coup n'est pas plus faible que l'impact lui-même! »
+« L'eau possède la ténacité, la souplesse et la force, et une fois le lac formé, elle contient également une force de réaction... Plus la puissance contenue dans ma paume est grande, plus la force de réaction sera puissante! La force de réaction qui surgit à l'instant même où je lance mon coup n'est pas plus faible que l'impact lui-même! »
 
-« Par conséquent, c'est comme si deux types de forces se croisaient soudainement pour créer une collision dévastatrice. Lorsque la paume du Senior a frappé l'eau, les gouttelettes ont subi d'innombrables chocs, provoquant la désintégration d'une partie du lac! »
+« Par conséquent, c'est comme si deux types de forces se croisaient soudainement pour créer une collision dévastatrice. Lorsque la paume du Senior a frappé l'eau, les gouttelettes ont subi d'innombrables chocs, provoquant la désintégration complète de cette couche du lac! »
 
 « Cette désintégration était un changement d'état permettant de transformer directement l'eau en vapeur! Bien que cela paraisse simple, cela contenait une force capable de secouer les cieux! »
 
 « Le pouvoir de modifier l'état des êtres vivants! » Tandis que Wang Lin parlait, son regard devint plus vif et son esprit s'éclaircit. Les idées affluaient en lui tandis qu'il rejouait mentalement le geste du vieil homme des centaines, voire des milliers de fois.
 
-« C'est donc cela. La paume du Senior contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Bien qu'il y aurait une force de réaction, au moment où cette force se transmettrait, la planète cultivée serait déjà incapable de la supporter et s'effondrerait. La force qui brise une planète cultivée, outre la sienne propre, emprunte aussi cette force de réaction! »
+« C'est donc cela. La paume du Senior contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Certes, il existe une force de réaction, au moment où cette force se transmettrait, la planète cultivée serait déjà incapable de la supporter et s'effondrerait. La force qui brise une planète cultivée, outre la sienne propre, emprunte aussi cette force de réaction! »
 
 « Cependant, l'eau est différente. On ne peut sous-estimer la ténacité de l'eau. Une fois accumulée en quantité suffisante, la puissance qu'elle peut supporter est phénoménale. Si le même coup frappait la mer, la force de réaction suffirait à faire imploser une personne! »
 

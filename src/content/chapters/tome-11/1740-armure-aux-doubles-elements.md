@@ -92,7 +92,7 @@ Simultanément, la tempête de sable derrière le vieil homme avança pour l'env
 
 L'armure était d'un jaune terreux, parsemée de motifs floraux verts. De loin, ces motifs dessinaient la silhouette d'un arbre géant.
 
-À l'apparition de cette armure, la culture du vieil homme explosa, passant du stade intermédiaire au sommet du stade avancé du Vide Arcanique. Il n'était plus qu'à un pas du sommet du Vide Arcanique!
+À l'apparition de cette armure, la culture du vieil homme explosa, passant du stade intermédiaire au sommet du stade avancé du Vide Arcanique. Il n'était plus qu'à un pas de la Grande Perfection du Vide Arcanique!
 
 C'était l'armure de la Secte Gui Yi!
 
@@ -128,7 +128,7 @@ Le corps de Wang Lin fut percuté par les forces des éléments bois et terre. L
 
 Dès que les deux essences atteignirent leur cible, Wang Lin s'en servit pour s'élancer tel une flèche. Il perça la tempête de sable et jaillit au loin!
 
-Sa vitesse était prodigieuse. En plus de son propre Dao Ancestral et de sa culture, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Ancestral actuel, il aurait péri!
+Sa vitesse était prodigieuse. En plus de son propre Dao Antique et de sa culture, il avait utilisé l'attaque de l'ancien à pleine puissance. Sans son Sort de l'Ancien Immortel, même avec son corps de Dao Antique actuel, il aurait péri!
 
 Cependant, grâce à la protection du Sort de l'Ancien Immortel, tant que la durée ne se prolongeait pas trop, son corps ne serait pas détruit!
 
@@ -150,7 +150,7 @@ Bien que l'homme fût âgé, ses cheveux étaient d'un noir profond! Il était a
 
 À l'instant où Wang Lin vit cet homme, son cœur manqua un battement!
 
-Si ce vieillard était plus jeune, il ressemblerait trait pour trait à Na Duo! Les yeux de l'homme contenaient également la Roue du Cœur des Neuf Cycles!
+Si ce vieillard était plus jeune, il ressemblerait trait pour trait à Na Duo! Les yeux de l'homme contenaient également la Roue du Cœur aux Neuf Cycles!
 
 « Dégage d'ici!! » Un rugissement terrifiant retentit depuis le deuxième étage. Empli de colère, il se propagea sur toute la planète. Le vieil homme fut secoué et ses yeux se remplirent d'effroi et de crainte.
 
@@ -158,7 +158,7 @@ Même l'expression nonchalante de Yun Yifeng disparut, remplacée par une révé
 
 Tous ceux qui étaient éveillés tremblèrent; ils craignaient manifestement le propriétaire de cette voix.
 
-Lorsque ce rugissement pénétra le corps de Wang Lin, son Corps d'Ancien Immortel montra des signes d'effondrement. Son esprit bourdonna et il cracha du sang tout en reculant frénétiquement. Il semblait sur le point d'être expulsé du deuxième étage par la seule puissance de ce cri!
+Lorsque ce rugissement pénétra le corps de Wang Lin, son Corps Antique Immortel montra des signes d'effondrement. Son esprit bourdonna et il cracha du sang tout en reculant frénétiquement. Il semblait sur le point d'être expulsé du deuxième étage par la seule puissance de ce cri!
 
 L'écart entre leurs niveaux de culture était trop immense!
 
@@ -194,7 +194,7 @@ C'était le vieil homme du deuxième étage. Il était sorti pour capturer l'ép
 
 « Salutations, Oncle Ma. » Le fier Yun Yifeng était lui aussi sous le choc. Ses yeux brillaient d'une révérence fiévreuse tandis qu'il saluait respectueusement.
 
-« Salutations, Senior Frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Ancestral, joignirent également les mains avec déférence.
+« Salutations, Senior Frère Ma. » Les trois autres personnes, immobilisées par l'explosion de l'Ombre du Dao Antique, joignirent également les mains avec déférence.
 
 Wang Lin, reculant dans la distance, observa la scène. Il comprit qu'il avait forcé tous les cultivateurs étrangers à se dévoiler. Cet homme nommé Ma ressemblerait exactement à Na Duo s'il était plus jeune. Il était évident qu'il s'agissait de l'individu aperçu au sein du Clan du Tonnerre Dispersé; il était le chef de ce groupe de cultivateurs étrangers!
 
@@ -244,4 +244,4 @@ Cette admission fit froncer les sourcils de l'homme nommé Ma, le plongeant dans
 
 Trois respirations passèrent en un instant. Finalement, le vieillard retira son pied et projeta l'Épée de Sang vers Wang Lin. Ce dernier ne la rattrapa pas, laissant la Bête des Limbes illusoire la dévorer.
 
-« Adieu! » Wang Lin joignit les mains et prit congé. D'un seul pas, il quitta la Planète des Cinq Éléments pour plonger dans le vide!
+« Adieu! » Wang Lin joignit les mains et prit congé. D'un seul pas, il quitta la Planète des Cinq Éléments pour se tenir dans le vide!

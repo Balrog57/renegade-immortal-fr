@@ -10,7 +10,7 @@ Après avoir réfléchi un instant, il jeta un coup d'œil vers la silhouette de
 
 Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que la moitié du corps de sang de l'Ancêtre Sanguin était déjà utilisée, il ne pouvait plus fuir.
 
-Sentant le danger imminent, Wang Lin serra les dents. Sachant qu'une fuite était impossible, il fit volte-face et cracha le sceau fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta le sceau, celui-ci se mit à trembler violemment.
+Sentant le danger imminent, Wang Lin serra les dents. Comprenant qu'il ne pourrait pas l'esquiver, il fit volte-face et cracha le sceau fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta le sceau, celui-ci se mit à trembler violemment.
 
 Pourtant, il ne s'effondra pas!
 
@@ -20,11 +20,11 @@ La crise ne prit pas fin là. La force traversa le sceau, et vague après vague,
 
 « Ce n'est pas si facile de me tuer! » Wang Lin maintint le sceau fragmentaire d'une main et, de l'autre, frappa son sac de contenance, faisant apparaître un écran.
 
-Dès son apparition, l'écran trembla et le Tableau des Montagnes et des Rivières déferla soudainement sur le monde, comme si l'univers entier s'était transformé en une peinture de paysages.
+Dès son apparition, l'écran trembla et le Tableau des Montagnes et des Rivières déferla soudainement sur le monde, comme si l'univers entier s'était transformé en une peinture de paysages en noir et blanc.
 
-Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors que Wang Lin se tenait au-dessus de celui-ci, il sentit la force qui l'attaquait se dissiper. Puis, l'énergie du tableau s'infiltra dans le sceau fragmentaire pour annuler la puissance interne.
+Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors que Wang Lin se tenait au cœur de ce paysage, il sentit la force qui l'attaquait se dissiper. Puis, l'énergie du tableau s'infiltra dans le sceau fragmentaire pour annuler la puissance interne.
 
-« Le Tableau des Montagnes et des Rivières! » Les yeux du jeune homme maléfique se plissèrent, mais un instant plus tard, il ricana: « Une simple copie sans valeur! » Il leva sa main droite et l'abattit impitoyablement. Un craquement sec retentit, puis les cieux et la terre furent immédiatement tordus. Le corps de Wang Lin fut expulsé du Tableau des Montagnes et des Rivières; son visage devint extrêmement pâle et il recula aussitôt après être réapparu.
+« Le Tableau des Montagnes et des Rivières! » Les yeux du jeune homme maléfique se plissèrent, mais un instant plus tard, il ricana: « Une simple copie sans valeur! » Il leva sa main droite et la déchira brutalement vers l'avant. Un craquement sec retentit, puis les cieux et la terre furent immédiatement tordus. Le corps de Wang Lin fut expulsé du Tableau des Montagnes et des Rivières; son visage devint extrêmement pâle et il recula aussitôt après être réapparu.
 
 « Autrefois, j'ai étudié le Tableau des Montagnes et des Rivières pendant mille ans. Même si tu possédais l'original, avec ta simple culture de Céleste Supérieur, je pourrais encore le briser! »
 
@@ -54,7 +54,7 @@ Les chaînes reliant les fragments périphériques aux autres s'étaient depuis 
 
 La vitesse finit par égaler celle d'un cultivateur en plein vol. En tournant, un vortex se forma, et ce vortex était d'une démesure absolue!
 
-Toutes les montagnes des quarante-neuf fragments s'effondrèrent. Ces vibrations violentes changèrent radicalement la nature même du Royaume Céleste du Tonnerre!
+Toutes les montagnes des quarante-neuf fragments s'effondrèrent. Ces violentes secousses déclenchèrent une série de bouleversements en chaîne dans tout le Royaume Céleste du Tonnerre!
 
 En particulier, le vortex engendré par la rotation des fragments créa un gouffre immense doté d'une force d'aspiration inimaginable.
 
@@ -70,8 +70,8 @@ Même le jeune homme maléfique était totalement stupéfait. Il n'avait pas ima
 
 « Utiliser les fragments du Royaume Céleste du Tonnerre pour créer une formation... À vue de nez, je crains que ce ne soit pas une simple formation... Cet individu veut-il raffiner le Royaume Céleste pour en faire un trésor magique?! » Le jeune homme maléfique prit une grande inspiration glacée. Même avec sa force mentale, il ne put s'empêcher de penser: « Quel fou! »
 
-Wang Lin était sidéré. Il n'entendait plus que le craquement de l'espace qui se déchirait et les grondements sourds résonnant à travers tout le Royaume Céleste du Tonnerre. C'était comme si d'innombrables fragments entraient en collision; il ralentit immédiatement sa course. Autour de lui, les fissures engloutissaient toute force destructrice, provoquant un choc mental et un frisson glaçant sur son cuir chevelu.
+Wang Lin était sidéré. Il n'entendait plus que le sifflement des fissures du vide et les grondements sourds résonnant à travers tout le Royaume Céleste du Tonnerre. C'était comme si d'innombrables fragments entraient en collision; il ralentit immédiatement sa course. Autour de lui, les fissures engloutissaient toute force destructrice, provoquant un choc mental et un frisson glaçant sur son cuir chevelu.
 
 Un rire arrogant résonna à travers le Royaume Céleste. Au même moment, le vieil homme mystérieux apparut et s'exclama avec exaltation: « J'ai pénétré dans ce Royaume Céleste des centaines de fois et j'ai planifié cela depuis des dizaines de milliers d'années! Dans ce monde, qui d'autre possède le courage de ce vieil homme, Yan Leizi? Raffiner le Royaume Céleste et comploter contre l'illustre Seigneur Céleste Qing Shui... Haha, qui d'autre oserait?! »
 
-« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Luotian?! Grâce à cela, je pourrai ouvrir la barrière spatiale et, dès lors, mon Système Stellaire Luotian n'aura plus besoin de la Pierre Luotian pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Luotian pour écraser l'Alliance de Culture! »
+« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Luotian?! Grâce à cela, je pourrai ouvrir la barrière spatiale et, dès lors, mon Système Stellaire Luotian n'aura plus besoin de la Pierre Luotian pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais un million de cultivateurs du Système Stellaire Luotian pour écraser l'Alliance de Culture! »

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1406 - Like the Soul of Sadness
 slug: comme-lame-de-la-tristesse
 ---
-C'était fondamentalement lui!
+C'était presque lui-même!
 
 Le jeune homme qui avait récité ce poème arrogant et tenait la coupe de vin ressemblait presque trait pour trait à Wang Lin!
 
@@ -54,7 +54,7 @@ Wang Lin enchaîna les coupes. La profondeur de ses réflexions rendait le vin i
 
 Le jeune homme souriait toujours, muet. Cependant, le serviteur à ses côtés n'était pas ravi et grommela intérieurement:
 
-« C'est le Vin de la Fleur Antique de la ville de Su. Cela coûte une fortune... »
+« C'est du vieux vin à l'osmanthus de la ville de Su. Cela coûte une fortune... »
 
 La nuit tomba peu à peu, apportant avec elle une brise fraîche. Les danseuses et les chanteuses s'étaient déjà retirées, ne laissant que Wang Lin, le jeune homme et son serviteur.
 
@@ -66,7 +66,7 @@ Le jeune homme sourit et secoua la tête, ignorant son subordonné.
 
 Le serviteur eut un sourire amer et murmura: « Jeune Maître, si nous continuons ainsi, le prix de la location augmentera... Et puis, il ne reste presque plus de vin... »
 
-« Bois avec moi. » La mélancolie dans les yeux de Wang Lin se dissipa; d'un geste de la main droite, il fit apparaître une cruche de vin. Ce n'était pas du sang de dragon, mais ce n'était pas non plus un vin ordinaire. Si un mortel en buvait, sa longévité et son intelligence s'en trouveraient accrues.
+« Bois le mien. » La mélancolie dans les yeux de Wang Lin se dissipa; d'un geste de la main droite, il fit apparaître une cruche de vin. Ce n'était pas du sang de dragon, mais ce n'était pas non plus un vin ordinaire. Si un mortel en buvait, sa longévité et son intelligence s'en trouveraient accrues.
 
 En voyant Wang Lin faire surgir une cruche de nulle part, les yeux du serviteur s'écarquillèrent de terreur, et il n'osa plus presser son maître.
 
@@ -118,15 +118,15 @@ Le Maître Simo laissa échapper un rictus méprisant en fixant la silhouette so
 
 La Grande Maîtresse Yun Luo fronça sévèrement les sourcils tandis que sa main droite, dissimulée dans sa manche, s'activait avec une rapidité accrue. Sa divination semblait atteindre un moment critique.
 
-À cet instant précis, le regard du vieux Oiseau Vermillon se contracta soudainement. Non seulement lui, mais la majorité des cultivateurs virent clairement deux larmes cristallines couler des yeux de la silhouette debout devant la première baguette d'encens.
+À cet instant précis, le regard du vieux Oiseau Vermillon se contracta soudainement. Non seulement lui, mais la majorité des cultivateurs virent clairement deux larmes cristallines couler des yeux de la silhouette vêtue de blanc, debout devant la première baguette d'encens.
 
 Le Maître du Dao Rêve Bleu observa les larmes et songea: « L'âme retourne vers sa patrie... Si l'âme est empreinte de tristesse, elle retourne au corps et des larmes de chagrin s'écoulent... Quelle puissante Épreuve Humaine... »
 
-À l'intérieur de l'Épreuve Humaine, Wang Lin se tenait au pied de la montagne de la Secte Heng Yue. Il contempla le village devant lui avant de détourner les yeux, une larme roulant sur sa joue.
+À l'intérieur de l'Épreuve Humaine, Wang Lin se tenait au pied du mont Heng Yue. Il contempla le village devant lui avant de détourner les yeux, une larme roulant sur sa joue.
 
 Pays de Huo Fen, Secte Luo He.
 
-Dans l'atelier d'alchimie de la montagne arrière, une jeune fille vêtue d'une robe fleurie fronça les sourcils en fixant le fourneau à pilules fumant. Elle regarda la femme d'âge mûr, au visage renfrogné, assise près du foyer, et murmura: « Maîtresse, Wan Er a encore échoué... »
+Dans l'atelier d'alchimie de la montagne arrière, une jeune fille à la fleur de l'âge fronça les sourcils en fixant le fourneau à pilules fumant. Elle regarda la femme d'âge mûr, au visage renfrogné, assise près du foyer, et murmura: « Maîtresse, Wan Er a encore échoué... »
 
 La femme lança un regard sévère à la jeune fille. « Très bien, très bien, tu as toujours cet air si pitoyable. Va à la montagne médicinale cueillir de l'Herbe de Lune d'Eau. Je vais voir si je peux raffiner ces pilules à nouveau. »
 

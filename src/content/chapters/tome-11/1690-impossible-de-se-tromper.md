@@ -38,11 +38,11 @@ Ce rugissement frappa le Souverain tel une épée tranchante. Cela le fit crache
 
 Cet incident passait encore pour un accident. Bien que le Souverain se sentît frustré, il en comprenait au moins la cause.
 
-Pourtant, cela ne s'arrêta pas là. Il y eut une troisième rencontre entre lui et Wang Lin. Il avait chargé son disciple d'apporter l'Arc Li Guang dans le Royaume Intérieur pour attirer le Vieux Fantôme Zhan. Les deux combattirent, mais l'arc finit entre les mains de Wang Lin. Ce qui le plongea dans l'amertume fut que Wang Lin réussit, par la suite, à mettre la main sur la flèche.
+Pourtant, cela ne s'arrêta pas là. Il y eut une troisième rencontre entre lui et Wang Lin. Sur le champ de bataille de la Mer des Nuages, il avait chargé son disciple d'apporter l'Arc Li Guang dans le Royaume Intérieur pour attirer le Vieux Fantôme Zhan. Les deux combattirent, mais l'arc finit entre les mains de Wang Lin. Ce qui le plongea dans l'amertume fut que Wang Lin réussit, par la suite, à mettre la main sur la flèche.
 
 Pourtant, même à ce moment-là, le Souverain ne se souciait guère de Wang Lin. Il pensait toujours que ces incidents n'étaient que des coïncidences. Même si Wang Lin possédait l'arc et la flèche, il ne pourrait pas en déployer toute la puissance en raison de sa lignée. Tant que le Souverain voudrait tuer Wang Lin, ce serait aussi simple que de retourner sa paume!
 
-Puis vint la quatrième rencontre, où lui et de nombreux autres cultivateurs du troisième stade du Royaume Extérieur utilisèrent « Pêcher la Lune dans le Puits » pour attirer Wang Lin dans un monde illusoire afin de l'éliminer!
+Puis vint la quatrième rencontre, où lui et de nombreux autres puissants cultivateurs du Royaume Extérieur utilisèrent « Pêcher la Lune dans le Puits » pour attirer Wang Lin dans un monde illusoire afin de l'éliminer!
 
 Cette fois, il avait tout calculé sans la moindre faille et avait forcé Wang Lin à épuiser toutes ses ressources. Même si Wang Lin finit par libérer l'une des âmes scellées par Ye Mo, cela ne pouvait changer son destin funeste. Le Souverain était certain d'avoir tout prévu et que rien d'inattendu ne pourrait plus se produire!
 
@@ -62,7 +62,7 @@ Sa culture de la Tribulation Arcane se déploya, faisant trembler l'espace lui-m
 
 Le Souverain n'était pas un adversaire que Wang Lin pouvait affronter de front. Tandis que la puissance du Souverain éclatait, Wang Lin ressemblait à une feuille solitaire bravant la fureur de l'océan. Il continua sa retraite.
 
-« Ce vieil homme a calculé qu'il n'avait la force que pour deux tirs! Il n'y aura pas d'autre accident. Il a déjà tiré deux fois, et je ne détecte aucune trace de lignée céleste dans son corps actuellement. Il ne pourra plus bander l'Arc Li Guang! » Les yeux du Souverain étaient injectés d'une intention meurtrière puissante. Son désir de tuer Wang Lin était monstrueux; il n'était pas prêt à s'arrêter avant d'avoir accompli son œuvre.
+« Ce vieil homme a calculé qu'il n'avait la force que pour deux tirs! Il n'y aura pas d'autre accident. Il a déjà tiré deux fois, et je ne détecte aucune trace de lignée céleste dans son corps actuellement. Il ne pourra plus bander l'Arc Li Guang! » Les yeux du Souverain étaient injectés d'une intention meurtrière puissante. Son désir de tuer Wang Lin était monstrueux; sans l'avoir tué, il ne pouvait trouver le calme.
 
 Il était compréhensible que le Souverain agisse ainsi, tant Wang Lin semblait presque immortel. Le Souverain était au bord du désespoir et croyait même, inconsciemment, qu'il était impossible de tuer Wang Lin. Chaque fois que Wang Lin se trouvait en danger, un accident survenait à la dernière seconde pour renverser la situation.
 

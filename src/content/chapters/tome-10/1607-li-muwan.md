@@ -10,15 +10,15 @@ Wang Lin regarda la femme au visage froid, puis son regard se posa sur le bébé
 
 L'expression de la femme demeurait indifférente et ses yeux semblaient contenir les vents de l'hiver. Elle observa Wang Lin, puis le monde qui se trouvait derrière lui.
 
-« Votre nom est célèbre sur la planète Suzaku; j'en ai même entendu parler jusqu'à Xue Yue. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde. »
+« Votre nom est célèbre sur la planète Suzaku; j'en ai même entendu parler jusqu'à Xue Yue. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde et leur a montré le chemin lorsqu'ils s'égaraient. »
 
 « Je suis venue aujourd'hui pour cet enfant. » La femme baissa les yeux vers le bébé endormi. Une pointe de douceur perça son regard glacial.
 
-La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant dans ses bras: « Tout le monde dit que Monsieur a percé les secrets du monde, comprend le karma, est indifférent à la vie et à la mort, et marche entre le vrai et le faux. Pourriez-vous offrir à cet enfant sa propre voie? »
+La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant dans ses bras: « Tout le monde dit que Monsieur a percé les secrets du monde, comprend le karma, est indifférent à la vie et à la mort, et marche entre le vrai et le faux. Pourriez-vous montrer à cet enfant une voie lumineuse qui lui appartienne? »
 
-« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue dans la neige; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent exceptionnel. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku! »
+« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue dans la neige; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent comme je n'en avais jamais vu de ma vie. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku! »
 
-« Cependant, sa vie sera semée d'embûches. Je suis douée en divination et j'ai prédit que cet enfant ferait face à une grande calamité. Puisque je l'ai rencontrée, je me suis impliquée et je deviendrai celle qui l'aidera à surmonter cette épreuve. »
+« Cependant, sa vie sera semée d'embûches. Je suis douée en divination et j'ai prédit que cet enfant ferait face à une calamité, visible dès sa naissance. Puisque je l'ai rencontrée, je me suis impliquée et je deviendrai celle qui l'aidera à surmonter cette épreuve. »
 
 « Plus elle grandit, plus la calamité de vie ou de mort devient manifeste. Ma culture est limitée, je ne peux donc utiliser mes sorts que pour freiner sa croissance, la maintenant dans l'état d'un nourrisson. »
 
@@ -48,7 +48,7 @@ Wang Lin observa la petite fille rayonnante de bonheur. Il ressentit vaguement u
 
 La distance était masquée par les précipitations. Un instant, on put apercevoir un papillon multicolore cherchant refuge contre le vent et l'averse.
 
-Si les ailes du papillon étaient trempées par la pluie, il ne pourrait plus voler. Si son corps était frappé par le vent, cela serait pour lui comme un ouragan.
+Si les ailes du papillon étaient trempées par la pluie, il ne pourrait plus voler. Si son corps était frappé par le vent, cela serait, pour un humain, comme un ouragan.
 
 En contemplant le papillon sous la feuille, les yeux de Wang Lin s'illuminèrent d'une lueur d'illumination. Il fixa l'insecte longuement.
 
@@ -74,7 +74,7 @@ Le papillon qui s'était abrité sous la feuille s'envola dans les airs. Il pass
 
 Dans un soupir, Wang Lin quitta le pavillon. Il marcha vers l'horizon, en direction de la mer.
 
-Quinze ans après avoir quitté Zhao, Wang Lin atteignit les côtes. Il embarqua sur un navire marchand reliant les deux continents, résolu à découvrir le monde d'outre-mer.
+Quinze ans après avoir quitté Zhao, Wang Lin parcourut encore le continent avant d'atteindre les côtes. Il embarqua sur un navire marchand reliant les deux continents, résolu à découvrir le monde d'outre-mer.
 
 La mer était vaste et magnifique. Le vent soufflait et les vagues roulaient contre la coque du navire. Debout sur le pont, Wang Lin humait la brise marine tandis que ses cheveux blancs flottaient au vent. L'océan grondait, mais rien ne semblait pouvoir effacer les traces du temps.
 
@@ -90,7 +90,7 @@ Wang Lin observa la scène et son corps trembla violemment.
 
 À la surface de la mer, vers l'est, parmi les brumes du ciel, une image illusoire apparut.
 
-L'image représentait le cratère d'un volcan en pleine éruption. La montagne tremblait et deux immenses fissures, semblables à deux dragons entrelacés, se dessinaient, comme une marque.
+L'image représentait le cratère d'un volcan en pleine éruption. La montagne tremblait et deux immenses fissures, semblables à des dragons et serpents entrelacés, se dessinaient, comme une marque.
 
 Une lave infinie jaillissait et des colonnes de fumée s'élevaient, recouvrant le ciel de la vision.
 
@@ -102,7 +102,7 @@ Tandis que Wang Lin fixait ce monde illusoire, son esprit vacillait.
 
 « Vrai et faux... Vrai et faux... Les textes disent que la mer possède un esprit nommé Shen et que son souffle crée des mirages... Cette scène... Est-elle réelle ou est-ce une illusion? Existe-t-elle vraiment quelque part ou n'est-ce qu'un songe? »
 
-« Esprit de la mer, ne sois pas en colère... Esprit de la mer, ne sois pas en colère... » Les mortels tremblaient et s'agenouillaient devant cette vision incompréhensible. Leurs cœurs étaient saisis d'effroi. Bien que ce ne fût pas la première fois qu'ils voyaient de tels phénomènes, ils restaient terrifiés.
+« Esprit de la mer, ne sois pas en colère... Esprit de la mer, ne sois pas en colère... » Les mortels tremblaient et s'agenouillaient devant cette vision incompréhensible. Leurs cœurs étaient saisis d'effroi. Bien que ce ne fût pas la première fois qu'ils voyaient de tels phénomènes, ils n'en avaient pas vu beaucoup dans leur vie et restaient terrifiés.
 
 Les légendes anciennes racontaient que si quelqu'un apercevait une illusion en mer, c'était que l'esprit des océans était irrité et qu'il s'apprêtait à punir tous les êtres qui vivent de la mer...
 
@@ -122,4 +122,4 @@ Cette femme sortit du nuage noir et, d'un geste de sa main de jade, pointa le ba
 
 En voyant cette femme, Wang Lin sembla perdre toute force et resta pétrifié. Un sentiment de tristesse irrationnel surgit et balaya son corps comme une tempête. Il fut submergé par un chagrin immense, et deux larmes coulèrent le long de ses joues.
 
-« C'est elle... » Le corps de Wang Lin était déjà vieux, mais il semblait maintenant encore plus marqué par les âges. Il s'appuya contre le bastingage, les yeux fixés sur la femme en blanc au cœur de l'illusion, un regard qui sembla durer une éternité.
+« C'est elle... » Le corps de Wang Lin était déjà vieux, mais il semblait maintenant encore plus marqué par les âges. Il s'appuya contre la paroi du navire, les yeux fixés sur la femme en blanc au cœur de l'illusion, un regard qui sembla durer une éternité.

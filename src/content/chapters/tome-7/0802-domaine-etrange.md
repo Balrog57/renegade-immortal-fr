@@ -44,7 +44,7 @@ Qui était celui qui avait combattu l'étrange homme aux cheveux blancs à la po
 
 Qui était celui qui avait sauvé tant de cultivateurs de la mort au plus fort de la crise?
 
-Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Céleste du Tonnerre? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de ramener tout le monde au réseau de transfert avant qu'il ne s'effondre!
+Qui était celui qui avait insufflé la volonté de vivre lors de l'effondrement du Royaume Céleste du Tonnerre et utilisé un fragment pour sauver d'innombrables âmes? Qui était celui qui avait conduit ces gens vers le réseau de transfert du Temple Céleste du Tonnerre? Il avait brisé la barrière et, d'un rugissement, avait effrayé les messagers du Temple afin de faire entrer tout le monde dans le réseau de transfert avant qu'il ne s'effondre!
 
 Xu Mu!
 
@@ -152,6 +152,6 @@ Au moment où il émergea, un cri parvint à ses oreilles. Les yeux de Wang Lin 
 
 Cet endroit n'était pas sombre; des étoiles étaient parsemées dans le ciel, illuminant les lieux. Devant lui flottait un continent. Ce dernier était immense, sans fin apparente.
 
-Au loin, un homme vêtu de haillons se tenait là. Son apparence était très ordinaire, mais son visage était marqué de runes qui se tordaient comme des branches. Il tenait un étrange artefact à la main; cela ressemblait à une bouilloire à long bec, mais en bien plus grand, atteignant plus de la moitié de la taille d'un homme.
+Au loin, un homme vêtu d'habits de toile se tenait là. Son apparence était très ordinaire, mais son visage était marqué de runes qui se tordaient comme des branches. Il tenait un étrange artefact à la main; cela ressemblait à une bouilloire à long bec, mais en bien plus grand, atteignant plus de la moitié de la taille d'un homme.
 
 C'était cet homme qui avait poussé ce cri. Il regarda Wang Lin avec terreur et recula précipitamment, comme si le cultivateur n'était à ses yeux qu'une bête féroce.

@@ -62,7 +62,7 @@ Une âme céleste semblable à celle du Dieu de Sang apparut, son corps saturé 
 
 « Seigneur Céleste de Rang 7 du Royaume Céleste du Vent, Maître Huo Han. Je l'ai tué dans la bataille du Passage Ancien! »
 
-« Premier clone de la Seigneur Céleste de Rang 9 du Royaume Céleste de la Pluie, Qing Shuang. J'ai tué son clone lors de la Guerre Céleste de la Foudre et de la Pluie! »
+« Premier clone du Seigneur Céleste de Rang 9 du Royaume Céleste de la Pluie, Qing Shuang. J'ai tué son clone lors de la Guerre Céleste de la Foudre et de la Pluie! »
 
 Une à une, les lumières cristallines s'éteignirent pour laisser place aux silhouettes. Toutes étaient d'un réalisme saisissant et portaient une intention meurtrière ainsi qu'un grief inimaginables qui emplissaient le monde. En un instant, d'innombrables âmes célestes encerclèrent Qing Shui!
 

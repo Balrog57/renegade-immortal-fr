@@ -8,7 +8,7 @@ slug: formation-de-scellement-celeste-en-neuf-etapes
 ---
 Il n'y avait qu'une seule ligne sur ce jade. Wang Lin réfléchit longuement, mais ne parvint toujours pas à en saisir pleinement le sens. À la lecture seule des mots, de nombreuses interprétations étaient possibles.
 
-Son regard balaya Maître Pin Cendré. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes dans les environs. Maître Pin Cendré devait impérativement avoir obtenu ici des trésors rares, des méthodes de culture ou des informations précieuses.
+Son regard balaya Maître Pin Cendré. Wang Lin savait que celui-ci était venu ici à plusieurs reprises et qu'il avait exploré de nombreuses grottes et vestiges dans les environs. Maître Pin Cendré avait certainement obtenu ici des trésors rares, des méthodes de culture ou des informations précieuses.
 
 Autrement, il ne serait pas aussi familier de cet endroit.
 
@@ -24,7 +24,7 @@ De nombreuses restrictions jonchaient le passage, mais la plupart s'étaient dé
 
 C'était une habitude ancrée, qui ne changeait pas même si la restriction avait perdu de sa puissance. Il était difficile de remarquer un détail aussi subtil à moins d'être un grand maître des restrictions.
 
-Le vieil homme nommé Pang suivait Maître Pin Cendré de près, n'osant pas trop s'approcher de Wang Lin. Il le craignait manifestement énormément.
+Le vieil homme nommé Pang suivait Maître Pin Cendré de près, n'osant pas trop s'approcher de Wang Lin. Il le craignait manifestement beaucoup.
 
 À cet instant, la route s'interrompait devant eux. Les sourcils de Maître Pin Cendré se froncèrent alors qu'il réfléchissait.
 
@@ -32,7 +32,7 @@ La lumière aux sept couleurs couvrait toujours le ciel, rendant impossible de d
 
 Les yeux de Wang Lin s'illuminèrent et il scruta l'horizon. Il put voir une brume tourbillonner dans le ciel, quelques montagnes plus loin. Les fluctuations d'énergie originelle provenaient de là. Il ressentit également une puissance capable de secouer l'âme.
 
-Maître Pin Cendré regarda au loin et dit froidement: « C'est le sortilège de Chen Tianjun. »
+Maître Pin Cendré regarda au loin et dit froidement: « C'est le sortilège de Chen Tianjun, de la Secte de la Bête de Bataille. »
 
 Après un long moment, les fluctuations se dissipèrent et la brume se calma. C'était comme si rien ne s'était produit; plus aucune fluctuation n'apparut.
 
@@ -94,7 +94,7 @@ La vieille femme en vert sortit quelques pilules qu'elle avala. Elle commença �
 
 Maître Pin Cendré réfléchit. Après un long moment, il serra les dents et fit un geste de la main. Une armure démoniaque noire apparut autour de lui. L'énergie démoniaque envahit l'espace, donnant à Maître Pin Cendré l'apparence d'un dieu démon.
 
-« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure! Camarade cultivatrice Zhao, ouvrez-la pour moi! » Maître Pin Cendré n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il fit deux pas et chargea vers la roche.
+« Je veux voir combien de pas je peux accomplir avec ma culture et cette armure! Camarade cultivatrice Zhao, ouvrez-la pour moi! » Maître Pin Cendré n'avait plus le choix. Il était arrivé si loin qu'il ne pouvait se résoudre à abandonner. Il bondit en avant et se précipita vers la roche.
 
 La vieille femme en vert forma un sceau et pointa l'avant. Une restriction s'élança pour atterrir sur la roche devant Maître Pin Cendré. Les ondulations réapparurent et la pierre devint de nouveau transparente.
 

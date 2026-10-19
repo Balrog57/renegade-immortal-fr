@@ -8,7 +8,7 @@ slug: dissipation-du-brouillard
 ---
 Le Grand Empyréen Gu Dao, l'être le plus puissant du Continent Astral Immortel!
 
-Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine fut repoussée, comme si elle ne pouvait supporter une telle force.
+Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine s'enfonça, comme si elle ne pouvait supporter une telle force.
 
 La chevelure blanche de Wang Lin s'agita. Le doigt illusoire de Gu Dao contenait la puissance du vent, de la pluie et du tonnerre. Le tonnerre rugissait tandis que des éclairs parcouraient le doigt. Les nuages s'entrechoquaient, créant des grondements assourdissants et formant d'innombrables gouttes de pluie. Le doigt était imprégné de chaos.
 
@@ -16,7 +16,7 @@ Au sein du vent, du tonnerre et de la pluie, la puissance des cinq éléments ap
 
 En conséquence, ce doigt semblait dérober la fortune des cieux et possédait une puissance suffisante pour tuer un Grand Empyréen!
 
-Les pupilles de Wang Lin se rétractèrent. Il s'était déjà préparé à la puissance de Gu Dao. Ce simple geste était capable d'assassiner un Grand Empyréen, mais il n'en fut pas surpris.
+Les pupilles de Wang Lin se rétractèrent. Il s'était déjà préparé à la puissance de Gu Dao. Ce simple geste était capable d'assassiner un Grand Empyréen tel que Dao Yi, mais il n'en fut pas surpris.
 
 « Gu Dao... » Les yeux de Wang Lin s'illuminèrent, mais il garda sa main gauche derrière le dos. Ses cheveux flottaient et il dégageait un tempérament indescriptible. Il ne bougea pas et, alors que le doigt descendait, il leva la main droite pour pointer soudainement le doigt illusoire.
 
@@ -98,7 +98,7 @@ Une seule sphère pouvait tuer un Ascendant Empyréen, et près de dix mille exp
 
 Des grondements tonitruants résonnèrent comme si des millions d'éclairs explosaient simultanément. Cette onde de choc fit trembler l'intégralité du vaste bassin et affecta jusqu'aux lois du monde. Le Continent Astral Immortel tout entier ressentit cette collision.
 
-Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier du Continent Nord — les quatre Grands Empyréens présents sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
+Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier du Continent Nord — les quatre Grands Empyréens présents, à l'exception de Lian Daofei, sentirent tous ce bouleversement planétaire et leurs cœurs tremblèrent. Ils percevaient tous la collision des deux auras provenant du vaste bassin.
 
 « Gu Dao a fait mouvement! »
 
@@ -110,4 +110,4 @@ Dans la Secte Dao Yi, au Mont Empereur, dans la Secte Ziyang et sur le glacier d
 
 Quatre rayons de lumière jaillirent du clan Céleste en direction du vaste bassin.
 
-Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois se précipitèrent vers le vaste bassin.
+Simultanément, au sein du clan Ancien, Xuan Luo, Song Tian et le mystérieux Grand Empyréen de l'Ancien Ji ressentirent tous le changement du monde et les tremblements de la terre. Sans plus attendre, les trois se précipitèrent vers le vaste bassin.

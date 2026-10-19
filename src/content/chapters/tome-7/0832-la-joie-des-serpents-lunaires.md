@@ -24,15 +24,15 @@ Alors qu'il avançait, son expression changea soudainement et il esquiva sur le 
 
 Le projectile passa si près qu'il frôla presque son corps. Wang Lin sentit distinctement l'énergie glaciale contenue dans le cristal. Cette énergie pénétra d'une manière ou d'une autre son organisme, rendant son corps rigide.
 
-« Tu ne peux pas échapper à ton destin! » Une voix résonna lentement tandis qu'une brèche s'ouvrait dans la terre à trente-trois mètres de Wang Lin et que Yao Bingyun en sortait.
+« Tu ne peux pas t'échapper! » Une voix résonna lentement tandis qu'une brèche s'ouvrait dans la terre à trente-trois mètres de Wang Lin et que Yao Bingyun en sortait.
 
 Ses yeux étaient empreints d'une intention meurtrière alors qu'elle fixait froidement Wang Lin: « Tu as massacré des cultivateurs innocents à travers le Domaine Occidental. Aujourd'hui, moi, Yao Bingyun, je prendrai ta vie! »
 
-Wang Lin recula prestement et rassembla de l'énergie originelle dans ses mains. Il frappa son propre corps à plusieurs reprises pour dissiper l'énergie froide qui l'envahissait. Simultanément, il cracha une bouffée d'énergie originelle pure. Celle-ci se mua en une épée et fonça droit sur Yao Bingyun.
+Wang Lin recula prestement et rassembla de l'énergie originelle dans ses mains. Il frappa son propre corps à plusieurs reprises pour dissiper l'énergie froide qui l'envahissait. Simultanément, il cracha une bouffée d'essence d'âme originelle pure. Celle-ci se mua en une épée et fonça droit sur Yao Bingyun.
 
 L'expression de Yao Bingyun resta de marbre; sa main droite traça un sceau et pointa vers l'avant. Un rayon de lumière bleue apparut à l'extrémité de son doigt, puis tout ce qui se trouvait devant elle gela instantanément, la glace se propageant avec rage.
 
-Même l'énergie originelle projetée par Wang Lin fut impitoyablement figée après n'avoir parcouru qu'une vingtaine de mètres.
+Même l'essence d'âme projetée par Wang Lin fut impitoyablement figée après n'avoir parcouru qu'une vingtaine de mètres.
 
 Voyant la glace approcher, le visage de Wang Lin s'assombrit et il n'hésita pas à battre en retraite. Il savait que cette femme était trop puissante et qu'il n'avait aucune chance de l'emporter.
 
@@ -68,7 +68,7 @@ Le Coup Céleste apparut soudainement, mais il ne visa pas Yao Bingyun, plutôt 
 
 « Le Serpent aux yeux de lune aime le silence et déteste le bruit! » Connaissant les habitudes de la créature, Wang Lin continua de bombarder les couches de boue adjacentes.
 
-Une pointe de dédain apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Distorsion Spatiale.
+Une pointe de moquerie apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Distorsion Spatiale.
 
 Cependant, ici, la téléportation et la fusion avec le monde étaient impossibles. Pour le rattraper, la tâche était aisée. Une lumière bleue jaillit sous ses pieds et, en un éclair, elle se déplaça. Bien que ce ne fût pas une téléportation, sa vitesse était équivalente et elle rejoignit immédiatement Wang Lin.
 
@@ -100,7 +100,7 @@ C'était comme si elle tentait de lui voler un bien précieux. Le serpent déplo
 
 Les yeux de Wang Lin s'illuminèrent d'un regard résolu. Il cessa de fuir et leva sa main droite. La Paire Dao Fanée apparut immédiatement au revers de sa main. L'os de la bête hideuse projeta une lueur fantomatique, et une aura maléfique envahit instantanément la zone.
 
-L'expression de Yao Bingyun devint sombre. Elle se trouvait face à Wang Lin, mais derrière elle, la bête était en furie. Elle ne comprenait pas: cette créature attaquait clairement Xu Mu, mais pourquoi l'attaquait-elle elle dès qu'elle tentait d'intervenir?
+L'expression de Yao Bingyun devint sombre. Elle se trouvait face à Wang Lin, mais derrière elle, la bête était en furie. Elle ne comprenait pas: cette créature attaquait clairement Xu Mu, mais pourquoi la bête s'en prenait-elle à elle dès qu'elle tentait d'intervenir?
 
 L'aura maléfique était si dense qu'une lumière grise apparut aux pieds de Yao Bingyun. Simultanément, les tentacules du serpent se refermèrent sur elle et son corps colossal percuta la zone.
 
@@ -114,9 +114,9 @@ Le visage de Yao Bingyun devint livide et ses yeux furent submergés par la terr
 
 Alors qu'elle s'éloignait, l'intention meurtrière brilla dans les yeux de Wang Lin. Toujours aussi audacieux et décisif, il plissa les yeux, rassembla une bouffée d'énergie originelle et chargea.
 
-Lançant son attaque avec toute sa célérité, Wang Lin forma une épée avec son doigt et utilisa la technique: Appeler le Vent!
+Lançant son attaque avec toute sa célérité, Wang Lin forma une épée avec son doigt et utilisa la technique: l'Appel du Vent!
 
-Appeler le Vent!
+l'Appel du Vent!
 
 Un vent noir surgit, formant une tempête qui fonça sur Yao Bingyun. Simultanément, les Serpents aux yeux de lune arrivèrent, piégeant la femme sous leurs rugissements.
 
@@ -126,9 +126,9 @@ Au moment où le noyau bleu fut écrasé, une puissance folle explosa. Cette for
 
 « Évasion Glaciale! » Yao Bingyun forma un sceau de la main gauche et s'élança. En utilisant la glace créée par le vortex, elle pouvait s'échapper n'importe où tant qu'il y avait de la glace.
 
-Dès que la silhouette de Yao Bingyun disparut, après avoir utilisé Appeler le Vent, Wang Lin n'hésita pas et pointa vers elle!
+Dès que la silhouette de Yao Bingyun disparut, après avoir utilisé l'Appel du Vent, Wang Lin n'hésita pas et pointa vers elle!
 
-Immobilisation!
+Sort d'Arrêt!
 
 Le corps de Yao Bingyun se figea soudainement, puis, presque simultanément, elle retrouva sa mobilité et disparut. Cependant, cette brève interruption permit au vent noir de pénétrer la glace. Un gémissement étouffé s'éleva avant de s'évanouir dans le vide.
 

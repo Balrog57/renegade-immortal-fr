@@ -54,7 +54,7 @@ Le regard glacial de Wang Lin se posa sur lui et il dit froidement: « Ce doit �
 
 Le cœur du vieil homme en robe blanche trembla; il serra les dents et rétorqua: « Oui, c'est ce vieillard qui a pris ces petits drapeaux! Si tu en as les moyens, brise la formation et viens les chercher! »
 
-Wang Lin le regarda froidement et dit calmement: « Tu crois vraiment que cette formation peut m'arrêter?! » Il effleura son sac de rangement, et une hache gigantesque, capable de fendre les cieux et brillant d'une lueur noire, apparut dans les airs.
+Wang Lin le regarda froidement et dit calmement: « Tu crois vraiment que cette formation peut m'arrêter?! » Il effleura son sac de rangement, et une hache gigantesque, capable de fendre les cieux et luisant d'éclairs noirs, apparut dans les airs.
 
 À l'instant où la hache géante se manifesta, des rugissements tonitruants déchirèrent le ciel et des boules de foudre apparurent autour de l'arme.
 
@@ -64,7 +64,7 @@ L'expression de Wang Lin demeura impassible alors qu'il saisissait la hache fend
 
 Un rayon d'énergie de hache, long de trente-trois mètres, s'abattit sur la formation, accompagné de plusieurs boules de foudre.
 
-Le fracas fut si violent que même les habitants de la vallée purent l'entendre distinctement.
+Le fracas fut si violent que même les habitants de la vallée, pourtant très éloignée, purent l'entendre distinctement.
 
 Wang Lin ne s'arrêta pas à un seul coup. Il continua de marteler la formation avec sa hache, tel un dieu de la guerre primordial.
 
@@ -100,7 +100,7 @@ Le regard de Wang Lin se glaça alors qu'il prenait une profonde inspiration, le
 
 Ce mot résonna comme le tonnerre lorsqu'il jaillit de sa bouche. Un pouvoir mystérieux enveloppa soudainement la zone protégée par la formation, qui se mit à trembler violemment.
 
-Wang Lin hurla une seconde fois: « Levez-vous pour moi! » Les veines de son bras saillirent alors qu'il levait l'extrémité de son membre.
+Wang Lin hurla une seconde fois: « Levez-vous pour moi! » Les veines de sa main droite saillirent alors qu'il la levait brusquement.
 
 Une série de rugissements souterrains, d'une intensité jamais vue, éclata. À cet instant, une scène terrifiante se déroula!
 

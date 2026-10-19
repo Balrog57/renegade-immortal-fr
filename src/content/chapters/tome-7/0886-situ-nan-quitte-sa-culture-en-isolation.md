@@ -88,7 +88,7 @@ Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'att
 
 Si la même chose s'était produite dans le Système Stellaire Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
-Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
+Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ou supérieur ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; et la moitié des planètes de rang 7 semblait avoir disparu : ils n'arrivaient pas à en trouver.
 
 Cette situation singulière troublait davantage les cultivateurs Luotian. En apparence, le camp Luotian semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire Luotian profondément mal à l'aise.
 

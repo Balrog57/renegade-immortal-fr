@@ -8,7 +8,7 @@ slug: il-y-a-une-femme-song-zhi
 ---
 L'expression de Wang Lin était calme, ses cheveux blancs flottant au gré du vent. Il laissa échapper un soupir et avança. Pour la première fois, il avait le sentiment de ne pas être fait pour le clan Antique.
 
-« Je peux déjà percevoir l'étendue du pouvoir impérial du clan Antique à travers cette simple affaire... » Outre l'obtention d'une gemme cartographique, Wang Lin était resté ici pour tester la véritable puissance de l'autorité impériale du clan Antique.
+« Je peux déjà percevoir l'étendue du pouvoir impérial du clan Antique à travers cette simple affaire... » Outre l'obtention d'un jade cartographique, Wang Lin était resté ici pour tester la véritable puissance de l'autorité impériale du clan Antique.
 
 Un simple prince, sans même être l'Empereur Shi Antique, suffisait à faire agenouiller une ville entière. Et le simple fait qu'il ait refusé de s'incliner avait déjà stupéfié l'assistance.
 
@@ -80,13 +80,13 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Quels que soient tes griefs envers le Shi Antique, cela ne concerne pas notre Dao Antique! » Le vieil homme ressentait une amertume profonde. Il ignorait pourquoi Wang Lin marchait vers eux.
 
-« Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau du Tribulant du Vide. »
+« Le groupe de trois de Liang Yun possède une culture équivalente au Vide Arcanique. Peut-être que la différence de lignée crée des disparités. Quant à ce vieil homme aux 27 étoiles, sa culture équivaut au niveau de la Tribulation du Vide. »
 
 « Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 
 « C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Sept-Couleurs, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyréen sont faibles, sans quoi il ne serait pas mort. »
 
-« De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Exalté Empyréen. Il avait intégré ses 27 étoiles et passé les trois épreuves. Par conséquent, ce membre du clan Antique est comparable aux Exaltés Empyréens. »
+« De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Exalté Empyréen. Il avait intégré ses 27 étoiles et franchi toutes les épreuves. Par conséquent, ce membre du clan Antique est comparable aux Exaltés Empyréens. »
 
 « Le clan Antique doit être semblable au clan céleste à cet égard; il ne devrait pas y avoir plus de 1 000 individus possédant une telle puissance. » Wang Lin monta sur le bras du diable ancien et atteignit sa tête. Il fixa le vieil homme, ce qui fit changer l'expression de ce dernier et perler la sueur sur son front. Incapable de supporter la pression du regard de Wang Lin, il recula inconsciemment de quelques pas.
 
@@ -128,6 +128,6 @@ Voyant Wang Lin s'exprimer, le prince retrouva de l'entrain et joignit rapidemen
 
 « Veuillez inviter Lady Song Zhi à accompagner les ambassadeurs du Dao Antique. »
 
-Peu après, une femme vêtue de bleu sortit de la porte de la ville. Son apparence n'était pas parfaite, mais elle dégageait un tempérament d'une grande pureté. En sortant, elle leva la tête, et c'est à cet instant précis que le regard de Wang Lin se posa sur elle.
+Peu après, une femme vêtue de bleu sortit de la porte de la ville. Sans être d'une beauté éclatante, elle dégageait un tempérament d'une grande pureté. En sortant, elle leva la tête, et c'est à cet instant précis que le regard de Wang Lin se posa sur elle.
 
 Leurs regards semblèrent entrer en collision dans le ciel.

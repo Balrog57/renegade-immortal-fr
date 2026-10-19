@@ -14,9 +14,9 @@ Le père de Zhou Ru réfléchit un instant avant de dire: « Dao Chang, cet enfa
 
 Le visage de Zhou Ru était déformé par la peur. Son corps tremblait et des larmes se mirent à couler sur ses joues. N'étant qu'une enfant de trois ans, elle était terrifiée.
 
-Le père de Zhou Ru serra les poings, prêt à s'interposer, mais l'homme fronça les sourcils. Il lança d'un ton glacial: « C'est une chance pour votre enfant d'être choisie. Ne faites pas de scène! »
+Le père de Zhou Ru serra les dents, prêt à parler, mais l'homme fronça les sourcils. Il lança d'un ton glacial: « C'est une chance pour votre enfant d'être choisie. Ne faites pas de scène! »
 
-À cet instant, le chef du village accourut pour tenter de calmer les parents de Zhou Ru.
+À cet instant, quelques anciens du village accoururent pour tenter de calmer les parents de Zhou Ru.
 
 L'homme renifla et ajouta: « Je ne suis pas venu pour vous voler votre enfant, mais pour lui offrir un avenir radieux! Vous aurez bien assez d'occasions de vous revoir plus tard! » Sur ces mots, il prit Zhou Ru et se dirigea vers la sortie du village.
 
@@ -30,7 +30,7 @@ Une voix tendre sortit soudainement de sa bouche. L'homme éclata de rire: « Ai
 
 Une fois hors du village, plus l'homme regardait Zhou Ru, plus il se réjouissait. « Une pierre spirituelle de haute qualité! Haha! Grâce à elle, je pourrai tenter de franchir le stade intermédiaire de l'Établissement des Fondations. Petite fille, je ne te maltraiterai pas. Une fois que tu auras grandi, je ferai de toi ma disciple! »
 
-Alors qu'il s'apprêtait à sortir son épée volante pour regagner la secte, Zhou Ru lui mordit la main. Mais quelle force une enfant de trois ans pouvait-elle bien déployer?
+Alors qu'il s'apprêtait à sortir son épée volante pour regagner la secte, Zhou Ru lui mordit le bras. Mais quelle force une enfant de trois ans pouvait-elle bien déployer?
 
 Cela fit pourtant froncer les sourcils de l'homme. Il renifla et dit: « Tu ne sais vraiment pas ce qui est bon pour toi! » Levant la main, il s'apprêtait à gifler Zhou Ru pour lui donner une leçon, afin qu'elle cesse de pleurer tout au long du chemin comme s'il s'agissait d'un enlèvement.
 
@@ -42,7 +42,7 @@ L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Senior, junio
 
 Sans même le laisser finir, Wang Lin agita ses manches et un vent puissant projeta l'homme au loin.
 
-Wang Lin fixa Zhou Ru. Un an auparavant, il avait ordonné à Tie Yan de retourner à la Secte du Ciel Nuageux en lui promettant qu'il veillerait personnellement sur elle. Il avait voulu intervenir plus tôt, mais avait décidé d'attendre que l'homme emmène Zhou Ru avant de se manifester.
+Wang Lin fixa Zhou Ru. Un an auparavant, il avait ordonné à Tie Yan de retourner à la Secte du Ciel Nuageux et veiller lui-même sur elle. Il avait voulu intervenir plus tôt, mais avait décidé d'attendre que l'homme emmène Zhou Ru avant de se manifester.
 
 En voyant Wang Lin, la peur dans les yeux de Zhou Ru disparut, remplacée par la confusion.
 
@@ -60,7 +60,7 @@ Wang Lin réapparut sous la pagode avec l'enfant et bâtit une maison de pierre,
 
 Il posa Zhou Ru et murmura doucement: « Nous sommes arrivés à la maison. »
 
-Zhou Ru hocha silencieusement la tête. Ses grands yeux scrutaient les environs, mais elle ne touchait à rien; elle préféra rester blottie contre Wang Lin.
+Zhou Ru hocha silencieusement la tête. Ses grands yeux scrutaient les environs, mais elle ne touchait à rien; elle restait simplement près de Wang Lin.
 
 Partout où Wang Lin allait, elle le suivait de près. Même lorsque celui-ci pratiquait sa culture, elle s'asseyait à ses côtés, le regard empreint d'une pointe d'incompréhension.
 
@@ -74,7 +74,7 @@ Zhou Ru n'était pas comme lui; il n'avait besoin que de la culture pour se nour
 
 Wang Lin aménagea une cuisine et sortit acheter de quoi faire provision. Lui qui n'avait pas cuisiné depuis cinq cents ans se retrouvait désormais à préparer les repas de Zhou Ru.
 
-Le matin, au réveil, la première chose que voyait l'enfant était Wang Lin, méditant en silence. Elle posait son menton sur son bras pour l'observer.
+Le matin, au réveil, la première chose que voyait l'enfant était Wang Lin, méditant en silence. Elle appuyait son menton sur sa main pour l'observer.
 
 Wang Lin ouvrit les yeux, frotta tendrement la tête de Zhou Ru et sourit: « As-tu faim? »
 
@@ -86,7 +86,7 @@ Wang Lin esquissa un léger sourire. Sans répondre, il ferma les yeux pour pour
 
 Le temps s'écoula lentement tandis que Wang Lin s'imprégnait de cette vie nouvelle, regardant Zhou Ru grandir. Le sentiment qu'il avait éprouvé lorsqu'il était redevenu mortel revint habiter son cœur.
 
-C'était une sensation d'une sérénité et d'une paix infinies.
+C'était une sensation faite de sérénité et de simplicité.
 
 Une nuit, alors que Wang Lin était en pleine culture, un cri déchira soudain le silence de la maison de pierre. Les yeux de Wang Lin s'illuminèrent et il se précipita dans la chambre. Il vit la petite Ru Er avoir rejeté ses couvertures, les mains crispées, le visage marqué par une lutte intérieure.
 
@@ -140,7 +140,7 @@ Un an auparavant, de nombreux cultivateurs d'autres contrées étaient venus dé
 
 Au début, Wang Lin les ignorait totalement. Grâce au domaine de la pagode, ils ne pouvaient même pas s'approcher. Pourtant, ils persistaient et se montraient de plus en plus agressifs, espionnant depuis les montagnes environnantes et agitant leurs trésors magiques.
 
-Une nuit, alors que Zhou Ru dormait, elle fut réveillée par le bruit d'un trésor magique. Terrifiée, elle s'était enfuie en pleurant.
+Une nuit, alors que Zhou Ru dormait, elle fut réveillée par le bruit d'un trésor magique. Terrifiée, elle se mit à pleurer.
 
 À ce moment-là, Wang Lin était sorti. Lorsqu'il revint, sept têtes ensanglantées trônaient sur les montagnes alentour. Depuis ce jour, personne n'osait plus faire le moindre bruit durant la nuit.
 

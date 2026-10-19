@@ -7,9 +7,9 @@ en: Chapter 620 - Object From The Celestial Realm
 slug: objet-du-royaume-celeste
 ---
 
-Lorsque l'homme en noir toucha le sol, les yeux de Wang Lin s'illuminèrent et il abattit sa main droite. D'innombrables restrictions jaillirent instantanément, scellant tous les méridiens cachés de l'homme en noir.
+Lorsque l'homme en noir toucha le sol, les yeux de Wang Lin s'illuminèrent et il balaya le vide de sa main droite. D'innombrables restrictions jaillirent instantanément, scellant tous les méridiens cachés de l'homme en noir.
 
-Puis, Wang Lin tendit la main avec désinvolture pour déchaîner le vent du doigt de la mort. Avec son niveau de culture, il comprit d'un seul regard que quelque chose de singulier habitait le corps de l'homme en noir. L'âme originelle de cet individu ne possédait aucune énergie originelle; à la place, elle abritait un morceau de jade de la taille d'un ongle.
+Puis, Wang Lin tendit la main avec désinvolture pour déchaîner le Doigt de la Mort. Avec son niveau de culture, il comprit d'un seul regard que quelque chose de singulier habitait le corps de l'homme en noir. L'âme originelle de cet individu ne possédait aucune énergie originelle; à la place, elle abritait un morceau de jade de la taille d'un ongle.
 
 Par conséquent, bien que cet homme ait atteint le stade Ascendant, il ne possédait pas le domaine propre à un cultivateur Ascendant. Aux yeux de Wang Lin, ce n'était qu'une brute!
 
@@ -17,7 +17,7 @@ Et encore, peu importait que Wang Lin ait déjà atteint le stade Ascendant; ava
 
 Cependant, pour les observateurs extérieurs, la simple saisie de Wang Lin fut aussi fulgurante qu'un éclair frappant leurs esprits. Cela laissa les membres de l'Union de Culture totalement stupéfaits.
 
-Le corps de l'homme en or tremblait et son visage était d'une pâleur cadavérique. S'il n'avait pas eu la route derrière lui scellée, il se serait enfui à la première occasion.
+Le corps de l'homme en or tremblait et son visage était d'une pâleur cadavérique. S'il n'avait pas eu la route derrière lui engloutie, il se serait enfui à la première occasion.
 
 Quant aux autres cultivateurs, ils fixaient avec incrédulité l'homme d'âge moyen que Wang Lin venait de capturer et d'écraser au sol. Après un long moment, aucun d'eux ne parvenait à prononcer le moindre mot.
 
@@ -65,7 +65,7 @@ Sun Yunshan prit une autre grande gorgée de vin, les yeux légèrement injecté
 
 « Vous aviez ensuite disparu du Pays des Démons Célestes et l'affaire semblait classée. Cependant, il y a quelques mois, quelqu'un a, on ne sait comment, découvert votre présence ici et en a informé l'Ancêtre. Celui-ci nous a donc envoyés pour vous capturer de nouveau! »
 
-Les yeux de Wang Lin se plissèrent. Il se souvint qu'à la Cité des Démons Célestes, un groupe l'avait attaqué alors qu'il écoutait la musique de la cithare. Le chef de ce groupe avait explosé au moment même où il allait être capturé. Wang Lin garda ce souvenir de folie en mémoire.
+Les yeux de Wang Lin se plissèrent. Il se souvint qu'à la Cité des Démons Célestes, un groupe était apparu alors qu'il écoutait la musique de la cithare. Le chef de ce groupe avait explosé au moment même où il allait être capturé. Wang Lin garda ce souvenir de folie en mémoire.
 
 À l'époque, il avait pensé que ces gens avaient été envoyés par un autre général démon. Mais après avoir écouté Sun Yunshan aujourd'hui, il semblait qu'une autre puissance se cachait derrière tout cela.
 
@@ -85,7 +85,7 @@ Après un long moment, Wang Lin ouvrit les yeux et demanda lentement: « L'Ancê
 
 Sun Yunshan hocha vivement la tête: « C'est exact. L'Ancêtre a dit un jour qu'il l'avait obtenue du Royaume Céleste avant son effondrement, que c'était un objet sacré du Royaume Céleste et que personne, hormis lui, ne pouvait la briser! »
 
-Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un gardien céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qing Lin... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste infinie; elle provient donc bien du Royaume Céleste! »
+Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un gardien céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qing Lin... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste immense; elle provient donc bien du Royaume Céleste! »
 
 Wang Lin réfléchit un instant avant de plonger la main dans le vide pour saisir le gardien céleste. Avec indifférence, il posa sa main sur la tête de l'individu et activa le sort de recherche d'âme!
 
@@ -97,11 +97,11 @@ Wang Lin retira sa main droite et, d'un coup sec, repoussa l'âme originelle. Se
 
 Sun Yunshan observa la scène, le cœur partagé entre un choc immense et une crainte révérencieuse.
 
-Tandis que Wang Lin affinait l'âme originelle, son regard balaya Sun Yunshan. Il avait ses raisons d'agir ainsi. L'âme originelle de cet Ancêtre était effectivement étrange; Wang Lin ne pouvait donc se fier aveuglément aux paroles de Sun Yunshan. Il devait prendre les précautions nécessaires, en terrorisant Sun Yunshan tout en restant sur ses gardes.
+Tandis que Wang Lin affinait l'âme originelle, son regard balaya Sun Yunshan. Il avait ses raisons d'agir ainsi. Les origines de cet Ancêtre étaient effectivement étranges; Wang Lin ne pouvait donc se fier aveuglément aux paroles de Sun Yunshan. Il devait prendre les précautions nécessaires, en terrorisant Sun Yunshan tout en restant sur ses gardes.
 
 L'âme originelle du gardien céleste fut rapidement raffinée. Le morceau de jade brisé, de la taille d'un ongle, scintilla alors qu'il flottait devant Wang Lin. Il le fixa longuement, plongé dans sa réflexion.
 
-Bien que ce jade ne dégageât aucune énergie spirituelle céleste, l'examen de Wang Lin révéla qu'il recelait une quantité inimaginable d'énergie spirituelle céleste. Pourtant, cette énergie ne pouvait être absorbée, car il semblait y avoir une intention résiduelle à l'intérieur!
+Bien que ce jade ne dégageât aucune énergie spirituelle céleste, l'examen de Wang Lin révéla qu'il recelait une quantité inimaginable d'énergie spirituelle céleste. Pourtant, cette énergie ne pouvait être absorbée, car il semblait y avoir une intention à l'intérieur!
 
 « La fusion de l'âme originelle d'un cultivateur et de ce jade brisé peut créer un être semblable à un cultivateur au début du stade Ascendant. Cependant, je parie que le taux de réussite de cette fusion est extrêmement faible, sinon cet Ancêtre n'aurait pas seulement dix gardiens célestes!
 

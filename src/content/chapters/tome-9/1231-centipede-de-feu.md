@@ -14,13 +14,13 @@ En ce jour, la région de rang 8 apparut enfin dans sa vision!
 
 Près de vingt jours de voyage continu avaient épuisé Wang Lin, mais ses yeux brillaient d'éclat. Bien qu'il fût en mouvement, il ajustait continuellement son corps et continuait de dévorer des pilules pour favoriser sa récupération.
 
-Il n'y avait pas de formation entre les régions de rang 7 et de rang 8, mais une épaisse couche de brouillard les séparait. Ce brouillard était dense et vaste, enveloppant totalement la région de rang 8. De nombreuses bêtes de rang 10 s'y trouvaient, et même des créatures de rang 12 résidaient dans ses profondeurs. Il y avait tout simplement trop de bêtes féroces ici, faisant de cet endroit une zone extrêmement périlleuse de la Mer des Nuages.
+Il n'y avait pas de formation entre les régions de rang 7 et de rang 8, mais une épaisse couche de brouillard les séparait. Ce brouillard était dense et vaste, enveloppant totalement la région de rang 8. De nombreuses bêtes de rang 10 ou plus s'y trouvaient, et même des créatures de rang 12 résidaient dans ses profondeurs. Il y avait tout simplement trop de bêtes féroces ici, faisant de cet endroit une zone extrêmement périlleuse de la Mer des Nuages.
 
 Ce lieu était appelé le Royaume du Brouillard des Bêtes du Chaos!
 
 Si on le décrivait comme un « royaume », c'était en raison de son immensité. Si un cultivateur ordinaire y pénétrait seul, il n'en resterait même pas les os. Seuls de véritables vieux monstres pouvaient y entrer, et encore, ils devaient faire preuve d'une prudence extrême.
 
-Cependant, la Secte de Dieu avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent jamais ce royaume; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
+Cependant, la Secte de Dieu avait utilisé une méthode inconnue pour que les bêtes féroces de l'intérieur ne quittent guère ce royaume; elles se contentaient d'y absorber l'énergie originelle. C'était comme si une frontière invisible marquait la limite de ce brouillard.
 
 Quatre chemins existaient dans le Royaume du Brouillard des Bêtes du Chaos, et seuls ces quatre sentiers étaient sûrs. C'étaient les voies que les disciples des sectes de rang 8 devaient emprunter s'ils souhaitaient quitter la région de rang 8 sans utiliser de matrice de transfert.
 
@@ -28,7 +28,7 @@ La rumeur disait qu'ils avaient été ouverts par la Secte de Dieu il y a des é
 
 Toutefois, hormis les disciples des sectes de rang 8 et ceux ayant obtenu un jade de guidage, personne ne connaissait l'existence de ces chemins. Les autres ne pouvaient que s'élancer tête baissée dans le Royaume du Brouillard des Bêtes du Chaos, avec pour seule chance d'atteindre la région de rang 8 de ne pas mourir en chemin.
 
-À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent sous la seule force de sa vue.
+À cet instant, sur le troisième chemin du Royaume du Brouillard des Bêtes du Chaos, quatre cultivateurs se précipitaient. Celui qui menait la marche était un vieil homme vêtu d'une robe taoïste noire et blanche, arborant une chevelure gris argenté. Bien qu'âgé, son regard était vif comme l'éclair. Le brouillard devant lui reculait souvent de plusieurs dizaines de pieds sous la seule force de sa vue.
 
 Ce vieil homme dégageait une puissante aura de Briseur du Nirvana; il avait manifestement atteint le sommet de ce stade. Les lois du monde convergeaient en lui à chacun de ses mouvements.
 

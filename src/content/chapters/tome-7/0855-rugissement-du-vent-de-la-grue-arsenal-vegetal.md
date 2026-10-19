@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 855 - Cranes Wind Roar, Plants Transform to Weapons
 slug: rugissement-du-vent-de-la-grue-arsenal-vegetal
 ---
-Les gouttes de pluie étaient semblables à des cristaux émettant une lumière éclatante. À cet instant, elles s'élargirent et une intention meurtrière dense apparut.
+Dans un rayon de 500 kilomètres, les gouttes de pluie étaient semblables à des cristaux émettant une lumière éclatante. À cet instant, elles s'élargirent et une intention meurtrière dense apparut.
 
 Cependant, ce qui était étrange, c'est que ces gouttes de pluie formèrent un rideau protecteur autour de Wang Lin. Non seulement il ne ressentait pas le froid, mais une chaleur envahit son corps tandis que la vaste quantité d'énergie originelle qu'il avait consommée se régénérait lentement.
 
@@ -54,7 +54,7 @@ Ses yeux s'illuminèrent; il agita la main et un grondement tonitruant, capable 
 
 Ce tumulte assourdissant émana du corps de Dieu de Sang. En s'en échappant, une bourrasque surgit autour de lui et se transforma instantanément en un orage violent!
 
-Il utilisait le tonnerre pour générer du son, le son faisait vibrer l'espace, créant ainsi du vent à partir du vide! C'était le célèbre orage issu du sort céleste « Le Son du Vent »! Wang Lin possédait d'ailleurs la formule détaillée de ce sort au huitième étage du pavillon qu'il avait obtenu.
+Il utilisait le tonnerre pour générer du son, le son faisait vibrer l'espace, créant ainsi du vent à partir du vide! C'était le célèbre orage du Royaume Céleste du Tonnerre, issu du sort céleste « Le Son du Vent »! Wang Lin possédait d'ailleurs la formule détaillée de ce sort au huitième étage du pavillon qu'il avait obtenu.
 
 L'expression de Dieu de Sang resta sombre alors qu'il pointait les cieux. Le vent environnant se propagea rapidement et entra en collision avec les gouttes de pluie, transformant la zone en un chaos de tonnerre!
 

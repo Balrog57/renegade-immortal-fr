@@ -12,7 +12,7 @@ Le quatrième oncle de Tie Zhu fronça les sourcils et répliqua: « Wang Zhuo, 
 
 Un éclair de froideur passa dans les yeux de Wang Zhuo. Il laissa échapper un rire étouffé, mais ne dit mot.
 
-Le père de Tie Zhu eut soudain l'impression d'avoir vieilli de dix ans et s'effondra sur sa chaise. La mère de Tie Zhu était également sous le choc; elle n'arrivait pas à croire ce qui se passait. Elle demanda d'une voix tremblante: « Tie Zhu, est-ce... est-ce vrai? »
+Le père de Tie Zhu eut soudain l'impression d'avoir vieilli de plus de dix ans et s'effondra sur sa chaise. La mère de Tie Zhu était également sous le choc; elle n'arrivait pas à croire ce qui se passait. Elle demanda d'une voix tremblante: « Tie Zhu, est-ce... est-ce vrai? »
 
 Tie Zhu se mordit les lèvres jusqu'au sang. Il s'effondra au sol et se prosterna plusieurs fois en faisant des kowtows. Il murmura: « Maman, Papa, Tie Zhu n'a pas été choisi par les immortels. Je suis désolé, je... Je vous revaudrai votre éducation dans une prochaine vie. »
 

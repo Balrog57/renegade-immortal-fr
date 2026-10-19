@@ -82,7 +82,7 @@ Cependant, au moment où il allait s'éloigner, le Blaireau Marqué d'Étoiles p
 
 Les yeux de Wang Lin s'illuminèrent et il scruta le fond du puits. Après une courte réflexion, il descendit à son tour, suivi par le blaireau.
 
-« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Saint du Clan du Tatouage, Qiu Yao.
+« Les Blaireaux Marqués d'Étoiles adorent l'aura des dieux anciens. Se pourrait-il que quelque chose appartenant à un dieu ancien soit enfoui sous le Bassin Funéraire Céleste? » Wang Lin pensa immédiatement au tendon rouge qui avait piégé l'Ancêtre Sainte du Clan du Tatouage, Qiu Yao.
 
 Ce puits semblait sans fond. Peu importe la profondeur atteinte par Wang Lin, il ne semblait jamais se rapprocher de l'issue. L'énergie glaciale émanant des profondeurs devenait de plus en plus intense, jusqu'à ce qu'une couche de givre recouvre les parois du puits.
 

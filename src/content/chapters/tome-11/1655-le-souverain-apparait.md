@@ -26,7 +26,7 @@ Profitant de cette impulsion, le corps de Qing Shui jaillit de l'autel et vola v
 
 Sa vision était floue et il ne percevait plus le monde clairement. À cet instant, la seule chose qu'il pouvait distinguer était la silhouette de cette femme sur la planète!
 
-La femme en rose était pâle. Elle vit le rideau de lumière s'effondrer tandis que l'homme massif se précipitait vers elle avec la puissance du vent et du tonnerre. Derrière lui, des dizaines de milliers de cultivateurs chargeaient à sa suite.
+La femme en rose était pâle. Elle vit le rideau de lumière s'effondrer tandis que l'homme massif, torse nu, se précipitait vers elle avec la puissance du vent et du tonnerre. Derrière lui, des dizaines de milliers de cultivateurs chargeaient à sa suite.
 
 Elle sentit la planète de culture sous ses pieds trembler violemment. Comme si elle ne pouvait supporter la pression de l'homme massif et de la multitude qui le suivait, la planète commença à s'effondrer.
 
@@ -38,7 +38,7 @@ Alors que le vent violent faisait rage, le visage de la femme en rose était liv
 
 Son niveau de culture n'était pas élevé, mais elle était une membre du Royaume Intérieur. Elle craignait la mort, mais elle n'hésiterait pas à mourir en martyre alors que leur royaume était sur le point d'être anéanti!
 
-L'homme massif, porté par le vent et le tonnerre, esquissa un sourire méprisant et ignora les faibles cultivateurs du Royaume Intérieur. Au lieu de cela, sa main s'abattit impitoyablement vers le bas.
+L'homme massif, l'un des sept grands puissants du Royaume Extérieur, porté par le vent et le tonnerre, esquissa un sourire méprisant et ignora les faibles cultivateurs du Royaume Intérieur. Au lieu de cela, sa main s'abattit impitoyablement vers le bas.
 
 Sous cette pression, le vent noir se transforma en une tempête mêlée d'innombrables boules de foudre vertes. La bourrasque prit la forme d'un dragon de tonnerre noir long d'environ cent mille pieds qui fonça vers la terre en rugissant!
 
@@ -46,7 +46,7 @@ La seule personne capable de lui barrer la route était la femme en rose!
 
 L'homme massif se tenait sur la tête du dragon de tonnerre noir. Il dépassa instantanément des milliers de cultivateurs et ne fut plus qu'à quelques centaines de pieds de la femme.
 
-« Cultivateur insignifiant! » lança l'homme avec dédain. La femme en rose n'était pas digne de lui opposer résistance. Son objectif était de détruire cette planète avant de passer à la suivante!
+« Cultivateur-fourmi! » lança l'homme avec dédain. La femme en rose n'était pas digne de lui opposer résistance. Son objectif était de détruire cette planète avant de passer à la suivante!
 
 Cependant, alors qu'il se trouvait à moins de cent pieds d'elle, son expression changea radicalement. Il tourna le regard vers l'autel niché au cœur de la formation planétaire.
 
@@ -68,7 +68,7 @@ Les yeux de Qing Shui devinrent totalement rouges et se plissèrent de rage. Il 
 
 Au moment où Qing Shui saisit le dragon noir, d'innombrables flocons rouges convergèrent. Dans un fracas de déchirement, le corps du dragon se raidit.
 
-L'essence de meurtre la plus pure jaillit de sa main pour pénétrer l'entité de tonnerre. Un grondement assourdissant retentit alors que le dragon s'effondrait sur lui-même!
+L'essence de meurtre la plus puissante de toute sa vie jaillit de sa main pour pénétrer l'entité de tonnerre. Un grondement assourdissant retentit alors que le dragon se disloquait en quatre morceaux!
 
 L'homme massif cracha du sang et recula, terrifié. Mais Qing Shui fut instantanément sur lui, sa main frappant avec une cruauté sans nom!
 
@@ -76,7 +76,7 @@ Ce coup fit perdre tout sens à l'homme massif. Sentant une crise de vie ou de m
 
 Un roulement de tonnerre secoua l'air et l'homme massif recracha plusieurs bouffées de sang avant d'être projeté en arrière de plusieurs milliers de pieds. Une blessure s'ouvrit de son front jusqu'à son abdomen, comme si on cherchait à le trancher en deux!
 
-Pourtant, il ne fut pas coupé. L'énergie de meurtre, portée par la colère, faiblit soudainement jusqu'à se dissiper.
+Pourtant, il ne fut pas coupé. L'énergie de meurtre faiblit soudainement jusqu'à se dissiper.
 
 L'homme pâlit, persuadé d'avoir péri. Il leva les yeux et vit Qing Shui être repoussé en arrière, crachant des gorgées de sang noir.
 
@@ -92,17 +92,17 @@ C'est alors que l'homme massif rugit, porté par le vent et le tonnerre. Ses yeu
 
 Simultanément, un fracas retentit et le bouclier lumineux entourant Mu Bingmei s'effondra. Le jeune homme au regard maléfique éclata de rire en pénétrant dans la formation pour se diriger vers Mu Bingmei, qui le fixait froidement.
 
-« L'amante du Seigneur du Royaume Scellé saura sans aucun doute ravir ce seigneur! »
+« L'amante du Seigneur du Royaume Scellé saura sans aucun doute ravir ce jeune maître! »
 
-Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres de la Secte Divine se ruèrent en avant, prêts à mourir avec leur ennemi!
+Le regard de Mu Bingmei ne trahissait qu'une détermination de martyr. Les membres de la Secte Divine se ruèrent en avant, prêts à mourir avec le Royaume Intérieur!
 
 À cet instant précis, à l'extérieur de la formation planétaire, Qing Lin, la femme de la Rivière Invoquée et le Maître Hong Shan, qui combattaient les cultivateurs du Vide Arcanique du Royaume Extérieur, affrontaient eux aussi leurs plus grands combats pour la survie!
 
-Cette crise de vie ou de mort pourrait décider de l'issue de cette bataille! Une puissance capable de subjuguer tout le système stellaire apparut au-dessus de la formation planétaire. Cette pression se propagea à travers le système, ébranlant les esprits et les cœurs de tous les cultivateurs du Royaume Intérieur. Les centaines de milliers de cultivateurs du Royaume Extérieur, quant à eux, poussèrent des cris de joie.
+Cette crise de vie ou de mort pourrait décider de l'issue de cette guerre! Une puissance capable de subjuguer tout le domaine stellaire apparut au-dessus de la formation planétaire, venue de très loin. Cette pression se propagea à travers le système, ébranlant les esprits et les cœurs de tous les cultivateurs du Royaume Intérieur. Les centaines de milliers de cultivateurs du Royaume Extérieur, quant à eux, poussèrent des cris de joie.
 
-Sous les yeux de la multitude, une faille gigantesque s'ouvrit au-dessus de la formation planétaire. L'aura émanant de cette déchirure provenait du Royaume Extérieur, et un palais colossal en sortit!
+Sous les yeux de la multitude, une faille gigantesque s'ouvrit au-dessus de la formation planétaire. L'aura émanant de cette déchirure provenait de l'Ancien Système Stellaire du Royaume Extérieur, et un palais colossal en sortit!
 
-Ce palais était vénéré par d'innombrables cultivateurs du Royaume Extérieur. C'était leur temple sacré, le palais du Souverain!
+Ce palais était vénéré par d'innombrables cultivateurs de l'Ancien Système Stellaire. C'était leur temple sacré, le palais du Souverain!
 
 Le Souverain était entré pour la première fois dans le Royaume Intérieur sous sa forme originelle! Vêtu d'une robe noire, il se tenait au sommet de l'édifice. Son visage restait indistinct, mais on pouvait distinguer sa main desséchée. Cette main était aussi sèche qu'un os, et pourtant, elle dégageait une aura destructrice terrifiante!
 
@@ -114,12 +114,12 @@ Cette empreinte occulta la lumière de l'espace comme si elle était solide, des
 
 L'espace se comprima et un sentiment d'étouffement envahit le cœur de chaque cultivateur du Royaume Intérieur. Ce sentiment se mua en pur désespoir!
 
-Sous cette empreinte, l'homme massif au vent et au tonnerre accourut vers Qing Shui et sa fille! Le jeune homme maléfique afficha un sourire obscène et, d'un geste de la main, balaya tout le monde pour ne laisser que Mu Bingmei face à lui.
+Sous cette empreinte, l'homme massif au vent et au tonnerre accourut vers Qing Shui et sa fille! Le jeune homme maléfique, Dao Feishan, afficha un sourire obscène et, d'un geste de la main, balaya tout le monde pour ne laisser que Mu Bingmei face à lui.
 
 Cependant, au moment le plus critique, un cri perçant retentit à la frontière entre Luotian et la Mer des Nuages.
 
 Ce cri n'était pas l'œuvre d'un cultivateur; c'était une flèche!
 
-Une flèche chargée de destruction, de colère et de massacre! Un hurlement monstrueux résonna, étouffant le son provenant de la paume du Souverain. À cet instant, il supplanta tout autre bruit au monde!
+Une flèche chargée de destruction, de colère et de massacre! Un hurlement monstrueux résonna, étouffant le son provenant de la paume du Souverain. À cet instant, il supplanta tout autre bruit dans le domaine stellaire de Luotian!
 
 Wang Lin était arrivé!

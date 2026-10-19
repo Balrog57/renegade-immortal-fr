@@ -6,9 +6,9 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1209 - Would You
 slug: le-feriez-vous
 ---
-En tant que l'un des sept grands clans du Système Stellaire Antique, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens de l'Union Souveraine, ce qui leur avait permis de connaître d'innombrables années de gloire.
+En tant que l'un des sept grands clans du Système Stellaire Antique, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens du Conseil Souverain, ce qui leur avait permis de connaître d'innombrables années de gloire.
 
-Dans la partie sud du territoire du Clan Dévorant la Lune, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.
+Dans la partie nord du territoire du Clan Dévorant la Lune, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.
 
 Neuf statues gigantesques trônaient dans ce lieu interdit. Il s'agissait de statues de neuf anciens dieux! Chaque statue était surmontée d'un vieil homme assis en méditation; ils tenaient des sceaux étranges et semblaient absorber de force le pouvoir des anciens dieux contenu dans les statues.
 
@@ -44,7 +44,7 @@ Wang Lin ignorait ce qui se passait dans le Système Stellaire Antique, au-delà
 
 Les os du jeune homme étaient complètement brisés et éparpillés. Il n'en restait que deux fragments, maintenus par les clous aux sept couleurs.
 
-Wang Lin ne prêta aucune attention à cela. Son regard se posa sur l'Oiseau Vermillon et il sentit le feu devenir plus intense encore. Finalement, l'Oiseau Vermillon poussa un cri assourdissant avant de fondre vers le bas pour pénétrer dans l'œil gauche de Wang Lin.
+Wang Lin ne prêta aucune attention à cela. Son regard se posa sur l'Oiseau Vermillon blanc et il sentit le feu devenir plus intense encore. Finalement, l'Oiseau Vermillon poussa un cri assourdissant avant de fondre vers le bas pour pénétrer dans l'œil gauche de Wang Lin.
 
 À cet instant, une mer de feu apparut autour de Wang Lin, remplissant tout l'espace. Il se déplaça immédiatement pour quitter les lieux. Après avoir traversé la fissure spatiale, il atteignit le sommet de la montagne sous la Restriction Temporelle et s'assit aussitôt.
 

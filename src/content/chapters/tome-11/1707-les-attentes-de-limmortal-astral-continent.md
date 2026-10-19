@@ -6,17 +6,17 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1707 - Expectations from the Immortal Astral Contient
 slug: les-attentes-de-limmortal-astral-continent
 ---
-« Avec mon corps de démon ancien, extraire l'âme du démon pour former une goutte de sang! Extraire! » Wang Lin leva sa main droite pour la presser contre son corps et poussa un rugissement. Son corps trembla violemment.
+« Avec mon corps de démon ancien, extraire l'essence, le qi et l'esprit du démon pour former une goutte de sang! Extraire! » Wang Lin leva sa main droite pour la presser contre son corps et poussa un rugissement. Son corps trembla violemment.
 
 Son œil gauche fondit instantanément sous une douleur fulgurante. Même Wang Lin en serrait les dents. Il avait l'impression qu'une partie de lui-même était arrachée, tandis qu'une goutte de sang s'échappait de son œil gauche.
 
 Cette goutte de sang, de la taille d'un ongle, flottait devant lui. À l'intérieur de cette perle résidait un petit démon ancien qui ressemblait trait pour trait à Wang Lin.
 
-« Avec mon corps de diable ancien, extraire l'âme du diable pour former une goutte de sang! Extraire! » La voix de Wang Lin était calme, tranchant avec l'expression de souffrance qui marquait son visage.
+« Avec mon corps de diable ancien, extraire l'essence, le qi et l'esprit du diable pour former une goutte de sang! Extraire! » La voix de Wang Lin était calme, tranchant avec l'expression de souffrance qui marquait son visage.
 
 Tout en parlant, sa main droite traça un sceau et pressa à nouveau son corps. Des bruits de craquements résonnèrent dans son œil droit avant que celui-ci ne s'effondre. Le corps de Wang Lin se flétrit rapidement jusqu'à n'être plus qu'un squelette.
 
-Une fois l'œil droit détruit, une goutte de sang noir, chargée d'une énergie démoniaque monstrueuse, jaillit et flotta aux côtés du sang du démon ancien. Un petit diable ancien, semblable à Wang Lin, y était assis.
+Une fois l'œil droit détruit, une goutte de sang noir, chargée d'une énergie diabolique monstrueuse, jaillit et flotta aux côtés du sang du démon ancien. Un petit diable ancien, semblable à Wang Lin, y était assis.
 
 « Avec... mon corps de dieu ancien, tout fondre pour former une goutte de sang de dieu ancien! » La vision de Wang Lin était trouble; il ne voyait plus rien. La douleur dépassait déjà ses limites, mais il tenait bon. Il devait survivre à cette Calamité du Sang Céleste de la Race Ancienne!
 
@@ -34,7 +34,7 @@ Contrairement au sang des êtres célestes, ce sang n'était pas doré, mais ém
 
 Dès que les trois gouttes fusionnèrent, une aura antique se propagea. Cette goutte contenait le passage du temps et la volonté défiant le ciel de la Race Ancienne. Elle jaillit vers le ciel et s'élança au loin.
 
-Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car elle appartenait à la Race Ancienne et non à un individu!
+Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car elle appartenait à la Race Ancienne et non aux cultivateurs!
 
 Cette aura avait pour but d'invoquer l'Ancêtre Ancestral. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
 
@@ -44,7 +44,7 @@ Dans la faille invisible entourant la planète effondrée Dong Lin, une femme, �
 
 « La Calamité du Sang Céleste de la Race Ancienne... »
 
-Dans le Royaume Extérieur, au sein de la Tombe Ancienne, Tuo Sen n'était pas parti; il avait décidé de rester pour achever son héritage. Il se tenait là, les yeux clos.
+Dans le Royaume Extérieur, dans le Système Stellaire Antique, au sein de la Tombe Ancienne, Tuo Sen n'était pas parti; il avait décidé de rester pour achever son héritage. Il se tenait là, les yeux clos.
 
 Il avait reçu de Wang Lin les souvenirs de Tu Si. Après des années de fusion, était-il encore Tuo Sen, ou était-il devenu le réveillé Tu Si?
 

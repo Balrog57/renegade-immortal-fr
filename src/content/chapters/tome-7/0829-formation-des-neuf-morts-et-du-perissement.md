@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 829 - Nine Deaths Perish Formation
 slug: formation-des-neuf-morts-et-du-perissement
 ---
-Cette vengeance brutale s'intensifia rapidement. Ce fut comme un coup de tonnerre frappant les cultivateurs qui traquaient Wang Lin, faisant trembler leurs esprits.
+Cette vengeance brutale, qui ne cessait de se répéter, frappa les cultivateurs qui traquaient Wang Lin comme un coup de tonnerre, faisant trembler leurs esprits.
 
 Le fait que Wang Lin n'ait pas tué les cultivateurs en dessous du stade de la Transformation de l'Âme signifiait qu'il leur laissait encore une issue. Cependant, la portée sanglante de cet acte était évidente.
 
@@ -160,9 +160,9 @@ Puis sa silhouette vacilla et il chargea en avant. Juste au moment où il allait
 
 Ses yeux de phénix étaient empreints d'une intention meurtrière et paraissaient extrêmement cruels! Elle s'était préparée pour cela depuis longtemps; elle attendait le moment précis où Wang Lin apparaîtrait!
 
-Elle était certaine que ce doigt pourrait absolument ôter la vie à Xu Mu. Ce mouvement contenait le sort céleste du Sceau de l'Extinction de l'Âme, spécialisé dans l'attaque des âmes d'origine!
+Elle était certaine que ce doigt pourrait absolument ôter la vie à Xu Mu. Ce mouvement contenait le sort céleste du Sceau de Dommage Spirituel, spécialisé dans l'attaque des âmes d'origine!
 
-« Un simple cultivateur Corporel Yang n'a aucune chance de survivre face au Sceau de l'Extinction de l'Âme! »
+« Un simple cultivateur Corporel Yang n'a aucune chance de survivre face au Sceau de Dommage Spirituel! »
 
 Le corps de Wang Lin trembla et il fut projeté à trois cent trente mètres de là. Il cracha une large bouchée de sang, le visage livide. Cependant, il ne marqua aucune pause; il se replongea dans le vide et s'enfuit au loin.
 
@@ -190,6 +190,6 @@ Il avait même effrayé des familles de cultivateurs au point de les faire recul
 
 Les récits des combats entre Xu Mu et la famille Yao furent propagés et devinrent connus de tous les cultivateurs du système.
 
-Le nom « Xu Mu » était devenu légendaire!
+Le nom de « Xu Mu » s'était imposé!
 
 Dans le Temple Céleste du Tonnerre, au sommet du Pavillon des Nuages, Qing Shui méditait les yeux clos. Il ouvrit les paupières, regarda au loin et murmura: « Cet enfant possède un style semblable au mien dans ma jeunesse, très bien! »

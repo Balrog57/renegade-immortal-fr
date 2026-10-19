@@ -20,7 +20,7 @@ L'ensemble de l'Épreuve Empyrée était plongé dans un silence de mort. Face a
 
 Cette scène lui conférait une aura de grand maître, et tous les cultivateurs qui le contemplaient ressentaient un profond respect dans leur cœur.
 
-Le temps s'écoulait, souffle après souffle... En un éclair, plus d'un bâton d'encens s'était écoulé. Wang Lin était le seul à se tenir devant le 16e palais, et aucun signe de l'Ascendant Empyréen Ming Dao n'apparaissait.
+Le temps s'écoulait, souffle après souffle... En un éclair, un bâton d'encens s'était écoulé. Wang Lin était le seul à se tenir devant le 16e palais, et aucun signe de l'Ascendant Empyréen Ming Dao n'apparaissait.
 
 Après encore un demi-bâton d'encens, le 16e palais, enveloppé de reflets dorés, libéra une nouvelle déferlante de lumière. L'Ascendant Empyréen Ming Dao émergea de cet éclat en riant.
 

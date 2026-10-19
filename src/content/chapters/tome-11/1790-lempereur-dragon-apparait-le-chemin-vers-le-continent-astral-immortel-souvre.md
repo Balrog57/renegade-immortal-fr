@@ -104,7 +104,7 @@ La tête seule mesurait près de dix mille pieds. À ce stade, seul le haut du c
 
 « Ce dragon est l'une de mes neuf armes: l'Empereur Dragon! Il provient des terres sauvages de la périphérie orientale du Continent Astral Immortel! On y trouve d'innombrables bêtes féroces, et ce dragon était l'une des existences les plus souveraines!
 
-« Il possédait une culture au stade intermédiaire du Tribulant du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
+« Il possédait une culture au stade intermédiaire de la Tribulation du Vide. À l'époque, ce vieil homme l'a tué, a pris son âme, a raffiné son corps, en a extrait les os pour en faire une arme! Cette arme est un fouet. Ce vieil homme utilisera ce fouet pour cingler les lois du Continent Astral Immortel afin de créer une brèche vous permettant à tous de vous réincarner! » Tandis que la voix de Xuan Luo résonnait, sa main droite se tendit vers le dragon.
 
 Le dragon poussa un rugissement et son corps jaillit du vide. 20 000 pieds, 30 000 pieds, 50 000 pieds... jusqu'à atteindre des centaines de milliers de pieds de long. Il apparut devant Xuan Luo avant de se rétracter rapidement pour devenir un fouet draconique couleur sang d'environ 1 000 pieds de long!
 

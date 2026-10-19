@@ -10,7 +10,7 @@ slug: foudre-feu
 
 Plus il en apprenait sur le passé, plus cette soif de sang devenait ardente!
 
-Le jeune homme marqué par l'éclair fut le plus rapide et s'approcha. Il n'était à l'origine qu'un cultivateur au sommet du stade de la Purification du Nirvana, mais après cette étrange transformation, son niveau de culture avait augmenté pour atteindre de façon inattendue le début du stade du Brise-Nirvana. Puis, il avait surpassé ce stade pour atteindre le milieu!
+Le jeune homme marqué par l'éclair fut le plus rapide et s'approcha. Il n'était à l'origine qu'un cultivateur au sommet du stade de la Purification du Nirvana, mais après cette étrange transformation, son niveau de culture avait augmenté pour atteindre de façon inattendue le début du stade du Briseur du Nirvana. Puis, il avait surpassé ce stade pour atteindre le milieu!
 
 Wang Lin n'avait jamais vu une telle capacité de sa vie. Ce n'était pas qu'ils dissimulaient leur niveau de culture; ils avaient emprunté la puissance des cieux!
 
@@ -56,7 +56,7 @@ Wang Lin ne daigna même pas un regard à cet homme. D'un pas, il sembla s'élev
 
 Simultanément, la foudre fulmina dans son œil droit. Le symbole électrique s'échappa de son regard pour venir se loger entre les sourcils de l'illusion.
 
-« Désormais, votre clan est privé du droit de lutter contre moi pour le contrôle de la foudre! »
+« Désormais, votre clan est privé du droit d'user de la foudre en ma présence! »
 
 Sa voix était sombre, mais empreinte d'une majesté absolue. C'était une sentence, une loi dictée avec la détermination nécessaire pour sceller un clan entier. C'était comme s'il reprenait le contrôle qui avait été autrefois cédé au Clan du Tonnerre Dispersé!
 
@@ -72,7 +72,7 @@ Wang Lin se retourna et son regard se posa sur le jeune homme marqué par le feu
 
 Le jeune homme marqué par le feu pâlit. Il voulut fuir, mais la mer de flammes l'encerclait déjà. Il lutta et poussa un cri de rage. Les ailes de feu derrière son dos battirent, déchaînant une tempête de flammes. Une fois la tempête formée, il chargea Wang Lin.
 
-En avançant, ses mains formèrent un sceau et des incantations étranges s'échappèrent de sa bouche. Des flammes encore plus denses jaillirent de son corps, formant un mur de feu qui s'abattit sur Wang Lin!
+En avançant, ses mains formèrent un sceau et des incantations étranges s'échappèrent de sa bouche. Des flammes encore plus denses jaillirent de son corps, formant des lances de feu qui fondirent sur Wang Lin!
 
 Wang Lin fit un geste de la main et la mer de flammes sembla bouillir. L'océan de feu se referma impitoyablement sur le jeune homme marqué par le feu.
 
@@ -104,7 +104,7 @@ C'était le véritable Oiseau Vermillon! Dès son apparition, il fixa le gigante
 
 Le géant oiseau de feu noir devint encore plus agressif, mais il manifesta une intention évidente de battre en retraite.
 
-« Désormais, votre clan est privé du droit de lutter contre moi pour le contrôle du feu! » Tandis que les paroles de Wang Lin résonnaient, l'Oiseau Vermillon et l'oiseau noir entrèrent en collision!
+« Désormais, votre clan est privé du droit d'user du feu en ma présence! » Tandis que les paroles de Wang Lin résonnaient, l'Oiseau Vermillon et l'oiseau noir entrèrent en collision!
 
 Un grondement tonitruant retentit et l'oiseau noir s'effondra immédiatement, incapable de résister. C'était comme s'il avait rencontré son ancêtre, ou comme si le faux faisait face au vrai!
 

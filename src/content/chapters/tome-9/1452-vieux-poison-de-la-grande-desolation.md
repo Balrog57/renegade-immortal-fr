@@ -12,7 +12,7 @@ Dès qu'il sortit, la gueule béante du roi des moustiques vint immédiatement f
 
 Un sourire apparut sur les lèvres de Wang Lin tandis qu'il caressait la tête de la créature. Puis, il pointa du doigt les rivières de sang en contrebas.
 
-Le roi des moustiques poussa un rugissement et l'un de ses sujets plongea vers le bas. Il s'abreuva dans la rivière de sang, puis des bruits d'éclatement résonnèrent dans son corps: il venait, de manière inattendue, de franchir un nouveau palier de croissance!
+Le roi des moustiques poussa un rugissement et l'un de ses sujets plongea vers le bas. Il s'abreuva dans la rivière de sang, puis des bruits d'éclatement résonnèrent dans son corps: il venait, de manière inattendue, de franchir un nouveau palier de croissance, son corps doublant de volume en un instant!
 
 Une lumière sanguine jaillit de son corps et son aura déferla! Il leva les yeux vers le roi des moustiques en poussant un cri de ralliement. Sous la direction du roi, les cent mille bêtes moustiques environnantes rugirent à leur tour et chargèrent vers le sol.
 
@@ -30,7 +30,7 @@ Une demi-heure plus tard, les rivières étaient complètement asséchées, sans
 
 Après être revenu à la plateforme de rang 3 qu'il avait dérobée à l'estimé Ling Dong, Wang Lin agita la main. Les cent mille bêtes moustiques, dont le corps avait plus que doublé de volume, l'encerclèrent, offrant un spectacle saisissant.
 
-Son regard perça la nuée de moustiques pour se poser sur les trois membres de l'Ordre Antique. Ils étaient restés figés dans la même posture durant des années sans compter.
+Son regard perça la nuée de moustiques pour se poser sur les trois membres de l'Ordre Antique. Ils étaient restés figés dans la même posture depuis des millénaires, agenouillés, le visage féroce.
 
 Après une courte réflexion, Wang Lin choisit de ne pas les emporter. Il fit volte-face et s'envola avec sa plateforme de rang 3 à travers une faille cachée.
 
@@ -64,7 +64,7 @@ La plateforme de Wang Lin s'immobilisa et il leva la main droite. Les cent mille
 
 Ces bêtes humanoïdes ne profitaient pas qu'aux cultivateurs, elles nourrissaient aussi les moustiques!
 
-Telle une bourrasque, plus de dix moustiques s'abattaient sur chaque proie humanoïde. Un bain de sang se déversa sous les yeux des trente cultivateurs. Le combat fut achevé en un instant, mais près de dix mille des cent mille moustiques étaient morts au passage. Toutefois, la force vitale des dix mille bêtes humanoïdes fut redistribuée entre les survivants, les rendant encore plus puissants.
+Telle une bourrasque, une dizaine de moustiques s'abattaient sur chaque proie humanoïde. Un bain de sang se déversa sous les yeux des trente cultivateurs. Le combat fut achevé en un instant, mais près de dix mille des cent mille moustiques étaient morts au passage. Toutefois, la force vitale des dix mille bêtes humanoïdes fut redistribuée entre les survivants, les rendant encore plus puissants.
 
 Après avoir massacré ces dix mille créatures en un clin d'œil, les moustiques ne se dispersèrent pas. Ils fixèrent d'un regard oppressant les trente cultivateurs qu'ils venaient de piéger.
 

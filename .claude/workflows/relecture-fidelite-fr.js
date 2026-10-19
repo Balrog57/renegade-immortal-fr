@@ -8,7 +8,7 @@ export const meta = {
 const ROOT = 'C:/Users/Marc/Documents/1G1R/_Programmation/renegade-immortal-fr'
 const size = args.batch || 5
 let ns = args.chapters
-if (!ns) { ns = []; for (let i = args.from; i <= args.to; i++) ns.push(i) }
+if (!ns) { const ex = new Set(args.exclude || []); ns = []; for (let i = args.from; i <= args.to; i++) if (!ex.has(i)) ns.push(i) }
 const batches = []
 for (let i = 0; i < ns.length; i += size) batches.push(ns.slice(i, i + size))
 const verify = args.verify !== false

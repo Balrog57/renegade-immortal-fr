@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 225 - Take This To Refine A Pill
 slug: prends-ceci-pour-raffiner-une-pilule
 ---
-Dans la chambre située sous la place, à l'extérieur de la salle principale, une fissure apparut sur le couvercle du fourneau à pilules que Li Muwan avait fabriqué. Dans un fracas retentissant, la fissure s'étendit du couvercle jusqu'au corps même du fourneau.
+Dans la chambre située sous la place, une fissure apparut sur le couvercle du fourneau à pilules aux sept têtes de dragon que Li Muwan avait fabriqué. Dans un fracas retentissant, la fissure s'étendit du couvercle jusqu'au corps même du fourneau.
 
 Au même instant, un rayon de lumière arc-en-ciel s'échappa de la brèche. La lueur devint de plus en plus éclatante à mesure que la fissure s'élargissait. Toute la chambre fut baignée d'une lumière multicolore; à cet instant, la pièce ressemblait à un pays féerique, enveloppée d'un éclat arc-en-ciel infini.
 
@@ -52,7 +52,7 @@ Alors qu'ils sortaient de la salle principale pour rejoindre la place, les sept 
 
 Une épaisse couche d'air glacial s'échappa des crevasses, plongeant soudainement la place dans un froid intense. Bien que l'expression de Sima Yunnan fût restée impassible, il était secrètement stupéfait. Une telle aura n'était pas celle qu'un cultivateur de l'Âme Naissante ordinaire pouvait dégager.
 
-Il se tourna vers les autres sur la place. Bien que la dizaine de cultivateurs de l'Âme Naissante affichassent des visages calmes, leurs regards trahissaient leur gravité.
+Il se tourna vers les autres sur la place. Bien qu'une douzaine de cultivateurs de l'Âme Naissante affichassent des visages calmes, leurs regards trahissaient leur gravité.
 
 Liu Fei laissa échapper un grognement glacial. Il se déplaça comme l'éclair pour s'engouffrer dans les fissures en criant: « Ce cultivateur utilise ma Secte Ciel Nuageux pour atteindre l'Âme Naissante? Pense-t-il que nous nous laissons marcher dessus? »
 

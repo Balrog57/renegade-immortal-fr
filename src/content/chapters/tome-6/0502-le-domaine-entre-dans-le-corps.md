@@ -23,11 +23,11 @@ Mais à présent, Wang Lin avait déjà parcouru 21 pas, ce qui constituait la l
 
 Même avec la force mentale de l'Omniscient, il ne put s'empêcher de ressentir un choc profond.
 
-« Pureté de l'esprit... cet enfant purifie son esprit ici même! Culture céleste, culture de la vérité et culture du Dao; il semble que cet enfant ait acquis une certaine illumination... Son cœur est froid, si bien que peu importe la rigueur du gel, cela ne peut affecter son âme. En utilisant cet état, il a pu faire 21 pas. Wang Lin, Maître t'a sous-estimé. Si tu cultives pendant plus de 10 000 ans, je me demande si tu pourras atteindre les trois royaumes du Nirvana... »
+« Pureté de l'esprit... cet enfant purifie son esprit ici même! Culture céleste, culture de la vérité et culture du Dao; il semble que cet enfant ait acquis une certaine illumination... Son cœur est froid, si bien que peu importe la rigueur du gel, cela ne peut affecter son âme. En utilisant cet état, il a pu faire 21 pas. Wang Lin, Maître t'a sous-estimé. Si tu cultives pendant plus de 10 000 ans, je me demande si tu pourras atteindre les trois stades du Briseur du Nirvana... »
 
 Wang Lin s'arrêta après son 21e pas. Son corps entier était désormais glacial.
 
-« Mon domaine est un fragment de la compréhension de la vie et de la mort sous la réincarnation. Le Dao de la réincarnation est l'un des plus impitoyables qui soient! » Derrière Wang Lin, le ciel changea de couleur et la neige qui tombait commença à tourbillonner. Soudain, un parchemin géant apparut derrière lui.
+« Mon domaine est un fragment de la compréhension de la vie et de la mort sous la réincarnation. Le Dao de la réincarnation est le plus impitoyable qui soit au monde! » Derrière Wang Lin, le ciel changea de couleur et la neige qui tombait commença à tourbillonner. Soudain, un parchemin géant apparut derrière lui.
 
 Des rivières et des montagnes se dessinaient sur le parchemin; cependant, il n'y avait aucune couleur, seulement du noir et du blanc.
 
@@ -107,7 +107,7 @@ Dans un bruit de déchirure qui résonna dans les environs, le ciel fut fendu en
 
 Une lumière aux sept couleurs s'échappa de la brèche et recouvrit toute la secte. À présent, la secte principale et les trois montagnes étaient baignées de cette clarté chromatique.
 
-Simultanément, chacune des sept divisions libéra un halo coloré correspondant à sa propre appartenance. À cet instant, une partie de la planète Tian Yun fut enveloppée par cette lumière aux sept couleurs.
+Simultanément, chacune des sept divisions libéra un halo coloré correspondant à sa propre appartenance. À cet instant, le ciel de près de la moitié de la planète Tian Yun fut teinté de cette lumière aux sept couleurs.
 
 À la source de toute cette radiance, au cœur de la faille, l'Omniscient exsudait une aura septicolore et sourit. « Durant toute ma vie, j'ai toujours préféré les sept couleurs. Si l'on y ajoute le noir et le blanc des trois montagnes d'ici, ces neuf couleurs réunies forment la plus belle scène au monde. »
 

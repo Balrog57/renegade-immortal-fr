@@ -52,7 +52,7 @@ Les années passèrent, les cycles défilèrent, nous étions aux deux extrémit
 
 Au moment où nous nous sommes enfin trouvés, le rêve touchait à sa fin. Même si je suis réticent, même si je suis si réticent... »
 
-Wang Lin ouvrit ses vieux yeux à la fin de la chanson. Sa main droite tremblait alors qu'il saisissait le pichet pour regarder Li Muwan. Ce regard ressemblait à la fin des temps.
+Wang Lin ouvrit ses vieux yeux à la fin de la chanson. Sa main droite tremblait alors qu'il saisissait le pichet pour regarder Li Muwan. Ce regard ressemblait à la fin des temps, à des mers taries et des pierres usées.
 
 Ce regard était celui d'un éveil du rêve.
 
@@ -68,11 +68,11 @@ Le monde gronda. Le bateau sur lequel se trouvait Wang Lin disparut. Avec lui s'
 
 Une onde invisible se propagea de Wang Lin comme centre. Tous les édifices de la ville de Su disparurent en un éclair. Non seulement Su, mais tout le pays de Zhao — ses montagnes, ses rivières, ses sectes, ses villages et tout le reste — s'effaça instantanément.
 
-Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yue, les autres nations; tout le monde s'effondra.
+Le pays de Zhao, les terres au-delà, la Secte de l'Affinement de l'Âme, Xue Yu, les autres nations; tout le monde s'effondra.
 
 Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre continent, la terre natale de Li Muwan; tout disparut. Le pays de Huo Fen, le pays de Xuan Wu, la Mer des Démons et le foyer de Wang Lin et Li Muwan s'éteignirent en cendres.
 
-Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, par-delà le monde.
+Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, çà et là dans ce monde.
 
 Tout comme Li Muwan et Grande Fortune aux côtés de Wang Lin.
 
@@ -86,7 +86,7 @@ Liu Mei se tenait au sommet d'une montagne. Une fois la montagne disparue, elle 
 
 Xu Fei et Zhou Rui volaient dans les airs. À cet instant, le temps s'arrêta et le vent se leva. Leurs corps se changèrent en cendres et furent emportés.
 
-Wang Zhuo, vêtu d'une robe noire, se tenait sur le mont Heng Yue. Le vent souffla et son corps s'effondra.
+Wang Zhuo, vêtu d'une robe noire, se tenait sur le montagne Heng Yue. Le vent souffla et son corps s'effondra.
 
 Il y eut aussi Huang Long, ainsi que l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
 
@@ -131,4 +131,4 @@ Le rêve prit fin...
 
 Dans le vide obscur situé entre les Royaumes Intérieur et Extérieur, que le Vieux Fantôme Zhan appelait la couche murale de la grotte, un jeune homme aux cheveux blancs reposait dans une lumière couleur sang. Ses yeux s'ouvrirent.
 
-« Le destin vient du vide, le vrai vide recèle l'existence merveilleuse... Je comprends. »
+« L'origine provient du vide, le vrai vide recèle l'existence merveilleuse... Je comprends. »

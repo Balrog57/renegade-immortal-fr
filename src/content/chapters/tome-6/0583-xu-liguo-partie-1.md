@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 583 - Xu Liguo (Part 1)
 slug: xu-liguo-partie-1
 ---
-Un souffle léger traversa la place, balayant la poussière et faisant claquer les vêtements au vent. La robe blanche de Wang Lin flottait sous la brise, lui conférant une élégance accrue.
+Un souffle léger traversa la place, balayant la poussière et faisant claquer les vêtements au vent. La robe blanche de Wang Lin flottait sous la brise, et ses longs cheveux ondulaient avec grâce, lui conférant une élégance accrue.
 
 Debout sur la place, Wang Lin leva les yeux vers le ciel avec une expression parfaitement calme. Il semblait que tout ce qui l'entourait n'avait aucune importance, comme s'il n'était qu'un simple passant.
 

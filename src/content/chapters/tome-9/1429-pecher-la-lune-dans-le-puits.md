@@ -50,7 +50,7 @@ La silhouette au cœur des flammes rit, un rire empreint de désolation.
 
 « Ton jugement est juste, ce seigneur est gravement blessé et n'a pas guéri. Cependant, tu as apporté la Perle Défiant le Ciel, m'offrant l'espoir de me rétablir! » La silhouette leva sa main droite, mais son bras semblait flou; on pouvait néanmoins distinguer qu'il était recouvert d'une armure.
 
-« Ce seigneur a cultivé pendant une éternité, et beaucoup me haïssent, mais aucun n'a réussi à me tuer. Au contraire, ils ont tous été terrassés par moi... Tu es excellent, mais tu n'es pas qualifié... Ce seigneur n'utilisera qu'un seul sort! »
+« Ce seigneur a cultivé jusqu'à ce jour, et beaucoup me haïssent, mais aucun n'a réussi à me tuer... Tu es excellent, mais tu n'es pas qualifié... Ce seigneur n'utilisera qu'un seul sort! »
 
 La silhouette leva sa main droite vers la voûte céleste!
 

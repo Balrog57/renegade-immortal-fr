@@ -12,7 +12,7 @@ Les yeux du vieil homme aux robes vertes étaient empreints de panique. Il recul
 
 Le vieil homme aux robes vertes avait à peine commencé à parler que Wang Lin se trouvait déjà devant lui. Wang Lin leva la main droite, saisit les vêtements du vieil homme et le projeta sur le côté. L'homme laissa échapper un cri; il eut l'impression d'être frappé par une paume invisible alors qu'il était projeté à des centaines de milliers de pieds de distance.
 
-« Wang Lin salue l'Empereur Céleste! » Wang Lin joignit les mains devant le Temple du Dao Céleste. Ce lieu était toujours le palais impérial, et l'interlocuteur était l'Empereur Céleste. Le respect qu'il devait témoigner demeurait nécessaire.
+« Wang Lin salue l'Empereur Céleste! » Wang Lin joignit les mains devant le Temple du Dao Céleste. Ce lieu était toujours le palais impérial, et l'interlocuteur était l'Empereur Céleste, un Grand Empyréen. Le respect qu'il devait témoigner demeurait nécessaire.
 
 Les regards de dizaines de milliers de cultivateurs se fixèrent sur Wang Lin. Les cent mille soldats également les scrutaient, silencieux, le regard froid.
 

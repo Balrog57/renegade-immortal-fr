@@ -56,7 +56,7 @@ L'adolescent saisit une hache et frappa impitoyablement la tête du jeune homme.
 
 Un cri déchirant résonna. Wang Lin vit clairement un fragment d'âme s'envoler pour entrer dans sa propre âme originelle.
 
-« Cette personne n'a pas été tuée par moi. Pourquoi... » Tandis que Wang Lin réfléchissait, il sentit une force puissante tirer sur son âme originelle. En un instant, sa vision se brouilla et il se retrouva sur une route. Devant lui, un adolescent vêtu de noir combattait un homme d'âge moyen.
+« Cette personne n'a pas été tuée par moi. Pourquoi... » Tandis que Wang Lin réfléchissait, il sentit une force puissante tirer sur son âme originelle. En un instant, sa vision se brouilla et il se retrouva sur une route. Devant lui, un jeune homme vêtu de noir combattait un homme d'âge moyen.
 
 Peu après, l'homme d'âge moyen mourut. Près de lui se tenait un jeune homme à l'air lugubre qui déclara: « C'est le disciple du vieux Ji Mo. Nous devons partir vite! »
 
@@ -64,17 +64,17 @@ Le fragment d'âme de l'homme d'âge moyen s'envola et pénétra dans l'âme ori
 
 La scène changea une fois de plus. Cette fois, c'était une grotte dans la forêt. Il dévora les fondations de Teng Li, puis le fragment d'âme de ce dernier vola vers lui.
 
-Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon et l'Ordre des Dix Mille Démons de cent jours.
+Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
 
 Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yue, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yue [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
-La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre de Sang, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la compétition pour le Titre Céleste où il obtint le premier rang sur une ligne menant au ciel.
+La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre Sanguin, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
 Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
 
 Au moment où il reprit conscience, le vortex entre ses sourcils cessa de tourner et se résorba en filaments d'énergie originelle céleste qui retournèrent dans son corps. Son noyau d'origine céleste, qui avait la taille d'un poing de bébé, avait rétréci de près de 60 %.
 
-Sa vie de massacres venait de défiler devant lui. En revivant son passé, Wang Lin ressentit du regret. Même à cet instant, il n'était pas sûr d'être sorti de son rêve.
+Sa vie de massacres venait de défiler devant lui. En revivant son passé, Wang Lin fut profondément ému. Même à cet instant, il n'était pas sûr d'être sorti de son rêve.
 
 « Quel puissant sort céleste! » Wang Lin poussa un grand soupir. Le sort de l'Empereur Céleste Bai Fan était issu de la fusion de multiples incantations. L'essence de ces dernières avait été extraite pour créer un nouveau sort céleste. Cependant, pour maîtriser cette technique, Wang Lin avait dû en vivre tout le processus.
 
@@ -102,17 +102,17 @@ Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume du Massacre. 
 
 Le Sceau Céleste servait de terre, les sceaux dorés de protection, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 
-Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était l'Ancêtre de Sang, tué par Wang Lin!
+Plus on descendait dans ces 18 couches, plus les âmes à l'intérieur étaient puissantes. Il n'y avait pas de fragments d'âme entre la 15e et la 18e couche, mais il y en avait un dans la 14e! Ce fragment était enveloppé d'un brouillard sanglant et d'une rancœur monstrueuse: c'était l'Ancêtre Sanguin, tué par Wang Lin!
 
 Plus de 100 fragments d'âme d'êtres célestes massacrés par Wang Lin dans le Cimetière Immortel étaient scellés dans la 13e couche. Ils poussaient des hurlements démoniaques, cherchant à s'échapper, mais ils restaient totalement emprisonnés.
 
 On y trouvait également les fragments d'âme des cultivateurs de la famille Yao que Wang Lin avait éliminés, ainsi que ceux de tous les cultivateurs du niveau Corporel Yang et au-delà qu'il avait tués!
 
-L'Arsenal Magique était un sort d'une tyrannie absolue. Il extrayait du cycle de réincarnation les fragments d'âme de tout ce que l'on avait tué pour les utiliser!
+L'Arsenal Magique était un sort d'une tyrannie absolue. Il extrayait du cycle de réincarnation les fragments d'âme de toutes les personnes tuées pour les utiliser!
 
-Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex apparut entre ses sourcils, puis son âme originelle s'élança pour expulser de l'énergie d'origine essence!
+Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex apparut entre ses sourcils, puis son âme originelle s'élança, et il recracha par la bouche une quintessence de son âme originelle!
 
-Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils touchèrent les 18 couches de l'enfer, ils furent tous scellés à l'intérieur.
+Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils approchèrent des 18 couches de l'enfer, chaque couche les absorba selon leur force.
 
 Au même moment, Wang Lin frappa son sac de stockage et le Drapeau des Un Milliard d'Âmes s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
 

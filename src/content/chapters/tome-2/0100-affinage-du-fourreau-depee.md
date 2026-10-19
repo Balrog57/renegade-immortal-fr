@@ -8,13 +8,11 @@ slug: affinage-du-fourreau-depee
 ---
 C'était une immense grotte dont les parois étaient percées d'innombrables petits orifices. Le sens divin de Wang Lin avait pénétré par l'un de ces trous.
 
-Au centre de la pièce reposait un gigantesque cercueil. Il semblait tout à fait ordinaire, dépourvu de la moindre décoration, et pourtant, de puissantes ondes d'énergie Yin s'en dégageaient. Cette énergie se transformait en une brume blanche qui était aspirée par les multiples orifices de la paroi.
+Dans la pièce reposait un cercueil.
 
 Wang Lin hésita, observant le cercueil un long moment. Puis, il tenta de l'explorer avec son sens divin et, à sa grande surprise, celui-ci pénétra sans rencontrer la moindre résistance.
 
-Le cercueil était totalement vide, à l'exception d'un grand trou rond au fond, d'où émanait l'énergie Yin.
-
-Cette énergie était si dense qu'elle formait des vagues successives qui empêchaient le sens divin de Wang Lin de s'enfoncer.
+L'énergie Yin était si dense qu'elle formait des vagues successives qui empêchaient le sens divin de Wang Lin de s'enfoncer.
 
 Dans sa propre grotte, le regard de Wang Lin s'illumina d'une détermination farouche. Pour découvrir la source de cette énergie et comprendre pourquoi la perle pouvait l'absorber, il sortit la gourde de son sac de rangement et prit une petite gorgée sans l'ombre d'une hésitation.
 

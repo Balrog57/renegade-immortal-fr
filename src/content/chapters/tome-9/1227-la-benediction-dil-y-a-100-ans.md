@@ -36,7 +36,7 @@ En puisant dans l'étoile brisée, le corps de Dieu Ancien de Wang Lin atteignit
 
 Il était déjà prêt à briser cinq étoiles consécutives. La bataille d'aujourd'hui serait l'épreuve la plus difficile de sa vie!
 
-Dans ce combat, son corps s'effondrerait, son âme originelle se dissiperait et son Dao se disperserait totalement. Ses près de 2 000 ans de culture disparaîtraient. Il y aurait des milliers de personnes dans le monde de la culture nommées « Wang Lin », mais aucune ne serait lui!
+Dans ce combat, son corps s'effondrerait, son âme originelle se dissiperait et son Dao se disperserait totalement. Ses près de 2 000 ans de culture disparaîtraient. Il y aurait des millions de personnes dans le monde de la culture nommées « Wang Lin », mais aucune ne serait lui!
 
 Soit il briserait les cinq doigts et survivrait avec succès à la puissance de leur attaque. Alors, il pourrait sortir du Royaume aux Sept Couleurs qui avait failli devenir son tombeau!
 
@@ -64,7 +64,7 @@ Lorsqu'on forme un poing, l'auriculaire et l'index se ferment en premier, suivis
 
 Wang Lin savait que même s'il brisait toutes ses étoiles restantes, il ne pourrait échapper à ce coup ultime. Cependant, il refusait de rester là et de se laisser broyer.
 
-« Je suis un héros dans la vie comme dans la mort! Les cultivateurs comme nous ne reculent jamais devant le combat!! Moi, Wang Lin, j'ai cultivé pendant près de 2 000 ans. Si j'étais encore un mortel, je serais déjà retourné à la poussière. Alors, et si je meurs? Qu'ai-je à craindre? » Wang Lin laissa échapper un sourire pitoyable tandis que sa voix puissante résonnait. Il chargea directement le pouce!
+« Vivant, un héros parmi les hommes; mort, un héros parmi les fantômes! Nous, cultivateurs, ne reculons jamais devant le combat!! Moi, Wang Lin, j'ai cultivé pendant près de 2 000 ans. Si j'étais encore un mortel, je serais déjà retourné à la poussière. Alors, et si je meurs? Qu'ai-je à craindre? » Wang Lin laissa échapper un sourire pitoyable tandis que sa voix puissante résonnait. Il chargea directement le pouce!
 
 « Père, Mère, s'il y a une autre vie, Tie Zhu ne cultivera pas! Je passerai un siècle à sourire avec vous deux!
 « Situ, toi et moi ne pourrons plus jamais nous revoir.
@@ -112,7 +112,7 @@ Après un long moment, des ondulations apparurent et se déformèrent. Un vieil 
 
 « Disparais! »
 
-L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Antique, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
+L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Antique, digne de rivaliser avec son propre maître, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
 
 « Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un que notre fille a béni... Et qu'importe s'il possède la Perle Défiant le Ciel? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Royaume Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Royaume Scellé en est la preuve! Quant au sceau... c'est difficile, difficile, difficile!
 

@@ -10,7 +10,7 @@ Wang Lin sentit la plante géante invoquée par le vieil homme alors qu'il se te
 
 Il avait fait preuve d'une grande prudence tout ce temps. Il n'agissait que lorsqu'il était certain de sa propre sécurité.
 
-Maintenant qu'il avait coupé la voie de retraite du vieil homme, il savait que celui-ci était furieux. Bien que le vieil homme fût alors à son point le plus faible, Wang Lin savait aussi que son propre niveau de culture était bien trop bas. Sans la vitesse de la boussole stellaire, il serait déjà devenu le pantin du vieil homme.
+Maintenant qu'il avait coupé la voie de retraite du vieil homme, il savait que celui-ci était furieux. Bien que le vieil homme fût alors à son point le plus faible, Wang Lin savait aussi que son propre niveau de culture était bien trop bas. Sans la vitesse de la boussole stellaire, il serait déjà devenu la marionnette tatouée du vieil homme.
 
 Peu importe la faiblesse d'un shaman aux sept feuilles — qui possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme —, il aurait toujours eu la capacité de tuer Wang Lin. Ce dernier ne croyait pas avoir, de lui-même, le pouvoir de tuer le vieil homme.
 
@@ -30,7 +30,7 @@ Puis Wang Lin activa son énergie spirituelle et les lignes noires réapparurent
 
 Au cours de ces huit mois de vol, Wang Lin avait utilisé la perle défiant le ciel à plusieurs reprises pour absorber la plante tatouée. Il en avait déjà absorbé la majeure partie à ce stade.
 
-Wang Lin poussa un rugissement et afficha une expression de douleur. Les lignes noires qui s'étendaient jusqu'à son cou reculèrent lentement. Bientôt, elles se rassemblèrent toutes sur son front.
+Wang Lin laissa échapper un cri bref et afficha une expression de douleur. Les lignes noires qui s'étendaient jusqu'à son cou reculèrent lentement. Bientôt, elles se rassemblèrent toutes sur son front.
 
 La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
 
@@ -90,7 +90,7 @@ Dans un bruit assourdissant, la montagne brilla intensément, mais cette lumièr
 
 Le visage du vieil homme devint sombre alors qu'il tirait la femme au voile blanc pour continuer sa retraite.
 
-Le corps original fit un pas en avant, brisant l'espace sous ses pieds avant de décocher un autre coup de poing.
+Le corps original fit un pas en avant, brisant le sol sous ses pieds avant de décocher un autre coup de poing.
 
 Le vieil homme cracha un rayon de lumière blanche qui se mua en une épée volante. L'arme dégageait une aura dangereuse teintée de violet, signe qu'elle était extrêmement résistante, forgée dans le rare cuivre de cœur violet.
 
@@ -112,7 +112,7 @@ Hormis le guerrier du clan des Immortels Délaissés, il n'avait jamais rencontr
 
 Le corps original grogna et se fit encore plus féroce. D'un coup de poing, un sort semblable à une restriction apparut soudainement autour du vieil homme et de la femme au voile blanc.
 
-Le corps original tonna: « Acceptez la mort! »
+Le corps original lança sèchement: « Acceptez la mort! »
 
 Le vieil homme jura intérieurement. Voyant le désespoir dans les yeux de la femme, il s'écria: « Ma dame, je vais emprunter le sabre magique! »
 
@@ -138,7 +138,7 @@ Le front du vieil homme était couvert de sueur alors qu'il fixait le jeune homm
 
 Le corps original demanda froidement: « D'où venez-vous tous les deux? »
 
-La femme au voile blanc sursauta. Sans même prendre le temps de réfléchir, elle répondit: « Ce junior vient de Zhou et souhaite se rendre à Chu. »
+La femme au voile blanc sursauta. Sans même prendre le temps de réfléchir, elle répondit: « Ce junior vient de Zhou, il est seulement de passage ici et souhaite se rendre à Chu. »
 
 « Foutaises. Vous cherchez la mort! » Les yeux du corps original devinrent glacials. Il les regarda comme s'il contemplait des cadavres. Sans avancer davantage, il décocha un coup de pied de sa jambe droite.
 

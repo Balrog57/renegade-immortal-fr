@@ -22,7 +22,7 @@ L'homme d'âge mûr réfléchit un instant, puis esquissa un sourire amer. « J'
 
 L'ancêtre de la famille Ran et Sun Xi remirent également des jades célestes. Les jades célestes étaient des consommables précieux que les cultivateurs transportaient souvent avec eux.
 
-Quant aux objets appartenant au membre de la famille Huan, les trois les remirent sans aucune hésitation. Pour eux, ces choses n'étaient pas des trésors, mais plutôt un fardeau qui pesait lourdement sur leur cœur depuis quatre ans.
+Quant aux objets appartenant au membre de la famille Huan, les trois les remirent sans aucune hésitation. Pour eux, ces choses n'étaient pas des trésors, mais plutôt une calamité qui pesait lourdement sur leur cœur depuis quatre ans.
 
 Après avoir récupéré ces objets, Wang Lin se retourna et disparut. Il ne laissa qu'une seule phrase qui s'éleva dans le vent:
 
@@ -52,11 +52,11 @@ Huan Fenshen leva la tête et demanda: « Et qu'en est-il du membre de la famill
 
 Huan Fenshen hocha la tête et s'en alla.
 
-Après avoir quitté la pièce, une lueur d'obscurité passa dans ses yeux alors qu'il pensait: « L'ancêtre vieillit vraiment. Il est prêt à accomplir le rituel du lignage pour une étrangère. Il laisse même cette Huan Mei faire étalage de la puissance de notre famille. Se pourrait-il qu'il veuille qu'elle dirige la famille Huan?! »
+Après avoir quitté la pièce, une lueur d'obscurité passa dans ses yeux alors qu'il pensait: « L'ancêtre vieillit vraiment. Il est prêt à accomplir le rituel de lignée pour une étrangère. Il laisse même cette Huan Mei faire étalage de la puissance de notre famille. Se pourrait-il qu'il veuille qu'elle dirige la famille Huan?! »
 
 Trois jours plus tard...
 
-Liu Mei était chez elle. Elle regarda le ciel et dit doucement: « Planète Ran Yun... Puisque mon Père Adoptif m'a demandé de régler cette affaire en envoyant quelqu'un, alors Huan Dong, c'est toi qui iras... »
+Liu Mei était dans son pavillon. Elle regarda le ciel et dit doucement: « Planète Ran Yun... Puisque mon Père Adoptif m'a demandé de régler cette affaire en envoyant quelqu'un, alors Huan Dong, c'est toi qui iras... »
 
 « Oui! » Une silhouette surgit soudainement de l'ombre de Liu Mei. C'était un homme d'environ trente ans, très beau. Il apparut à genoux, levant les yeux vers le dos de Liu Mei avec une ferveur fanatique.
 
@@ -70,7 +70,7 @@ Liu Mei esquissa un sourire d'une beauté extrême. Huan Dong fut saisi de stupe
 
 Après s'être téléporté, Wang Lin arriva dans la ville de la famille Sun. Il ne retourna pas directement chez lui, mais arpenta les rues, méditant sur sa compréhension du domaine. Son domaine de la vie et de la mort s'était déjà fusionné avec son âme originelle; son âme originelle était devenue l'incarnation même de sa compréhension de ce domaine.
 
-« Au-delà de la vie et de la mort pourrait se trouver le karma... Je suis incapable de trancher... Le Dao du Karma est trop vaste. Lorsque j'ai atteint le stade Ascendant, j'ai eu une illumination et j'ai créé le fleuve des enfers. Cependant... ce n'est que la mort. »
+« Au-delà de la vie et de la mort pourrait se trouver le karma... Je suis incapable de trancher... Le Dao du Karma est trop vaste. Lorsque j'ai atteint le stade Ascendant, j'ai eu une illumination et j'ai créé le fleuve des enfers. Cependant... ce n'est que la mort, une mort au sein du fleuve des enfers. »
 
 Regardant la ville animée qui l'entourait, Wang Lin fronça légèrement les sourcils.
 
@@ -106,7 +106,7 @@ De retour dans sa chambre, Wang Lin s'assit en position du lotus. Son corps fut 
 
 Après un moment de réflexion, il sortit les objets laissés par le membre de la famille Huan. Tout était contenu dans un sac de rangement: quelques vêtements et des objets insignifiants.
 
-Ce qui attira sérieusement l'attention de Wang Lin, outre les pilules de rang 8, étaient deux trésors magiques, un morceau de jade et un jeton.
+Ce qui attira sérieusement l'attention de Wang Lin, outre les pilules de rang 8, étaient deux trésors magiques, une tablette de jade et un jeton.
 
 Aucun sens divin ne subsistait dans les deux trésors magiques. En réalité, on y percevait seulement une infime trace de l'esprit vengeur du membre de la famille Huan décédé. Il était évident que l'ancêtre de la famille Ran et l'homme d'âge mûr n'avaient pas osé y laisser leur propre sens divin.
 
@@ -120,8 +120,8 @@ Il s'agissait d'une paire de pierres à feu de l'élément métal. Elles étaien
 
 « Un trésor magique formé naturellement! » Wang Lin eut le souffle coupé et concentra toute son attention sur la pierre.
 
-La plupart des trésors sont raffinés par les cultivateurs, mais certains se forment naturellement. Cependant, ces derniers sont extrêmement rares, bien plus que les trésors d'héritage. Wang Lin le savait grâce à la mémoire de l'Ancien Dieu. Pourtant, pour ce dernier, cela n'était pas considéré comme un trésor, mais simplement comme un matériau de raffinage.
+La plupart des trésors sont raffinés par les cultivateurs, mais certains se forment naturellement. Cependant, ces derniers sont extrêmement rares, bien plus que les trésors d'héritage. Wang Lin le savait grâce à la mémoire de l'ancien dieu Tu Si. Pourtant, pour ce dernier, cela n'était pas considéré comme un trésor, mais simplement comme un matériau de raffinage.
 
 La pierre à feu était l'un de ces matériaux naturels. À l'origine de l'élément métal, sa robustesse lui conférait une capacité mystérieuse qui générait des étincelles lors d'une friction.
 
-Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang utilisé par l'intendant en chef du Pays des Démons Célestes. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.
+Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang qu'avait jadis utilisé l'intendant en chef du Pays des Démons Célestes, dans la Terre des Esprits Démoniaques. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.

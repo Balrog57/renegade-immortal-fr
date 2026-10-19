@@ -10,7 +10,7 @@ Le regard de Wang Lin était aussi froid que la glace alors qu'il observait les 
 
 Tous étaient des cultivateurs puissants dont les niveaux de culture surpassaient largement ceux de Wang Lin. Cependant, seules leurs projections étaient présentes ici, ce qui limitait leur niveau de culture au stade intermédiaire du Vide Spirituel, un niveau qui ne serait pas détecté par les cultivateurs du Royaume Intérieur.
 
-Pourtant, ces quatre personnes avaient forcé Wang Lin à affronter plusieurs crises de vie ou de mort. S'il n'avait pas appris la technique de l'Ombrelle Brûlante du Royaume dans la Terre Déchue, il serait mort lors de leur première attaque combinée!
+Pourtant, ces quatre personnes avaient forcé Wang Lin à affronter plusieurs crises de vie ou de mort. S'il n'avait pas appris, dans la Terre Déchue, la technique de l'Ombrelle Brûlante du Royaume qui consume sa longévité, il serait mort lors de leur première attaque combinée!
 
 S'il n'avait pas obtenu la fortune du fou, il serait mort des mains des deux concubines impériales célestes!
 
@@ -74,19 +74,19 @@ Cette concubine se retourna brusquement, révélant un visage tordu par l'effroi
 
 Dans ce moment critique, la concubine cracha du sang et tenta de former une silhouette de sang. La forme commençait à prendre corps, mais la flèche la traversa alors qu'elle s'élançait vers cette femme qui avait atteint les limites du désespoir!
 
-Tout cela se produisit en un instant. La concubine sortit l'antique harpe qu'elle avait maniée précédemment, un trésor extrêmement puissant offert par le Souverain Céleste.
+Tout cela se produisit en un instant. La concubine sortit l'antique cithare qu'elle avait maniée précédemment, un trésor extrêmement puissant offert par le Souverain Céleste.
 
-Mais au moment même où la harpe semblait pouvoir la protéger, elle vola en éclats en d'innombrables fragments. La concubine poussa un cri et tenta de reculer, mais elle ne fit que deux pas avant que la flèche ne transperce la harpe et son propre crâne.
+Mais au moment même où la cithare semblait pouvoir la protéger, elle vola en éclats en d'innombrables fragments. La concubine poussa un cri et tenta de reculer, mais elle ne fit que deux pas avant que la flèche ne transperce la cithare et son propre crâne.
 
 La tête de la concubine explosa comme celle de l'homme en blanc et son corps se dissipa. La flèche poursuivit sa course à travers les restes évanescents de son être.
 
 Ayant tué deux personnes d'affilée, la flèche avait perdu un peu de son élan, mais elle conservait une puissance monstrueuse. Elle fonça alors vers la troisième personne: la femme qui avait utilisé le sort de divination!
 
-Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li!
+Cette femme avait été témoin de la mort de l'homme en blanc puis de celle de sa sœur. Son visage était empreint d'une misère profonde. Bien que son corps ne fût qu'une projection et qu'une mort normale n'aurait pas eu de conséquences graves, mourir sous ce tir infligerait des blessures terribles à son corps originel. Cette flèche n'appartenait pas à ce monde; elle venait de sa terre natale, c'était un trésor célèbre de la famille Li, renommé sur tout le Continent des Immortels Célestes!
 
 Sombrant dans le désespoir, la femme cessa de fuir. Elle se retourna pour faire face au projectile qui grandissait jusqu'à envahir tout son champ de vision. Elle ferma les yeux.
 
-Alors qu'elle fermait les paupières, la flèche atteignit son front. Juste avant l'impact, une lumière aux sept couleurs jaillit de sa poitrine. À son cou pendait un talisman fait d'une pierre noire et ovale; c'est de cette pierre que provenait la clarté chromatique.
+Alors qu'elle fermait les paupières, la flèche atteignit son front. Juste avant l'impact, une lumière aux sept couleurs jaillit de sa poitrine. À son cou pendait un pendentif fait d'une pierre noire et ovale; c'est de cette pierre que provenait la clarté chromatique.
 
 Le pendentif flotta devant elle tandis que la lumière aux sept couleurs enveloppait son corps.
 

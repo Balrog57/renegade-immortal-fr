@@ -56,7 +56,7 @@ Une fois les trois disparus, la paroi de falaise couverte de mousse émit soudai
 
 Un jeune homme aux cheveux descendant jusqu'à la taille en sortit lentement. Son visage était pâle et ses yeux brillaient d'un éclat vif. Dès qu'il franchit le seuil de la grotte, toutes les bêtes sauvages commencèrent à gémir, leurs yeux implorant la pitié.
 
-Le jeune homme aux longs cheveux avait environ vingt ans. Son regard était glacial alors qu'il contemplait les bêtes. Il resta silencieux, tournant ses yeux vers la Montagne Heng Yue le cœur plein d'émotion.
+Le jeune homme aux longs cheveux avait environ vingt ans. Son regard était glacial alors qu'il contemplait les bêtes. Il resta silencieux, tournant ses yeux vers la Montagne Heng Yue, en direction de la Secte Xuan Dao, le cœur plein d'émotion.
 
 Il s'agissait de Wang Lin, qui était en culture isolée depuis quatre ans.
 

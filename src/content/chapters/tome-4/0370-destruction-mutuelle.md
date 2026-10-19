@@ -12,13 +12,13 @@ Dans la partie septentrionale du continent Suzaku, on pouvait voir deux rayons d
 
 Tout en courant, le visage de Sun Tai était sombre et il maudissait: « Tu crois vraiment que je te crains?! » Sa main droite traça un sceau qu'il pressa contre le front de Wang Lin, avant de précipiter le corps de ce dernier dans la forêt dense en contrebas.
 
-Dès que Wang Lin toucha terre, il lutta pour ouvrir les yeux et s'assit en position du lotus. Il commença à cultiver afin de contrer le domaine de l'homme d'âge moyen et le sceau de Sun Tai.
+Dès que Wang Lin toucha terre, il lutta pour ouvrir les yeux et s'assit en position du lotus, avala une pilule et commença à cultiver afin de contrer le domaine de l'homme d'âge moyen et le sceau de Sun Tai.
 
 Il était désormais éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Être sauvé par Sun Tai restait préférable à une mort certaine.
 
 L'ancêtre du Clan des Démons Géants les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
 
-Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent. Ces lueurs se transformèrent en trois cadavres momifiés qui chargèrent l'ancêtre du Clan des Démons Géants.
+Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent de son sac de rangement. Ces lueurs se transformèrent en trois cadavres momifiés qui chargèrent l'ancêtre du Clan des Démons Géants.
 
 Sun Tai hurla: « Explosez pour moi! »
 
@@ -114,7 +114,7 @@ L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice 
 
 Cependant, Sun Tai avait déjà été happé par le vortex. Il poussa un cri de frustration et disparut lentement.
 
-Le pouvoir de lignée du Clan des Démons Géants n'avait pas de capacité d'attaque réelle en raison du faible niveau de culture de l'ancêtre, mais il pouvait téléporter quelqu'un loin du continent Suzaku, jusque dans les étoiles lointaines.
+Le pouvoir de lignée du Clan des Démons Géants n'avait pas de capacité d'attaque réelle en raison du faible niveau de culture de l'ancêtre, mais il pouvait téléporter quelqu'un loin de la planète Suzaku, jusque dans les étoiles lointaines.
 
 Alors que le vortex se refermait, Sun Tai disparut à son tour.
 

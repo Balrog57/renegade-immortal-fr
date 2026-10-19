@@ -39,7 +39,7 @@ Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là o
 
 Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte du Yang Pourpre. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 
-Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver un guide avant de pouvoir s'y rendre.
+Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver une pierre de jade cartographique avant de pouvoir s'y rendre.
 
 « Les trois nations du clan Ancien sont: l'Ancien Shi, la plus puissante; l'Ancien Ji, la plus unie; et l'Ancien Dao, qui possède le plus grand nombre d'habitants mais qui est également la plus faible. » Wang Lin marchait sur la terre noire en prenant une profonde inspiration.
 
@@ -89,7 +89,7 @@ Wang Lin répondit calmement: « Wang Lin. »
 
 Il ajouta aussitôt: « Et révèle ta marque de clan! »
 
-Wang Lin esquissa un léger sourire et neuf étoiles apparurent lentement entre ses sourcils. Ces neuf étoiles émettaient une lueur spectrale, rendant Wang Lin indiscernable des membres les plus éminents du clan Ancien.
+Wang Lin esquissa un léger sourire et neuf étoiles apparurent lentement entre ses sourcils. Ces neuf étoiles émettaient une lueur spectrale, rendant Wang Lin indiscernable des autres membres du clan Ancien.
 
 À l'apparition de ces neuf étoiles, les deux gardes furent stupéfaits, leurs pupilles se rétractant de stupeur. Ils reculèrent de quelques pas et joignirent les mains en signe de respect devant Wang Lin.
 

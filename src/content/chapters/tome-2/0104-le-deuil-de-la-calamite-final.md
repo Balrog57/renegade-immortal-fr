@@ -8,7 +8,7 @@ slug: le-deuil-de-la-calamite-final
 ---
 Wang Lin n'avait jamais ressenti une telle sensation auparavant. C'était une douleur si vive qu'il avait envie de s'arracher le cœur. C'était comme si tout le sang de son corps avait été instantanément vidé. Des vagues de vertiges assaillirent sa tête.
 
-Wang Lin endurait cette douleur imprévue tout en courant à perdre haleine. Il se retourna et vit que les trois poursuivants étaient toujours sur ses talons. Ses yeux devinrent glacials lorsqu'il changea de direction pour se diriger vers la zone de rassemblement de la Secte des Cadavres.
+Wang Lin endurait cette douleur imprévue tout en courant à perdre haleine. Il se retourna et vit que les trois poursuivants étaient toujours sur ses talons. Ses yeux devinrent glacials lorsqu'il changea de direction pour filer en vol sur son épée vers la zone de rassemblement de la Secte des Cadavres.
 
 Quatre faisceaux de lumière traversèrent rapidement la Vallée Jue Ming.
 
@@ -16,7 +16,7 @@ Les seules pensées qui occupaient l'esprit de Wang Hao et Wang Zhuo étaient la
 
 Le cultivateur aux allures d'immortel afficha une expression complexe. Il soupira et se détourna pour ne plus avoir à les regarder.
 
-Teng Huayuan sourit en pénétrant dans la demeure. Il joignit les mains; en les écartant, une onde annulaire violette se propagea et enveloppa toute la demeure, empêchant quiconque de s'échapper.
+Teng Huayuan ricana sinistrement en pénétrant dans la demeure. Il joignit les mains; en les écartant, une onde annulaire violette se propagea et enveloppa toute la demeure, empêchant quiconque de s'échapper.
 
 Puis, d'un pas assuré, il pénétra dans l'une des maisons annexes où vivaient les serviteurs. Des vagues de cris déchirants s'élevèrent de la demeure tandis que le drapeau recueillait des flux de gaz jaunâtre.
 
@@ -24,7 +24,7 @@ Sept ou huit visages convulsés de douleur, appartenant aux serviteurs de la fam
 
 Teng Huayuan ne marqua pas de pause et entra dans la maison suivante; d'autres hurlements s'ensuivirent. Le corps de Wang Hao trembla. Il brûlait de résister, mais était incapable de prononcer le moindre mot.
 
-Bientôt, tous les serviteurs de la famille Wang furent transformés en spectres, et le visage de Teng Huayuan devint d'un sérieux glacial. Alertés par ces cris, les autres membres de la famille tentèrent de s'enfuir, mais à leur grand effroi, ils se heurtèrent à une lumière violette qui leur barrait toute issue.
+Bientôt, tous les serviteurs de la famille Wang furent transformés en spectres, et le visage de Teng Huayuan devint encore plus féroce. Alertés par ces cris, les autres membres de la famille tentèrent de s'enfuir, mais à leur grand effroi, ils se heurtèrent à une lumière violette qui leur barrait toute issue.
 
 Ils n'étaient plus que les témoins d'un flux incessant de supplications et de hurlements provenant de l'extérieur. Cette terreur pure plongea toute la famille Wang dans un désarroi total.
 
@@ -46,17 +46,17 @@ Teng Huayuan ricana. Sa main droite se referma brutalement. Dans une détonation
 
 Teng Huayuan saisit à nouveau la mère de Wang Hao, lui brisa le crâne et jeta son corps devant son fils.
 
-Le corps de Wang Hao fut secoué de spasmes alors qu'il recrachait davantage de sang, avant de s'effondrer finalement. Il serra le corps de sa mère contre lui, hurlant dans un torrent de larmes: « Pourquoi!?!?!?! »
+Le corps de Wang Hao fut secoué de spasmes alors qu'il recrachait davantage de sang, avant de s'effondrer finalement. Il serra le corps de sa mère contre lui, puis releva brusquement la tête, fixa Teng Huayuan et hurla dans un torrent de larmes: « Pourquoi!?!?!?! »
 
 L'expression de Teng Huayuan s'assombrit. D'un geste de la main, sous l'éclat de la lumière violette, toutes les maisons se changèrent en poussière. Une quarantaine de personnes gisaient désormais au sol; tous étaient des membres de la famille Wang.
 
 Les femmes se mirent à pleurer, terrassées par l'effroi. Hormis les survivants, le sol ne portait plus que des cadavres décapités.
 
-Teng Huayuan sourit en saisissant une personne: le troisième oncle du père de Wang Lin, qui était l'aîné de la famille.
+Teng Huayuan ricana sinistrement en saisissant une personne: le troisième oncle du père de Wang Lin, qui était l'aîné de la famille.
 
 Au milieu des hurlements, son âme fut arrachée par Teng Huayuan, et il rendit l'âme.
 
-Wang Hao contemplait la scène, hébété. Il ne réalisa même pas que la main de Wang Zhuo qui le maintenait avait déjà gravé des marques sanglantes sur sa peau. Wang Zhuo n'osait pas chercher ses propres parents dans la foule; il baissa ses yeux injectés de sang.
+Wang Hao contemplait la scène, hébété. Il ne réalisa même pas que la main de Wang Zhuo qui le maintenait avait déjà gravé des marques sanglantes sur sa peau. Wang Zhuo n'osait pas croiser le regard de ses propres parents dans la foule; il baissa ses yeux injectés de sang.
 
 Le quatrième oncle de Wang Lin, ayant vécu longtemps en pleine nature, faisait preuve d'un courage bien supérieur à la moyenne. Il esquissa un sourire amer, comme s'il avait tiré les conclusions nécessaires. Sa femme était morte de maladie l'année précédente et son fils avait été envoyé depuis de nombreuses années dans une secte martiale pour s'aguerrir; il n'avait donc plus rien à perdre. Il demanda d'une voix forte:
 
@@ -108,11 +108,11 @@ Teng Huayuan arriva presque instantanément dans le petit village où résidaien
 
 Des vagues de cris misérables émanaient du drapeau, provoquant des rafales de vent glacial.
 
-Une fois arrivé au village, il déploya son Sens Divin. Il localisa rapidement la demeure de Wang Lin et s'y précipita.
+Une fois arrivé au village, il déploya son Sens Divin. Il localisa rapidement la demeure de Wang Lin et s'y précipita en ricanant.
 
 Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa main droite, il frappa le drapeau qui grandit jusqu'à atteindre une taille gigantesque tandis qu'il se mordait le bout de la langue et crachait une gorgée de sang de l'Âme Naissante. Des hurlements s'élevèrent du drapeau alors que des ondulations s'y propageaient. Lentement, ces ondes disparurent pour révéler une image: celle de Wang Lin se déplaçant avec précipitation à travers une jungle.
 
-Teng Huayuan sourit et pointa l'image du doigt.
+Teng Huayuan ricana sinistrement et pointa l'image du doigt.
 
 Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
 

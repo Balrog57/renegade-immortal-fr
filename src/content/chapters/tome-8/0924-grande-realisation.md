@@ -30,7 +30,7 @@ L'énergie originelle en lui faillit s'effondrer. L'écart entre sa culture et c
 
 Wang Lin poussa un cri de douleur alors qu'il se retirait. « Senior Maître Yan Leizi, ce junior a fait de son mieux! » S'il agissait ainsi, c'était pour magnifier sa propre prouesse devant l'assistance! Cela créerait une dette immense envers Maître Yan Leizi!
 
-C'était aussi un moyen puissant de s'assurer la protection totale de Luotian!
+C'était aussi un gage de loyauté qui lui assurerait la protection totale de Luotian!
 
 C'était une preuve de sincérité absolue. Grâce à cet exploit, où que ce soit et quel que soit le moment, lui, Wang Lin, serait devenu le héros le plus emblématique de la guerre entre les deux systèmes!
 
@@ -42,7 +42,7 @@ Parfois, quand toutes les voies sont closes, il faut parier pour tracer son prop
 
 En réalité, l'intuition de Wang Lin était d'une justesse chirurgicale. Sans son corps de Dieu Ancien, il serait mort. Mais grâce à ce dernier et à l'état d'extrême faiblesse de Ji Xiantian, il ne fut que blessé!
 
-Alors que Maître Yan Leizi riait, son corps vacilla avant qu'il ne charge directement vers Wang Lin. En un éclair, il atteignit le corps de ce dernier qui reculait sans cesse et posa sa paume sur son dos.
+Alors que Maître Yan Leizi riait, il bondit directement vers Wang Lin. En un éclair, il atteignit le corps de ce dernier qui reculait sans cesse et posa sa paume sur son dos.
 
 Une impulsion d'énergie originelle d'une puissance inimaginable jaillit du corps de Maître Yan Leizi pour pénétrer celui de Wang Lin. Cela stabilisa instantanément l'énergie originelle de Wang Lin et guérit ses blessures.
 
@@ -50,9 +50,9 @@ De plus, Maître Yan Leizi bloqua la puissance de cette énergie afin qu'elle re
 
 À cet instant, Wang Lin sentit l'énergie originelle exploser en lui. Son âme originelle s'éveilla et absorba cette force avec une avidité dévorante. Il sentit sa propre puissance croître de façon vertigineuse. Finalement, sa culture atteignit le sommet du stade initial du Scruteur du Nirvana. Il ne lui manquait plus qu'une compréhension profonde de son domaine pour devenir un cultivateur au stade intermédiaire du Scruteur du Nirvana!
 
-Cette fois, Maître Yan Leizi n'avait pas retenu ses coups et avait offert à Wang Lin une fortune inestimable!
+Cette fois, Maître Yan Leizi n'avait rien retenu et avait offert à Wang Lin une fortune inestimable!
 
-Il était si difficile pour les cultivateurs du deuxième stade d'augmenter leur niveau! Outre la compréhension de leur domaine, ils devaient absorber une quantité massive d'énergie originelle, un processus qui pouvait prendre des millénaires!
+Il était si difficile pour les cultivateurs du deuxième stade d'augmenter leur niveau! Outre la compréhension de leur domaine, ils devaient absorber une quantité massive d'énergie originelle, un processus qui consumait des années sans nombre!
 
 Maître Yan Leizi retira sa main, regarda Wang Lin et éclata de rire: « Bien! Bien! Bien! »
 
@@ -68,13 +68,13 @@ Quant aux autres cultivateurs, le vieillard en robe noire et le jeune homme affi
 
 Il y avait aussi cette femme vêtue d'une robe de palais. Elle fixait désormais Wang Lin avec une pointe d'intérêt. Déjà magnifique, son regard lui conférait un charme irrésistible.
 
-« Xu Mu, une fois cette guerre terminée, non seulement ce vieillard te rendra ta Bête du Tonnerre, mais je t'offrirai également un trésor défensif! Avec ce trésor, à l'exception de quelques élus de l'Alliance, nul ne pourra plus menacer ta vie! » sourit Maître Yan Leizi en chargeant vers le Saint Démon Noir et le Saint Démon du Dragon des Nuages.
+« Xu Mu, une fois cette guerre terminée, non seulement ce vieillard te rendra ta Bête du Tonnerre, mais je t'offrirai également un trésor défensif! Avec ce trésor, à l'exception de quelques individus de l'Alliance, nul ne pourra plus menacer ta vie! » sourit Maître Yan Leizi en chargeant vers le Saint Démon Noir et le Saint Démon du Dragon des Nuages.
 
 D'un air serein, Wang Lin activa l'énergie originelle dans son corps. Sentant sa force revenir, il prit une profonde inspiration. Il avait parié sur le bon coup!
 
 Le bois géant continuait de charger vers le champ de bataille du Nord, tandis que les cultivateurs de l'Alliance étaient repoussés. La dévoration de Ji Xiantian par le Serpent aux yeux de lune avait ébranlé les rangs de l'Alliance, affaiblissant considérablement leur volonté de combattre.
 
-Le Serpent aux yeux de lune rugissait avec frénésie, ses tentacules balayant la zone. Tout cultivateur touché par ces membres poussait un cri déchirant avant d'être vidé de sa substance.
+Le Serpent aux yeux de lune rugissait avec frénésie, ses tentacules balayant la zone. Tout cultivateur touché par ces tentacules poussait un cri déchirant avant d'être vidé de sa substance.
 
 Le Serpent aux yeux de lune était trop puissant!
 
@@ -90,7 +90,7 @@ Une pression écrasante s'abattit soudainement. Outre les cent tours, quatre pla
 
 Chacun de ces quatre géants portait une marque de hache sur le front: c'étaient des membres du Clan des Démons Géants!
 
-Quatre silhouettes flottaient au-dessus des planètes portées par les géants. Trois d'entre elles étaient des vieillards à l'aura céleste. Leur puissance était manifeste, sans qu'ils aient besoin de manifester la moindre colère!
+Quatre silhouettes flottaient au-dessus des planètes portées par les géants. Trois d'entre elles étaient des vieillards aux cheveux blancs, à l'aura céleste. Leur puissance était manifeste, sans qu'ils aient besoin de manifester la moindre colère!
 
 La quatrième personne était une femme. Vêtue d'une robe bleue, ses cheveux retombaient sur son épaule. Elle tenait un lotus à huit pétales et ses yeux de phénix étaient empreints d'une intention meurtrière alors qu'elle fixait l'horizon.
 
@@ -116,7 +116,7 @@ Maître Yan Leizi ne connaissait pas ce Wu Dongchan. Il était évident que cet 
 
 « Si tu veux combattre, alors combattons! » Alors que la voix glaciale de Maître Yan Leizi résonnait, il s'élança pour pénétrer dans la brume noire. Cette dernière s'éleva soudainement et se mit à tourbillonner violemment, tandis que des rafales de sorts de feu provoquaient des explosions successives!
 
-« Scellez ce Serpent aux yeux de lune! » ordonna calmement la femme en robe bleue. Les centaines de tours s'élancèrent immédiatement, sifflant dans l'air à une vitesse cent fois supérieure à celle qu'elles avaient auparavant!
+« Scellez ce Serpent aux yeux de lune! » ordonna calmement la femme en robe bleue. Plus d'une centaine de tours s'élancèrent immédiatement, sifflant dans l'air à une vitesse cent fois supérieure à celle qu'elles avaient auparavant!
 
 Elles étaient comme des lames projetées droit sur le Serpent aux yeux de lune!
 

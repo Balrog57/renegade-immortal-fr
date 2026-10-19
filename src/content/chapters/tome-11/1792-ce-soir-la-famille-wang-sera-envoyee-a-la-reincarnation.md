@@ -10,7 +10,7 @@ Les compagnons de Wang Lin partirent les uns après les autres. Avant de s'en al
 
 Treize s'agenouilla dans le vide devant Wang Lin. Il leva la tête, le regard empreint d'une détermination sans faille.
 
-« Maître, Treize s'en va. Même si ma mémoire venait à être scellée, je n'oublierai jamais la bonté avec laquelle vous m'avez transmis le Dao. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient effacés, son instinct subsisterait.
+« Maître, Treize s'en va. Même si ma mémoire ne s'éveille pas, je n'oublierai jamais la bonté avec laquelle vous m'avez transmis le Dao. Même lors de ma réincarnation, je ne l'oublierai pas! » Les paroles de Treize étaient chargées d'une volonté farouche. Sa résolution était si puissante que, même si ses souvenirs étaient effacés, son instinct subsisterait.
 
 Cet instinct était ce qui lui importait le plus: son lien avec Wang Lin en tant que disciple.
 
@@ -44,7 +44,7 @@ Wang Lin salua Xuan Luo d'un geste respectueux, puis fit un pas en avant. Sa sil
 
 Cette nouvelle formation était une création personnelle de Wang Lin. Familier avec ses mécanismes, il n'hésita pas à la franchir. Il ne lui fallut qu'un demi-bâton d'encens pour pénétrer dans le Système Stellaire Antique!
 
-« Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Rêve Bleu s'est déplacé vers le Royaume Intérieur. Il ne reste que Miao Yin, Dieu du Vide et Neuf Cieux. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
+« Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Rêve Bleu s'est établi au Royaume Céleste. Il ne reste que Miao Yin, le Maître Céleste Dieu du Vide et Neuf Cieux. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
 Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage du Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
@@ -102,7 +102,7 @@ Ces ossements étaient principalement ceux d'animaux. Tandis que Miao Yin se soi
 
 « Wang Lin, Rêve Bleu... vous deux ne mourrez pas une belle mort! » Les yeux de Miao Yin s'ouvrirent grand, son visage déformé par la rage. Blessé par Rêve Bleu, son niveau de culture avait chuté au stade Vide Spirituel. Il lui faudrait au moins cent ans pour retrouver son apogée, et il se soignait avec acharnement pour tenter de réduire ce délai.
 
-Dans son rugissement, Miao Yin tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir qui trembla, incapable de lutter face à la puissance du tourbillon.
+Dans son rugissement, Miao Yin tendit la main droite vers l'océan. Un vortex apparut, aspirant un long serpent de mer noir, long de mille pieds, qui trembla, incapable de lutter face à la puissance du tourbillon.
 
 Miao Yin saisit la tête du serpent et lui mordit le cou. Il aspira violemment toute l'essence de la créature. Le serpent se changea instantanément en un squelette avant d'être rejeté sur le côté.
 

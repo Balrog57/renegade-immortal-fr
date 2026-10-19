@@ -58,7 +58,7 @@ Le groupe de Wang Lin ne chercha pas à se cacher. À l'arrivée de l'aube, ils 
 
 Simultanément, plus de dix cultivateurs de divers niveaux, allant de l'Établissement des Fondations à la Formation de l'Âme, accoururent. Leurs sens divins les verrouillèrent rapidement.
 
-Un rugissement furieux retentit de l'autre côté du mur: « Espèces impudentes! Osez-vous profaner la demeure ancestrale impériale? Savez-vous que c'est un crime passible de punition pour toute votre lignée?! »
+Un rugissement furieux retentit de l'autre côté du mur: « Misérables insolents! Osez-vous profaner la demeure ancestrale impériale? Savez-vous que c'est un crime passible de punition pour toute votre lignée?! »
 
 Des éclairs d'énergie d'épée déchirèrent le ciel lors de l'arrivée des cultivateurs, tous animés par une colère noire. Wang Lin comprit que ce n'était pas une feinte, mais une véritable indignation!
 
@@ -72,7 +72,7 @@ La voix de Wang Lin était monocorde, mais lorsqu'elle atteignit les oreilles de
 
 Cette sensation brutale fit changer radicalement les expressions des cultivateurs. Le visage du maître de la Formation de l'Âme pâlit. Ayant atteint ce stade et possédant son propre domaine, il ressentit l'effet avec une intensité accrue: il eut l'impression que son domaine allait être dévoré.
 
-Une force invisible le contraignait à répondre; s'il restait muet, il s'effondrerait sur le coup. Inconsciemment, il recula de quelques pas et déclara: « Ceci... Ceci a été érigé par la famille royale mortelle. C'est le foyer des ancêtres de la famille Wang, mais aussi la maison d'enfance de l'ancêtre de ma planète Suzaku! »
+Une force invisible le contraignait à répondre; s'il restait muet, il s'effondrerait sur le coup. Inconsciemment, il recula de quelques dizaines de pieds et déclara: « Ceci... Ceci a été érigé par la famille royale mortelle. C'est le foyer des ancêtres de la famille Wang, mais aussi la maison d'enfance de l'ancêtre de ma planète Suzaku! »
 
 En disant cela, il croisa le regard de Wang Lin et fut stupéfait. Il avait la vague impression que cet homme lui était extrêmement familier, mais malgré tous ses efforts, il ne parvenait pas à s'en souvenir.
 
@@ -104,7 +104,7 @@ Le vieil homme fronça les sourcils et scruta le groupe de Wang Lin. Pour une ra
 
 En entendant ces paroles, le regard de Wang Lin balaya les autres cultivateurs. Chacun d'eux possédait un talent remarquable. Fort de son expérience, il comprit immédiatement que le vieil homme disait la vérité.
 
-Après une courte réflexion silencieuse, Wang Lin laissa échapper un soupir. Touché, il dit: « Merci à vous tous! » Sur ces mots, il agita ses manches et l'énergie d'origine apparut. Elle se mua en de petits cristaux qui tombèrent sur chaque cultivateur. Même les gardes gisant au sol reçurent ces précieux fragments.
+Après une courte réflexion silencieuse, Wang Lin laissa échapper un soupir. Touché, il dit: « Merci à vous tous! » Sur ces mots, il agita ses manches et l'énergie d'origine apparut. Elle se mua en de petits cristaux qui tombèrent sur chaque cultivateur. Même les soldats au sol, armes à la main, reçurent ces précieux fragments.
 
 Chaque cultivateur fut stupéfait et sentit instantanément une chaleur intense parcourir son corps. Leurs expressions devinrent étranges.
 

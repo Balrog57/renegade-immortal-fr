@@ -52,7 +52,7 @@ L'âme démoniaque trembla et se transforma en un rayon de lumière noire. Elle 
 
 Les membres du Clan des Scorpions Noirs restèrent stupéfaits devant ce python noir qui dégageait une pression infinie. Ils étaient totalement ébranlés.
 
-Les membres du Clan de l'Évasion Nuageuse éprouvèrent le même sentiment, fixant le python céleste avec terreur. Une sensation d'effroi envahit leurs cœurs.
+Les membres du Clan de l'Évasion Nuageuse éprouvèrent le même sentiment, fixant le python noir avec terreur. Une sensation d'effroi envahit leurs cœurs.
 
 Le python noir contenait une tyrannie et une folie inimaginables. Son puissant instinct meurtrier donnait l'impression que chaque être vivant au monde était son ennemi!
 
@@ -66,7 +66,7 @@ L'expression de Wang Lin était sereine, mais une pointe de joie régnait dans s
 
 « Je me demande si je pourrai retrouver la forme originelle de l'Ordre Ancien une fois que mes avatars de Dieu Ancien, de Diable et de Démon auront fusionné comme je l'espère! » Wang Lin se lécha les lèvres et agita la main droite. Deux trésors apparurent immédiatement devant lui.
 
-Une feuille jaune et un arbre scellé!
+Une feuille jaune et un homme-arbre scellé!
 
 Dans la Terre Déchue, la Sélection des Anciens Délaissés était un événement sacré. Tous les petits clans qualifiés pour concourir s'apprêtaient!
 
@@ -90,7 +90,7 @@ Normalement, une force magnétique et de déchirement inimaginable régnait auto
 
 Ce n'est que lors de la Sélection des Anciens Délaissés que ces forces s'affaiblissaient considérablement, permettant l'apparition de plusieurs tunnels pour accéder à la planète.
 
-Outre les quelque 300 clans participant à la Sélection, on trouvait également des individus venus du Système Stellaire Antique. La plupart étaient invités par ces clans et apportaient parfois leur aide lors des combats.
+Outre les plus de 300 clans participant à la Sélection, on trouvait également des individus venus du Système Stellaire Antique. La plupart étaient invités par ces clans et apportaient parfois leur aide lors des combats.
 
 Le Grand Empereur n'y prêtait aucune attention, ce qui devint peu à peu une règle tacite. Cependant, quiconque n'appartenait pas aux clans de la Terre Déchue ne pouvait prétendre au titre d'Ancien, sous peine de mort!
 

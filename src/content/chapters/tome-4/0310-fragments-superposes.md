@@ -30,7 +30,7 @@ Un léger sourire apparut sur les lèvres de Wang Lin alors qu'il levait la rest
 
 Le visage de Papillon Rouge devint instantanément livide.
 
-Chi Hu joignit les mains et déclara: « Frère Ceng, je prends la décision. Tout ce que nous obtiendrons cette fois sera partagé équitablement entre nous. Qu'en dis-tu? »
+Chi Hu joignit les mains et déclara: « Frère Ceng, je prends la décision. Tout ce que nous obtiendrons cette fois sera partagé équitablement entre nous trois. Qu'en dis-tu? »
 
 « Très bien, je m'en remets au frère Chi Hu, alors », répondit Wang Lin avec un sourire discret. En vérité, il aurait préféré ne pas utiliser la foudre de la rétribution divine si possible. Il n'en possédait qu'une seule et, compte tenu de la structure de ce fragment, il lui serait difficile, même à lui, de s'échapper. En somme, cela lui serait préjudiciable également.
 

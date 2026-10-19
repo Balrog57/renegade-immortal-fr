@@ -22,7 +22,7 @@ Un grondement assourdissant résonna dans les passages et un violent tremblement
 
 Le corps de la Bête du Tonnerre fut repoussé. La force de recul était telle qu'elle eut presque du mal à la supporter. Après avoir reculé de quelques pas, son corps trembla, mais ses yeux étaient empreints d'une intention de combat et d'un regard inflexible.
 
-À cet instant précis, une ombre vacilla derrière Wang Lin et la garde céleste s'élança. Son corps enveloppé d'une lumière dorée, elle lança un coup de poing à l'endroit exact où l'attaque de la Bête du Tonnerre avait percuté.
+À cet instant précis, une ombre vacilla derrière Wang Lin et la garde céleste s'élança. Son corps enveloppé d'une lumière dorée teintée d'un reflet orangé, elle lança un coup de poing à l'endroit exact où l'attaque de la Bête du Tonnerre avait percuté.
 
 Boum! L'explosion titanesque provoqua un tremblement violent qui se propagea dans toute la zone.
 
@@ -82,7 +82,7 @@ L'énergie originelle contenue dans ces puits était d'une richesse extrême et 
 
 Diverses rumeurs propagées par divers individus attirèrent d'innombrables cultivateurs vers le Royaume Céleste du Tonnerre.
 
-En plus des puits, les cultivateurs de Luotian utilisaient un outil appelé « outil originel ». L'énergie qu'il contenait différait de celle des jades célestes. Si un cultivateur de la première étape l'absorbait, elle se transformait en énergie spirituelle céleste, mais si un cultivateur de la deuxième étape l'absorbait, elle devenait de l'énergie originelle!
+En plus des puits, les cultivateurs de Luotian utilisaient un outil appelé « outil d'origine ». L'énergie qu'il contenait différait de celle des jades célestes. Si un cultivateur de la première étape l'absorbait, elle se transformait en énergie spirituelle céleste, mais si un cultivateur de la deuxième étape l'absorbait, elle devenait de l'énergie originelle!
 
 Toutes ces raisons avaient tenté Wang Lin. Il s'étonnait également de n'avoir jamais entendu parler de telles choses dans le Royaume Céleste de la Pluie.
 
@@ -104,7 +104,7 @@ Le vieil homme gloussa en faisant un pas vers la montagne imposante.
 
 « Ce vieil homme deviendra le premier du Système Stellaire de Luotian! Une fois ce plan achevé, je pourrai balayer le Système Stellaire de l'Alliance et faire mourir ce maudit Maître Zhong Xuan sans qu'il n'ait de sépulture! »
 
-Quant à Wang Lin, il atterrit lentement, tendit la main et extirpa l'objet du sol. L'objet était incomplet, comme s'il s'agissait d'un fragment de vase.
+Quant à Wang Lin, il atterrit lentement, tendit la main et extirpa l'objet du sol. L'objet était incomplet, comme s'il s'agissait d'un fragment de cruche.
 
 Ses yeux brillèrent alors qu'il inspectait le sol. Il pouvait vaguement sentir que plusieurs autres fluctuations existaient sous terre.
 

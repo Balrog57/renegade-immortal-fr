@@ -10,9 +10,9 @@ Cinq fissures subtiles apparurent sur le dos de la tortue de pierre lorsque les 
 
 Cependant, à cet instant précis, un gaz gris imprégné d'une aura de mort s'échappa des crevasses et se rua vers Wang Lin.
 
-Le gaz gris fut repoussé par une force puissante et jaillit comme une tempête vers lui. Mais Wang Lin était sur ses gardes depuis le début; dès que le gaz jaillit, il recula promptement.
+Le gaz gris jaillit avec une force puissante, comme une tempête, et fondit sur Wang Lin. Mais celui-ci était sur ses gardes depuis le début; dès que le gaz jaillit, il recula promptement.
 
-À cet instant, un pan de gaz gris se détacha et s'élança vers l'Empereur Divin de la Tortue Noire, au sommet de sa tête.
+À cet instant, un pan de gaz gris se détacha et s'élança vers l'Empereur Divin de la Tortue Noire, assis en tailleur au niveau de la tête de la créature.
 
 Le gaz gris vola à une vitesse fulgurante et pénétra le corps de l'Empereur Divin de la Tortue Noire, le faisant trembler comme s'il était sur le point de ressusciter. Une aura puissante jaillit soudainement de l'Empereur Divin et un rugissement sourd émana de son corps! Si cela avait été un autre cultivateur, il aurait été pris au dépourvu et aurait eu bien du mal à gérer la situation.
 
@@ -20,7 +20,7 @@ Cependant, Wang Lin avait passé sa vie au milieu des massacres et possédait l'
 
 L'épée de sang apparut et s'élança vers l'Empereur Divin de la Tortue Noire à une vitesse capable de déchirer le vide. En un éclair, elle fendit son cou.
 
-Il n'y eut aucune trace de sang lorsque sa tête fut tranchée par l'épée de sang. L'arme trancha également l'épine qui transperçait la tête!
+Il n'y eut aucune trace de sang lorsque sa tête fut tranchée par l'épée de sang. L'arme trancha également l'épine qui transperçait la tête et dépassait de trois pouces du sommet du crâne!
 
 Le gaz gris qui avait pénétré le corps de l'Empereur Divin jaillit du cou une fois la tête coupée. Le faible rugissement se mua en un cri lugubre et, à mesure que le gaz s'échappait, il s'affaiblissait.
 
@@ -60,15 +60,15 @@ Dans ce monde, seuls quelques individus pouvaient pousser Wang Lin à une telle 
 
 Alors que les centaines de coups pleuvaient, plus de la moitié du dos de la Tortue Noire s'effondra sans toutefois se briser complètement. Les veines sur le visage de Wang Lin gonflèrent alors qu'il s'élevait à plusieurs dizaines de milliers de pieds dans les airs. Il pointa ensuite le ciel du doigt.
 
-« Empreinte d'Esprit Guerrier! »
+« Empreinte de l'Esprit! »
 
 Le ciel s'obscurcit et une immense paume dorée apparut. Les ondulations de la paume recouvrirent l'horizon. Tandis que la main droite de Wang Lin pressait vers le bas, l'empreinte traversa son corps pour s'abattre sur le dos de la Tortue Noire!
 
 Wang Lin descendit en même temps que la paume. Tout son corps irradiait une lueur dorée, tel un être céleste. Il poussa un rugissement et frappa de plein fouet.
 
-Un grondement tonitruant retentit lorsque l'Empreinte d'Esprit Guerrier percuta le dos de la Tortue Noire. L'animal trembla et une empreinte en forme de paume apparut sur sa carapace, dont les bords furent tous pulvérisés!
+Un grondement tonitruant retentit lorsque l'Empreinte de l'Esprit percuta le dos de la Tortue Noire. L'animal trembla et une empreinte en forme de paume apparut sur sa carapace, dont les bords furent tous pulvérisés!
 
-La main droite de Wang Lin pressa ensuite le dos de la Tortue Noire, suivant l'Empreinte d'Esprit Guerrier. Une force colossale éclata et toutes les écailles de la Tortue Noire volèrent en éclats dans toutes les directions!
+La main droite de Wang Lin pressa ensuite le dos de la Tortue Noire, suivant l'Empreinte de l'Esprit. Une force colossale éclata et toutes les écailles de la Tortue Noire volèrent en éclats dans toutes les directions!
 
 La Tortue Noire s'effondra! Une âme empreinte de tristesse s'échappa du corps de la tortue pour voler vers Qing Shui.
 
@@ -82,7 +82,7 @@ Il ne restait plus qu'une gigantesque sphère d'épines!
 
 Les grondements s'estompèrent lentement et le Royaume aux Sept Couleurs retrouva son calme. Les cent mille montagnes avaient disparu, ne laissant que celle sur laquelle se trouvait Qing Shui, enveloppée de nuages multicolores dans un silence absolu.
 
-À l'extérieur de cette montagne, se trouvait une énorme boule de pierre recouverte d'épines.
+À l'extérieur de cette montagne, se trouvait une énorme boule de pierre recouverte d'épines, flottant dans le ciel.
 
 Au sol gisait la Tortue Noire au dos brisé, mais sa tête restait tournée vers le lointain. De faibles volutes de gaz gris s'échappaient de ses fractures.
 
@@ -98,7 +98,7 @@ Un craquement retentit, puis une fissure parcourut la boule. Une silhouette appa
 
 D'innombrables épines transperçaient chaque partie de ce corps; même ses yeux étaient traversés par des pointes. La respiration rauque du personnage expulsait d'épaisses volutes de gaz blanc.
 
-Il semblait marquer une pause pour reprendre des forces. Après dix respirations, sa main droite saisit lentement une épine dans son œil et la retira. Des larmes de sang coulèrent sur son visage.
+Il semblait marquer une pause pour reprendre des forces. Après dix respirations, sa main droite saisit lentement une épine dans son œil et la retira. Des larmes de sang coulèrent de ses yeux, qu'il referma.
 
 Après un long moment, il ouvrit soudainement les yeux et poussa un rugissement. Sa main agrippa la sphère d'épines et la déchira à nouveau. Cette fois, il la scinda complètement en deux.
 
@@ -106,7 +106,7 @@ D'innombrables épines étaient reliées à la silhouette à l'intérieur, et lo
 
 Cependant, encore plus d'épines se brisèrent et restèrent logées dans le corps de Wang Lin.
 
-« Senior Frère Qing Shui, je vais vous sauver... » Une voix ténue s'échappa de la bouche de Wang Lin une fois le rugissement dissipé. Il sortit de la sphère d'épines, mais la douleur était presque insupportable. Des dizaines de milliers d'épines lui perçaient le corps.
+« Senior Frère Qing Shui, je vais te sauver... » Une voix ténue s'échappa de la bouche de Wang Lin une fois le rugissement dissipé. Il sortit de la sphère d'épines, mais la douleur était presque insupportable. Des dizaines de milliers d'épines lui perçaient le corps.
 
 Chaque pas faisait couler le sang le long des pointes. Le corps de Wang Lin rétrécissait lentement, passant de sa taille initiale de dix mille pieds. Au cours de ce processus, beaucoup d'épines se brisèrent, mais des fragments de chacune restèrent ancrés dans son corps, comme s'ils faisaient désormais partie de sa propre chair et ne pouvaient être retirés.
 

@@ -28,7 +28,7 @@ L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Rêve Bleu 
 
 Il redoutait la puissance de cette flèche, c'est pourquoi il avait retardé son apparition. Il avait attendu que Wang Lin utilise l'arme pour se révéler.
 
-Cette flèche avait déjà tissé un lien avec l'arc logé dans le corps de Wang Lin. Après s'être dissipée, elle était réapparue à l'intérieur de lui par quelque moyen étrange. Si Li Guang n'était pas mort, cette flèche serait retournée dans son corps.
+Cette flèche avait déjà tissé un lien avec l'arc logé dans le corps de Wang Lin. Après s'être dissipée, elle était réapparue dans son âme par quelque moyen étrange. Si Li Guang n'était pas mort, cette flèche serait retournée dans son corps.
 
 « Dites-moi, où avez-vous obtenu votre lignée céleste? » Après avoir broyé la flèche, l'homme en robe noire marcha lentement vers Wang Lin. Bien que sa cadence fût lente, chaque pas qu'il faisait faisait trembler Wang Lin. C'était comme si une pression infinie écrasait son corps de toutes parts.
 

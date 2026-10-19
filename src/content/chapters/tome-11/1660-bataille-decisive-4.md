@@ -26,7 +26,7 @@ Lorsqu'elles fusionnèrent, la formation composée des trois grandes essences é
 
 Alors que ses paroles résonnaient, 10 000 cultivateurs du Royaume Intérieur s'assirent sans la moindre hésitation. Leurs âmes originelles s'envolèrent vers les trois roues d'essence superposées de Wang Lin.
 
-Instantanément, ces 10 000 âmes atteignirent leur cible. Les trois roues se mirent à rugir et à pivoter. Puis, elles fusionnèrent en une seule et commencèrent à s'étendre rapidement, pour devenir une roue gigantesque aussi haute que le ciel lui-même!
+Instantanément, ces 10 000 âmes atteignirent leur cible. Les trois roues se mirent à rugir et à pivoter. Puis, elles fusionnèrent en une seule et commencèrent à s'étendre rapidement, pour devenir une roue gigantesque, aussi haute que le ciel et d'une taille infinie!
 
 Cette roue dégageait l'essence de la vie et de la mort, du vrai et du faux, ainsi que celle du karma. Lorsqu'elle tournait, la trajectoire même du monde changeait. À chacun de ses mouvements, le ciel s'effondrait!
 
@@ -68,7 +68,7 @@ Sous ce souffle, tous les cultivateurs restants du Royaume Extérieur, où qu'il
 
 La vieille femme qui avait tenté de tuer Wang Lin frémit et disparut: son âme fut totalement détruite!
 
-Seule la dernière concubine impériale céleste parvint à avoir une longueur d'avance. Lorsque la puissance de la roue balaya la zone, elle ouvrit une brèche dans le vide grâce à un sortilège de survie qu'elle avait préparé. Elle s'engouffra dans la faille et survécut de justesse.
+Seule la dernière concubine impériale céleste parvint à avoir une longueur d'avance. Lorsque la puissance de la roue balaya la zone, elle ouvrit une brèche dans le vide grâce à un sortilège de survie, issu du Continent Astral Immortel, qu'elle avait préparé. Elle s'engouffra dans la faille et survécut de justesse.
 
 Tout était terminé!
 

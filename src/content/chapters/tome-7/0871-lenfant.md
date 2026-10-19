@@ -94,7 +94,7 @@ Zhan Konglie prit une grande inspiration et serra les dents pour résister à la
 
 Le cultivateur aux six doigts et le garçon à la grosse tête subissaient le même sort. Cependant, ils n'utilisaient manifestement pas toute leur puissance et paraissaient plus détendus; toutefois, leur calme était dérisoire face à celui de Wang Lin.
 
-Assis là, Wang Lin laissait d'immenses quantités de tonnerre pénétrer son corps pour nourrir son esprit originel. Ses blessures antérieures étaient totalement guéries. Non seulement cela, mais les séquelles cachées laissées par son ancien combat contre Yao Bingyun s'étaient également évanouies!
+Assis là, Wang Lin laissait d'immenses quantités de tonnerre pénétrer son corps pour nourrir son esprit originel. Ses blessures antérieures étaient totalement guéries en une dizaine de respirations. Non seulement cela, mais les séquelles cachées laissées par son ancien combat contre Yao Bingyun s'étaient également évanouies!
 
 Quant au rugissement de l'esprit, chargé de toute la puissance de la foudre, lorsqu'il atteignit les oreilles de Wang Lin, il lui fit l'effet d'un simple enfant qui poussait un cri. Bien que cela fût étrange, c'était précisément ce qu'il ressentait.
 

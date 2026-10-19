@@ -8,7 +8,7 @@ slug: le-trou-noir
 ---
 L'expression de Wang Lin était neutre alors qu'il contemplait la tablette brisée. Il fit un bond en avant et se tint devant l'artefact.
 
-Li Yuan le suivit de près et examina attentivement la tablette avant de porter son regard sur les ruines. Puis, il sourit: « Frère Xu, si je ne m'abuse, ce Palais d'Accueil Céleste était autrefois un lieu d'échange pour les êtres célestes. »
+Li Yuan le suivit de près et examina attentivement la tablette avant de porter son regard sur les ruines. Puis, il sourit: « Frère Xu, si je ne m'abuse, ce Palais d'Accueil Céleste était autrefois, avant l'effondrement du Royaume Céleste du Tonnerre, un lieu d'échange pour les êtres célestes. »
 
 Wang Lin hocha la tête et s'avança calmement vers les décombres. En chemin, il aperçut les vestiges de nombreux bâtiments. Ce palais était immense; il s'étendait sur une surface presque équivalente à celle d'une ville mortelle.
 
@@ -22,9 +22,9 @@ Après avoir minutieusement exploré les ruines, Wang Lin ne trouva rien d'inatt
 
 « Les plus grandes boutiques de ces palais commerciaux se trouvent toujours à l'est! » Les yeux de Li Yuan s'illuminèrent et il scruta l'horizon oriental.
 
-Les dégâts sur le côté est du palais étaient encore plus sévères. Il était impossible de distinguer la forme d'une quelconque boutique; il ne restait qu'un unique mur debout.
+Les dégâts sur le côté est du palais étaient encore plus sévères. Il était impossible de distinguer la forme d'une quelconque boutique; il ne restait que des pans de murs brisés.
 
-Li Yuan pressa le pas et atteignit rapidement les ruines à l'est. Il s'accroupit, ramassa quelques débris et les examina avec attention, comme s'il effectuait des calculs mentaux.
+Li Yuan pressa le pas et atteignit rapidement les ruines à l'est. Il s'accroupit, souleva un grand bloc de pierre effondré et l'examina avec attention, comme s'il effectuait des calculs mentaux.
 
 Lorsque Wang Lin arriva calmement, il déploya son Sens Divin, mais ne trouva rien.
 
@@ -38,7 +38,7 @@ Le regard de Wang Lin brilla d'une lueur étrange.
 
 Li Yuan fit quelques pas pour s'approcher de la formation. Après l'avoir observée, il sourit: « Frère Xu, autant que je sache, même les boutiques des êtres célestes possédaient des pièces cachées. Il semble que celle-ci ne fasse pas exception. »
 
-Wang Lin acquiesça et répondit: « Je pense que la formation qui gère cette pièce cachée est restée active si longtemps que toute l'énergie spirituelle céleste s'est épuisée. C'est pourquoi elle ne dégage plus aucune fluctuation. »
+Wang Lin acquiesça et répondit: « Je pense que la formation qui gère cette pièce cachée est si ancienne que toute l'énergie spirituelle céleste qui la faisait fonctionner s'est épuisée. C'est pourquoi elle ne dégage plus aucune fluctuation. »
 
 Li Yuan s'accroupit et épousseta une épaisse couche de poussière. Après quelques calculs, il hocha la tête: « C'est exact. À en juger par cette poussière, personne n'est venu ici depuis fort longtemps. Comme vous l'avez dit, Frère Xu, cette formation a perdu toute son énergie spirituelle céleste et est devenue une formation morte. »
 

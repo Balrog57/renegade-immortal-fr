@@ -14,7 +14,7 @@ Puis, il baissa la tête et se mit à calculer silencieusement. Son sens divin s
 
 Wang Lin fronça les sourcils en observant les environs et demanda soudain: « Puisque cet endroit se situe dans une autre couche, de quelle couche s'agit-il, frère Chi Hu? »
 
-Papillon Rouge n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grognement et répliqua: « Question inutile. Bien sûr que c'est la deuxième couche! Il est déjà fort peu probable que des fragments se chevauchent une fois dans le Royaume Céleste! »
+Papillon Rouge n'avait pas parlé depuis plusieurs jours. Elle laissa échapper un grognement et répliqua: « Question inutile. Bien sûr que c'est la deuxième couche! Il est déjà fort rare que deux couches de fragments se chevauchent dans le Royaume Céleste! »
 
 Le regard de Wang Lin devint intense alors qu'il lâchait froidement: « Ignorante! »
 
@@ -110,7 +110,7 @@ Papillon Rouge ricana et s'apprêtait à répliquer quand Wang Lin intervint sou
 
 Chi Hu fut surpris. Ses yeux s'illuminèrent et il répondit: « Le frère Ceng Niu a raison. Mon ancêtre Xi Zu avait mentionné l'existence possible d'une troisième couche. »
 
-Papillon Rouge le moqua froidement: « Xi Zu? Ton Xi Zu disait aussi qu'il y avait des trésors dans cette couche! »
+Papillon Rouge le moqua froidement: « Xi Zu? Ton Xi Zu disait aussi qu'il y avait des trésors dans la deuxième couche! »
 
 Chi Hu lança un regard sombre à Papillon Rouge. Après un long moment, il prit une profonde inspiration, s'avança vers Wang Lin et observa la mare d'eau.
 
@@ -120,7 +120,7 @@ Papillon Rouge laissa échapper un léger renâcle. Elle se déplaça discrètem
 
 À cet instant précis, quelqu'un descendit du tunnel supérieur. En un seul pas, il apparut comme une ombre, flottant dans les airs juste au-dessus de la mare devant eux.
 
-Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Papillon Rouge, elle laissa échapper un gémissement charmant tout en reculant brusquement, les yeux écarquillés par la surprise.
+Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Papillon Rouge, elle laissa échapper un petit cri délicat tout en reculant brusquement, les yeux écarquillés par la surprise.
 
 Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé d'une dizaine de mètres.
 

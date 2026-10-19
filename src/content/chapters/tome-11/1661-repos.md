@@ -10,7 +10,7 @@ Dans les quatre systèmes stellaires, tous les cultivateurs du Royaume Extérieu
 
 La seule qui s'était échappée était cette concubine impériale céleste qui avait déchiré une faille pour fuir dans la panique. Une autre personne n'était pas morte non plus: il s'agissait de Yun Luo!
 
-Yun Luo était la personne que Wang Lin craignait le plus dans le Royaume Extérieur. La divination qu'elle avait perçue autrefois restait gravée dans sa mémoire. Lorsque la flèche de Wang Lin força le Souverain à battre en retraite, elle brisa sans hésiter l'amulette salvatrice que son maître lui avait laissée.
+Yun Luo était celle qui craignait le plus Wang Lin dans le Royaume Extérieur. La divination qu'elle avait perçue autrefois restait gravée dans sa mémoire. Lorsque la flèche de Wang Lin força le Souverain à battre en retraite, elle brisa sans hésiter l'amulette salvatrice que son maître lui avait laissée.
 
 Cette amulette avait été raffinée par son maître au moment de sa mort et fusionnée avec l'espace lui-même. Elle pouvait la téléporter de n'importe quel lieu vers l'autel de son clan dans le Système Stellaire Antique. Après une unique utilisation, l'amulette se brisait.
 
@@ -40,7 +40,7 @@ Cependant, Wang Lin n'était pas disposé à laisser faire une telle chose. Il a
 
 Derrière lui, Mu Bingmei regarda la silhouette de Wang Lin s'éloigner et mordit sa lèvre inférieure. Ses yeux ne reflétaient plus de sentiments complexes, seulement une certaine confusion. Après un long moment, elle baissa la tête, tandis que les paroles de Wang Lin résonnaient encore en elle.
 
-« Bien qu'elle ne soit pas ma femme, elle est la mère de mon fils, Wang Ping... » Mu Bingmei leva son beau visage et la confusion dans ses yeux se dissipa, remplacée par une résolution farouche. Elle s'élança dans les airs tel un magnifique phénix bleu et partit à la poursuite de Wang Lin.
+« Bien qu'elle ne soit pas ma compagne, elle est la mère de mon fils, Wang Ping... » Mu Bingmei leva son beau visage et la confusion dans ses yeux se dissipa, remplacée par une résolution farouche. Elle s'élança dans les airs tel un magnifique phénix bleu et partit à la poursuite de Wang Lin.
 
 Au loin, l'âme originelle de Qing Shui revint et il ouvrit les yeux. Il regarda la femme en rose à ses côtés, qui contemplait le départ de Wang Lin. Il poussa un soupir et dit lentement:
 
@@ -62,7 +62,7 @@ Au loin, Qing Lin se leva, contempla les étoiles et ferma les yeux.
 
 Alors que Mu Bingmei et la femme en rose s'envolaient, un troisième rayon de lumière jaillit d'une planète qui ne s'était pas effondrée.
 
-Une femme se trouvait dans ce rayon de lumière: son nom était Xizi Feng.
+Une femme se trouvait dans ce rayon de lumière: son nom était Xi Zifeng.
 
 Après cette bataille, il restait moins de 50 000 personnes. Lors de la première bataille dans la Mer des Nuages, le Royaume Intérieur comptait près de 500 000 cultivateurs. Après 97 ans de combat, plus de 90 % d'entre eux avaient péri.
 

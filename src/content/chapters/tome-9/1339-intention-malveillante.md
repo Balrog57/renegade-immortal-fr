@@ -22,7 +22,7 @@ Tous les dangers affrontés au cours de sa vie ne pouvaient se comparer à ce qu
 
 À cet instant, un regret infini le submergea. S'il n'avait pas provoqué cette personne au Temple du Cristal de Tonnerre, cela ne serait jamais arrivé! Hélas, ce regret était bien trop tardif!
 
-Le sortilège de Wang Lin pénétra ses yeux et frappa le Maître Zhou Tian. Son regard fut le déclencheur qui provoqua l'effondrement de tout le tonnerre que le Maître Zhou Tian avait cultivé durant d'innombrables années!
+Le sortilège de Wang Lin pénétra ses yeux et frappa le Maître Zhou Tian. Son regard fut le déclencheur qui provoqua l'effondrement de tout le tonnerre que le Maître Zhou Tian avait cultivé durant plusieurs milliers d'années!
 
 Tandis que les grondements tonitruants résonnaient, tout le tonnerre contenu en lui explosa hors de son contrôle. Il n'eut même pas le temps de pousser un cri que son corps vola en éclats. Ces fragments de chair explosèrent à leur tour en se propageant partout.
 
@@ -118,6 +118,6 @@ Après l'accord de Wang Lin, l'homme le guida à travers la foule. Un autre cult
 
 « Encore une victime... Quiconque se laisse emmener par ce Zhang Jingyun ne perdra pas seulement son Tonnerre Spirituel, sa vie elle-même n'est pas garantie... »
 
-Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: six nouveaux comme Wang Lin, et quatre autres aux niveaux de culture élevés, dont l'un avait atteint le stade Yin Illusoire.
+Zhang Jingyun connaissait manifestement très bien la place centrale, car ils atteignirent rapidement une grande formation. Des centaines de cultivateurs s'y trouvaient, répartis en groupes. L'un d'eux comptait plus de dix personnes: huit ou neuf nouveaux comme Wang Lin, et quatre autres aux niveaux de culture élevés, dont l'un avait atteint le stade Yin Illusoire.
 
 Zhang Jingyun s'avança avec un sourire: « Tout le monde, j'en ai ramené un de plus. Je parie que vous avez déjà tous entendu parler du nom "Yu Fei". »

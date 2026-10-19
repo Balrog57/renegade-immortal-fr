@@ -70,7 +70,7 @@ Derrière lui, le corps du cultivateur de Luotian s'effondra et se dissipa.
 
 Cette scène se répéta avec tous les autres poursuivants.
 
-Wang Lin observa les cultivateurs pénétrer dans la fissure, mais il ne bougea pas. Le vieux Xiang leva les yeux vers la brèche avec un regard froid. Son corps vacilla et il atterrit sur l'immense pierre bleue avant de dire à Wang Lin: « Xu Mu, suis-moi. Vu ton caractère, je présume que tu n'as pas l'intention de participer à la première vague! »
+Wang Lin observa les cultivateurs pénétrer dans la fissure, mais il ne bougea pas. Le vieux Xiang leva les yeux vers la brèche avec un regard froid. Son corps vacilla et il atterrit sur la pierre bleue de 10 000 pieds avant de dire à Wang Lin: « Xu Mu, suis-moi. Vu ton caractère, je présume que tu n'as pas l'intention de participer à la première vague! »
 
 Tout en parlant, un nuage apparut sous ses pieds et il s'envola au loin. Le regard de Wang Lin restait calme. Même sans l'affaire Li Muwan, il n'aurait pas été le premier à entrer. Dans cette guerre entre deux systèmes stellaires, la prudence était de mise!
 
@@ -110,7 +110,7 @@ Le vieux Xiang ne les emmena pas vers la demeure familiale. Au lieu de cela, il 
 
 La terre était d'un rouge sombre et exhalait une odeur de sang entêtante. Des membres sectionnés jonchaient le sol et des vautours chauves tournaient au-dessus. Ils descendaient parfois pour déchirer de la chair; leurs regards, dépourvus de toute crainte envers les hommes, étaient d'une froideur extrême.
 
-Plus on s'enfonçait, moins on trouvait de membres sectionnés. Des tombes dévastées se pressaient partout, densément regroupées. Bien que l'expression de Wang Lin restât calme, son cœur était bouleversé.
+Plus on s'enfonçait, moins on trouvait de membres sectionnés. Des tombes en désordre se pressaient partout, densément regroupées. Bien que l'expression de Wang Lin restât calme, son cœur était bouleversé.
 
 Ayant pratiqué la méthode de culture de la Secte de l'Affinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
 

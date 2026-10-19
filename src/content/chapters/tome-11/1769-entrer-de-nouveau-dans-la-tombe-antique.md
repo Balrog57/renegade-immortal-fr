@@ -104,7 +104,7 @@ Alors, qu'importait de risquer sa vie une fois de plus? De surcroît, grâce aux
 
 Wang Lin prit sa décision et s'élança vers la brume au bord de la plateforme. Il plongea dans le brouillard, la tête la première, fonçant dans les profondeurs tel un poisson.
 
-Personne ne connaissait cet endroit mieux que lui. Wang Lin avait obtenu toutes les cartes autrefois; il n'avait donc plus besoin d'explorer pour trouver son chemin. La carte était gravée dans son esprit, incluant l'entrée de la couche suivante!
+Personne ne connaissait cet endroit mieux que lui. Wang Lin avait obtenu toutes les cartes autrefois; il n'avait donc plus besoin de faire monter de niveau les plateformes pour en obtenir. La carte était gravée dans son esprit, incluant l'entrée de la couche suivante!
 
 S'il existait une personne dont la connaissance de ce lieu était presque égale à celle de Wang Lin, c'était bien la troisième concubine, la Sainte de la Secte de la Porte Céleste du Continent Astral Immortel, qui était toujours vierge!
 

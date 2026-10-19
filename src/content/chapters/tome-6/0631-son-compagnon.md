@@ -36,7 +36,7 @@ Wang Lin ferma les yeux et demanda calmement: « Qui? »
 
 « Sun Yun... » Wang Lin ouvrit les yeux. Après une courte réflexion, il déclara: « Senior Ancien Démon, il reste une dernière clause dans notre accord! »
 
-Une bourrasque de vent démoniaque surgit du Lac du Dragon, formant un vortex. Elle balaya la zone et disparut devant Wang Lin, révélant un jeune homme au physique profondément démoniaque.
+Une bourrasque de vent démoniaque surgit du Lac du Dragon, formant un vortex vert. Elle balaya la zone et disparut devant Wang Lin, révélant un jeune homme au physique profondément démoniaque.
 
 Le trait le plus frappant chez cet individu était ses yeux verts et maléfiques. Ils émettaient une lueur sinistre qui lui donnait un aspect très étrange. Une fois apparu, il regarda Wang Lin avant de sourire: « Naturellement, je n'aurais pas oublié ma promesse. Pendant que tu étais en pleine compréhension, j'ai utilisé un sort pour retrouver le corps du sens divin provenant de la pagode. »
 
@@ -44,7 +44,7 @@ Tout en parlant, le jeune homme agita nonchalamment la main. Des éclats de lumi
 
 L'image représentait un immense gouffre. Vu d'en haut, il ressemblait à une gigantesque faille dans le sol. Des volutes de gaz noir en jaillissaient par intermittence. L'impact de ces émanations faisait vaciller l'image elle-même.
 
-« Cet endroit est appelé l'Abîme des Marées par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme des Marées. Rends-toi à celle du Pays des Démons Aquatiques; c'est la plus proche de ton ami! »
+« Cet endroit est appelé l'Abîme des Marées par vous, les cultivateurs. L'aura de ton ami se trouve là-dedans! Il n'existe que six entrées vers l'Abîme des Marées. Rends-toi à celle du Pays des Démons de l'Eau; c'est la plus proche de ton ami! »
 
 Wang Lin fixa l'image. Après réflexion, il demanda: « Qu'est-ce que cet Abîme des Marées exactement? »
 

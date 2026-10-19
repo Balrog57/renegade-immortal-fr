@@ -38,7 +38,7 @@ Hormis sa mère, aucune femme au monde ne pouvait remplacer Li Muwan dans son c�
 
 Il avait laissé d'innombrables ombres délicates danser autour de lui telles des papillons, mais aucune n'était elle, celle qui l'accompagnait au son de la musique du luth!
 
-C'était un amour qui entravait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre!
+C'était un amour qui habitait Wang Lin depuis plus de deux mille ans, et il ne s'évanouirait pas avant le jour de sa propre mort! Ils préféraient mourir ensemble plutôt que de vivre l'un sans l'autre!
 
 Ces mots parvinrent aux oreilles du Maître du Dao Rêve Bleu, dont le regard s'assombrit. Il fixa la direction du Royaume Céleste et médita en silence.
 

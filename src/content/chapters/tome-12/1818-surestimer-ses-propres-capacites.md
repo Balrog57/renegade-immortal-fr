@@ -96,7 +96,7 @@ Du Qing, voyant cela, ricana:
 
 « Je ne sais pas si je devrais lui dire qu'il surestime ses capacités. Bien qu'il ait capté l'attention d'un Grand Empyréen, possède de nombreux trésors et une bête extraordinaire, ce qu'il fait actuellement prouve qu'il se croit bien plus puissant qu'il ne l'est!
 
-« Je veux voir combien de temps il compte persévérer. Lorsqu'il échouera finalement, quelle expression fera-t-il... » Il y avait une pointe de mépris dans les yeux de Du Qing, mais aussi une part de jalousie.
+« Je veux voir combien de temps il compte persévérer. Lorsqu'il échouera finalement, quelle expression fera-t-il... » Il y avait une pointe de mépris dans les yeux de Du Qing, mais surtout de la jalousie.
 
 « Comment se fait-il que moi, Du Qing, je n'aie pas été accepté par un Grand Empyréen... Est-ce que tous les Grands Empyréens apprécient les fous de ce genre? » Du Qing était peu convaincu.
 

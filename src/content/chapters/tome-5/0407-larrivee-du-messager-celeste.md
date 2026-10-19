@@ -26,7 +26,7 @@ Il n'y avait aucun doute dans son cœur quant à savoir qui était la priorité.
 
 Ce choix était d'une cruauté absolue et était tout aussi douloureux pour Wang Lin. Cependant, Wang Lin était un vieux monstre ayant cultivé pendant cinq cents ans. Après quatre années de lutte, son cœur était devenu aussi dur que l'acier.
 
-Wang Lin regarda Zhou Ru, qui méditait silencieusement sur un rocher au loin, et pensa: « Zhou Ru, je saurai te rendre cette faveur. Je ferai en sorte que ta famille prospère pendant dix générations. Ils régneront sur Chu... »
+Wang Lin regarda Zhou Ru, qui était assise en silence sur un rocher au loin, et pensa: « Zhou Ru, je saurai te rendre cette faveur. Après ta mort, je ferai en sorte que ta famille prospère pendant dix générations. Ils régneront sur Chu... »
 
 Comme si elle avait entendu Wang Lin, son corps trembla alors qu'elle se tournait vers lui. Des larmes perlaient au coin de ses yeux, mais un léger sourire se dessinait sur son visage.
 
@@ -125,7 +125,7 @@ Bang!
 
 Une puissante onde de choc se propagea violemment dans l'air. Le corps originel fut projeté en arrière, le corps recouvert d'une lumière rouge. Il s'écrasa contre une montagne, la réduisant instantanément en poussière.
 
-Le bras gigantesque fut repoussé à nouveau, mais cette fois, il ne se brisa pas.
+Le bras gigantesque fut repoussé à nouveau, mais cette fois, il ne se dissipa pas.
 
 Quant à Wang Lin, alors que l'assaut approchait, il forma un sceau de la main et pointa vers le membre colossal. Le Parchemin de la Vie et de la Mort dans le ciel se referma soudainement et se déplaça devant lui pour faire rempart.
 
@@ -137,7 +137,7 @@ Le Parchemin de la Vie et de la Mort trembla violemment, libérant une quantité
 
 La paire d'yeux fixa impitoyablement Zhou Ru, qui se trouvait derrière Wang Lin. Les deux mains gigantesques déchirèrent les nuages, révélant un visage colossal.
 
-Ce visage paraissait extrêmement ordinaire, mais quiconque le contemplait ressentait un respect immédiat. Ce visage incarnait la toute-puissance des cieux.
+Ce visage paraissait extrêmement ordinaire, mais quiconque le contemplait ressentait un respect immédiat. Ce visage incarnait la majesté des cieux.
 
 Il fixa froidement Wang Lin et ouvrit la bouche. Un filament de lumière grise s'en échappa soudainement pour former une roue. Dès l'apparition de cette roue, les couleurs du ciel changèrent et la terre trembla.
 

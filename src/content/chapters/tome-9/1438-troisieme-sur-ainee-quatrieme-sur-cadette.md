@@ -8,7 +8,7 @@ slug: troisieme-sur-ainee-quatrieme-sur-cadette
 ---
 Alors que le doigt de l'homme en robe noire était sur le point de toucher la surface de l'eau, une lumière bleue éblouissante jaillit des profondeurs. En un clin d'œil, l'éclat azur envahit l'onde et percuta le doigt.
 
-Aucun son ne retentit, mais une ondulation se propagea à partir du point de contact entre le doigt et la lumière bleue. L'onde de choc heurta la robe noire du vieil homme, la faisant flotter violemment.
+Aucun son ne retentit, mais une ondulation se propagea à partir du point de contact entre le doigt et la lumière bleue. L'onde de choc heurta la robe noire du vieil homme, la faisant claquer et flotter violemment.
 
 « Je peux ignorer le marquage "Pêcher la Lune dans le Puits" que vous avez laissé sur lui... Mais si vous le tuez, je pense que... » Une voix calme émana de la lumière bleue, puis, après une pause, elle reprit: «... j'interviendrai. »
 
@@ -80,9 +80,9 @@ C'était Tuo Sen!
 
 L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers lui:
 
-« Hu Meizi, il est difficile de changer ta nature. Je pouvais sentir ton aura dégoûtante de très loin. »
+« Sale renarde, il est difficile de changer ta nature. Je pouvais sentir ton aura dégoûtante de très loin. »
 
-« Je ne saurais égaler la vertu de la Sainte de la Secte du Dao Céleste. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste et élevée pendant des années pour devenir un fourneau parfait. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et je me demande bien qui s'emparera de cet avantage un jour... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
+« Je ne saurais égaler la hauteur de la Troisième Sœur Aînée, jadis Sainte de la Secte de la Porte Céleste. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste et élevée pendant des années pour devenir un fourneau parfait. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et je me demande bien qui s'emparera de cet avantage un jour... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 

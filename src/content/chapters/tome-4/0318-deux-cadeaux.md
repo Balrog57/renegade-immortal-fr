@@ -14,7 +14,7 @@ Le vieil homme s'apprêta à esquiver, mais il découvrit qu'il était incapable
 
 Il dit d'un ton amer: « Ascendant... »
 
-« Quand je suis venu dans le Royaume Céleste pour la première fois, je t'ai rencontré... Le domaine de la folie est une chose que tu m'as imposée. Je connais désormais ton objectif et je comprends tout, mais je ne le regrette pas. Si l'on me donnait une autre chance, je choisirais de te rencontrer à nouveau... » Zhou Yi ne daigna même pas regarder le vieil homme; il fixait uniquement la dépouille féminine dans ses bras.
+« Quand je suis venu dans le Royaume Céleste pour la première fois, je t'ai rencontré... Le domaine de la folie est une chose que tu m'as imposée. Je connais désormais ton objectif et je comprends tout, mais je ne le regrette pas. S'il existe une réincarnation, je choisirais de te rencontrer à nouveau... » Zhou Yi ne daigna même pas regarder le vieil homme; il fixait uniquement la dépouille féminine dans ses bras.
 
 Il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de culture ne cessait de croître.
 
@@ -36,7 +36,7 @@ Après cela, il accomplit trois actes pour sauver la Secte des Cinq Éléments, 
 
 À cet instant, tous ces souvenirs traversèrent le cœur de Zhou Yi.
 
-Le vieil homme avait déjà renoncé à lutter. Il n'avait aucune chance face à un cultivateur Ascendant. La différence entre leurs domaines pouvait tout anéantir.
+Le vieil homme avait déjà renoncé à lutter. Il n'avait aucune chance face à un cultivateur Ascendant. La différence de niveau entre eux pouvait tout anéantir.
 
 Les yeux de Zhou Yi étaient empreints de clarté. Bien qu'ils ne contiennent plus la même tendresse, ils étaient désormais habités par un domaine puissant. Il baissa la tête, embrassa doucement le front de la dépouille féminine, puis tourna son regard vers Wang Lin et Chi Hu. Finalement, ses yeux se posèrent sur Chi Hu et il dit calmement:
 

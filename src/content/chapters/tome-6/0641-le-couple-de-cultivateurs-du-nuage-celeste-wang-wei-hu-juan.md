@@ -10,7 +10,7 @@ Les pupilles de Wang Lin se rétractèrent instantanément et il baissa les yeux
 
 « Descends... »
 
-Wang Lin n'était pas étranger à cette silhouette sublime au sein du parchemin. Sur Suzaku, lorsqu'il avait dû affronter les bêtes libérées par le troisième ancêtre, cette figure était apparue pour en prendre le contrôle.
+Wang Lin n'était pas étranger à cette silhouette sublime au sein du parchemin. Sur Suzaku, lorsqu'il avait dû affronter les bêtes libérées par le troisième ancêtre, cette figure l'avait aspiré dans le parchemin d'un seul appel.
 
 Wang Lin s'était toujours interrogé sur ce parchemin. Juste après avoir atteint le stade Ascendant, il l'avait sorti alors qu'il se trouvait dans la Tribu de l'Affinement de l'Âme, mais n'avait fait aucun progrès. Bien qu'il puisse y laisser une empreinte, il ne parvenait pas à le contrôler.
 
@@ -100,7 +100,7 @@ Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des 
 
 Dans la Terre des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
 
-Deux personnes se tenaient sur ce nuage providentiel: un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage beau. Il faisait face au vent, une flûte en jade vert à la main; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
+Deux personnes se tenaient sur ce nuage providentiel: un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage beau et résolu. Il faisait face au vent, une flûte en jade vert à la main; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
 
 À ses côtés, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande. Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée!
 
@@ -122,7 +122,7 @@ Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. 
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 
-Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait sous la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
+Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait dans la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
 
 « Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Luo.
 

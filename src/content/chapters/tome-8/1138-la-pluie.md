@@ -12,7 +12,7 @@ Au centre de ce cercle se trouvait un bassin gigantesque.
 
 Le bassin était parsemé de pavillons dont les lueurs illuminaient la nuit. Pourtant, une profonde tristesse régnait en ces lieux. Ni la pluie, ni les éclairs qui déchiraient le ciel ne parvenaient à apaiser cette mélancolie, ni même à la dissiper le moins du monde.
 
-Huit piliers massifs d'une centaine de pieds d'épaisseur étaient disposés autour de la montagne, à l'extérieur du bassin. Ils étaient tous espacés de manière parfaitement égale, sans la moindre différence, semblant jaillir de la roche pour percer les cieux.
+Huit piliers massifs d'une centaine de pieds d'épaisseur étaient disposés autour de la montagne, à l'extérieur du bassin. Ils étaient tous espacés de manière parfaitement égale, sans la moindre différence, semblant jaillir de la roche en biais pour percer les cieux.
 
 À environ 100 000 pieds d'altitude, ces huit piliers convergeaient vers un vaste temple taoïste. De loin, on aurait dit que le temple reposait sur ces piliers et flottait dans les airs.
 
@@ -38,11 +38,11 @@ Les trois autres semblaient encore plus accablés.
 
 L'homme d'âge mûr serra les poings et s'exclama: « Maître, cette Secte du Dao Pourpre a placé une formation sur notre continent de Mo Luo avant de se rendre secrètement vers le Système Stellaire de l'Alliance. Pourquoi la secte principale a-t-elle déchargé sa colère sur nous lorsqu'ils n'ont pu revenir? »
 
-Le vieil homme réfléchit. Son visage devint plus livide encore et une aura de mort émana de son corps. Il répondit lentement: « La secte principale doit avoir ses raisons. Ne cherchez pas à comprendre leur logique... Si cela vous semble injuste, alors faites en sorte que la Secte de l'Origine ne termine plus à la dernière place lors de la compétition organisée par la secte principale dans cent ans. Alors, votre Maître pourra rire aux éclats dans l'au-delà. »
+Le vieil homme réfléchit. Son visage devint plus livide encore et une aura de mort émana de son corps. Il répondit lentement: « La secte principale doit avoir ses raisons. Ne cherchez pas à comprendre leur logique... Si cela vous semble injuste, alors faites en sorte que la Secte de l'Origine ne termine plus à la dernière place depuis des millénaires lors de la compétition organisée par la secte principale dans cent ans. Alors, votre Maître pourra rire aux éclats dans l'au-delà. »
 
 Les quatre disciples restèrent silencieux, le cœur lourd d'amertume. La compétition entre les sectes, qui se déroulait tous les mille ans, était un événement majeur de la Mer des Nuages. Toutes les sectes y participaient, mais la Secte de l'Origine finissait toujours dernière, incapable de s'élever au rang des grands.
 
-L'aura de mort du vieil homme s'intensifia. Il prit une profonde inspiration et, regardant la pluie par-delà le temple, leva sa main droite desséchée. Quelques mois auparavant, elle n'était pas ainsi; à présent, il semblait que chair et sang avaient été totalement drainés, ne laissant qu'une main squelettique.
+L'aura de mort du vieil homme s'intensifia. Il prit une profonde inspiration et, regardant la pluie par-delà le temple, leva sa main droite desséchée. Quelques mois auparavant, elle n'était pas ainsi; à présent, il semblait que la moitié de sa chair et de son sang avait été drainée, ne laissant qu'une main squelettique.
 
 En voyant cela, la femme éclata en sanglots. Les trois autres serrèrent les dents si fort qu'ils risquaient de se briser la mâchoire.
 

@@ -132,7 +132,7 @@ Au sein des Quatre Sectes Divines, les éveils de la Tortue Noire n'étaient pas
 
 Le Dragon Azure était le plus puissant. Ceux qui l'éveillaient étaient rares, mais ils échouaient rarement. Une fois leur éveil accompli, ils finiraient par devenir l'Empereur Divin du Dragon Azure!
 
-Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Saint de l'Oiseau Vermillon faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
+Dans les temps anciens, si ce n'était la disparition mystérieuse de l'Empereur Divin du Dragon Azure et le fait que l'Empereur Divin de l'Oiseau Vermillon faisait face à son troisième Fléau Céleste — ce qui l'empêchait d'utiliser pleinement sa culture —, la guerre contre l'Alliance aurait pu avoir un tout autre dénouement!
 
 L'Oiseau Vermillon était le plus difficile à éveiller parmi les Quatre Divinités; même le Dragon Azure ne pouvait l'égaler. Ceux qui réussissaient leur éveil et survivaient aux épreuves pour devenir un Empereur Divin étaient bien trop peu nombreux!
 
@@ -152,7 +152,7 @@ Au moment où la boule de feu prit forme, elle enveloppa Wang Lin et l'Oiseau Ve
 
 À cet instant, l'Oiseau Vermillon poussa un nouveau cri, et son corps rouge jaillit des sourcils de Wang Lin pour s'enrouler autour de lui. Bientôt, il se mua en un tatouage d'un réalisme saisissant qui se propagea sur le torse de Wang Lin!
 
-La peau de Wang Lin était alors couverte de craquelures. Mariée au tatouage rouge de l'Oiseau Vermillon, son apparence était d'une beauté inattendue! Particulièrement ses yeux, qui brillaient comme des étoiles!
+La peau de Wang Lin était alors couverte de craquelures. Associée au tatouage rouge de l'Oiseau Vermillon, son apparence était d'une beauté inattendue! Particulièrement ses yeux, qui brillaient comme des étoiles!
 
 Cependant, nul n'était destiné à contempler ce spectacle. La sphère de feu dévora rapidement Wang Lin et grandit encore.
 
@@ -208,7 +208,7 @@ Cependant, il était trop tard!
 
 Dès son retrait, la mer de flammes se projeta comme une vague colérique pour submerger l'ombre démoniaque. Le rugissement de cette ombre résonna dans les flammes avant de se dissiper rapidement. Lorsqu'il ne resta qu'un minuscule fragment, celui-ci parvint enfin à s'extirper de la mer de feu et tenta de fuir!
 
-Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue bien plus puissante que le « Brûle les Cieux »!
+Hélas, il avait sous-estimé la puissance de cet océan ardent. La chaleur de la mer de flammes, combinée à la Flamme Divine issue de l'éveil de l'Oiseau Vermillon, l'avait rendue plus puissante que le « Brûle les Cieux »!
 
 À cet instant, elle se propagea dans toutes les directions. Ce qu'elle consumait n'était pas seulement le royaume de Wang Lin, mais tous les royaumes contenus dans cette bouteille!
 
@@ -240,7 +240,7 @@ Ling Tianhou fixa le ciel qui semblait avoir été déchiré par des mains invis
 
 La mer de flammes pénétrait les mondes telle une force irrésistible, écrasant toutes les frontières et tous les remparts. Cette puissance continuait de jaillir du point où se trouvait Wang Lin, et le fracas des royaumes se brisant dans la bouteille était apocalyptique!
 
-La silhouette de l'Omniscient apparut dans le ciel effondré. Il observa tous ceux qui étaient devant lui en réfléchissant silencieusement. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
+La silhouette de l'Omniscient apparut dans le ciel effondré. Il contempla, sans un mot, tout ce qui se déroulait devant lui. Au moment où la mer de flammes balaya la zone, il fit un pas de côté et la vague de feu passa juste à côté de lui.
 
 Ling Tianhou, Situ Nan et l'Omniscient n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 

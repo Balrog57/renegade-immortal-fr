@@ -12,13 +12,13 @@ Le jeune homme vêtu de noir regarda Wang Lin et dit lentement: « Il y a un moi
 
 Wang Lin fut stupéfait et demanda: « Frère Zhang, cet œil du vent doté d'une force d'aspiration, sur la falaise, pourrait-il aider la culture? »
 
-Le jeune homme vêtu de noir hocha la tête et répondit: « Lorsque vous atteindrez le sommet de la quatrième couche et que vous devrez utiliser l'incantation pour entrer dans la cinquième, allez-y par vous-même et vous constaterez l'effet. » Il jeta un regard à Wang Lin et ajouta: « Frère Wang, votre talent est médiocre, on ne peut rien y faire, mais puisque vous êtes désormais un disciple intérieur, vous devez cultiver avec diligence. Je vois qu'il n'y a aucune énergie spirituelle en vous. Vous n'avez même pas atteint la première couche de Condensation de Qi. J'ai bien peur que, parmi tous les disciples intérieurs, vous soyez le seul. »
+Le jeune homme vêtu de noir hocha la tête et répondit: « Lorsque vous atteindrez le sommet de la quatrième couche et que vous devrez utiliser l'incantation pour entrer dans la cinquième, allez-y et vous constaterez l'effet. » Il jeta un regard à Wang Lin et ajouta: « Frère cadet Wang, votre talent est médiocre, on ne peut rien y faire, mais puisque vous êtes désormais un disciple intérieur, vous devez cultiver avec diligence. Je vois qu'il n'y a aucune énergie spirituelle en vous. Vous n'avez même pas atteint la première couche de Condensation de Qi. J'ai bien peur que, parmi tous les disciples intérieurs, vous soyez le seul. »
 
-Wang Lin fut interdit, mais esquissa un sourire amer: « Les enseignements de Senior sont gravés dans mon cœur. Je redoublerai d'efforts dans ma culture. » Il changea brusquement de sujet et demanda: « Frère Zhang, quelle est la raison de votre venue aujourd'hui? »
+Wang Lin fut interdit, mais esquissa un sourire amer: « Les enseignements de Senior sont gravés dans mon cœur. Je redoublerai d'efforts dans ma culture. » Il changea discrètement de sujet et demanda: « Frère Zhang, quelle est la raison de votre venue aujourd'hui? »
 
 Le jeune homme vêtu de noir gloussa: « Ce n'est rien de grave. Le disciple honoraire responsable de la maison des corvées a disparu. Quelqu'un vous a vu vous y rendre ce jour-là, alors je suis venu vous interroger à ce sujet. »
 
-L'expression de Wang Lin resta impassible et il rit: « J'ai une idée de ce qui s'est passé. Normalement, je ne m'approche pas de la maison des corvées, mais il y a une quinzaine de jours, j'y suis passé et un disciple honoraire m'a parlé avec insolence; je lui ai donc donné une petite leçon. Peut-être a-t-il eu peur de moi et a-t-il quitté la secte. »
+L'expression de Wang Lin resta impassible et il rit: « Je me souviens de cette affaire. Normalement, je ne m'approche pas de la maison des corvées, mais il y a une quinzaine de jours, j'y suis passé et un disciple honoraire m'a parlé avec insolence; je lui ai donc donné une petite leçon. Peut-être n'a-t-il pas supporté cela, a eu peur de moi et a quitté la secte. »
 
 Le frère Zhang hocha la tête, à moitié amusé. Il regarda Wang Lin et dit: « Un disciple honoraire méprisable n'est pas important. Si je suis venu vous voir aujourd'hui, c'est parce que le chef de la secte et plusieurs Oncles-Maîtres, après délibération, ont décidé qu'un disciple honoraire ne devait plus être responsable de la maison des corvées; ils voulaient donc qu'un disciple intérieur prenne le relais. Mais aucun disciple intérieur ne veut y aller, ils sont tous occupés à cultiver. »
 
@@ -38,9 +38,9 @@ Pendant qu'il s'activait, plusieurs disciples arrivèrent à la maison des corv�
 
 Certains avaient l'intention d'aider Wang Lin à ranger, mais après avoir reçu un regard glacial, ils se tinrent tous sagement dans la cour.
 
-Une fois le nettoyage terminé, Wang Lin s'assit nonchalamment sur une chaise. Il fixa froidement les quelque cent disciples honoraires devant lui. Il savait que la Secte Heng Yue comptait de nombreux disciples honoraires; ceux-ci n'en étaient qu'une fraction. Dans les jours à venir, d'autres reviendraient pour rendre compte de leur travail.
+Une fois le nettoyage terminé, Wang Lin s'assit nonchalamment sur une chaise. Il fixa froidement les plus de cent disciples honoraires devant lui. Il savait que la Secte Heng Yue comptait de nombreux disciples honoraires; ceux-ci n'en étaient qu'une fraction. Dans les jours à venir, d'autres reviendraient pour rendre compte de leur travail.
 
-« Toi, désormais, tu couperas du bois: cinq cents livres par jour! » Wang Lin pointa du doigt une personne au hasard. Il se souvenait que cet homme l'avait secrètement raillé.
+« Toi, désormais, tu couperas du bois: cinq cents livres par jour! » Wang Lin désigna négligemment une personne. Il se souvenait que cet homme l'avait secrètement raillé.
 
 L'individu fut stupéfait. Il s'écria immédiatement: « Frère Wang, je... j'ai travaillé à la cuisine auparavant. Je ne sais que cuisiner, je ne sais pas couper le bois! »
 
@@ -56,7 +56,7 @@ Quelques disciples honoraires dans la foule crièrent avec mécontentement: « T
 
 « Exactement! Allons-y, tout le monde! Ne restez pas ici. Ce Wang Lin a tout du minable grisé par son petit pouvoir. Il ne semble même pas se souvenir qu'il est entré dans la Secte en tentant de se suicider. Quelle honte! »
 
-Le tumulte des voix mécontentes s'intensifia. Bientôt, quatre-vingts ou quatre-vingt-dix d'entre eux quittèrent la cour en lançant des insultes. Ils affichaient tous un air de victime en se dirigeant vers la cour principale, hurlant des choses comme: « Wang Lin veut notre perte! »
+Le tumulte des voix mécontentes s'intensifia. Bientôt, quatre-vingts ou quatre-vingt-dix d'entre eux quittèrent la cour en lançant des insultes. Ils affichaient tous un air de victime en se dirigeant vers la cour principale, hurlant des choses comme: « Wang Lin veut notre peau! »
 
 Wang Lin se sentait serein. Il ne les arrêta pas et espérait qu'ils réussiraient. De cette façon, le chef de la secte serait furieux et nommerait quelqu'un d'autre, ce qui lui permettrait de se concentrer sur sa culture.
 
@@ -68,6 +68,6 @@ En voyant leurs expressions, Wang Lin comprit qu'ils avaient échoué. Il fut tr
 
 L'un des disciples implora: « Frère Wang, vous êtes un homme magnanime. Veuillez nous pardonner! »
 
-« Oui, Frère Wang, nous étions aveugles autrefois. S'il vous plaît, soyez clément. Je... je m'inclinerai devant vous! »
+« Oui, Frère Wang, nous étions aveugles autrefois. S'il vous plaît, soyez clément. Je... je me prosternerai devant vous! »
 
 « Frère Wang, ils se sont tous moqués de vous, mais pas moi! J'ai même pris votre défense! Moi... »

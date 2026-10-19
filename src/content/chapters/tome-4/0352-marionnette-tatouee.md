@@ -52,7 +52,7 @@ Ce vide était singulier. Plus Wang Lin avançait, plus cette sensation s'intens
 
 Il ne pouvait continuer ainsi. Son regard devint soudainement glacial et il lança son piège à bêtes. Le char de guerre apparut alors sur la boussole stellaire.
 
-Wang Lin prit une profonde inspiration, traça un sceau et le transféra au char de guerre.
+Wang Lin prit une profonde inspiration, traça un sceau et l'appliqua sur le char de guerre.
 
 L'esprit bestial surgit soudainement aux côtés du char. En raison de la proximité immédiate de Wang Lin, l'esprit tenta instantanément de le dévorer.
 
@@ -72,7 +72,7 @@ Remarquant l'arrêt soudain de Wang Lin, le vieil homme accéléra immédiatemen
 
 Au même instant, une puissante force d'âme se propagea. Dès que Wang Lin perçut que le vieil homme pénétrait dans la portée de son Sens Divin, il envoya un sceau au char de guerre.
 
-Les chaînes retenant l'esprit bestial disparurent soudainement, mais le lien entre la créature et Wang Lin demeura.
+Les chaînes retenant l'esprit bestial disparurent soudainement, mais le lien entre la créature et Wang Lin demeura, traversé d'une lueur étrange.
 
 L'esprit bestial fixa avec fureur le vieil homme à la silhouette voûtée. La bête voulait tout dévorer; ce n'était qu'après avoir assouvi cet appétit qu'elle pourrait apaiser sa rage.
 
@@ -86,7 +86,7 @@ Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil 
 
 L'esprit bestial rugit tout en étant lentement repoussé.
 
-Les yeux du vieil homme devinrent encore plus rouges alors qu'il s'apprêtait à écarter la bête. Mais Wang Lin ricana. Il sortit son épée céleste et l'abattit sur le vieil homme.
+Les yeux du vieil homme devinrent encore plus rouges alors qu'il s'apprêtait à écarter la bête. Mais Wang Lin ricana. Il bondit et abattit son épée céleste sur le vieil homme.
 
 « Tant qu'il est affaibli, je lui prendrai la vie! »
 
@@ -94,11 +94,11 @@ Wang Lin était coutumier de ce genre de manœuvres. Alors que l'épée descenda
 
 L'énergie de l'épée apparut soudainement devant le vieil homme et percuta son corps.
 
-Le vieil homme poussa un cri et les tatouages qui l'entouraient s'immobilisèrent brusquement avant de se rapprocher à nouveau de lui. Il tourna son regard vers Wang Lin, et une plante à sept feuilles apparut immédiatement sur son front.
+Le vieil homme poussa un cri et les tatouages qui l'entouraient s'immobilisèrent brusquement avant de se rapprocher à nouveau de lui. Il tourna son regard vers Wang Lin, et une plante à sept feuilles apparut immédiatement sur le front de Wang Lin.
 
 À l'instant où la plante surgit, les tatouages sur son corps s'agitèrent frénétiquement. Une intention meurtrière envahit le vieil homme alors qu'il levait la main pour pointer Wang Lin du doigt.
 
-Wang Lin sentit aussitôt une énergie glaciale pénétrer son corps et atteindre son âme originelle. Cette énergie se mua en une graine qui commença rapidement à germer.
+Wang Lin sentit aussitôt une énergie glaciale monter de son ventre, pénétrer son corps et atteindre son âme originelle. Cette énergie se mua en une graine qui commença rapidement à germer.
 
 Le visage de Wang Lin devint livide et il cracha du sang. Dans un rugissement, il abattit une nouvelle fois l'épée céleste qu'il tenait en main.
 
@@ -108,7 +108,7 @@ Les rayons d'énergie de l'épée percutèrent le vieil homme, forçant les tato
 
 Voyant que la bête était sur le point de le dévorer, les yeux du vieil homme émissionnèrent une lueur mystérieuse. Le bracelet fait d'os enfilés se détacha soudainement de son poignet.
 
-Le bracelet libéra instantanément des ondes de lumière spectrale et un tatouage apparut.
+Le bracelet libéra instantanément des ondes de lumière verte spectrale et un tatouage apparut.
 
 Ce tatouage était brisé, incomplet; certaines parties manquaient même manifestement. Pourtant, ce motif fit frissonner Wang Lin jusqu'aux os.
 
@@ -116,7 +116,7 @@ Dès l'apparition du tatouage, le vide environnant fut baigné d'une lumière ve
 
 Le vieil homme déclara d'une voix lente: « Voici mon tatouage d'illumination. C'est en l'étudiant que j'ai pu atteindre le stade des sept feuilles. Maintenant que tu l'as vu, junior, tu peux mourir en paix! »
 
-Le tatouage brilla une fois, provoquant chez l'esprit bestial l'exhalaison d'un gaz vert sur tout son corps. La bête poussa un rugissement et regarda le tatouage avec une profonde réticence dans les yeux.
+Le tatouage brilla une fois, provoquant l'apparition d'une teinte verte sur tout le corps de l'esprit bestial. La bête poussa un rugissement et regarda le tatouage avec une profonde réticence dans les yeux.
 
 Si elle avait été à son apogée, elle aurait osé affronter ce tatouage, mais en l'état, elle n'eut d'autre choix que de battre en retraite. La bête secoua son corps pour s'extraire de la lumière verte avant de disparaître dans le vide.
 

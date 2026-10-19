@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 295 - The Broken Celestial Realm
 slug: le-royaume-celeste-brise
 ---
-Après l'avoir rangé, Wang Lin vit de nombreux tourbillons. Des cultivateurs y entraient pour ensuite disparaître.
+Après l'avoir rangé, Wang Lin vit au loin un immense tourbillon. Des cultivateurs y entraient pour ensuite disparaître.
 
 Le corps de Wang Lin s'élança et il chargea dans l'un d'eux, disparaissant progressivement à son intérieur.
 
@@ -14,7 +14,7 @@ Une lumière aveuglante lui brûla les yeux et il eut l'impression de tomber du 
 
 Sous lui, des fragments dorés étaient éparpillés comme un miroir tombé au sol et brisé en mille morceaux.
 
-Le Royaume Céleste ressemblait à un miroir fracassé. Maintenant que toute l'énergie spirituelle céleste s'était évaporée, il n'en restait qu'une infime quantité dans chaque fragment du royaume.
+Le Royaume Céleste ressemblait à un miroir fracassé. Maintenant que toute l'énergie spirituelle céleste s'était évaporée, il n'en restait qu'une infime quantité dans certains fragments seulement.
 
 Alors que le corps de Wang Lin descendait à toute vitesse, les fragments semblaient devenir de plus en plus grands. Bientôt, il put constater qu'il atterrissait sur un fragment situé près de la bordure.
 
@@ -58,11 +58,11 @@ Au centre du palais, Wang Lin s'arrêta, terrifié par la scène qui s'offrait �
 
 Wang Lin fut stupéfait. À la vue de cette trace, il pensa immédiatement à celle qui marquait la Porte Céleste.
 
-La puissance d'une seule empreinte de main avait suffi à dévaster une zone de plusieurs kilomètres à la ronde. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais nous parlions ici du Royaume Céleste.
+La puissance d'une seule empreinte de main avait suffi à dévaster une zone de plusieurs kilomètres à la ronde. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais il s'agissait ici du Royaume Céleste.
 
 Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la culture de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
 
-Wang Lin s'accroupit près de l'empreinte et la toucha du doigt. Soudain, une puissante aura de mort s'en échappa pour pénétrer son corps par son bras.
+Wang Lin s'accroupit près de l'empreinte et y posa la main droite. Soudain, une puissante aura de mort s'en échappa pour pénétrer son corps par son bras.
 
 Son domaine de la vie et de la mort s'activa instantanément. Après un long moment, il prit une profonde inspiration, la terreur dans ses yeux s'étant intensifiée.
 
@@ -80,7 +80,7 @@ Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ign
 
 Alors qu'il s'apprêtait à repartir, son regard s'illumina. Il se retourna brusquement pour fixer la stèle. Celle-ci semblait tout à fait ordinaire, sans rien d'extraordinaire.
 
-Pourtant, le regard de Wang Lin scruta chaque mot avec attention. Pourquoi l'Érudit Céleste Tian Hua avait-il voulu que son palais soit construit ici? De plus, cette stèle était un décret qui aurait dû être placé à l'extérieur pour l'usage de tous; pourquoi se trouvait-elle ici?
+Pourtant, le regard de Wang Lin scruta chaque mot avec attention. Pourquoi l'Érudit Céleste Tian Hua avait-il voulu que son palais soit construit ici? De plus, cette stèle était un monument qui aurait dû être placé à l'extérieur pour l'usage de tous; pourquoi se trouvait-elle ici?
 
 Cette zone appartenait à la partie intérieure du palais. La présence d'une telle stèle à cet endroit paraissait suspecte.
 

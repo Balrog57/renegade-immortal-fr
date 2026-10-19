@@ -24,7 +24,7 @@ Xu Fenghan finit par réprimer les pensées chaotiques qui l'assaillaient. Son c
 
 Wang Lin ne prononça pas un mot et fixa froidement Xu Fenghan du regard. D'un mouvement de manches, il s'assit sur le lotus. À cet instant, la puissance de la rivière des Enfers devint encore plus intense et enveloppa aussitôt l'artefact.
 
-Xu Fenghan avait perdu la bataille du Dao... Son visage devint livide et il cracha une bouchée de sang. Il recula immédiatement avec un sourire autodérisoire tout en formant un sceau de la main. L'énergie d'origine à l'intérieur de son corps se rassembla instantanément au creux de ses paumes.
+Xu Fenghan avait perdu la bataille du Dao... Son visage devint livide et il cracha une bouchée de sang. Il recula immédiatement avec un rire amer tout en formant un sceau de la main. L'énergie d'origine à l'intérieur de son corps se rassembla instantanément au creux de ses paumes.
 
 « Il me reste encore un sort d'origine! Le Dieu Démon de l'Origine! » Le visage de Xu Fenghan devint féroce. Il détestait déjà cet ennemi, dont il ignorait même le nom, jusqu'à la moelle des os!
 
@@ -92,7 +92,7 @@ Tout en cultivant, Wang Lin sortit le lotus de la rivière des Enfers. L'artefac
 
 Wang Lin l'observa un moment avant de le replacer dans la rivière des Enfers.
 
-Il sortit ensuite tous les fragments qu'il avait ramassés. À l'examen, on pouvait deviner qu'il s'agissait d'un trésor en forme de vase.
+Il sortit ensuite tous les fragments qu'il avait ramassés. À l'examen, on pouvait deviner qu'il s'agissait d'un trésor en forme de cruche.
 
 Les fluctuations célestes qui s'en dégageaient étaient extrêmement étranges; elles ressemblaient à de l'énergie spirituelle céleste, sans vraiment l'être.
 
@@ -120,7 +120,7 @@ Cet homme était l'Ancêtre de Sang!
 
 « Je... » Au moment où il prit la parole, la voix rauque l'interrompit.
 
-« Quitte cet endroit et retourne dans le Système Stellaire de l'Alliance que ton père a choisi. Le temple de ma famille Yao ne porte pas le nom de Yao Luodong! »
+« Quitte cet endroit et retourne dans le Système Stellaire de l'Alliance que ton père a choisi. La salle ancestrale de ma famille Yao ne porte pas le nom de Yao Luodong! »
 
 Cette voix était empreinte d'une détermination et d'une résolution qui ne laissaient place à aucun doute.
 

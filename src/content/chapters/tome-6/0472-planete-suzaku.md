@@ -26,11 +26,11 @@ Sur l'un des bateaux, un riche ivrogne sortit la tête pour prendre un peu l'air
 
 Aussitôt, tout bruit cessa. Les chants s'éteignirent au palais; c'était comme si le temps s'était figé pour tous les habitants.
 
-Un jeune garçon vêtu d'une robe violette apparut. Un air de regret se lisait sur son visage tandis qu'il soupirait: « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise! Ma vie de roi est bien préférable; je peux faire ce que je veux et nul n'ose m'offenser! »
+Un jeune garçon vêtu d'une robe violette apparut. Un air de regret se lisait sur son visage tandis qu'il soupirait: « Ce vieil homme n'a pas encore assez profité de la vie. Cultiver, cultiver... à quoi bon cultiver, quelle foutaise! Ma vie de prince est bien préférable; je peux faire ce que je veux et nul n'ose m'offenser! »
 
 Wang Lin leva les yeux vers la lune et dit d'une voix lente: « Nous devons partir. »
 
-« Attends un instant. Le petit roi de ce pays a été plutôt aimable envers moi, laisse-moi le récompenser. » Sur ces mots, Situ Nan disparut.
+« Attends un instant. Le petit empereur de ce pays a été plutôt aimable envers moi, laisse-moi le récompenser. » Sur ces mots, Situ Nan disparut.
 
 Un quart d'heure plus tard, la silhouette de Situ Nan réapparut soudainement aux côtés de Wang Lin dans un éclat de rire: « Allons-y! Il est temps de quitter la planète Suzaku!!! »
 
@@ -50,7 +50,7 @@ Les vents violents du ciel sont normalement invisibles et ne se ressentent que p
 
 De leur point de vue, le firmament s'embrasa soudainement de couleurs, baignant le monde d'une lumière arc-en-ciel.
 
-Au sommet du mont Suzaku, Zhou Wutai contemplait le spectacle, le regard plein d'émotion.
+Au sommet du mont Suzaku, Zhou Wutai, vêtu d'une robe rouge, contemplait le spectacle, le regard plein d'émotion.
 
 Derrière lui se tenaient plusieurs individus: les intendants nouvellement choisis du mont Suzaku, chargés d'exécuter chacun de ses ordres.
 
@@ -88,7 +88,7 @@ L'espérance de vie des membres du Clan Immortel Délaissé était légèrement 
 
 Dans les terres du Clan Immortel Délaissé, à plus de dix mille kilomètres de là, un jeune homme couvert de tatouages dorés scintillants contemplait le ciel avec mélancolie.
 
-« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Immortel Délaissé. Son histoire était singulière: lors de la bataille pour le Cristal de Culture dans le Tombeau de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
+« Frère Wang, vous souvenez-vous encore de moi...? » Cet homme était le jeune maître du Clan Immortel Délaissé. Son histoire était singulière: lors de la bataille pour le Cristal de la Planète de Culture dans le Tombeau de Suzaku, il n'avait pas pu atteindre l'objectif, mais il avait survécu.
 
 « Frère Wang, je quitte également la planète Suzaku. J'espère que nous aurons l'occasion de nous revoir un jour! »
 

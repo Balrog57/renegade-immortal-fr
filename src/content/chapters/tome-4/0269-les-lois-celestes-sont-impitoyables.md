@@ -16,7 +16,7 @@ Wang Lin leva la tête et demanda au vieil homme: « Pourquoi en est-il ainsi? �
 
 Le vieil homme saisit sa gourde et but les dernières gouttes de vin. Il se lécha les lèvres et dit: « Le royaume céleste antique s'est déjà brisé et n'existe plus que sous forme de fragments, de sorte que les lois du ciel et de la terre y sont chaotiques. C'est un point crucial car si des fluctuations d'énergie spirituelle provenant de cultivateurs au stade avancé de la Formation de l'Âme ou au-delà apparaissent, ce fragment s'effondrera. Bien sûr, selon la taille du fragment, certains peuvent supporter des fluctuations d'énergie spirituelle plus intenses. Ainsi, tant que celui qui entre ne cherche pas le suicide, il devra maintenir sa puissance au niveau de la Formation de l'Âme. »
 
-Tandis que Wang Lin réfléchissait, une douzaine de pensées lui traversèrent l'esprit. Après un long moment, il leva la tête et dit: « Senior est venu me rendre visite si tard dans la nuit. Je crains que vous ne soyez pas venu ici uniquement pour me parler de cela. »
+Tandis que Wang Lin réfléchissait, plusieurs pensées lui traversèrent l'esprit. Après un long moment, il leva la tête et dit: « Senior est venu me rendre visite si tard dans la nuit. Je crains que vous ne soyez pas venu ici uniquement pour me parler de cela. »
 
 Le vieil homme laissa échapper un rire espiègle et dit: « Jeune homme, ce vieil homme est venu te dire qu'il s'en va. Avant de partir, je veux que tu me sculptes une effigie de moi-même pour que je puisse l'offrir à Xiao Cui du Pavillon Rose; ainsi, lorsqu'elle pensera à moi, elle aura un souvenir sous la main. Hélas, un homme aussi beau que moi, qui n'apparaît que dans les légendes, fait l'objet des pensées d'innombrables personnes. » Sur ces mots, il afficha une expression de grand regret, mais derrière ce regret transparaissait une immense fierté. Il continuait de fixer Wang Lin, attendant manifestement ses éloges.
 
@@ -92,6 +92,6 @@ En temps normal, lors des grands affrontements, les cultivateurs évitaient d'af
 
 Ce phénomène n'avait qu'une seule interprétation: Xue Yu prévoyait d'anéantir l'Alliance des Quatre Sectes en déclenchant une guerre visant l'extermination complète du pays.
 
-Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination: trois impliquant des pays de culture de rang 4 et une impliquant un pays de rang 5.
+Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku, unique pays de culture de rang 6, intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination: trois impliquant des pays de culture de rang 4 et une impliquant un pays de rang 5.
 
 Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait que Xue Yu avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.

@@ -32,7 +32,7 @@ Le garçon jeta un regard à Tie Zhu en faisant une grimace, puis s'approcha en 
 
 Wang Lin esquissa un sourire et hocha la tête.
 
-Voyant que Wang Lin l'ignorait, le vieil homme s'en trouva profondément irrité et s'apprêta à le réprimander.
+Voyant que Wang Lin l'ignorait, le vieil homme s'en trouva légèrement contrarié et s'apprêta à le réprimander.
 
 À cet instant précis, les nuages se déchirèrent soudainement dans le ciel. Une épée de lumière descendit alors comme un éclair. Une fois l'éclat dissipé, un jeune homme vêtu de blanc apparut; son regard était brillant et perçant, dégageant une aura d'une grande élégance. Ses yeux froids balayèrent les trois jeunes gens, s'attardant particulièrement sur celui dont la chemise présentait un renflement. Il demanda d'un ton glacial: « Est-ce que ces trois-là sont ceux recommandés par la famille Wang? »
 
@@ -54,7 +54,7 @@ Le jeune homme fronça les sourcils, mais cela ne dura qu'un instant. Il esquiss
 
 L'Oncle Quatrième leva les yeux vers le ciel et murmura: « Tie Zhu, tu dois être choisi! »
 
-Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lui causait une vive douleur. En y regardant de plus près, il réalisa qu'il était retenu sous le bras du jeune homme et qu'ils fendaient le ciel à toute allure. Le village ne devint bientôt plus que de petits points noirs dans leur sillage.
+Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lui causait une vive douleur. En y regardant de plus près, il réalisa qu'il était retenu sous le bras du jeune homme et qu'ils fendaient le ciel à toute allure. Le village ne devint bientôt plus que de petits points noirs, gros comme une paume, dans leur sillage.
 
 Au bout de quelques instants, la force du vent lui fit pleurer les yeux, qui devinrent rouges.
 
@@ -66,13 +66,13 @@ Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Deva
 
 Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé de nuages, dissimulait sa silhouette véritable. On pouvait entendre les échos des cris de bêtes sauvages. Un sentier de marches sinueuses serpentait le long de la paroi, tel un tableau vivant, évoquant l'atmosphère d'un autre monde.
 
-Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont de pierre en forme de croissant de lune reliait ce sommet à une autre crête.
+Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante aux sept couleurs qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont de pierre en forme de croissant de lune reliait ce sommet à une autre crête.
 
 Une telle grotte-paradis bénie était naturellement l'emplacement de la porte de montagne de la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle avait un temps dominé tout le monde de la culture du pays de Zhao, avec plusieurs vieux monstres au stade de l'Âme Naissante, et sa gloire était sans égale. Hélas, avec le passage du temps et après plusieurs bouleversements, la grande secte d'autrefois s'était rétrécie au point de n'avoir plus qu'une assise précaire dans le monde de la culture.
 
-Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité légendaire et insaisissable.
+Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité lointaine et inaccessible.
 
-« Junior frère Zhang, sont-ce là les trois jeunes recommandés par la famille Wang? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, descendit en flottant du sommet de la montagne.
+« Junior frère Zhang, sont-ce là les trois jeunes recommandés par la famille Wang? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, s'avança en flottant depuis le pied de la montagne.
 
 Le jeune homme afficha un visage empreint de respect: « Troisième Senior frère, ce sont bien les trois jeunes recommandés par la famille Wang. »
 

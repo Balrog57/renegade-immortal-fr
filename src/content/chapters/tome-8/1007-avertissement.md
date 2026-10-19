@@ -48,7 +48,7 @@ En d'autres circonstances, face à une telle mise en garde et une attaque aussi 
 
 Cependant, c'était un voyage que Wang Lin devait accomplir. Tout cela était pour Zhou Yi, dont on ignorait aujourd'hui s'il était vivant ou mort. Son vœu le plus cher était de ressusciter Qing Shuang, et celui qui avait les meilleures chances de le faire était son père, Qing Lin!
 
-Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la culture, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la culture.
+Wang Lin éprouvait toujours une profonde gratitude envers Zhou Yi, tout comme envers Situ Nan. Situ Nan avait guidé Wang Lin sur le chemin de la culture, et Zhou Yi avait joué un rôle crucial dans sa progression. Sans le Cristal Ascendant de Zhou Yi, Wang Lin serait déjà mort sur la voie de la culture : ses os auraient blanchi parmi ceux qui entendent le Dao et naissent à l'aube pour mourir au crépuscule, puis seraient devenus poussière au fil des ans.
 
 De plus, bien que le poison en Situ Nan soit actuellement réprimé, ils savaient tous deux que, si ce poison ne pouvait être dissipé à court terme, les conséquences seraient extrêmement graves.
 

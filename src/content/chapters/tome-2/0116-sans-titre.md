@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 116 - The Impending Confrontation
 slug: laffrontement-imminent
 ---
-Teng Huayuan n'agit pas immédiatement, car il était profondément troublé. Au fond de son cœur, il ne croyait absolument pas que Wang Lin ait pu atteindre le stade intermédiaire de l'Âme Naissante, mais la scène qui se déroulait sous ses yeux disait le contraire. Que ce soit l'aura, l'énergie spirituelle ou le sens divin de Wang Lin, tout témoignait d'un niveau d'Âme Naissante. Ajouté au fait qu'il venait de se téléporter, il était indéniable que Wang Lin se trouvait bien au stade intermédiaire de l'Âme Naissante.
+Teng Huayuan n'agit pas immédiatement, car il était profondément troublé. Au fond de son cœur, il ne croyait absolument pas que Wang Lin ait pu atteindre le stade de l'Âme Naissante, mais la scène qui se déroulait sous ses yeux disait le contraire. Que ce soit l'aura, l'énergie spirituelle ou le sens divin de Wang Lin, tout témoignait d'un niveau d'Âme Naissante. Ajouté au fait qu'il venait de se téléporter, il était indéniable que Wang Lin se trouvait bien au stade de l'Âme Naissante.
 
 Si Wang Lin n'avait été qu'au stade initial, Teng Huayuan aurait été prêt à combattre, mais le niveau de culture affiché par ce dernier était celui d'un Âme Naissante de stade intermédiaire; Teng Huayuan ne pouvait donc s'empêcher de faire preuve de prudence.
 

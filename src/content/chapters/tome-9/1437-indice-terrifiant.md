@@ -70,11 +70,11 @@ Wang Lin accélérait sans cesse, mais son expression devenait de plus en plus p
 
 La seule chose pouvant être qualifiée d'imprudence était son plan pour comploter contre le Souverain. Cette idée n'avait aucune raison d'être là; elle était apparue soudainement après sa discussion avec le premier Oiseau Vermillon.
 
-Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ainsi. Il était même entré dans l'âme de l'Omniscient pour diviner ses chances. Il s'était également fait une promesse: si le Souverain était réellement là et avait recouvré ses forces, il utiliserait le jade pour battre en retraite vers le Royaume Intérieur.
+Dans son cœur, il avait concocté de multiples raisons et excuses pour agir ainsi. Il était même entré dans l'âme de l'Omniscient pour diviner ses chances. Il s'était également fait une promesse: si le Souverain était réellement là et que ses blessures graves s'étaient un peu rétablies, il utiliserait le jade pour battre en retraite vers le Royaume Intérieur.
 
 Tout cela semblait être des idées propres qui lui étaient venues spontanément.
 
-Cependant, après avoir échappé au Clan des Moineaux de Feu, alors que Wang Lin commençait à douter que l'homme d'âge moyen fût réellement le Souverain, un doute terrifiant l'avait saisi... Un doute qui lui avait glacé le sang!
+Cependant, après s'être échappé de la terre sainte du Clan des Moineaux de Feu, alors que Wang Lin commençait à douter que l'homme d'âge moyen fût réellement le Souverain, un doute terrifiant l'avait saisi... Un doute qui lui avait glacé le sang!
 
 « Pourquoi ferais-je une chose aussi insensée et aurais-je une idée aussi folle... » À peine avait-il commencé à douter que la pensée se dissipa aussitôt, balayée par d'autres préoccupations. Cela l'avait presque fait oublier ce doute surgi lorsqu'il remettait en question l'identité du Souverain.
 
@@ -100,7 +100,7 @@ La Tombe de l'Ordre Ancien!
 
 Les yeux de Wang Lin s'illuminèrent et il était sur le point de franchir la faille. À cet instant précis, le brouillard environnant gronda. Wang Lin se retourna et ses pupilles se contractèrent.
 
-Tandis que la brume derrière lui tourbillonnait, une silhouette apparut lentement. C'était un scribe d'âge moyen au visage très beau, presque féminin! Cependant, son teint était si pâle qu'il était évident qu'il avait eu beaucoup de mal à atteindre cet endroit.
+Tandis que la brume derrière lui tourbillonnait, une silhouette apparut lentement. C'était un scribe d'âge moyen au visage très beau, presque féminin! Cependant, son teint était légèrement pâle, signe qu'il avait eu beaucoup de mal à atteindre cet endroit.
 
 Neuf statues étranges et chauves entouraient son corps. Chacune affichait une expression différente: colère, joie, tristesse, etc. Elles encerclaient l'érudit aux traits fins et dégageaient une lueur jaune qui lui avait permis d'arriver jusqu'ici!
 

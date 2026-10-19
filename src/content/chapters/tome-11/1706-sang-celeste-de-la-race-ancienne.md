@@ -40,7 +40,7 @@ Le temps s'écoula lentement. En un clin d'œil, cinq jours passèrent!
 
 Après ces cinq jours, Wang Lin ouvrit soudainement les yeux. Il n'y avait plus d'étoiles entre ses sourcils ni dans son œil droit, mais huit étoiles d'ancien démon tournaient rapidement dans son œil gauche, dégageant une énergie démoniaque monstrueuse.
 
-« La première épreuve et les deux calamités du clan de l'ancien démon ne sont donc que cela? » Wang Lin restait calme. Il était en effet qualifié pour ressentir cela; la première épreuve et les deux calamités des anciens démons n'étaient pas une menace pour lui.
+« La première épreuve et les deux calamités du clan de l'ancien démon ne sont donc que cela? » Wang Lin restait calme. Il était en effet qualifié pour tenir de tels propos; la première épreuve et les deux calamités des anciens démons n'étaient pas une menace pour lui.
 
 Une fois la première épreuve passée, la seconde commença à envelopper le sens divin et l'âme de Wang Lin. L'énergie démoniaque autour de lui devint violente et l'ombre d'ancien démon derrière lui se tordit, comme si elle s'apprêtait à pousser un rugissement de douleur.
 
@@ -100,7 +100,7 @@ Cette goutte fusionnerait avec celle formée par l'essence de la personne subiss
 
 La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancestral. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
 
-L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Daos!
+L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Dao!
 
 Wang Lin restait assis sur l'autel. Après une longue réflexion, il ferma les yeux et son aura ancienne se condensa à l'intérieur de son corps. Il entama la première étape de cette calamité: l'affinage de cette goutte de sang.
 

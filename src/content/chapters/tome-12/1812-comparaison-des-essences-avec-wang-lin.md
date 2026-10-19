@@ -10,7 +10,7 @@ Du Qing avait cultivé pendant de nombreuses années et avait fait face à bien 
 
 Pourtant, le cultivateur aux cheveux blancs devant lui le laissait stupéfait, et son cuir chevelu en picotait à plusieurs reprises.
 
-D'abord, il y avait toutes ces veines de feu de terre flétrie. Puis, lorsqu'il parvint à les rattraper, vinrent les sorts des Sectes Dong Lin, du Monde et des Trois Dao.
+D'abord, il y avait toutes ces veines de feu de terre flétrie. Puis, lorsqu'il parvint à les rattraper, vinrent les sorts des Sectes Dong Lin, Mondiale et de Song Yun Dao.
 
 Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de Wang Lin. De son point de vue, Wang Lin était enveloppé de voiles de mystère; chaque fois qu'une couche était levée, d'innombrables autres apparaissaient.
 
@@ -22,7 +22,7 @@ Tout cela rendait impossible pour Du Qing de juger l'identité et l'origine de W
 
 « Mais si c'est le second cas... » Les pupilles de Du Qing se rétractèrent.
 
-« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte du Monde lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte des Trois Dao, nommé par l'Empereur Céleste, renonce à l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
+« Si c'est le second cas, cet homme est intouchable! Le fait que la Secte Dong Lin et la Secte Mondiale lui aient cédé ces sorts est déjà prodigieux. Mais faire en sorte que Song Yun Dao de la Secte des Trois Dao, nommé par l'Empereur Céleste, transmette l'Ombrelle Brûlante du Royaume... C'est... C'est tout simplement terrifiant... »
 
 « Quel genre de lignée peut permettre cela... » Du Qing songea à quelque chose, et son visage devint encore plus pâle.
 
@@ -34,9 +34,9 @@ Il avait initialement pensé devoir livrer une bataille acharnée contre Du Qing
 
 La majesté de sa voix résonna à travers le monde.
 
-« La probabilité du second cas est faible. Il ne connaît peut-être que ces trois sorts. Peut-être les a-t-il utilisés avant moi pour m'effrayer et me faire fuir! Ce doit être là sa limite! » Du Qing avait cultivé pendant de nombreuses années; comment pourrait-il être si facilement dupe? En entendant les paroles de Wang Lin, il éclata de rire.
+« La probabilité du second cas est faible. Il ne connaît peut-être que ces trois sorts. Peut-être les a-t-il utilisés avant moi pour m'effrayer et me faire fuir! Ce doit être là sa limite! » Du Qing avait cultivé pendant de nombreuses années; comment pourrait-il être si facilement dupe? En entendant les paroles de Wang Lin, il poussa un long cri.
 
-Il chargea vers Wang Lin. Des distorsions apparurent autour de lui, révélant son corps de bois pourpre. Le feu jaillit de son être et l'enveloppa.
+Il chargea vers Wang Lin. Des distorsions apparurent autour de lui, révélant son corps de bois violet. Le feu jaillit de son être et l'enveloppa.
 
 De loin, c'était un spectacle saisissant!
 

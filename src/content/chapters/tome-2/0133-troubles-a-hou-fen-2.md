@@ -38,9 +38,9 @@ Pour se protéger, chaque fois qu'elle était sur le point de se transformer, el
 
 Parallèlement, au fil de ses transformations, elle apprit qu'il existait un moyen de raccourcir cette période de vulnérabilité: dévorer des cultivateurs.
 
-Elle n'avait pas besoin d'en consommer beaucoup, juste quelques-uns de temps à autre. Elle utilisait donc sa progéniture pour capturer les cultivateurs qui pénétraient dans le volcan afin de les lui offrir en pâture.
+Elle n'avait pas besoin d'en consommer beaucoup, juste quelques-uns de temps à autre. Elle utilisait donc sa progéniture pour capturer les cultivateurs qui s'égaraient au fond du volcan afin de les lui offrir en pâture.
 
-Pour empêcher les cultivateurs de nuire à l'esprit du feu, ils étaient tous emprisonnés dans la terre, que l'on solidifiait encore avec de la lave crachée, permettant ainsi à l'esprit de savourer son repas en toute tranquillité.
+Pour empêcher les cultivateurs de nuire à l'esprit du feu affaibli, ils étaient tous emprisonnés dans la terre, que l'on solidifiait encore avec de la lave crachée, permettant ainsi à l'esprit de savourer son repas en toute tranquillité.
 
 Mais voilà que l'esprit du feu, alors qu'il était affaibli, avait été lui-même dévoré. À l'instant même de sa disparition, toutes les bêtes de feu furent prises d'une rage folle.
 
@@ -66,7 +66,7 @@ Ce n'est qu'alors que Wang Lin put enfin pousser un soupir de soulagement. Il ba
 
 Chacune de ces bêtes de feu était capable de bloquer son Sens Divin du Royaume Ji. Cela semblait impossible, mais si c'était le cas, la seule explication était que ces créatures n'avaient ni âme, ni sens divin.
 
-Le visage de Wang Lin s'assombrit. Il jeta un regard sur les innombrables bêtes en contrebas et s'envola vers l'horizon sans dire un mot. Son humeur devint de plus en plus morne car, tout au long de son périple, chaque volcan croisé abritait des bêtes de feu. Elles attendaient toutes au bord des cratères, le fixant de leurs regards froids. Elles semblaient attendre un ordre pour surgir massivement de la terre.
+Le visage de Wang Lin s'assombrit. Il jeta un regard sur les innombrables bêtes en contrebas et s'envola vers l'horizon sans dire un mot. Son humeur devint de plus en plus morne car, tout au long de son périple, chaque volcan croisé abritait des bêtes de feu. Elles attendaient toutes au bord des cratères, le fixant de leurs regards froids. Elles semblaient attendre un ordre pour surgir en masse des cratères.
 
 Wang Lin se toucha le front, le cuir chevelu encore engourdi. Il se jura d'obtenir une carte au plus vite afin de quitter Huo Fen et de ne plus jamais y revenir.
 
@@ -98,4 +98,4 @@ Wang Lin s'arrêta près d'un chariot et fit un geste de la main. Une bourrasque
 
 Sur ces mots, il bondit sur Wang Lin.
 
-Wang Lin restait extrêmement prudent. Il avait pu traquer ce démon car il avait laissé une marque avec son Sens Divin sur toutes les bêtes dont il l'avait nourri. S'il continuait ainsi, peu importe la puissance du démon, il pourrait le contrôler facilement. Mais le temps pressant, il ne pouvait désormais le détecter que s'il se trouvait à une certaine distance.
+Wang Lin avait pris une précaution auparavant. Il avait pu traquer ce démon car il avait laissé une marque avec son Sens Divin sur toutes les bêtes dont il l'avait nourri. S'il continuait ainsi, peu importe la puissance du démon, il pourrait le contrôler facilement. Mais le temps n'ayant pas été long, il ne pouvait désormais le détecter que s'il se trouvait à une certaine distance.

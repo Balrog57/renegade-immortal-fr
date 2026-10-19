@@ -10,7 +10,7 @@ Le regard de Wang Lin balaya les six anciens de la Secte Éternelle avant qu'il 
 
 D'un geste de la main droite, il déclencha une tempête. Il emporta la vieille femme avec lui et disparut sous les yeux des membres de la Secte Éternelle.
 
-« Ce trésor, raffiné à partir d'une étoile divine ancienne par un dieu ancien d'un nombre d'étoiles inconnu, est véritablement incroyable! En tant que dieu ancien de 6 étoiles, je ne peux utiliser qu'environ 30 % de la puissance de l'épée, mais ces 30 % suffisent à abattre n'importe quel cultivateur du Premier Fléau Céleste! » Wang Lin volait à travers les étoiles à une vitesse fulgurante.
+« Ce trésor, raffiné à l'aide des points stellaires d'un dieu ancien d'un nombre d'étoiles inconnu, est véritablement incroyable! En tant que dieu ancien de 6 étoiles, je ne peux utiliser qu'environ 30 % de la puissance de l'épée, mais ces 30 % suffisent à abattre n'importe quel cultivateur du Premier Fléau Céleste! » Wang Lin volait à travers les étoiles à une vitesse fulgurante.
 
 La vieille femme à ses côtés était stupéfaite par ce spectacle. La puissance dont Wang Lin avait fait preuve la remplissait d'incrédulité.
 
@@ -22,13 +22,13 @@ Parmi les stades du Fléau Céleste, l'écart entre chaque étape est immense. A
 
 C'était une puissance acquise au prix de sa propre vie, il était donc difficile de la surpasser.
 
-« Pourtant, si j'ouvre le sceau, mon niveau de culture augmentera considérablement. Seulement 10 ans se sont écoulés dans le monde extérieur, mais j'ai médité pendant une éternité dans la Perle Défiant le Ciel. Par conséquent, si mon sceau est levé, j'aurai une chance d'atteindre le stade intermédiaire de la Rupture du Nirvana en une seule fois! Si j'atteins ce stade, les cultivateurs du Deuxième Fléau Céleste ne seront plus de taille face à moi. Je devrais même pouvoir combattre des cultivateurs du Troisième Fléau Céleste! » Les yeux de Wang Lin brillèrent d'un éclat intense.
+« Pourtant, si j'ouvre le sceau, mon niveau de culture augmentera considérablement. Seulement 10 ans se sont écoulés dans le monde extérieur, mais j'ai médité très longtemps dans la Perle Défiant le Ciel. Par conséquent, si mon sceau est levé, j'aurai une chance d'atteindre le stade intermédiaire de la Rupture du Nirvana en une seule fois! Si j'atteins ce stade, les cultivateurs du Deuxième Fléau Céleste ne seront plus de taille face à moi. Je devrais même pouvoir combattre des cultivateurs du Troisième Fléau Céleste! » Les yeux de Wang Lin brillèrent d'un éclat intense.
 
 Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir le monde entier entre ses poings lorsqu'il les serrait. La confiance inondait son cœur!
 
 « Mon objectif est de devenir un cultivateur de la Troisième Étape, pour tuer le Shui Daozi et l'ancêtre de la famille Luotian qui m'a trompé avec le sort Qixi! » [1]
 
-Avant son combat contre le Shui Daozi, Wang Lin considérait la Troisième Étape comme un royaume légendaire et dévastateur, capable de briser le ciel, que seuls les vrais dieux pouvaient atteindre. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
+Avant son combat contre le Shui Daozi, Wang Lin considérait la Troisième Étape comme un royaume légendaire et dévastateur, capable de briser le ciel, qui semblait réservé aux vrais dieux. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
 
 Cependant, désormais, parce que la culture de Wang Lin s'était améliorée, parce qu'il avait combattu le Shui Daozi et parce qu'il avait atteint la compréhension dans le royaume du Dao, le voile mystérieux entourant les cultivateurs de la Troisième Étape s'était déchiré. Leur légende d'invincibilité s'effondrait, et il ne restait plus que le Shi de Wang Lin!
 
@@ -58,11 +58,11 @@ En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements toni
 
 La Secte Démon était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
 
-Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Démon étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal de la Secte Divine!
+Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte Démon étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme pouvant rivaliser avec la Secte Divine!
 
 Les rumeurs affirmaient que la Secte Démon s'était séparée de la Secte Divine et ne lui obéissait plus. Tout cela était très étrange. Que ce soit vrai ou faux, cela suffisait à démontrer la puissance de la Secte Démon!
 
-En restant postés sur le champ de bataille durant des éternités pour assurer la paix de la Mer des Nuages, leur manque d'information incitait les habitants de la Mer des Nuages à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
+En restant postés sur le champ de bataille pendant d'innombrables années pour assurer la paix de la Mer des Nuages, le mystère qui les entourait inspirait les habitants de la Mer des Nuages à les regarder avec crainte. Ils respectaient leur vertu et redoutaient leurs secrets!
 
 Aux yeux de la Mer des Nuages, les membres de la Secte Démon ne pouvaient plus être simplement qualifiés de cultivateurs. Ils ressemblaient plutôt à une armée, comme les soldats d'une dynastie impériale mortelle!
 
@@ -86,7 +86,7 @@ Ces bêtes avaient survécu à d'innombrables massacres. Elles n'avaient rien à
 
 L'odeur du sang imprégnait l'air. Tandis que les bêtes féroces jaillissaient, les milliers de cultivateurs se battaient avec acharnement. Trésors magiques et sortilèges remplissaient le ciel. Des grondements tonitruants résonnaient à travers les étoiles!
 
-Parmi ces combattants, six individus étaient extrêmement puissants. Chaque fois qu'une bête féroce tentait de les approcher, elle mourait instantanément dans une explosion de sang. Cela créait un vaste périmètre dégagé autour de chacun d'eux!
+Parmi ces combattants, six individus étaient extrêmement puissants. Chaque fois qu'une bête féroce tentait de les approcher, elle mourait instantanément dans une explosion de sang. Cela créait autour de chacun d'eux un vaste espace dégagé, sur plusieurs milliers de pieds!
 
 Les cultivateurs environnants, conscients de leur force, restaient à distance et n'osaient s'approcher. Ils avaient une confiance absolue en ces six guerriers.
 
@@ -104,7 +104,7 @@ Derrière la multitude de combattants se tenaient trois individus. Ils étaient 
 
 La mort des cultivateurs, l'effondrement des bêtes et l'odeur du sang semblaient n'avoir aucune emprise sur eux. Ils restaient là, immobiles, observant la fissure spatiale. Personne ne savait ce qu'ils pensaient.
 
-Ils étaient de véritables disciples de la Secte Démon! Lorsque certains cultivateurs se retiraient pour avaler des pilules et récupérer, ils les regardaient parfois avec une immense crainte dans les yeux.
+Ils étaient de véritables disciples de la Secte Démon! Lorsque certains cultivateurs se retiraient pour avaler des pilules et récupérer, ils les regardaient parfois avec une immense crainte révérencieuse dans les yeux.
 
 Au milieu du massacre incessant et des tonnerres, les bêtes féroces à l'intérieur de la fissure reculèrent soudainement. Alors que leurs rugissements faisaient vibrer l'espace, une aura puissante jaillit de la fissure spatiale. Les bêtes environnantes devinrent instantanément plus féroces encore.
 

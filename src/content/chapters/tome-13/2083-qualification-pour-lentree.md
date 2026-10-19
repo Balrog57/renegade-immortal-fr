@@ -38,7 +38,7 @@ Wang Lin savait déjà ce qui se passerait dans douze jours. Il jeta un regard a
 
 Les six Grands Empyréens des deux côtés de la tempête se regardèrent, l'expression sombre.
 
-Alors qu'ils continuaient à résister, le temps s'écoulait. Chaque jour, le rugissement de la tempête devenait plus violent. Lorsqu'il ne restait plus que neuf jours avant l'ouverture du Royaume Divin Immémorial, les grondements se propagèrent dans toute la vaste cuvette. Même les bordures reliées aux clans Antique et céleste pouvaient entendre le tumulte.
+Alors qu'ils continuaient à résister, le temps s'écoulait. Chaque jour, le rugissement de la tempête devenait plus violent. Lorsqu'il ne restait plus que neuf jours avant l'ouverture du Royaume Divin Immémorial, les grondements se propagèrent dans toute la vaste cuvette. Même les bordures reliées aux clans Ancien et céleste pouvaient entendre le tumulte.
 
 Au crépuscule, neuf jours avant l'ouverture, les rugissements atteignirent un degré indescriptible.
 

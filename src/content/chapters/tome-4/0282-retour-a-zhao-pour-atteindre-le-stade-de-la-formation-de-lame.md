@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 282 - Returning to Zhao to Reach the Soul Formation Stage
 slug: retour-a-zhao-pour-atteindre-le-stade-de-la-formation-de-lame
 ---
-Le jeune homme regarda le dos de son maître tandis qu'il s'éloignait. Une scène du passé envahit son esprit. Il se prosterna devant son maître avant de serrer les poings et de partir.
+Le jeune homme regarda le dos de son maître tandis qu'il s'éloignait. Une scène du passé envahit son esprit. Il se prosterna à plusieurs reprises devant son maître avant de serrer les poings et de partir.
 
 « Moi, Chen Huan, je jure que j'anéantirai Xue Yu! »
 
@@ -16,13 +16,13 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade avancé de la Formation de l'Âme de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
-Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme furent également tués.
+Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme qui l'avaient encerclé furent également tués.
 
 Toute la gloire s'était désormais envolée avec le vent...
 
-Par sa mort, il avait choisi le moment et le lieu parfaits. Son sacrifice avait éveillé les cultivateurs de l'Alliance des Quatre Sectes qui n'osaient jusqu'alors pas montrer leur visage.
+Sa mort avait trouvé sa juste place. Son sacrifice avait éveillé les cultivateurs de l'Alliance des Quatre Sectes qui n'osaient jusqu'alors pas montrer leur visage.
 
 En un clin d'œil, une autre année s'écoula.
 
@@ -34,7 +34,7 @@ Cependant, Wang Lin remarqua que parfois, la montagne n'est plus une montagne et
 
 Ce genre d'obstacle ne disparaîtrait pas avec le temps. Il lui faudrait une soudaine illumination pour percer ce voile.
 
-L'automne passa et le printemps revint. Deux autres années s'écoulèrent dans ce monde de glace.
+Le printemps s'en alla et l'automne arriva. Deux autres années s'écoulèrent dans ce monde de glace.
 
 Wang Lin parvint à progresser dans la création des marionnettes de sculptures de glace. Ces dernières dépendaient des veines de neige pour maintenir leur intégrité. Une marionnette dotée de 49 veines de neige pouvait égaler la puissance d'un cultivateur au stade intermédiaire de la Formation du Noyau.
 
@@ -48,25 +48,25 @@ De surcroît, ces veines de neige provenaient de la Tactique de la Neige et de l
 
 Cette Tactique met l'accent sur le raffinement du cœur. Elle utilise la glace comme os et la neige comme cœur pour former une âme de glace et de neige, afin d'atteindre un état de pureté intérieure.
 
-On pourrait la décrire comme extrêmement mystérieuse et instable.
+On pourrait la décrire comme extrêmement mystérieuse, instable et d'une beauté indicible.
 
 C'est pourquoi les cultivateurs de Xue Yu sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
 
-Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la culture du Seigneur Démon des Six Désirs.
+Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode, bien que différente, produisait des effets très proches de ceux de la culture du Seigneur Démon des Six Désirs.
 
 Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de neige par des veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
 
 En un clin d'œil, Wang Lin passa trois ans dans cette petite ville. En ajoutant l'année passée à voyager, quatre ans s'étaient écoulés.
 
-Il ne restait plus qu'un an avant d'atteindre la fin de sa décennie. Il sentait que le moment de franchir le stade de la Formation de l'Âme approchait.
+Il ne restait plus qu'un an avant l'échéance des dix ans. Il sentait que le moment de franchir le stade de la Formation de l'Âme approchait.
 
-Il ignorait s'il déclencherait une rétribution divine en atteignant ce stade. Cependant, à mesure qu'il s'en rapprochait, il réalisait que son ascension provoquerait un bouleversement qui alerterait tout le monde.
+Il ignorait si son passage à ce stade ébranlerait le ciel et la terre. Cependant, à mesure qu'il s'en rapprochait, il réalisait que son ascension provoquerait un bouleversement qui alerterait tout le monde.
 
 C'est pourquoi, ce jour-là, Wang Lin sortit de la tour de glace et partit.
 
 Avant son départ, Xue Yu avait publié un décret ordonnant à tous les cultivateurs du stade de la Formation du Noyau et au-delà de se rassembler au temple pour une conférence sur le Dao. La raison en était le retour de l'un des treize cultivateurs partis à Suzaku: il était le seul à avoir réussi à atteindre le stade de la Transformation de l'Âme.
 
-Quant à savoir si un seul des treize avait réussi ou si Suzaku avait joué un rôle, cela ne regardait pas les autres.
+Quant à savoir si un seul des treize avait réussi ou si Suzaku y avait joué un rôle en coulisses, nul étranger ne le savait.
 
 Wang Lin partit en silence, sans que personne ne s'en aperçoive. Même le cultivateur au stade de la Formation du Noyau que Wang Lin avait piégé avait perdu la mémoire et retrouvé sa position d'origine.
 
@@ -74,7 +74,7 @@ Wang Lin partit en silence, sans que personne ne s'en aperçoive. Même le culti
 
 L'objectif de Wang Lin était Zhao. Il avait décidé d'atteindre le stade de la Formation de l'Âme là-bas.
 
-S'il choisissait Zhao, c'était d'abord parce que c'était un lieu reculé, mais aussi parce qu'il ressentait une nostalgie de son foyer après avoir discuté avec ce cultivateur au stade de la Formation de l'Âme avancée de l'Alliance des Quatre Sectes.
+S'il choisissait Zhao, c'était d'abord parce que c'était un lieu reculé, mais aussi parce qu'il ressentait une nostalgie de son foyer après avoir discuté avec ce cultivateur au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes.
 
 Tout le monde a un foyer. En avait-il un?
 
@@ -96,7 +96,7 @@ Wang Lin vola vers Zhao. Il y a quarante ans, il parcourait ce même chemin alor
 
 Le Wang Lin d'autrefois et celui d'aujourd'hui étaient aussi différents que le ciel et la terre.
 
-Il traversa une succession de tableaux de transfert anciens. Ce jour-là, il se trouvait dans une contrée étrange où les nuages emplissaient le ciel et où la pluie commençait à tomber.
+Il traversa une succession de réseaux de transfert anciens. Ce jour-là, il se trouvait dans une contrée étrange où les nuages emplissaient le ciel et où la pluie commençait à tomber.
 
 L'averse redoubla d'intensité jusqu'à ressembler à un véritable déluge. Wang Lin leva les yeux vers le ciel. Cela faisait longtemps qu'il n'avait pas vu une pluie aussi torrentielle. Il ne put s'empêcher de repenser à l'époque où il partageait la même pièce que Zhang Hu, à la Secte Heng Yue. La pluie tombait alors violemment tandis que le tonnerre et les éclairs déchiraient le ciel.
 
@@ -104,7 +104,7 @@ L'averse redoubla d'intensité jusqu'à ressembler à un véritable déluge. Wan
 
 Le corps de Wang Lin atterrit lentement sur le sol. Il n'utilisa même pas de technique pour se protéger de l'averse; il agita simplement la main vers un arbre voisin, et les feuilles se rassemblèrent pour former un parapluie végétal.
 
-Wang Lin marcha dans cette terre étrangère, abrité par son parapluie. Il ne lui restait que deux tableaux de transfert anciens avant d'atteindre Zhao. Le tableau de transfert de la région se situait à 20000 kilomètres à l'est.
+Wang Lin marcha dans cette terre étrangère, abrité par son parapluie. Il ne lui restait que deux réseaux de transfert anciens avant d'atteindre Zhao. Le réseau de transfert de la région se situait à 20000 kilomètres à l'est.
 
 Le fracas de la pluie emplissait la forêt, conférant au paysage un certain charme, particulièrement au vieux temple que l'on apercevait au loin. Ce temple était manifestement désert. Sa peinture rouge d'origine avait terni et certaines parties étaient endommagées.
 
@@ -124,7 +124,7 @@ Au bout d'un long moment, des cris retentirent au loin. Quelques hommes robustes
 
 En parlant, ils aperçurent Wang Lin à l'intérieur du temple. Ils s'arrêtèrent tous et se regardèrent avant de s'avancer silencieusement vers l'entrée.
 
-En passant devant lui, l'un d'eux fit un pas vers Wang Lin et sembla vouloir lui tapoter l'épaule de la main droite d'un geste en apparence anodin. Cependant, un autre membre du groupe laissa échapper un grognement et le poussa pour l'en empêcher.
+En passant devant lui, l'un d'eux fit un pas vers Wang Lin et sembla vouloir lui donner une petite tape de la main droite, d'un geste en apparence anodin. Cependant, un autre membre du groupe laissa échapper un bref cri et le poussa pour l'en empêcher.
 
 L'homme tourna la tête et émit un reniflement avant d'entrer discrètement dans le temple.
 
@@ -132,6 +132,6 @@ Les cinq hommes retirèrent leurs capes, allumèrent un feu, sortirent de la nou
 
 Wang Lin secoua doucement la tête. Ces cinq mortels avaient brisé la solennité de cette nuit et gâché l'atmosphère. Il soupira. Au moment même où il s'apprêtait à partir, son regard se fixa soudainement sur la forêt au loin.
 
-Il vit un homme aux longs cheveux, vêtu d'une robe légère, faire de grands pas vers le temple. Bien que l'homme parût avancer lentement, il fut soudainement aux côtés de Wang Lin et entra dans le temple.
+Il vit un homme aux longs cheveux, vêtu d'une robe légère, avancer pas à pas vers le temple. Bien que l'homme parût avancer lentement, il fut soudainement aux côtés de Wang Lin et entra dans le temple.
 
 En passant à sa hauteur, l'homme eut un souffle de surprise et s'arrêta net. Il observa attentivement Wang Lin, dévoilant ses dents blanches dans un sourire gracieux, et dit: « Je ne m'attendais pas à rencontrer un compagnon cultivateur dans un si petit temple. Je m'appelle Mo Zhi. Et vous? »

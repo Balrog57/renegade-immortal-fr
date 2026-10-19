@@ -28,7 +28,7 @@ Ce brouillard magnétique infini se déversa dans le ciel de la Planète du Gran
 
 Tout semblait inchangé, mais en y regardant de plus près, on pouvait percevoir une différence.
 
-Avant d'entrer dans la Perle Défiant le Ciel, le brouillard magnétique était destructeur et mortel. Désormais, il paraissait complet, comme s'il contenait la vie.
+Avant d'entrer dans la Perle Défiant le Ciel, le brouillard magnétique était destructeur et mortel. Désormais, il paraissait unifié, comme s'il contenait la vie.
 
 Les dizaines de milliers de cultivateurs contemplaient la scène avec stupéfaction. Alors qu'ils observaient la deuxième baguette d'encens libérer tout son brouillard magnétique, des craquements retentirent provenant de la géante tige d'encens à moitié consumée.
 
@@ -76,7 +76,7 @@ L'Épreuve Terrestre retomba dans le calme; seul le Feu Éthéré autour de l'Oi
 
 Après un long moment, Wang Lin regarda l'oiseau et inspira profondément. L'Oiseau Vermillon poussa un cri et pénétra dans son œil gauche. Simultanément, le Feu Éthéré enveloppa le corps de Wang Lin. Ce feu était incolore et dégageait une aura de destruction pure.
 
-Wang Lin expira un air vicié et leva les yeux vers le ciel. Un instant plus tard, au lieu de partir, il fit un pas en avant. Il parcourut des dizaines de milliers de kilomètres pour atteindre la lisière de l'Épreuve Terrestre, là où se trouvait la montagne dénuée de flammes.
+Wang Lin expira un air vicié et leva les yeux vers le ciel. Un instant plus tard, au lieu de partir, il fit un pas en avant. Il parcourut des millions de kilomètres pour atteindre la lisière de l'Épreuve Terrestre, là où se trouvait la montagne dénuée de flammes.
 
 L'Oiseau Vermillon de la quatrième génération était assis silencieusement sur cette montagne vide. Se trouvant en ce lieu, il avait clairement ressenti ce que Wang Lin venait de traverser, et il en était bouleversé.
 

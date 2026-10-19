@@ -46,7 +46,7 @@ Une telle situation était fatale lors d'une grande bataille, et il ne pouvait l
 
 À ses yeux, la solution était simple: tant qu'ils tuaient Wang Lin, tout irait bien!
 
-Il avait non seulement laissé l'Estimé Nan Zhao s'échapper, mais aussi un autre cultivateur du troisième niveau accompagnant la seconde armée. Ce dernier était un vieil homme vêtu de bleu du Clan Bai Lei. Une fois libéré, il chargea soudainement vers Wang Lin!
+Il avait non seulement libéré l'Estimé Nan Zhao, mais aussi un autre cultivateur du troisième niveau accompagnant la seconde armée. Ce dernier était un vieil homme vêtu de bleu du Clan Bai Lei. Une fois libéré, il chargea soudainement vers Wang Lin!
 
 L'Estimé Nan Zhao était bien plus rapide que le vieil homme en bleu. Il se changea en un rayon de lumière noire et fonça sur Wang Lin avec une intention meurtrière encore plus puissante qu'auparavant!
 
@@ -84,7 +84,7 @@ La fumée aux cinq couleurs était composée de poisons divers et terrifiants. C
 
 Ce poison ressemblait énormément à celui de la Grande Désolation, mais avec une étrange différence. C'était cette nuance qui avait empêché l'Estimé Nan Zhao de réaliser sa terreur jusqu'à ce qu'il soit confronté à lui.
 
-Tout se passa en un éclair. Les cinq tornades de poison s'effondrèrent et furent absorbées par l'océan toxique. Puis, cet océan chargea vers Nan Zhao telle une vague monstrueuse!
+Tout se passa en un éclair. Les cinq tornades de poison s'effondrèrent et furent absorbées par l'océan toxique. Puis, cet océan chargea vers Nan Zhao telle une vague monstrueuse, pareille à un fleuve stellaire!
 
 Les deux camps étaient trop proches, à moins de quelques centaines de pieds, si bien que même l'Estimé Nan Zhao ne put l'éviter. Tandis que son visage se décomposait, il tenta de reculer et son corps devint flou, comme s'il allait se dissiper. À cet instant précis, l'océan de poison le traversa.
 
@@ -102,12 +102,12 @@ Seuls les restes d'un cri misérable résonnaient encore aux oreilles des 100 00
 
 Wang Lin agita sa main gauche tout en réfléchissant silencieusement. Les six gouttes de poison restantes autour de lui volèrent dans l'océan toxique pour former un vortex géant autour de lui.
 
-Il n'avait pas le temps de regretter ce trésor. Wang Lin poussa un rugissement et pointa sa main gauche: le vortex de l'océan de poison jaillit!
+Il n'avait pas le temps de regretter ce trésor. Wang Lin poussa un rugissement et pointa sa main gauche vers le ciel: le vortex de l'océan de poison jaillit dans toutes les directions!
 
-Puis, sa main droite déchira le vide, créant une faille spatiale d'où surgirent d'innombrables bêtes moustiques féroces!
+Puis, sa main gauche déchira le vide, créant une faille spatiale d'où surgirent d'innombrables bêtes moustiques féroces!
 
 Qu'il s'agisse de l'océan de poison ou des bêtes moustiques, c'étaient des atouts que Wang Lin n'avait pas pu utiliser plus tôt, car ils constituaient ses cartes maîtres dans une bataille de groupe. Les cultivateurs du troisième niveau du Royaume Extérieur avaient clairement encore de la puissance à revendre; s'il ne les utilisait pas au moment critique, ces atouts risquaient d'être neutralisés avant d'avoir pu porter leur plein effet!
 
 Bien que ce ne fût pas le moment idéal, Wang Lin ne pouvait plus attendre. Quant à la Bête des Limbes, après avoir dévoré la Tempête Dorée, elle semblait avoir disparu. Wang Lin avait tenté de l'invoquer à plusieurs reprises, mais sans réponse.
 
-L'océan de poison se dispersa et les bêtes moustiques hurlèrent. Wang Lin leva sa Hache Brise-Ciel et chargea vers la pâle Grand Maître Yun Luo. Il abattit sa main droite et la Hache Brise-Ciel frappa avec fracas!
+L'océan de poison se dispersa et les bêtes moustiques hurlèrent. Wang Lin leva sa Hache Brise-Ciel et chargea vers la pâle Grand Maître Yun Luo. Il leva la main droite, à mille pieds d'elle, et la Hache Brise-Ciel s'abattit dans un fracas!

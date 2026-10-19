@@ -10,7 +10,7 @@ Maître Âme Écarlate venait du Continent Astral Immortel; il connaissait donc 
 
 Sur le Continent Astral Immortel, avec son niveau de culture, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
 
-Le rêve de Maître Âme Écarlate était de devenir un cultivateur de rang Exalté Doré. C’était pour cet objectif qu'il voulait briser la formation entourant le Royaume Céleste: il voulait dévorer le Royaume Céleste et absorber son sang pour réaliser sa percée.
+Le rêve de Maître Âme Écarlate était de devenir un cultivateur de rang Exalté Doré. C’était pour cet objectif qu'il voulait briser la formation entourant le Royaume Céleste: il voulait dévorer les cultivateurs du Royaume Céleste et absorber leur sang pour réaliser sa percée.
 
 Cependant, il venait d'assister à la métamorphose d'un petit serpent en un dragon marin gigantesque. Cet événement laissa l'esprit de Maître Âme Écarlate totalement embrumé.
 
@@ -46,13 +46,13 @@ Alors qu'il reculait, le dragon marin Exalté Doré ouvrit la gueule pour le dé
 
 C'était une question de vie ou de mort et le temps pressait. Bien qu'il sût que cet individu était présent à cause de Wang Lin et qu'il serait difficile de le convaincre, il devait tenter sa chance.
 
-« Avant d'être scellé, j'ai caché toutes les richesses accumulées pendant d'innombrables années dans le Continent Est. Je vous demande seulement d'être clément et de m'épargner la vie! » Le cœur de Maître Âme Écarlate battait la chamade tandis qu'il fixait le dragon marin. Sa terreur était telle que sa voix en tremblait.
+« Avant d'être scellé, j'ai caché toutes les richesses accumulées pendant d'innombrables années dans le Continent Est. Je vous les offre toutes; je vous demande seulement d'être clément et de m'épargner la vie! » Le cœur de Maître Âme Écarlate battait la chamade tandis qu'il fixait le dragon marin. Sa terreur était telle que sa voix en tremblait.
 
 Liu Jinbiao fut stupéfait.
 
 Wang Lin esquissa un sourire énigmatique, presque imperceptible. Xu Liguo, le dragon marin, ainsi que Maître Nan Yunzi et les autres furent également surpris.
 
-Xu Liguo resta interdit un instant avant d'éclater de rire. Liu Jinbiao afficha un sourire glacial en regardant Maître Âme Écarlate, plongé dans le désespoir.
+Xu Liguo resta interdit un instant avant d'éclater de rire. Liu Jinbiao toussa à plusieurs reprises, esquissa un demi-sourire en regardant Maître Âme Écarlate, plongé dans le désespoir, et secoua la tête.
 
 « Mon oncle-maître est Xun Shanqing, un Exalté Empyréen sous les ordres du Grand Empyréen Dao Yi! Si vous laissez ce dragon marin me tuer, mon oncle-maître le saura certainement. Je ne pense pas que votre maître soit disposé à se mettre à dos un autre Exalté Empyréen! » Le visage de Maître Âme Écarlate était livide, trahissant sa peur viscérale de la mort.
 
@@ -104,6 +104,6 @@ Dans le Royaume Céleste du monde des grottes, Maître Âme Écarlate contemplai
 
 « C'est impossible... Impossible... »
 
-« Aucun Exalté sous mes ordres ne connaît cet homme... Je vous en prie... je supplie le Seigneur Wang... de ne pas être en colère... » La voix amère de Dao Yi parvint de l'intérieur du vortex. L'expression de respect et de terreur absolue était parfaitement lisible pour Maître Âme Écarlate.
+« Aucun Exalté Empyréen sous mes ordres ne connaît cet homme... Je vous en prie... je supplie le Seigneur Wang... de ne pas être en colère... » La voix amère de Dao Yi parvint de l'intérieur du vortex. L'expression de respect et de terreur absolue était parfaitement lisible pour Maître Âme Écarlate.
 
 « Faux... C'est faux... C'est impossible! » Maître Âme Écarlate sentit sa raison lui échapper. Il ne pouvait croire à une telle réalité.

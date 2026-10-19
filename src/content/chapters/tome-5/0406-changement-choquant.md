@@ -24,7 +24,7 @@ Wang Lin regarda Zhou Ru. Il hocha la tête, puis partit.
 
 Zhou Ru se mordilla la lèvre inférieure en observant le dos de Wang Lin. Cette silhouette lui semblait si étrangère.
 
-Elle s'exclama: « Oncle, ne t'inquiète pas. Zhou Ru sait ce qu'elle doit faire pour que toi et grande sœur Wan Er puissiez vous réunir. »
+Elle s'exclama: « Oncle, ne t'inquiète pas. petite Ru Er sait ce qu'elle doit faire pour que toi et grande sœur Wan Er puissiez vous réunir. »
 
 Le corps de Wang Lin se figea. Il réfléchit un instant avant de poursuivre son chemin.
 
@@ -32,11 +32,11 @@ Deux autres années passèrent rapidement.
 
 Ce jour-là, à la lisière du pays de Chu, sur la planète Suzaku, une épaisse masse de brouillard noir jaillit du gouffre géant menant au Cimetière des Immortels. Ce brouillard noir perça le ciel.
 
-La brume se mua en une plante très étrange aux feuilles immenses. D'innombrables tatouages recouvraient la plante, laquelle dégageait une aura singulière.
+La brume se mua en une plante très étrange, d'un noir absolu, aux feuilles immenses. D'innombrables tatouages recouvraient la plante, laquelle dégageait une aura singulière.
 
-À cet instant précis, une lumière dorée apparut dans le ciel. À l'intérieur de cette clarté surgirent les illusions de cinq épées volantes étincelantes.
+À cet instant précis, un immense filet doré apparut dans le ciel. Sur ce filet, les illusions de cinq épées volantes étincelaient.
 
-Dès son apparition, la lumière dorée se transforma en un filet qui recouvrit la plante. Après une série de grondements sourds, elle parvint à la supprimer de force.
+Dès son apparition, le filet doré recouvrit la plante. Après une série de grondements sourds, elle parvint à la supprimer de force.
 
 « Mon clan s'est caché pendant des dizaines de milliers d'années, mais aujourd'hui, personne n'empêchera mon clan de reprendre la planète Fu Wen! » tonna une voix antique émanant des profondeurs du Cimetière des Immortels, tandis qu'un vieil homme à l'apparence très ancienne sortait du gouffre.
 
@@ -100,13 +100,13 @@ Parmi eux se trouvait une femme portant un voile violet. Ses yeux, sous le tissu
 
 Zhu Quezi, vêtu d'une robe rouge, apparut dans le vide. Il regarda en direction du Cimetière des Immortels avec une expression extrêmement sombre.
 
-« Maudites reliques du Clan de l'Immortel Délaissé. Vous cherchez la mort!!! » Zhu Quezi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
+« Maudits vestiges du Clan de l'Immortel Délaissé. Vous cherchez la mort!!! » Zhu Quezi tendit la main et toutes les nuées semblèrent converger vers sa paume. Bientôt, un jeton blanc formé de nuages apparut dans sa main.
 
 Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et ainsi de suite.
 
 « En tant que Suzaku de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan de l'Immortel Délaissé commence! »
 
-Les jetons nuageux disparurent rapidement. Puis, un vieil homme sortit de sa longue retraite à la Secte du Jade Céleste, dans le pays de Suzaku.
+Les jetons nuageux disparurent rapidement. Puis, un vieil homme aux cheveux blancs sortit de sa longue retraite à la Secte du Jade Céleste, dans le pays de Suzaku.
 
 Vêtu d'une robe noire et très maigre, ses yeux s'illuminèrent lorsqu'il tourna son regard vers le Cimetière des Immortels. Il murmura: « Les choses changent! »
 
@@ -116,13 +116,13 @@ La Secte de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. U
 
 Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'arrive pas à croire que je sois entraîné là-dedans, ah! »
 
-Le dernier secteur de Suzaku était la Secte du Chemin de l'Immortel; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
+La dernière secte de Suzaku était la Secte du Chemin de l'Immortel; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
 
-Pilu, à la Secte de l'Affinement de l'Âme.
+Pays de Pilu, dans la Secte de l'Affinement de l'Âme, où Du Tian était en retraite.
 
 Du Tian ouvrit les yeux et ricana avant de les refermer une fois de plus.
 
-Cette calamité sur la planète Suzaku n'avait rien à voir avec Wang Lin. Il était uniquement concentré sur la seconde arrivée du messager des cieux, afin que Li Muwan puisse renaître.
+Cette calamité sur la planète Suzaku n'avait rien à voir avec Wang Lin. Il était uniquement concentré sur sa seconde confrontation avec le Dao céleste, afin que Li Muwan puisse renaître.
 
 Il restait deux ans avant l'éveil de Li Muwan.
 

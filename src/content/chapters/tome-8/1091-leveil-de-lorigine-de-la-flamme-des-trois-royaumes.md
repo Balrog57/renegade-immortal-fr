@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1091 - Rise Three Realm Flame Origin
 slug: leveil-de-lorigine-de-la-flamme-des-trois-royaumes
 ---
-Le moral de Wang Lin était quelque peu pesant. Le regard du vieux Divin Empereur lui rappelait Dun Tian, et il laissa échapper un soupir.
+Le moral de Wang Lin était quelque peu pesant. La scène du vieil Empereur Divin lui rappelait Dun Tian, et il laissa échapper un soupir.
 
 Alors que Wang Lin avançait, presque tous les cultivateurs des planètes qu’il croisait s'envolaient pour l'acclamer. Les cris de « Divin Empereur! » faisaient trembler le ciel.
 
@@ -77,7 +77,7 @@ Ils n'avaient jamais oublié ce pouvoir qui déchirait les ténèbres de la nuit
 
 L'esprit de Ren Tao trembla plus intensément encore, envahi par un pressentiment funeste. Pourtant, il ne pouvait reculer maintenant. Après une dernière vérification minutieuse, il confirma que Wang Lin n'était effectivement qu'au sommet du stade Scruteur du Nirvana. Le visage sombre, il serra les dents et déclara: « Je relève le défi! »
 
-Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps de Dieu Ancien, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Purificateur du Nirvana avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Briseur du Nirvana! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
+Wang Lin acquiesça. Son corps original était actuellement séparé de lui, mais même sans son puissant corps, Wang Lin possédait toujours ses sorts. Il pouvait massacrer tous les cultivateurs du stade Purificateur du Nirvana avec son Arsenal Magique, et il osait même affronter des cultivateurs au stade Briseur du Nirvana! En vérité, que son corps original soit présent ou non ne changeait rien pour l'instant.
 
 S'il y avait une différence, c'était que ce corps puissant permettrait à l'endurance de Wang Lin de dépasser toutes les espérances!
 
@@ -107,7 +107,7 @@ L'esprit de Ren Tao vacilla. Il ne pensait pas que Wang Lin puisse contrôler se
 
 L'expression de Wang Lin était sereine tandis que sa main droite formait un sceau pointé vers Ren Tao. La première transformation des Neuf Transformations Mystérieuses déployait toute sa puissance. À cet instant, Wang Lin sentit une chaleur intense irradier de sa main droite.
 
-« Éveil de l'Origine de la Flamme des Trois Royaumes! »
+« Éveil de l'Origine de la Flamme des Trois Vies! »
 
 Alors que la voix calme de Wang Lin résonnait, il pointa Ren Tao du doigt. Ce dernier cracha soudainement du sang et des craquements sinistres retentirent de l'intérieur de son corps.
 

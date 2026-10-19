@@ -88,7 +88,7 @@ Alors que les sceaux superposés convergeaient vers Tuo Sen, celui-ci changea de
 
 L'homme masqué ne répondit pas, ses yeux libérant une lueur mystérieuse. Le sceau scintilla et disparut soudainement, avant de réapparaître derrière Tuo Sen pour le frapper à une vitesse fulgurante.
 
-Tuo Sen leva brusquement la main et un brouillard rouge s'échappa de sa bouche. Son corps commença à se dissiper lentement jusqu'à disparaître totalement.
+Tuo Sen leva brusquement la tête et un brouillard rouge s'échappa de sa bouche. Son corps commença à se dissiper lentement jusqu'à disparaître totalement.
 
 Cependant, le brouillard rouge ne s'évanouit pas; il tourbillonna violemment. Le visage de Tuo Sen apparut dans la brume rouge et déclara: « Peu importe qui tu es, quand je me serai libéré, je te tuerai! »
 

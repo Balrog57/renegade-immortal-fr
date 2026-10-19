@@ -13,7 +13,7 @@ Les yeux de Wang Lin s'illuminèrent. Logiquement, cet endroit était abandonné
 
 Par conséquent, même s'il existait des fragments sur lesquels personne n'avait encore posé le pied, ils étaient extrêmement rares et difficiles à trouver. En somme, la plupart des fragments du Royaume Céleste avaient déjà été visités par des cultivateurs.
 
-Cette tablette de pierre était normalement un panneau destiné à être placé à l'extérieur, pourtant elle se trouvait ici, près du centre du palais. Ajoutant à cela les marques indiquant qu'elle avait été enterrée sous terre durant une longue période, Wang Lin commença enfin à comprendre la situation.
+Cette tablette de pierre était normalement un monument destiné à être placé à l'extérieur, pourtant elle se trouvait ici, près du centre du palais. Ajoutant à cela les marques indiquant qu'elle avait été enterrée sous terre durant une longue période, Wang Lin commença enfin à comprendre la situation.
 
 Cette tablette avait dû être déplacée par un cultivateur lors de l'une des premières ouvertures du Royaume Céleste afin de dissimuler quelque chose. Autrement, ces marques sur la moitié inférieure de la pierre n'auraient pas existé; si elle était restée immobile, la partie inférieure aurait fini par sécher et se fissurer.
 
@@ -23,7 +23,7 @@ Au moment où la tablette fut totalement dégagée, un mince filet d'énergie sp
 
 Un sourire de satisfaction apparut sur le visage de Wang Lin alors qu'il piégeait rapidement cette énergie spirituelle céleste pour la raffiner.
 
-À cet instant précis, un bang sonore retentit soudainement au loin, tandis qu'un objet traversait le ciel tel un éclair, enveloppé par une formation octogonale. Un cultivateur vêtu de robes vertes, une épée volante dans le dos, surgit de la formation. Dès son apparition, il fondit vers les ruines comme s'il avait une cible précise en vue.
+À cet instant précis, un bang sonore retentit soudainement au loin, tandis qu'un éclair traversait le ciel, au sein duquel apparut une formation octogonale. Un cultivateur vêtu de robes vertes, une épée volante dans le dos, surgit de la formation. Dès son apparition, il fondit vers les ruines comme s'il avait une cible précise en vue.
 
 Wang Lin le remarqua immédiatement et fronça les sourcils. Cependant, il ignora la vitesse de l'inconnu pour se concentrer sur le raffinage de l'énergie spirituelle céleste. Après un moment, ce mince filet d'énergie devint une goutte de liquide sous l'action du raffinage.
 
@@ -45,7 +45,7 @@ La vitesse de l'attaque fut fulgurante. En percutant la boule de foudre, le qi d
 
 Le visage du cultivateur aux robes vertes devint pourpre alors qu'il réprimait le sang qui lui montait à la gorge. Cette épée, une arme spirituelle de rang suprême, était l'une des sept épées précieuses de la Secte de l'Épée Da Luo. Contre un adversaire plus faible, il aurait pu la contrôler aisément; même contre un égal, il aurait pu l'éliminer par la seule puissance du qi contenu dans la lame.
 
-Cependant, le Crapaud du Tonnerre avait une puissance comparable à celle d'un cultivateur au sommet du stade intermédiaire de la Formation de l'Âme. Bien que la boule de foudre ne possédât pas de domaine, elle n'était pas une chose qu'un cultivateur ordinaire pouvait simplement contrer. Il s'agissait d'une technique d'attaque unique conférée au crapaud par l'arme elle-même. Ainsi, le cultivateur ne pouvait que tout miser sur cette attaque, au risque de se blesser lui-même pour l'emporter.
+Cependant, le Crapaud du Tonnerre avait une puissance comparable à celle d'un cultivateur au sommet du stade intermédiaire de la Formation de l'Âme. Bien que la boule de foudre ne possédât pas de domaine, elle n'était pas une chose qu'un cultivateur ordinaire pouvait simplement contrer. Il s'agissait d'une technique d'attaque unique accordée au crapaud par le ciel. Ainsi, le cultivateur ne pouvait que tout miser sur cette attaque, au risque de se blesser lui-même pour l'emporter.
 
 Grâce à l'aide du Crapaud du Tonnerre, Wang Lin acheva enfin le raffinage de l'énergie spirituelle céleste. Il tenait désormais entre ses mains un cristal violet de la taille d'un grain de riz. Ce minuscule cristal équivalait à presque la moitié de toute l'énergie spirituelle du pays de Zhao réunie. En ressentant la puissance qui s'en dégageait, Wang Lin fut stupéfait. Après avoir placé le cristal dans son sac de rangement, il leva la tête et lança un regard glacial au cultivateur aux robes vertes.
 

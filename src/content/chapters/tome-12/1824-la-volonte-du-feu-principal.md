@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1824 - Will of the Main Fire!"
 slug: la-volonte-du-feu-principal
 ---
-La jeune femme n'était pas stupide. Même si cela avait été quelqu'un d'autre, si elle avait remarqué un problème avec la veine de feu terrestre et avait vu une personne couverte de flammes s'échapper de la salle de pierre, elle aurait naturellement pensé que cette personne était la cause du problème.
+La jeune femme n'était pas stupide. Même si cela avait été quelqu'un d'autre, si elle avait remarqué un problème avec la veine de feu terrestre et avait vu une personne couverte de flammes s'échapper de la salle de pierre en s'enfonçant sous terre, elle aurait naturellement pensé que cette personne était la cause du problème.
 
 On aurait alors poursuivi l'individu, manquant inévitablement quelque chose d'essentiel. Après tout, il est rare que les êtres soient parfaits dans ce monde.
 
@@ -108,13 +108,13 @@ Cette force était colossale; elle s'était muée en une main gigantesque prête
 
 Wang Lin perçut vaguement une lumière et une chaleur intense. Cette conjonction de lumière et de chaleur formait le feu du monde!
 
-La volonté du feu voulait tout consumer, y compris elle-même. Elle contenait un soupçon de folie mêlé à une détermination inflexible et défiant les cieux, prête à embraser l'univers entier.
+La volonté du feu voulait tout consumer, y compris elle-même. Elle contenait un soupçon de folie mêlé à une détermination inflexible et défiant les cieux, qui brûlait avec fureur dans ce monde.
 
 Elle allait réduire le Sens Divin de Wang Lin et tout ce qu'il était en cendres!
 
-« Le feu! L'origine de ma compréhension du feu n'est pas l'Oiseau Vermillon, mais le cœur d'une bougie qui oscille sous le vent sans jamais s'éteindre! »
+« Le feu! L'origine de ma compréhension du feu n'est pas l'Oiseau Vermillon, mais le cœur d'une bougie qui oscille sous le vent! »
 
-« Le vent hurle et veut souffler la flamme pour l'éteindre et la transformer en fumée. Pourtant, à chaque bourrasque, la bougie résiste et tremble violemment. Elle refuse de mourir, elle refuse de devenir cendres! »
+« Le vent hurle et veut souffler la flamme pour l'éteindre et la transformer en fumée. Pourtant, à chaque bourrasque, la bougie résiste et tremble violemment. Elle refuse de mourir, elle refuse de se changer en fumée! »
 
 « L'essence du feu que moi, Wang Lin, ai comprise est cette volonté! La volonté de la flamme de la bougie! La volonté de mon Dao! C'est aussi la volonté de ma lutte incessante contre les cieux! »
 

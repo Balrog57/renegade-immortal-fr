@@ -16,9 +16,9 @@ Seul celui qui réussissait les trois épreuves pouvait prétendre devenir disci
 
 À cet instant, à l'intérieur de l'épreuve Humaine, un voile recouvrait toute une zone. Au centre de ce domaine se trouvait un lieu semblable au paradis.
 
-Cet endroit était rempli de fleurs, d'oiseaux et de saules pleureurs. On entendait également quelques aboiements de chiens qui, loin de rompre la tranquillité, semblaient plutôt appeler quelqu'un pour le réveiller de son sommeil.
+Cet endroit était rempli de fleurs, d'oiseaux et de saules pleureurs. On entendait également quelques aboiements de chiens qui, loin de rompre la tranquillité, semblaient plutôt appeler quelqu'un pour le réveiller de son sommeil, tandis que des voix humaines résonnaient doucement.
 
-Ce paradis était un village. Bien qu'il n'y eût pas beaucoup d'habitants, ils se respectaient tous et vivaient en parfaite harmonie.
+Ce paradis était un village. Bien qu'il n'y eût pas beaucoup d'habitants, tous voisins de longue date, ils se respectaient et vivaient en parfaite harmonie.
 
 La troisième maison depuis l'extrémité nord du village possédait sa propre cour. Bien que modeste, quiconque y jetait un œil la trouverait très confortable. Quelques touffes d'herbe à queue dorée poussaient devant la porte, signe que le printemps était là.
 
@@ -42,7 +42,7 @@ Le garçon s'apprêtait à parler, mais à cet instant précis, une voix grave r
 
 Le garçon ne se retourna pas; il laissa échapper un soupir avant de lancer un regard profond au vieil homme. Il rentra ensuite dans la maison pour reprendre sa sculpture. Cependant, une profonde incertitude brillait dans ses yeux.
 
-L'homme observa le garçon un instant, puis s'assit aux côtés du vieil homme, lui versa du thé et dit: « Père, je partirai en montagne demain. »
+L'homme lança un regard noir au garçon, puis s'assit aux côtés du vieil homme, lui versa du thé et dit: « Père, je partirai en montagne demain. »
 
 Le vieil homme regardait toujours tendrement le garçon. En entendant l'homme d'âge moyen, il se contenta de hocher la tête sans mot dire.
 
@@ -122,7 +122,7 @@ Au plus profond de la Secte du Destin Céleste.
 
 L'Omniscient, les yeux clos, cultivait au centre d'un autel noir. Il ouvrit soudainement les yeux, afficha un sourire satisfait et dit: « Cet enfant est excellent! »
 
-Dix jours plus tard, dans le paradis de l'épreuve Humaine, une silhouette sortit. C'était la première fois que le garçon quittait la cour. Au premier pas, il était encore un enfant; au deuxième, un adolescent; et au troisième, il devint un jeune homme!
+Dix jours plus tard, dans le paradis de l'épreuve Humaine, une silhouette sortit. Au premier pas, il était encore un enfant; au deuxième, un adolescent; et au troisième, il devint un jeune homme!
 
 Les cheveux du jeune homme flottaient sans qu'aucun vent ne souffle, et il portait une robe d'un blanc immaculé tandis qu'il sortait du paradis pas à pas. Il tenait une sculpture dans sa main. Enfin, l'œuvre était achevée...
 

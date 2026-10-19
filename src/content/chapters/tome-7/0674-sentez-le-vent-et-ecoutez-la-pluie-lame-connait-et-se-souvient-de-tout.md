@@ -18,7 +18,7 @@ Huan Dong frappa son sac de contenance et une épée métallique en sortit. Simu
 
 L'épée métallique vola directement vers le Doigt de la Mort.
 
-Une explosion assourdissante éclata soudainement dans le ciel. Une série de craquements retentit lorsque le Doigt de la Mort entra en collision avec l'épée, avant que celle-ci ne se brise pouce par pouce jusqu'à disparaître totalement. Le Doigt de la Mort perça l'espace tel un éclair et atteignit Huan Dong. En ce moment de crise, la main de Huan Dong traça un sceau pour tenter de heurter le Doigt de la Mort.
+Une explosion assourdissante éclata soudainement dans le ciel. Une série de craquements retentit lorsque le Doigt de la Mort entra en collision avec l'épée, avant que celle-ci ne se brise pouce par pouce jusqu'à disparaître totalement. Le Doigt de la Mort perça l'espace tel un éclair et atteignit Huan Dong. En ce moment critique, Huan Dong joignit les deux paumes et les poussa vers l'avant pour heurter le Doigt de la Mort.
 
 Un rugissement tonitruant résonna dans toute la zone. Le corps de Huan Dong trembla et il cracha une bouchée de sang. Il fut projeté en arrière comme une météorite, tandis que des éclairs scintillaient sur tout son corps. Chaque fois que l'éclair crépitait, ses blessures s'aggravaient. Ce tonnerre était extrêmement étrange, car une partie de sa puissance entourait son âme originelle, la faisant lutter dans une douleur extrême.
 
@@ -34,7 +34,7 @@ Par conséquent, tuer ce Huan Dong était aussi simple que de lever la main.
 
 Les yeux de Wang Lin devinrent froids en voyant Huan Dong tenter de s'enfuir. Puisqu'il avait accepté leur paiement, il devait éliminer ce désastre. Parfois, il était impossible de distinguer le bien du mal.
 
-Wang Lin frappa doucement son sac de contenance et la Formation d'Épées des Sept Étoiles s'élança sous la forme de sept rayons de lumière. La Formation d'Épées des Sept Étoiles avait été créée par le Saint de l'Épée Ling Tianhou; comment quiconque pourrait-il s'en défendre? En un clin d'œil, les sept épées chargèrent et atteignirent Huan Dong au moment même où il allait disparaître dans le vide. Les sept âmes des épées apparurent instantanément et fusionnèrent en une seule. La bête fusionnée laissa échapper un rugissement et griffa férocement Huan Dong.
+Wang Lin frappa doucement son sac de contenance et la Formation d'Épées des Sept Étoiles s'élança sous la forme de sept rayons de lumière. La Formation d'Épées des Sept Étoiles avait été créée par le Saint de l'Épée Ling Tianhou; comment quiconque pourrait-il s'en défendre? En un clin d'œil, les sept épées chargèrent et atteignirent Huan Dong au moment même où il allait disparaître dans le vide. Les âmes maléfiques des sept animaux du zodiaque apparurent sur les épées et fusionnèrent en une seule. La bête fusionnée laissa échapper un rugissement et griffa férocement Huan Dong.
 
 Un bruit de miroir brisé résonna dans le ciel. À l'intérieur du vide, les yeux de Huan Dong étaient remplis de terreur, car la bête l'arracha violemment de la vacuité. Une fois extrait, les sept épées entourèrent Huan Dong, leurs pointes pointées contre lui. S'il bougeait ne serait-ce qu'un peu, les épées transperceraient son corps et détruiraient son âme.
 
@@ -76,7 +76,7 @@ Sun Xi expliqua: « Camarade cultivateur Xu, vous l'ignorez peut-être, mais l'a
 
 Les yeux de Wang Lin se plissèrent. « Quel est le niveau de culture de l'ancêtre de la famille Huan? »
 
-Huan Dong se détendit un peu et répondit: « La culture de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin et du Yang! »
+Huan Dong se détendit un peu et répondit: « La culture de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin-Yang et du Vide-Plein! »
 
 Wang Lin regarda l'ancêtre de la famille Ran et ses compagnons avec un sourire qui n'en était pas un. Une pointe de dérision dans son regard fit baisser la tête à l'ancêtre de la famille Ran.
 
@@ -94,11 +94,11 @@ Avant qu'il ne puisse finir, Wang Lin fronça les sourcils et tendit la main. Le
 
 « Recherche d'âme! »
 
-La culture de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprunter la puissance du gardien céleste pour exécuter ce sort de Recherche d'Âme.
+La culture de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprunter la puissance du garde céleste pour exécuter ce sort de Recherche d'Âme.
 
-Les souvenirs de Huan Dong n'étaient que fragments que Wang Lin parcourait avec l'aide du gardien céleste. Tandis qu'il les consultait, le corps de Huan Dong se mit à trembler violemment et ses yeux exprimèrent une lutte douloureuse.
+Les souvenirs de Huan Dong n'étaient que fragments que Wang Lin parcourait avec l'aide du garde céleste. Tandis qu'il les consultait, le corps de Huan Dong se mit à trembler violemment et ses yeux exprimèrent une lutte douloureuse.
 
-En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans le Fan d'Âmes d'un Milliard.
+En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra en une masse de chair et de sang, tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans le Drapeau d'Âmes au Milliard d'Âmes.
 
 Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagnons, qui furent chacun plongés dans leurs propres réflexions.
 
@@ -110,7 +110,7 @@ L'ancêtre de la famille Ran et son groupe n'osèrent plus l'entraver. Ils regar
 
 Une fois sorti de l'atmosphère, Wang Lin frappa son sac de contenance et la boussole stellaire apparut. Elle se transforma en un dragon argenté et disparut dans l'espace.
 
-Assis en position du lotus sur le dragon d'argent, Wang Lin murmura pour lui-même: « Cette femme Liu Mei n'a pas d'inimitié profonde envers moi. Si elle sait ce qui est bon pour elle, tout ira bien. Mais si elle agit comme elle l'a fait sur la planète Suzaku, je n'aurai d'autre choix que de la tuer. Quant à l'ancêtre de la famille Huan, je n'ai pas besoin de me battre contre lui à mort. S'il se présente, je pourrai simplement m'enfuir grâce au gardien céleste. De plus, je suis seul alors que lui a une famille. Si je ne peux pas le tuer, j'en tuerai certains membres pour me venger. »
+Assis en position du lotus sur le dragon d'argent, Wang Lin murmura pour lui-même: « Cette femme Liu Mei n'a pas d'inimitié profonde envers moi. Si elle sait ce qui est bon pour elle, tout ira bien. Mais si elle agit comme elle l'a fait sur la planète Suzaku, je n'aurai d'autre choix que de la tuer. Quant à l'ancêtre de la famille Huan, je n'ai pas besoin de me battre contre lui à mort. S'il se présente, je pourrai simplement m'enfuir grâce au garde céleste. De plus, je suis seul alors que lui a une famille. Si je ne peux pas le tuer, j'en tuerai certains membres pour me venger. »
 
 Une fois sa décision prise, Wang Lin cessa de songer à Liu Mei pour se concentrer sur la carte mentale qui l'habitait. Il se dirigeait vers la planète Yun Xia.
 

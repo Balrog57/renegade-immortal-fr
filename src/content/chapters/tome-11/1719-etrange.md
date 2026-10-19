@@ -60,7 +60,7 @@ Alors que le fracas tonnerre résonnait, les deux oiseaux vermillons s'effondrè
 
 Au moment même où les flammes qui recouvraient tout s'effondraient, le tonnerre gronda là où se tenait l'Omniscient. La foudre convergea de toutes parts pour former un gigantesque dragon de tonnerre à neuf têtes!
 
-Ce dragon poussa un rugissement et chacune de ses neuf têtes libéra un éclair de foudre. Ces éclairs percèrent les restes du feu et se précipitèrent vers Wang Lin telle une divine rétribution.
+Ce dragon poussa un rugissement et chacune de ses neuf têtes libéra un éclair de foudre. Ces éclairs percèrent les restes du feu et se précipitèrent vers Wang Lin telle une tribulation de la foudre.
 
 L'expression de Wang Lin était sombre. Familier avec l'essence du tonnerre, il chargea en avant. L'éclair dans son œil droit jaillit, le transformant en un gigantesque foudre fendant le ciel qui fonça sur le dragon à neuf têtes!
 
@@ -82,7 +82,7 @@ Wang Lin recula en fixant l'Omniscient. L'intention meurtrière dans ses yeux s'
 
 À cet instant, les lignes de sang de ses yeux se déployèrent pour saturer le domaine stellaire. À première vue, toute la zone semblait tissée de fils écarlates. Ces couches de lignes contenaient des restrictions qui enveloppèrent l'Omniscient telle une toile d'araignée.
 
-« Tue! » rugit Wang Lin. Les lignes de sang devinrent tranchantes et balayèrent l'Omniscient comme un broyeur à viande.
+« Tue par la restriction! » rugit Wang Lin. Les lignes de sang devinrent tranchantes et balayèrent l'Omniscient comme un broyeur à viande.
 
 « Toi et moi ne faisons déjà plus qu'un, tu es mon avatar. Alors, peu importe si je te laisse me tuer... » L'Omniscient afficha un sourire étrange. Il laissa les innombrables lignes de sang le lacérer, et son corps s'effondra.
 
@@ -94,7 +94,7 @@ Wang Lin réfléchit en silence avant de s'élancer et de disparaître.
 
 Dans cette direction se trouvait une planète cultivée, sur laquelle trônait un bassin. La zone environnante était totalement aride. Un vieil homme était assis là, vêtu d'une robe blanche, la tête couverte de cheveux blancs. Il ouvrit les yeux avec ce même sourire. Ses yeux étaient parcourus de lignes de sang, complètes et chargées du pouvoir des restrictions!
 
-« J'ai dû sacrifier une âme pour obtenir l'essence de restriction, mais cela en valait la peine... C'est juste que son niveau de culture n'était pas assez élevé; il aurait dû être bien plus fort... Si tel avait été le cas, je serais plus proche de l'aboutissement de mon plan... » L'Omniscient afficha un regard d'anticipation.
+« J'ai dû lui donner une âme en échange de l'essence de restriction, mais cela en valait la peine... C'est juste que son niveau de culture n'était pas assez élevé; il aurait dû être bien plus fort... Si tel avait été le cas, je serais plus proche de l'aboutissement de mon plan... » L'Omniscient afficha un regard d'anticipation.
 
 « Intégration de la Réincarnation... Ce sort est véritablement mystérieux. Avec cet éveil, je sais désormais que je n'étais pas le premier à m'éveiller après ces deux autres. Je me suis éveillé 97 fois... Ce sera ma 98e fois! » L'Omniscient prit une profonde inspiration et les lignes de sang dans ses yeux disparurent. Il se leva et contempla le ciel.
 

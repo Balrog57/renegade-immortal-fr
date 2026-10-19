@@ -20,7 +20,7 @@ D'un geste de Wang Lin, ces fils de Sens Divin retournèrent vers lui.
 
 La raison pour laquelle il était capable de retrouver la petite créature, quelle que soit sa vitesse, était en partie due à ces fils. Dès qu'il avait remarqué les fluctuations anormales dans la brume rouge, il avait utilisé la restriction de Sens Divin qu'il avait placée pour tisser silencieusement une toile de fils divins.
 
-Peu importe où cette petite créature se cacherait, Wang Lin serait capable de la traquer. De plus, après qu'elle eut dévoré tant d'âmes contenant des parcelles du Sens Divin de Wang Lin, la marque laissée sur elle joua également un rôle crucial.
+Peu importe où cette petite créature se cacherait, Wang Lin serait capable de la traquer. De plus, après qu'elle eut fusionné avec tant d'âmes contenant des parcelles du Sens Divin de Wang Lin, la marque laissée sur elle joua également un rôle crucial.
 
 Sous l'effet de ces deux facteurs, il n'était pas étonnant que Wang Lin puisse la suivre sans encombre.
 
@@ -58,7 +58,7 @@ Ce vortex était identique à celui du vide. Il menait clairement au second essa
 
 Wang Lin prit une profonde inspiration et marcha vers le vortex. À ce stade, il ne pouvait plus utiliser la technique d'évasion terrestre car la force de résistance souterraine était trop intense. Même en utilisant 100 % de son énergie spirituelle, il ne pourrait absolument pas se déplacer avec cette technique.
 
-Cependant, l'évasion terrestre n'augmentait la vitesse uniquement lorsqu'on était sous terre. Tant qu'il y avait de la terre sous ses pieds, bien que ce ne fût pas aussi rapide qu'une épée volante, cela restait plus véloce que la course.
+Cependant, l'évasion terrestre n'augmentait pas la vitesse uniquement lorsqu'on était sous terre. Tant qu'il y avait de la terre sous ses pieds, bien que ce ne fût pas aussi rapide qu'une épée volante, cela restait plus véloce que la course.
 
 Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que sa maîtrise n'était qu'un vernis comparée à la véritable technique d'évasion terrestre décrite dans la tablette de jade de l'évasion terrestre, celle qui permettait de raccourcir le sol et de parcourir plusieurs milliers de kilomètres en un instant.
 

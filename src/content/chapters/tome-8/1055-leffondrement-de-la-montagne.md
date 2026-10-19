@@ -10,7 +10,7 @@ Maître du Vide se retourna soudainement, sa main traçant un sceau pour lancer 
 
 L'expression de Maître du Vide changea radicalement, et au même moment, Zhou Yi fendit les flammes pour charger Maître du Vide. Sa vitesse était telle qu'il percuta la poitrine de Maître du Vide en un instant.
 
-Un grondement de tonnerre résonna dans toute la salle et il cracha un sang noir. Il tituba ensuite de quelques pas en arrière. Des craquements sinistres retentirent sous ses pieds alors que le sol se transformait en poussière à chacun de ses pas.
+Un grondement de tonnerre résonna dans toute la salle et il cracha un flot de sang. Il tituba ensuite de quelques pas en arrière. Des craquements sinistres retentirent sous ses pieds alors que le sol se transformait en poussière à chacun de ses pas.
 
 L'énergie d'épée se dissipa pour redevenir Zhou Yi. Son visage était livide et son corps translucide, tant une quantité massive d'énergie spirituelle s'était échappée de lui. Il semblait pouvoir disparaître à tout instant. Bien que cette attaque ait infligé des dégâts à Maître du Vide, il paraissait que Zhou Yi avait également été lourdement éprouvé par l'effort.
 
@@ -22,7 +22,7 @@ Le visage de Maître du Vide était d'une pâleur mortelle. Il avait déjà ét�
 
 Malgré son expression féroce, ses yeux ne fixaient ni Wang Lin ni Zhou Yi, mais restaient verrouillés sur l'Omniscient.
 
-L'expression de l'Omniscient demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, l'Omniscient tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste fera preuve de courtoisie envers ce vieil homme. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
+L'expression de l'Omniscient demeura impassible; le regard de Maître du Vide ne lui causait aucun malaise. Il dit calmement: « Cher compagnon de culture Maître du Vide, je n'oserais vous porter secours que si vous étiez réduit à un tel état. » Sur ce, l'Omniscient tourna un sourire vers Wang Wei et Hu Juan. « J'espère que le Couple du Nuage Céleste me fera cette faveur. Et si nous oubliions nos griefs personnels aujourd'hui pour nous concentrer sur l'ascension vers l'étage suivant? »
 
 L'expression de Ling Tianhou devint sombre. Comment ne pouvait-il pas voir que l'Omniscient était intervenu secrètement? Il se déplaça silencieusement aux côtés de Maître du Vide et lança un regard glacial à Wang Lin et son groupe.
 
@@ -30,7 +30,7 @@ Il y avait aussi ce vieil homme assis sur une gourde, dont l'expression indiffé
 
 Simultanément, la jeune fille soupçonnée d'être la Sainte du Vide Brillant se leva et s'approcha de Maître du Vide. Son regard magnifique balaya la salle avant de se poser sur Wang Lin, et elle dit doucement: « Cher compagnon Wang, mettons fin à cette affaire aujourd'hui. Une fois que vous aurez quitté ces lieux, mon Royaume du Vide Brillant ne s'impliquera pas dans ce conflit. »
 
-Hormis l'homme en noir, tous avaient clairement choisi un camp. Les yeux de Wang Lin s'illuminèrent et il joignit les mains devant Wang Wei: « Le cadet a manqué de prudence. Je laisserai l'Aîné décider de la suite. »
+Hormis l'homme en noir, tous avaient clairement choisi un camp. Le regard de Wang Lin jeta un éclair et il joignit les mains devant Wang Wei: « Mon affaire ne compte pas. Je laisserai l'Aîné décider de la suite. »
 
 Bien que Wang Wei n'eût pas apprécié l'attaque soudaine de Wang Lin, il acquiesça en voyant que celui-ci savait faire preuve de retenue. Son regard se posa sur l'Omniscient et ses alliés, et il déclara calmement: « Très bien. Laissons de côté nos querelles personnelles pour l'instant! Les trois derniers étages sont semés d'embûches; je vous prie donc, chers compagnons, de ne pas vous retenir. Une fois transférés au septième étage, retrouvons-nous au centre. »
 
@@ -46,7 +46,7 @@ Tout le monde fut dispersé lors de la téléportation. Lorsque Wang Lin atterri
 
 « C'est faux! »
 
-Tout ici différait totalement du septième étage répertorié sur la carte; il n'y avait aucune ressemblance. L'expression de Wang Lin devint sombre alors qu'il apercevait Hu Juan à environ mille pieds de là. Elle regardait autour d'elle, les yeux empreints de confusion.
+Tout ici différait totalement du septième étage répertorié sur la carte; il n'y avait aucune ressemblance. L'expression de Wang Lin devint sombre alors qu'il apercevait Hu Juan à plusieurs milliers de pieds de là. Elle regardait autour d'elle, les yeux empreints de confusion.
 
 Lorsque Wang Lin croisa son regard, Hu Juan fit de même. Elle soupçonnait depuis longtemps que Wang Lin avait fait une rencontre fortuite lui conférant une connaissance intime de cette grotte. En voyant l'expression de Wang Lin, elle esquissa un sourire amer et secoua la tête.
 

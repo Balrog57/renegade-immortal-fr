@@ -26,7 +26,7 @@ Les yeux de Wang Lin étaient empreints de choc. Il recula immédiatement. Il n'
 
 Seuls les yeux du vieil homme s'illuminèrent, avant qu'il ne semble se souvenir de quelque chose, son expression se muant en une peur profonde.
 
-« Épée de la Pluie, apparais! »
+« Première épée céleste de pluie, apparais! »
 
 Un rayon de lumière dorée jaillit des profondeurs sous leurs pieds. À mesure que la lueur dorée approchait, Wang Lin sentit une puissante intention d'épée fondre sur eux.
 
@@ -46,7 +46,7 @@ Sur l'un des fragments les plus centraux du Royaume Céleste, un érudit vêtu d
 
 Sur un fragment au nord-ouest du Royaume Céleste, un vieil homme en robe pourpre contemplait le ciel avec gravité. Après avoir réfléchi un instant, il fit un pas et s'envola vers le chant d'épée.
 
-« Est-ce l'Épée Céleste de la Pluie? Si ma Secte de l'Épée Da Luo l'obtient, notre puissance augmentera sans aucun doute de façon exponentielle. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
+« Est-ce l'Épée Céleste de la Pluie? Si ma Secte de l'Épée Da Luo l'obtient, notre puissance augmentera sans aucun doute de plusieurs fois. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
 
 Il s'élança et soudain, un qilin à deux cornes apparut dans les airs. Il monta sur la tête de la créature, qui expulsa deux souffles blancs par ses naseaux. À l'instant même où ces flux jaillirent, le fragment céleste sur lequel il se trouvait s'effondra.
 
@@ -90,7 +90,7 @@ Le visage de Sun Tai devint sombre alors qu'il fixait Wang Lin. Après un moment
 
 Wang Lin secoua la tête en souriant: « Je ne connais pas la technique pour lever le sceau, alors comment pourrais-je le faire? »
 
-Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Je refuse de m'incliner devant quiconque, surtout devant un junior comme toi que je pourrais écraser d'un doigt! »
+Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Même mort, je ne me soumettrai jamais à personne, à plus forte raison à un junior comme toi que je pourrais écraser d'un doigt! »
 
 « De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de mon corps actuel, mais au moment où cela arrivera, ma quatrième âme te tuera. »
 
@@ -122,9 +122,9 @@ Wang Lin avançait sans relâche et cria froidement: « S'il s'agissait d'une au
 
 Le visage de Sun Tai était livide. Sa voix, rauque, tonna: « Si tu ne me crois pas, essaie donc! »
 
-Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir! »
+Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous osez mordre votre maître, alors vous devez mourir! »
 
-Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
+Les yeux de Sun Tai vacillèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
 
 Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses manigances?
 

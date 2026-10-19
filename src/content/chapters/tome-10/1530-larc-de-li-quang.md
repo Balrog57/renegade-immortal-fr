@@ -14,7 +14,7 @@ Un trésor surnaturel capable de faire trembler les cieux, considéré comme le 
 
 Lorsque Wang Lin s'était assis sur le trône dans la tombe de l'Ordre Antique et qu'il était entré dans cet état onirique, il avait personnellement contemplé la puissance de l'arc Li Guang!
 
-Cette flèche suffisait à ébranler le monde. Aux yeux de Wang Lin, même la Formation de Scellement du Royaume s'effondrerait devant une telle puissance, sans aucune capacité de résistance!
+Cette flèche suffisait à ébranler le vide. Aux yeux de Wang Lin, même la Formation de Scellement du Royaume s'effondrerait devant une telle puissance, sans aucune capacité de résistance!
 
 Cet arc n'appartenait pas à ce monde! C'était un trésor primordial provenant de la terre natale de l'Ordre Antique!
 
@@ -38,7 +38,7 @@ L'unique flèche avait disparu dans le néant après avoir emporté l'œil gauch
 
 Wang Lin songea que s'il pouvait trouver la flèche, il pourrait retrouver la trace de l'œil gauche de l'Ordre Antique!
 
-Cependant, à moins que cette flèche ne soit dans un lieu désert, quelqu'un l'aurait forcément récupérée pour ébranler les étoiles. Elle pourrait même provoquer une calamité alors que les hommes se déchireraient pour s'en emparer, tout comme la Perle Défiant le Ciel! Pourtant, jusqu'à présent, Wang Lin n'avait rien entendu concernant cette flèche dans aucun mythe ou légende ancienne.
+Cependant, à moins que cette flèche ne soit dans un lieu désert, quelqu'un l'aurait forcément récupérée pour se faire un nom dans tout le firmament. Elle pourrait même provoquer une calamité alors que les hommes se déchireraient pour s'en emparer, tout comme la Perle Défiant le Ciel! Pourtant, jusqu'à présent, Wang Lin n'avait rien entendu concernant cette flèche dans aucun mythe ou légende ancienne.
 
 C'était comme si elle s'était volatilisée sans laisser de trace.
 
@@ -46,7 +46,7 @@ Bien que l'arc sans flèche fût toujours terrifiant, il ne pouvait égaler la t
 
 Il fixa le jeune homme en blanc. Tous ses mouvements semblaient ralentis aux yeux de Wang Lin. Il regarda le jeune homme lever la main et bander lentement la corde de l'arc jusqu'à former une pleine lune. À cet instant, Wang Lin ressentit une douleur fulgurante entre ses sourcils.
 
-Sous cette agonie, Wang Lin eut l'impression qu'un pieu lui transperçait le crâne pour s'enfoncer dans son cerveau!
+Sous cette agonie, Wang Lin eut l'impression qu'une alêne lui transperçait le crâne pour s'enfoncer dans son cerveau!
 
 La sueur perla sur le front de Wang Lin. Tout cela se produisit en un instant. Il se retourna pour observer le jeune homme en blanc bandant l'arc.
 

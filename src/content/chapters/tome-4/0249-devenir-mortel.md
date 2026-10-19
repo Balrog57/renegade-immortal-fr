@@ -28,7 +28,7 @@ Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateur
 
 Après avoir renoncé à l'usage immédiat du Royaume Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Utilisé comme catalyseur, selon les dires de Na Duo, ce cristal lui donnerait peut-être l'opportunité de briser les limites de son Royaume Ji.
 
-Wang Lin prit une profonde inspiration et extirpa le Royaume Ji de sa conscience. Il comprenait que la chose la plus importante était d'acquérir une compréhension des cieux, mais il avait passé la majeure partie de sa vie sur la voie de la tuerie, une voie incomplète. S'il voulait comprendre les cieux, il devait recommencer depuis le commencement et devenir un mortel.
+Wang Lin prit une profonde inspiration et extirpa le Royaume Ji de sa conscience. Il comprenait que la chose la plus importante était d'acquérir une compréhension des cieux, mais il avait passé la première moitié de sa vie sur la voie de la tuerie, une voie incomplète. S'il voulait comprendre les cieux, il devait recommencer depuis le commencement et devenir un mortel.
 
 Pour atteindre la Formation de l'Âme, il faut d'abord se changer en mortel!
 

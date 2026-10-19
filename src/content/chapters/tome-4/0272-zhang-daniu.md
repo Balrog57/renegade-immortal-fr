@@ -40,7 +40,7 @@ Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. À côté
 
 C'était un garçon simple. Da Niu tenta de le bousculer pour le réveiller, mais il se figea instantanément. En posant sa main sur le nez du garçon, il esquissa un sourire amer. « Il est mort... » murmura-t-il.
 
-En tentant de le secouer, il avait déjà pressenti que quelque chose n'allait pas. Deux larmes coulèrent des yeux de Da Niu, et l'homme d'une quarantaine d'années se mit à sangloter.
+En tentant de le secouer, il avait déjà pressenti que quelque chose n'allait pas. Deux larmes coulèrent des yeux de Da Niu, et l'homme d'une quarantaine d'années s'accroupit, la tête entre les mains, et se mit à sangloter.
 
 Il regrettait sa maison, sa femme, son fils, l'oncle Wang, sa boutique et la chaleur de son foyer.
 
@@ -116,4 +116,4 @@ En ouvrant le paquet, il y découvrit une grande quantité d'or et d'argent. Lui
 
 Il ramassa le paquet et entraîna sa femme à travers le tunnel. Peu après que Da Niu eut quitté l'Alliance des Quatre Sectes, Wang Lin apparut à l'endroit même où ils s'étaient prosternés. En regardant les silhouettes de Da Niu et de son épouse s'éloigner, un léger apaisement passa dans son regard.
 
-Grâce à son Sens Divin, il savait qu'une petite ville se trouvait non loin de là; il leur suffisait de suivre la route principale pour l'atteindre. Da Niu passa le reste de sa vie là-bas. Jusqu'à son dernier souffle, il ne put oublier l'oncle Wang qui l'avait vu grandir. Hélas, il n'eut jamais la chance de revoir Wang Lin.
+Grâce à son Sens Divin, il savait qu'une petite ville se trouvait dans le pays voisin, non loin d'ici; il leur suffisait de suivre la route principale pour l'atteindre. Da Niu passa le reste de sa vie là-bas. Jusqu'à son dernier souffle, il ne put oublier l'oncle Wang qui l'avait vu grandir. Hélas, il n'eut jamais la chance de revoir Wang Lin.

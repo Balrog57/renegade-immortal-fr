@@ -22,7 +22,7 @@ Ce jeune homme avait environ quatorze ou quinze ans et avait l'air robuste et vi
 
 Ce garçon avait environ cinq ou six ans. Son visage était pâle et sa constitution fragile. Bien qu'il fût bien plus petit que les autres enfants, il possédait une grande beauté; sans sa mine maladive, il aurait eu l'apparence délicate d'une poupée de porcelaine. Vêtu d'une petite chemise de toile de kudzu, ses yeux brillaient d'excitation lorsqu'il répondit: « Grand frère Zhou, je demanderai à mon père de m'y emmener dès que je serai rentré. »
 
-Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la sculpture, mais les nuages du sommet Quilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, vous feriez mieux de m'imiter: nous nous exerçons à l'escrime chaque jour. Cela fortifie le corps et, une fois adultes, nous parcourrons le monde martial, l'épée à la main! »
+Le jeune homme éclata de rire: « L'oncle charpentier Wang est doué pour la menuiserie, mais les nuages du sommet Quilian ont disparu, alors comment pourrait-il t'y emmener? Écoutez-moi, vous feriez mieux de m'imiter: nous nous exerçons à l'escrime chaque jour. Cela fortifie le corps et, une fois adultes, nous parcourrons le monde martial, l'épée à la main! »
 
 Les idéaux grandioses du jeune homme enflammèrent davantage l'enthousiasme des autres enfants.
 
