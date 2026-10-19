@@ -90,7 +90,7 @@ Wang Lin lui-même s'interrogeait sur cette absence. Il s'était préparé au pi
 
 Les chances d'échec étaient immenses, mais le combat était inévitable!
 
-Pourtant, Gu Dao demeurait invisible. À cet instant, Wang Lin se précipita vers la montagne fendue en deux par l'Ancien Ancêtre. Il réprima ses doutes: ce n'était pas le moment de spéculer. Même s'il continuait à y songer, il n'obtiendrait aucune réponse. L'essentiel était de rejoindre cette montagne désertique pour résoudre le mystère qui le tourmentait!
+Pourtant, Gu Dao demeurait invisible. À cet instant, Wang Lin se précipita vers la montagne fendue en deux par l'Ancêtre Ancien. Il réprima ses doutes: ce n'était pas le moment de spéculer. Même s'il continuait à y songer, il n'obtiendrait aucune réponse. L'essentiel était de rejoindre cette montagne désertique pour résoudre le mystère qui le tourmentait!
 
 Qui était cet énigmatique Enseignant Impérial du Dao Antique?!
 

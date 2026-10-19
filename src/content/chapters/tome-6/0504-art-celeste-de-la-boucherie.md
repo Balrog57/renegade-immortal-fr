@@ -102,7 +102,7 @@ Wang Lin réfléchit un instant avant de ranger la pierre de jade. Il ne croyait
 
 L'Omniscient tendit la main vers le vide et un rayon de lumière violet apparut immédiatement, se transformant en un anneau. Après l'avoir examiné attentivement, il le lança à Wang Lin: « Cette lumière est issue de la lueur violette du spectre aux sept couleurs. Ce sera ton trésor de survie. Il peut bloquer deux fois la pleine puissance d'un cultivateur Ascendant au stade avancé. Cependant, souviens-toi que si tu enfreins les règles de la secte, j'en retirerai une protection. Si tu enfreins les règles une seconde fois, ce trésor n'aura plus aucun effet! »
 
-« Le second disciple de la Division Violette qui a été tué par toi n'a utilisé son trésor qu'une seule fois en des années, avant d'enfreindre les règles de la secte une fois. Sans cela, tu n'aurais jamais pu obtenir son âme originelle si facilement! Toutefois, comme c'est lui qui a agi le premier à plusieurs reprises pour t'attaquer, je ne poursuivrai pas cette affaire. Mais Wang Lin, souviens-toi qu'il n'y aura pas de seconde chance! »
+« Le second disciple de la Division Pourpre qui a été tué par toi n'a utilisé son trésor qu'une seule fois en des années, avant d'enfreindre les règles de la secte une fois. Sans cela, tu n'aurais jamais pu obtenir son âme originelle si facilement! Toutefois, comme c'est lui qui a agi le premier à plusieurs reprises pour t'attaquer, je ne poursuivrai pas cette affaire. Mais Wang Lin, souviens-toi qu'il n'y aura pas de seconde chance! »
 
 Wang Lin accepta l'anneau. Au lieu de le glisser à son doigt, il le rangea dans sa sacoche de rangement et dit: « Merci, Maître! »
 
@@ -126,7 +126,7 @@ La silhouette de Wang Lin vola rapidement vers la Division Rouge. Alors qu'il é
 
 Sans dire un mot, Wang Lin lança le jeton que l'Omniscient lui avait donné et s'élança dans la Division Rouge. En voyant le jeton, l'homme qui avait crié laissa échapper un reniflement froid mais n'empêcha pas Wang Lin de passer.
 
-Une fois Wang Lin entré, l'espace ondula et un homme d'âge moyen vêtu de rouge apparut. Il regarda froidement l'endroit où Wang Lin avait disparu et murmura pour lui-même: « Le septième frère de la Division Violette! »
+Une fois Wang Lin entré, l'espace ondula et un homme d'âge moyen vêtu de rouge apparut. Il regarda froidement l'endroit où Wang Lin avait disparu et murmura pour lui-même: « Le septième frère de la Division Pourpre! »
 
 Peu après, Wang Lin quitta la Division Rouge et regarda vers l'ouest.
 

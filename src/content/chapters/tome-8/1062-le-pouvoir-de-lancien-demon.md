@@ -38,11 +38,11 @@ Le vacarme était capable de faire trembler les cieux. Le doigt qui avait fait f
 
 Tout cela se produisit en un instant. Dès que l'homme d'âge mûr fit un pas, les sorts de Wang Wei et de l'Omniscient furent anéantis.
 
-Pourtant, l'homme en armure ne s'arrêta pas et fit un autre pas. Il se déplaçait à une vitesse indescriptible et arriva instantanément devant l'Ancien Démon Bei Lou. Les huit étoiles de son œil gauche scintillèrent alors qu'il levait sa main droite pour balayer d'un geste nonchalant toutes les illusions invoquées par les petits fanions.
+Pourtant, l'homme en armure ne s'arrêta pas et fit un autre pas. Il se déplaçait à une vitesse indescriptible et arriva instantanément devant l'Ancien Démon Bei Luo. Les huit étoiles de son œil gauche scintillèrent alors qu'il levait sa main droite pour balayer d'un geste nonchalant toutes les illusions invoquées par les petits fanions.
 
-Le brouillard noir infini qui couvrait le ciel se rétracta soudainement pour l'envelopper, lui et Bei Lou. Tout cela fut si rapide que, lorsque les spectateurs purent réagir, ils ne virent plus qu'une masse obscure.
+Le brouillard noir infini qui couvrait le ciel se rétracta soudainement pour l'envelopper, lui et Bei Luo. Tout cela fut si rapide que, lorsque les spectateurs purent réagir, ils ne virent plus qu'une masse obscure.
 
-Des grondements sourds résonnaient à l'intérieur du brouillard. La brume noire bouillonnait, et les rugissements furieux de Bei Lou parvinrent jusqu'à eux.
+Des grondements sourds résonnaient à l'intérieur du brouillard. La brume noire bouillonnait, et les rugissements furieux de Bei Luo parvinrent jusqu'à eux.
 
 « Ta Jia, bien que tu aies possédé le corps de Qing Lin, si tu n'as pas assez de temps, tu ne pourras jamais dévorer l'âme de Qing Lin ni déployer toute la puissance qu'il possédait autrefois! »
 
@@ -60,11 +60,11 @@ Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wa
 
 « En reliant tous les indices, le karma de cette situation est sur le point d'être révélé! »
 
-« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Lou saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de son héritage et de ses souvenirs. »
+« Par le passé, l'Empereur Céleste Qing Lin fut gravement blessé lors de l'effondrement du Royaume Céleste et dut se retirer. Cependant, l'Ancien Démon Ta Jia et l'Ancien Démon Bei Luo saisirent cette opportunité pour lui tendre une embuscade. Ils voulaient dérober le corps de Qing Lin afin de s'emparer de son héritage et de ses souvenirs. »
 
-« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon Ta Jia et de l'Ancien Démon Bei Lou, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
+« Pourtant, Qing Lin était si puissant que, même gravement blessé, il demeurait redoutable. Malgré l'alliance de l'Ancien Démon Ta Jia et de l'Ancien Démon Bei Luo, ils ne purent le vaincre totalement. Finalement, Qing Lin se réfugia dans le Royaume Céleste des Esprits, là où leur combat atteignit son apogée. »
 
-« Lors de cette bataille, l'Ancien Démon Bei Lou fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste des Esprits, attendant de pouvoir se reformer. »
+« Lors de cette bataille, l'Ancien Démon Bei Luo fut contraint d'être divisé en neuf parties. Il n'eut d'autre choix que de devenir neuf esprits démoniaques anciens et de se dissimuler durant d'innombrables années dans le Royaume Céleste des Esprits, attendant de pouvoir se reformer. »
 
 « Quant à l'Ancien Démon Ta Jia, il réussit à pénétrer dans le corps de Qing Lin pour tenter une prise de contrôle. Mais Qing Lin parvint jusqu'au neuvième étage de cette grotte. Dès qu'il s'assit, il utilisa les 99 bougies pour résister à l'Ancien Démon! »
 

@@ -61,9 +61,9 @@ L'expression de Wang Lin resta imperturbable alors qu'il répétait lentement: �
 
 Sun Yunshan prit une autre grande gorgée de vin, les yeux légèrement injectés de sang, et poursuivit: « Il y a au sein de l'Union de Culture un homme qui se fait appeler l'Ancêtre du Royaume Céleste. Sa culture est extrêmement élevée, et c'est lui qui les nomme gardiens célestes. En plus de cet Ancêtre, il compte dix gardiens célestes au total. Leurs forces sont à peu près équivalentes.
 
-« La bataille que vous avez menée dans la Cité des Démons Anciens du Pays des Démons Célestes contre le Général Démon Mo Lihai a attiré l'attention de l'Ancêtre. Pour une raison inconnue, il a envoyé des gens pour vous capturer vivant. Je suppose que vous avez déjà rencontré ceux qui tentaient de vous saisir à la Cité des Démons Célestes.
+« La bataille que vous avez menée dans la Cité de l'Ancien Démon du Pays du Démon Céleste contre le Général Démon Mo Lihai a attiré l'attention de l'Ancêtre. Pour une raison inconnue, il a envoyé des gens pour vous capturer vivant. Je suppose que vous avez déjà rencontré ceux qui tentaient de vous saisir à la Cité des Démons Célestes.
 
-« Vous aviez ensuite disparu du Pays des Démons Célestes et l'affaire semblait classée. Cependant, il y a quelques mois, quelqu'un a, on ne sait comment, découvert votre présence ici et en a informé l'Ancêtre. Celui-ci nous a donc envoyés pour vous capturer de nouveau! »
+« Vous aviez ensuite disparu du Pays du Démon Céleste et l'affaire semblait classée. Cependant, il y a quelques mois, quelqu'un a, on ne sait comment, découvert votre présence ici et en a informé l'Ancêtre. Celui-ci nous a donc envoyés pour vous capturer de nouveau! »
 
 Les yeux de Wang Lin se plissèrent. Il se souvint qu'à la Cité des Démons Célestes, un groupe était apparu alors qu'il écoutait la musique de la cithare. Le chef de ce groupe avait explosé au moment même où il allait être capturé. Wang Lin garda ce souvenir de folie en mémoire.
 

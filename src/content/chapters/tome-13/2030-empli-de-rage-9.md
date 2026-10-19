@@ -74,7 +74,7 @@ Si ces quelques individus étaient dans cet état, qu'en était-il du reste des 
 
 « L'Ancêtre... La tête de l'Ancêtre Céleste!!! »
 
-« L'Ancêtre Céleste... est mort!! Alors, qu'en est-il de l'Ancêtre Ancestral? L'Ancêtre Ancestral est-il encore en vie...? »
+« L'Ancêtre Céleste... est mort!! Alors, qu'en est-il de l'Ancêtre Ancien? L'Ancêtre Ancien est-il encore en vie...? »
 
 « Ce Wang Lin possède la tête de l'Ancêtre Céleste!! » Cette nouvelle provoqua une onde de choc dans tout le palais et allait bientôt déferler sur l'ensemble du clan Ancestral. Les membres des deux autres clans fixaient la tête, incrédules.
 

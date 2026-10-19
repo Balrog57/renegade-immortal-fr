@@ -16,7 +16,7 @@ Des millions d'éclairs tombant simultanément possédaient une puissance terrif
 
 De la même manière, le Clan du Tonnerre Dispersé jouissait d'un passé glorieux. Il y a d'innombrables années, ils étaient l'un des clans ayant placé un trésor dans la Formation du Domaine Scellé!
 
-Un éclair éternel résidait au sein du Clan du Tonnerre Dispersé. Il existait depuis l'aube des temps, surgi du vide. Il grondait sans fin, et le Clan du Tonnerre Dispersé avait édifié un temple en son honneur pour le vénérer.
+Un tonnerre éternel résidait au sein du Clan du Tonnerre Dispersé. Il existait depuis l'aube des temps, surgi du vide. Il grondait sans fin, et le Clan du Tonnerre Dispersé avait édifié un temple en son honneur pour le vénérer.
 
 L'emplacement de ce temple constituait la terre sainte du Clan du Tonnerre Dispersé; il était extrêmement bien gardé, rendant toute approche par des gens ordinaires quasi impossible. Des Anciens y montaient toujours la garde et, bien qu'ils ne comptent aucun cultivateur du troisième pas, l'un d'eux atteignait le cinquième niveau du Fléau Céleste. L'être le plus puissant sous le rang des cultivateurs du troisième pas!
 
@@ -42,7 +42,7 @@ Le Clan du Tonnerre Dispersé n'avait personne pour garder le périmètre, car l
 
 Wang Lin parcourut lentement cinquante kilomètres en environ quinze minutes. À chaque pas, les poils de son corps tremblaient et des traces de tonnerre pénétraient ses pores.
 
-Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'éclair éternel!
+Son esprit restait calme, exempt de toute joie ou tristesse. C'était comme s'il était entré dans un royaume de vide. Il n'y avait plus de Clan du Tonnerre Dispersé devant lui, seulement cet infini lac de tonnerre! Et au centre de ce lac se trouvait l'tonnerre éternel!
 
 Après avoir franchi les cinquante kilomètres, il s'enfonça dans le lac de tonnerre. Le lac rugit et la foudre envahit le regard de Wang Lin, remplaçant toute autre vision. Cela illumina brusquement l'espace environnant!
 

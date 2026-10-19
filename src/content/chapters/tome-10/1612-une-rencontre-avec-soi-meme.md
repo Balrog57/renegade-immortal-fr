@@ -98,7 +98,7 @@ Les notes d'une cithare résonnaient. C'était Li Muwan qui jouait.
 
 Les jours se succédèrent. Plusieurs mois passèrent, le printemps de Su s'évanouit, laissant place au mois de juin d'une année nouvelle.
 
-C'était juin de la soixante-quinzième année. Les feuilles de saule volaient à nouveau alors que Wang Lin, assis à la proue du bateau, buvait son vin d'osmanthus.
+C'était juin de la soixante-quinzième année. Les flocons de saule volaient à nouveau alors que Wang Lin, assis à la proue du bateau, buvait son vin d'osmanthus.
 
 « Le ciel et la terre ne sont que l'auberge des dix mille êtres... Le temps n'est que le voyageur de passage de cent générations... Et cette vie flottante est comme un rêve, combien de joies nous apporte-t-elle... » Wang Lin rit tandis que le bateau dérivait sur la rivière. Un pont de pierre se dressait devant lui, mais il était désert. Seul un oiseau blanc planait au-dessus de l'édifice.
 
@@ -118,7 +118,7 @@ C'était un jeune homme aux cheveux blancs. Ses yeux froids trahissaient une pro
 
 Leurs regards se croisèrent, et le monde devint flou. À cet instant, le temps sembla suspendre son vol. Pour être plus précis, le temps de ce monde s'arrêta net.
 
-Les mains de Li Muwan se figèrent au-dessus des cordes de la cithare, étouffant la musique. Grande Fortune resta immobile, le regard fixé sur son poignet droit. La rivière cessa de couler et les feuilles de saule restèrent suspendues dans l'éther.
+Les mains de Li Muwan se figèrent au-dessus des cordes de la cithare, étouffant la musique. Grande Fortune resta immobile, le regard fixé sur son poignet droit. La rivière cessa de couler et les flocons de saule restèrent suspendus dans l'éther.
 
 Tout dans ce monde s'immobilisa totalement.
 

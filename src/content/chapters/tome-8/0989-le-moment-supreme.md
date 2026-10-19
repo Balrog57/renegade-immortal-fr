@@ -84,7 +84,7 @@ Une illumination divine apparut dans les yeux de Wang Lin. D'une simple pensée,
 
 « C'était donc cela! Mon réservoir d'énergie originelle est insuffisant pour utiliser ce sort auto-créé si dévastateur. Je ne peux qu'emprunter la puissance du lever du soleil... » Wang Lin médita longuement avant de secouer la tête. Il fit un pas et disparut.
 
-« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre de l'Extermination Divine, je devrais pouvoir tenir tête à un cultivateur au début du stade Briseur du Nirvana! »
+« Bien qu'il y ait une limite, si quelqu'un combat contre moi lors du lever du soleil, alors, avec mon troisième œil et le Char de Guerre Divin, je devrais pouvoir tenir tête à un cultivateur au début du stade Briseur du Nirvana! »
 
 « Le moment où le soleil dépasse l'horizon est celui où je suis à mon apogée! »
 

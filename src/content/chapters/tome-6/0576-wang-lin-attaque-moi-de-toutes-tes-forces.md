@@ -20,7 +20,7 @@ De plus, depuis que Wang Lin était revenu de la Prison Hong, Mo Lihai avait l'i
 
 Il n'en demanda pas les détails, mais il devina que pour enrôler l'épée de l'Empereur dans une telle querelle, Wang Lin avait soit réussi son sortilège, soit fait une rencontre fortuite.
 
-« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Grande Muraille Antique? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
+« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Cité de l'Ancien Démon? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
 
 Deux opportunités s'offraient aux participants durant cette compétition. Si le général démon perdait, son assistant pouvait combattre à sa place! Cependant, l'assistant devait remplir une condition: il ne devait pas être un natif, mais un étranger!
 

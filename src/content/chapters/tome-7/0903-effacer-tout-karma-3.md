@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 903 - Clearing All Karma (3)
 slug: effacer-tout-karma-3
 ---
-L'Ancêtre du Sang Écarlate était un homme prudent; il avait placé des sceaux de contrôle sur chacun de ses disciples. Sous son emprise, les corps des deux disciples explosèrent en un nuage de sang qui se précipita vers Wang Lin.
+L'Ancêtre Sanguin Écarlate était un homme prudent; il avait placé des sceaux de contrôle sur chacun de ses disciples. Sous son emprise, les corps des deux disciples explosèrent en un nuage de sang qui se précipita vers Wang Lin.
 
 Saisissant cette opportunité, il s'enfuit, tremblant de tous ses membres. Son esprit était vide; sa seule pensée était de s'échapper!
 
@@ -32,7 +32,7 @@ Du début à la fin, Li Qiqing n'avait pas levé la tête, comme s'il n'était n
 
 Le temps passa. Après un long moment, Li Qiqing prit une profonde inspiration et retrouva sa lucidité. Il regarda attentivement Li Muwan à l'intérieur du cercueil, comme s'il voulait graver l'image de sa sœur dans son cœur. Puis, il se leva et s'éloigna dans le lointain sans même un regard pour Wang Lin.
 
-Avec la mort de l'Ancêtre du Sang Écarlate, les runes de sang sur le visage de Li Qiqing furent brisées.
+Avec la mort de l'Ancêtre Sanguin Écarlate, les runes de sang sur le visage de Li Qiqing furent brisées.
 
 Wang Lin observa la silhouette de Li Qiqing sans dire un mot. Il comprenait ses pensées. L'indifférence de Li Qiqing signifiait qu'il ne souhaitait aucun lien avec lui.
 

@@ -16,9 +16,9 @@ La Division Rouge comptait au total sept disciples, et aucun ne manquait à l'ap
 
 Une fois la Division Rouge passée, la Division Orange suivit de près. Elle comptait également sept membres vêtus d'orange qui s'inclinèrent respectueusement après leurs prédécesseurs.
 
-Vinrent ensuite les Divisions Jaune, Verte, Cyan et Bleue, respectivement. Une fois ces six divisions apparues, ce fut au tour de la Division Violette. Après tout, la Division Violette était la plus faible de la Secte du Destin Céleste.
+Vinrent ensuite les Divisions Jaune, Verte, Cyan et Bleue, respectivement. Une fois ces six divisions apparues, ce fut au tour de la Division Pourpre. Après tout, la Division Pourpre était la plus faible de la Secte du Destin Céleste.
 
-Seuls trois rayons de lumière s'échappèrent de la Division Violette avant de s'immobiliser dans le ciel.
+Seuls trois rayons de lumière s'échappèrent de la Division Pourpre avant de s'immobiliser dans le ciel.
 
 Les regards des six autres divisions se tournèrent vers eux. Leurs yeux étaient empreints de froideur, de moquerie et de dédain. Ces regards frappèrent les trois disciples comme autant d'épées acérées.
 
@@ -44,7 +44,7 @@ Même à présent, Wang Lin pensait qu'il cachait sa puissance, mais l'écart en
 
 Il scruta un à un tous les disciples des six autres divisions. Il ne parvenait pas à percevoir le niveau de culture de plus de la moitié d'entre eux. Bien qu'il puisse déceler quelques indices, ses suppositions ne reposaient que sur les traces résiduelles laissées lorsqu'ils dissimulaient leur puissance.
 
-« La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Violette, pourrait facilement balayer la planète Suzaku. Même si Zhu Quezi possédait le sceau du titre, il ne ferait pas le poids! »
+« La Secte du Destin Céleste est véritablement puissante... n'importe laquelle de ces divisions, hormis ma Division Pourpre, pourrait facilement balayer la planète Suzaku. Même si Zhu Quezi possédait le sceau du titre, il ne ferait pas le poids! »
 
 L'expression de Wang Lin était normale, mais son cœur était sombre.
 
@@ -54,17 +54,17 @@ Un par un, les disciples ordinaires des sept divisions apparurent pour se tenir 
 
 Par conséquent, la disparité de force entre les divisions devint flagrante. La Division Rouge était la plus puissante; elle comptait parmi ses disciples de nombreux cultivateurs de haut rang.
 
-Quant à la Division Violette, les disciples derrière Wang Lin étaient nettement en retrait.
+Quant à la Division Pourpre, les disciples derrière Wang Lin étaient nettement en retrait.
 
-« Septième Frère, vois-tu que notre Division Violette a décliné? » Tandis que Wang Lin réfléchissait, la voix mélancolique de la Quatrième Sœur parvint à ses oreilles.
+« Septième Frère, vois-tu que notre Division Pourpre a décliné? » Tandis que Wang Lin réfléchissait, la voix mélancolique de la Quatrième Sœur parvint à ses oreilles.
 
-Il marqua un temps de réflexion avant de hocher la tête et de lui renvoyer une transmission vocale: « La Division Violette est trop en retard sur les six autres divisions. »
+Il marqua un temps de réflexion avant de hocher la tête et de lui renvoyer une transmission vocale: « La Division Pourpre est trop en retard sur les six autres divisions. »
 
 La Quatrième Sœur soupira et demanda: « Sais-tu pourquoi? »
 
 « Dis-le moi, je t'en prie! » Le ton de Wang Lin était calme.
 
-« Le problème principal est que la Division Violette est en proie à trop de luttes intestines, et la position de disciple véritable change trop souvent. Contrairement aux six autres divisions où des disciples véritables ont régné pendant plus de mille ans. En conséquence, la Division Violette a progressivement décliné et n'a plus la vigueur qu'elle possédait à l'époque du jeune frère Sun Yun. » La Quatrième Sœur laissa échapper un amer soupir et se tut.
+« Le problème principal est que la Division Pourpre est en proie à trop de luttes intestines, et la position de disciple véritable change trop souvent. Contrairement aux six autres divisions où des disciples véritables ont régné pendant plus de mille ans. En conséquence, la Division Pourpre a progressivement décliné et n'a plus la vigueur qu'elle possédait à l'époque du jeune frère Sun Yun. » La Quatrième Sœur laissa échapper un amer soupir et se tut.
 
 Une fois que tous les disciples ordinaires des sept divisions furent apparus, les invités venus pour la célébration se tenaient encore plus loin du centre. Pour ceux qui venaient chercher le Dao, leur niveau de culture ou leur rang n'avaient aucune importance; tant qu'ils participaient à la célébration, ils étaient autorisés à être présents pour l'enseignement.
 

@@ -26,7 +26,7 @@ Quant à la femme en phase avancée de Transformation de l'Âme, son expression 
 
 Les visages de l'homme d'âge moyen et de Zhao Xingsha étaient tous deux sombres, particulièrement celui de Zhao Xingsha. Son expression était particulièrement laide alors qu'il lança un regard chargé de sens à Wang Lin avant de s'en aller.
 
-Les autres disciples de la division pourpre partirent lentement. Leur attitude envers Wang Lin avait radicalement changé; désormais, nul au sein de la division pourpre n'oserait plus lui manquer de respect.
+Les autres disciples de la Division Pourpre partirent lentement. Leur attitude envers Wang Lin avait radicalement changé; désormais, nul au sein de la Division Pourpre n'oserait plus lui manquer de respect.
 
 Wang Lin se tint respectueusement aux côtés de l'Omniscient, la tête baissée et silencieux. La puissance de l'Omniscient dépassait tout ce qu'il pouvait imaginer. Il compara secrètement ce dernier à Situ Nan et dut admettre que ce dernier était loin d'être l'égal de l'Omniscient!
 
@@ -72,13 +72,13 @@ Dans la chambre secrète située au troisième étage du pavillon, Wang Lin pous
 
 Après avoir réfléchi un instant, Wang Lin déploya plusieurs restrictions pour protéger le pavillon et commença sa culture.
 
-Sur le côté est de la division pourpre, posé sur un lit de roches de jade, se trouvait un pavillon très luxueux portant trois grands caractères gravés: « Pavillon de l'Étoile Pourpre ».
+Sur le côté est de la Division Pourpre, posé sur un lit de roches de jade, se trouvait un pavillon très luxueux portant trois grands caractères gravés: « Pavillon de l'Étoile Pourpre ».
 
 Zhao Xingsha entra dans le pavillon avec une expression sombre. Dès qu'il fut à l'intérieur, il serra le poing avant de frapper violemment dans le vide.
 
-« Wang Lin!! J'ai suivi Maître pendant deux mille ans, je connais donc parfaitement sa personnalité. S'il ne t'a pas emmené directement au temple ancestral et ne t'a pas transmis de technique interdite pour sauver ta vie, c'est qu'il y a une raison! Si je ne m'abuse, c'est là le véritable test de Maître. Si, lors de la célébration d'anniversaire dans trois mois, tu parviens à surpasser toute la division pourpre, alors il t'acceptera réellement comme disciple... Cependant, Wang Lin, je ne te laisserai pas cette chance!! »
+« Wang Lin!! J'ai suivi Maître pendant deux mille ans, je connais donc parfaitement sa personnalité. S'il ne t'a pas emmené directement au temple ancestral et ne t'a pas transmis de technique interdite pour sauver ta vie, c'est qu'il y a une raison! Si je ne m'abuse, c'est là le véritable test de Maître. Si, lors de la célébration d'anniversaire dans trois mois, tu parviens à surpasser toute la Division Pourpre, alors il t'acceptera réellement comme disciple... Cependant, Wang Lin, je ne te laisserai pas cette chance!! »
 
-« Le Pavillon de la Forêt Violette m'importe peu, mais la place de disciple direct au sein de la division pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
+« Le Pavillon de la Forêt Violette m'importe peu, mais la place de disciple direct au sein de la Division Pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
 
 « La Quatrième Sœur... son niveau de culture est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin!! »
 
@@ -88,7 +88,7 @@ Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait l
 
 « Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement; tu ne vaudras plus alors mon attention! »
 
-Sur le côté ouest de la division pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Pavillon Wei Pourpre! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
+Sur le côté ouest de la Division Pourpre se trouvait un pavillon très élégant d'un blanc laiteux. C'était le Pavillon Wei Pourpre! Bai Wei était assis tranquillement à l'intérieur, face à une branche d'arbre.
 
 C'était une branche fraîchement coupée, sur laquelle poussaient encore de jeunes bourgeons.
 
@@ -98,7 +98,7 @@ Bai Wei observa la branche avec un air pensif.
 
 Il posa délicatement son index droit sur le coin de sa bouche...
 
-La nuit tomba. La division pourpre semblait très calme sous la lumière de la lune. Ce soir-là, la seule chose dont discutaient les disciples était Wang Lin.
+La nuit tomba. La Division Pourpre semblait très calme sous la lumière de la lune. Ce soir-là, la seule chose dont discutaient les disciples était Wang Lin.
 
 Le nom de Wang Lin était comme une météorite éclatante traversant le ciel, que chacun ne pouvait s'empêcher de contempler en levant les yeux. La question demeurait: cette étoile filante n'était-elle qu'un bref instant de lumière ou allait-elle briller éternellement?
 
@@ -112,4 +112,4 @@ Peu après, une voix douce parvint de l'extérieur.
 
 « Septième Frère, aurais-tu un moment? »
 
-L'expression de Wang Lin devint immédiatement étrange. Au sein de la division pourpre, il n'avait pas peur de Zhao Xingsha ni de la Quatrième Sœur, mais face à Bai Wei, il ressentait le besoin impérieux de l'éviter.
+L'expression de Wang Lin devint immédiatement étrange. Au sein de la Division Pourpre, il n'avait pas peur de Zhao Xingsha ni de la Quatrième Sœur, mais face à Bai Wei, il ressentait le besoin impérieux de l'éviter.

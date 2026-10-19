@@ -138,10 +138,10 @@ Après un long moment, l'onde de choc se dissipa, laissant le lieu en ruines, n'
 
 Le silence était total. Après un temps indéterminé, une personne lutta pour sortir du gouffre. Sa tête paraissait disproportionnée par rapport à son corps chétif, et ses yeux étaient encore empreints de terreur alors qu'elle émergeait.
 
-Derrière elle se trouvaient les trois frères Chen et tous ceux qui avaient été aspirés, à l'exception d'une disciple dont le corps s'était effondré, et du vieil Ancien Sun, qui avait perdu son Blaireau Marqué par les Étoiles. Tous les autres remontèrent.
+Derrière elle se trouvaient les trois frères Chen et tous ceux qui avaient été aspirés, à l'exception d'une disciple dont le corps s'était effondré, et du vieil Ancien Sun, qui avait perdu son Blaireau Marqué d'Étoiles. Tous les autres remontèrent.
 
 Ils contemplaient les environs en silence, la peur ancrée dans leurs cœurs.
 
-Personne ne remarqua le vol rapide du Blaireau Marqué par les Étoiles, car chacun était encore occupé à se remettre de ses émotions. L'animal fonça droit vers les profondeurs du gouffre.
+Personne ne remarqua le vol rapide du Blaireau Marqué d'Étoiles, car chacun était encore occupé à se remettre de ses émotions. L'animal fonça droit vers les profondeurs du gouffre.
 
 Ses yeux brillaient d'intelligence. Il pouvait clairement ressentir une aura au fond de cet abîme qui le rendrait fou...

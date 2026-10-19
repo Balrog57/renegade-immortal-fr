@@ -20,7 +20,7 @@ Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un rev
 
 La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
-Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays des Démons Célestes n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
+Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays du Démon Céleste n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
 
 À cet instant, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or, un météore traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 

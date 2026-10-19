@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1561 - Emotional Injury, Gifted Treasure!"
 slug: blessure-emotionnelle-tresor-exceptionnel
 ---
-« Atteindre la troisième étape avec l'essence de massacre ne nécessite pas l'aide des Flammes de Joss. L'essence de massacre à l'intérieur de Qing Shui a été implantée par la figure aux sept couleurs, mais elle n'a pas été retirée. Au contraire, la majeure partie est restée en lui; ainsi, lorsque le sceau a été levé, cela a déclenché la Porte du Vide! » Wang Lin analysa immédiatement la situation.
+« Atteindre la troisième étape avec l'essence de massacre ne nécessite pas l'aide des Flammes Joss. L'essence de massacre à l'intérieur de Qing Shui a été implantée par la figure aux sept couleurs, mais elle n'a pas été retirée. Au contraire, la majeure partie est restée en lui; ainsi, lorsque le sceau a été levé, cela a déclenché la Porte du Vide! » Wang Lin analysa immédiatement la situation.
 
 « Cependant, pourquoi la figure aux sept couleurs n'a-t-elle pas pris l'essence de massacre... Quel est son dessein? Ne cherchait-il pas l'essence de massacre comme je le pensais... Si ce n'est pas pour cela, à quoi bon a-t-il fait cela... »
 
@@ -72,7 +72,7 @@ Il regarda la femme s'éloigner lentement à travers ses bras, comme si une forc
 
 « Han Yan!!! » Qing Shui laissa échapper un rugissement qui fit trembler les cieux. À cet instant, il avait oublié qu'il venait d'ouvrir la Porte du Vide, oublié tout le reste. La seule chose qui importait à ses yeux était cette femme!
 
-Sa femme, Han Yan! Pour récupérer les appartenances de son épouse, il avait détruit tout le Royaume du Massacre. Son amour pour elle était son monde, sa joie, mais aussi la source de toute sa souffrance.
+Sa femme, Han Yan! Pour récupérer les appartenances de son épouse, il avait détruit tout le Royaume de la Boucherie. Son amour pour elle était son monde, sa joie, mais aussi la source de toute sa souffrance.
 
 Sa femme était apparue parce qu'il avait ouvert la Porte du Vide et complété son essence de massacre. Mais voyant qu'elle allait disparaître une fois de plus, elle dont l'image était gravée dans son cœur depuis des dizaines de milliers d'années, il poussa un cri déchirant. Il s'élança en avant, voulant capturer l'âme de sa femme!
 
@@ -92,7 +92,7 @@ Le corps de la femme s'immobilisa soudainement. L'aura dorée l'enveloppa tandis
 
 Qing Shui saisit la femme. Des larmes coulaient sur son visage alors qu'il lui murmurait quelques mots. La femme le tenait également en silence, et cet instant sembla durer une éternité.
 
-Après un long moment, Qing Shui leva la tête et agita la main. Une ancienne épingle à cheveux apparut. C'était l'objet que sa femme avait laissé derrière elle et qu'il avait récupéré du Royaume du Massacre. Il plaça délicatement l'épingle dans les cheveux de la femme.
+Après un long moment, Qing Shui leva la tête et agita la main. Une ancienne épingle à cheveux apparut. C'était l'objet que sa femme avait laissé derrière elle et qu'il avait récupéré du Royaume de la Boucherie. Il plaça délicatement l'épingle dans les cheveux de la femme.
 
 En la regardant, la tristesse dans ses yeux devint plus intense encore. Un instant plus tard, il se tourna vers Wang Lin. La gratitude dans son regard était indescriptible.
 

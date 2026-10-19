@@ -30,9 +30,9 @@ Soudain, des acclamations tonitruantes éclatèrent sur la place. Ce bruit étai
 
 « Pour avoir réussi à le faire résonner huit fois, Mo Fei est le numéro un juste après les commandants en chef! »
 
-« Cette fois, Mo Fei deviendra certainement vice-commandant en chef! Ses exploits militaires sont légion, et une fois nommé, il apportera sans aucun doute de nombreuses victoires à notre Pays Démon Céleste! »
+« Cette fois, Mo Fei deviendra certainement vice-commandant en chef! Ses exploits militaires sont légion, et une fois nommé, il apportera sans aucun doute de nombreuses victoires à notre Pays du Démon Céleste! »
 
-Le Commandant en Chef Céleste restait impassible, ne montrant aucun signe d'impression, tandis que les sept autres commandants en chef affichaient une profonde admiration pour le talent de Mo Fei.
+Le Commandant Céleste restait impassible, ne montrant aucun signe d'impression, tandis que les sept autres commandants en chef affichaient une profonde admiration pour le talent de Mo Fei.
 
 « Qu'un enfant puisse le faire résonner huit fois... il peut être considéré comme un génie parmi les génies. Bien! »
 
@@ -144,7 +144,7 @@ Ces quatre résonances jaillirent simultanément, rattrapant la première pour f
 
 La place commença à se fissurer centimètre par centimètre, comme si un gigantesque dragon de terre s'agitait en dessous. Dans le ciel, le tonnerre généré par le tambour devint encore plus puissant. D'innombrables spectateurs dans les gradins crachèrent du sang, victimes de graves blessures internes causées par ce coup de tambour quintuple! Certains furent même instantanément évanouis par la puissance sonore!
 
-Hormis le Commandant en Chef Céleste, les sept autres commandants en chef s'étaient levés, affichant une incrédulité totale. Sur la place, l'expression de l'homme à l'armure dorée changea radicalement!
+Hormis le Commandant Céleste, les sept autres commandants en chef s'étaient levés, affichant une incrédulité totale. Sur la place, l'expression de l'homme à l'armure dorée changea radicalement!
 
 Les cinq coups tonitruants n'étaient pas le plus surprenant. Ce qui choqua véritablement tout le monde, c'est que le corps de Wang Lin n'avait pas bougé d'un centimètre!
 

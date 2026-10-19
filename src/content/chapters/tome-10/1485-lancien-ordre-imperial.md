@@ -54,7 +54,7 @@ Le tournesol géant libéra une lumière dorée mêlée d'un éclat rouge sang. 
 
 Une force destructrice se propagea rapidement depuis l'intérieur du pilier. Puis, une ombre sans tête apparut vaguement dans la lumière. Cette ombre, vêtue d'une armure et tenant une lance, chargea à travers le pilier!
 
-Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape du Fléau Céleste et se rapprochait infiniment des sortilèges des Flammes de Joss des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
+Par quelque méthode inconnue, cette puissance surpassait les limites des cultivateurs de la cinquième étape du Fléau Céleste et se rapprochait infiniment des sortilèges des Flammes Joss des cultivateurs du troisième pas! On pourrait même dire que l'aura de ce pilier de lumière était presque identique à celle d'un cultivateur du Vide du Nirvana au début du troisième pas! Tout cela était dû à cette ombre sans tête nichée dans la lumière!
 
 Wang Lin se retourna brusquement, son regard fulgurant balayant la zone. Il vit l'ombre sans tête. Le pilier de lumière était trop rapide; il se trouvait désormais à moins de trente pieds de Wang Lin! C'était comme s'il ne lui laissait aucune chance d'esquiver!
 

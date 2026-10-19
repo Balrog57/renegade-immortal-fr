@@ -70,7 +70,7 @@ Les trois vieillards prirent des expressions graves et s'apprêtèrent à utilis
 
 « Qui vous a envoyé?! » Cette voix était empreinte de majesté. Les trois anciens s'écartèrent immédiatement et respectueusement, révélant la silhouette imposante de Mo Lihai.
 
-Lorsque Mo Lihai dévisagea le jeune homme de la Secte de l'Épée Da Luo, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Grande Muraille Antique.
+Lorsque Mo Lihai dévisagea le jeune homme de la Secte de l'Épée Da Luo, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Cité de l'Ancien Démon.
 
 Les yeux de l'homme de la Secte de l'Épée Da Luo s'illuminèrent; il s'arrêta et déclara: « Général Démon Mo Fei! »
 

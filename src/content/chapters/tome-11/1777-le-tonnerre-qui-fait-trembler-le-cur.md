@@ -84,7 +84,7 @@ Du sang s'écoulait de son œil gauche, coulant le long de sa joue pour maculer 
 
 Non seulement lui, mais tous ceux qui contemplèrent les yeux argentés de Wang Lin furent saisis d'effroi. Le Maître du Dao Rêve Bleu s'en sortit mieux que les autres, étant l'aîné de Wang Lin; pourtant, le vieil homme Ma sentit son cœur vaciller devant ce regard argenté.
 
-« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les manifestations de la descente de l'Ancien Ancêtre. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
+« Les yeux d'argent! La rumeur dit que lorsque l'Ancêtre Céleste descend, il y aura neuf chants et trois signes. Le ciel doré et la terre noire forment l'un des signes! On raconte aussi que les neuf chants et les trois signes sont les manifestations de la descente de l'Ancêtre Ancien. Les neuf chants sont pour les Anciens, et les trois signes pour les Célestes! »
 
 « J'ai entendu dire que deux des neuf chants étaient les yeux d'argent et le corps doré! Cela... Wang Lin n'a obtenu que l'héritage de Ye Mo, comment peut-il avoir des yeux d'argent?! Même Ye Mo ne les possédait pas! »
 
@@ -92,7 +92,7 @@ Tandis que la stupeur régnait, Xuan Luo observait Wang Lin sortir de l'entrée 
 
 En les revoyant maintenant, le même sentiment l'envahissait.
 
-« Le sang d'âme de l'Ancien Ancêtre... lui a permis de posséder le premier des neuf chants: l'Œil Argenté! »
+« Le sang d'âme de l'Ancêtre Ancien... lui a permis de posséder le premier des neuf chants: l'Œil Argenté! »
 
 Alors que la foule était sous le choc, le regard de Wang Lin balaya le sol et marqua une pause un instant là où se trouvait Xuan Luo. Avec ses yeux d'argent, il perçut vaguement quelque chose, mais personne d'autre que lui ne comprit ce qu'il avait vu.
 

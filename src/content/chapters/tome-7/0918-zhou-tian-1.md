@@ -74,21 +74,21 @@ L'âme originelle, habitée par la terreur, s'apprêtait à fuir.
 
 L'expression de Wang Lin resta neutre alors qu'il agita nonchalamment sa main droite. Une bourrasque de vent apparut devant lui et se transforma instantanément en d'innombrables Coupes Célestes fusionnant en une seule. Elle s'élança pour traquer l'âme originelle en fuite.
 
-Le cultivateur aux six doigts afficha un sourire étrange et pointa également sa main droite. Les innombrables ombres formant son manteau chargèrent pour intercepter la Coupe Céleste de Wang Lin.
+Le cultivateur aux six doigts afficha un sourire étrange et pointa également sa main droite. Les innombrables ombres formant son manteau chargèrent pour intercepter le Coup Céleste de Wang Lin.
 
 Les deux protagonistes entamèrent une bataille de sorts, avec la vie de cette âme originelle comme unique enjeu!
 
-Lorsque la Coupe Céleste et les ombres entrèrent en collision près de l'âme originelle, elles provoquèrent une explosion capable de secouer les cieux. Depuis que Wang Lin avait obtenu un fragment d'illumination sur la loi, la puissance de sa Coupe Céleste avait augmenté de façon exponentielle!
+Lorsque le Coup Céleste et les ombres entrèrent en collision près de l'âme originelle, elles provoquèrent une explosion capable de secouer les cieux. Depuis que Wang Lin avait obtenu un fragment d'illumination sur la loi, la puissance de son Coup Céleste avait augmenté de façon exponentielle!
 
-Auparavant, Wang Lin n'utilisait cette technique que de manière inconsciente, sans en comprendre la loi, ce qui empêchait la Coupe Céleste de révéler son véritable pouvoir. Désormais, tout était différent.
+Auparavant, Wang Lin n'utilisait cette technique que de manière inconsciente, sans en comprendre la loi, ce qui empêchait le Coup Céleste de révéler son véritable pouvoir. Désormais, tout était différent.
 
-La Coupe Céleste pouvait trancher toutes les lois. En chargeant, chaque ombre entrant en contact avec elle se désintégrait et disparaissait instantanément.
+Le Coup Céleste pouvait trancher toutes les lois. En chargeant, chaque ombre entrant en contact avec elle se désintégrait et disparaissait instantanément.
 
-En un clin d'œil, toutes les ombres furent balayées, laissant la Coupe Céleste foncer droit sur l'âme originelle.
+En un clin d'œil, toutes les ombres furent balayées, laissant le Coup Céleste foncer droit sur l'âme originelle.
 
 L'expression du cultivateur aux six doigts changea; il laissa échapper un grognement glacial avant de faire un pas en avant. Sa main droite traça un sceau et les ombres derrière lui se condensèrent. En un instant, elles fusionnèrent pour former une petite sphère noire.
 
-Une aura capable de bouleverser l'esprit émana de cette sphère et enveloppa la zone. Celle-ci vola à une vitesse fulgurante vers la Coupe Céleste, semblant capable de percer le vide pour la rejoindre instantanément. Au moment où elle la toucha, la sphère s'effondra d'elle-même et se mua en d'innombrables volutes de qi noir entrelacées, qui enveloppèrent la Coupe Céleste couche après couche.
+Une aura capable de bouleverser l'esprit émana de cette sphère et enveloppa la zone. Celle-ci vola à une vitesse fulgurante vers le Coup Céleste, semblant capable de percer le vide pour la rejoindre instantanément. Au moment où elle la toucha, la sphère s'effondra d'elle-même et se mua en d'innombrables volutes de qi noir entrelacées, qui enveloppèrent le Coup Céleste couche après couche.
 
 Le cultivateur aux six doigts rit et agita sa main droite. Un impact puissant se produisit près de l'âme originelle, qui fut immédiatement projetée au loin par le choc. En un éclair, elle était sur le point de disparaître parmi les étoiles.
 

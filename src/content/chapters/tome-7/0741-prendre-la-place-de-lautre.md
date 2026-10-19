@@ -54,7 +54,7 @@ Le visage de Wang Lin était pâle. Il ne pouvait maintenir la lumière rouge du
 
 Cependant, profitant de cet instant, Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. Il leva l'arme et la fit retomber avec rapidité!
 
-Coupe Céleste!
+Coup Céleste!
 
 Un rugissement tonitruant résonna à travers les cieux et la terre! Ce qui fut tranché n'était pas la chair ou la puissance, mais la loi même du monde. Au moment où la loi était sectionnée, le sort s'effondrait naturellement!
 
@@ -82,7 +82,7 @@ Wang Lin vola pendant trois jours avant d'apercevoir enfin une limite devant lui
 
 Wang Lin se dirigea droit vers la montagne. Il utilisa l'épée céleste pour creuser une grotte avant de s'y asseoir pour cultiver.
 
-Lors de son combat contre Xu Fenghan, Wang Lin avait utilisé la Coupe Céleste et le Troisième Œil, ce qui avait épuisé son énergie d'origine. Cependant, il avait absorbé deux éclairs célestes et demi qu'il n'avait pas encore raffinés et qu'il gardait en lui. Il les raffina rapidement pour récupérer l'énergie consommée durant la bataille.
+Lors de son combat contre Xu Fenghan, Wang Lin avait utilisé le Coup Céleste et le Troisième Œil, ce qui avait épuisé son énergie d'origine. Cependant, il avait absorbé deux éclairs célestes et demi qu'il n'avait pas encore raffinés et qu'il gardait en lui. Il les raffina rapidement pour récupérer l'énergie consommée durant la bataille.
 
 De plus, cet endroit était le Royaume Céleste du Tonnerre; tout ici, des plantes aux montagnes, contenait du tonnerre. C'était une terre sainte pour Wang Lin, et la culture y serait bien plus rapide qu'ailleurs.
 
@@ -116,7 +116,7 @@ Yao Kong poussa un soupir. Il n'avait vraiment pas voulu revenir dans le Systèm
 
 Cependant, s'il ne revenait pas, il ne pourrait trouver la paix. Tout cela, il le faisait pour sa fille, Yao Xixue!
 
-Cet homme était l'Ancêtre de Sang!
+Cet homme était l'Ancêtre Sanguin!
 
 « Je... » Au moment où il prit la parole, la voix rauque l'interrompit.
 
@@ -124,7 +124,7 @@ Cet homme était l'Ancêtre de Sang!
 
 Cette voix était empreinte d'une détermination et d'une résolution qui ne laissaient place à aucun doute.
 
-L'Ancêtre de Sang serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte! Mais elle porte le sang de la famille Yao! »
+L'Ancêtre Sanguin serra le poing et déclara: « Grand-père!! Ma fille unique, Yao Xixue, a été enlevée du Système Stellaire de l'Alliance et emmenée ici. On ignore si elle est vivante ou morte! Mais elle porte le sang de la famille Yao! »
 
 La voix rauque se tut. Après un long silence, un soupir antique s'en échappa.
 

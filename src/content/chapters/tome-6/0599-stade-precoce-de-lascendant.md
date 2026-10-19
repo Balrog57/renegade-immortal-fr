@@ -92,7 +92,7 @@ Ce processus dura très longtemps...
 
 Wang Lin était assis en position de lotus dans cette grotte. Il restait immobile, comme s'il avait toujours été là.
 
-À l'extérieur, le temps s'écoulait rapidement. Dans le Pays des Démons Célestes, la Cité des Démons Célestes avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
+À l'extérieur, le temps s'écoulait rapidement. Dans le Pays du Démon Céleste, la Cité des Démons Célestes avait déjà été reconstruite depuis dix ans. Sa taille et son étendue étaient redevenues identiques à celles d'autrefois!
 
 La capitale impériale se dressait toujours, et la grande place était de retour! Le tambour de démon géant trônait également sur la place!
 

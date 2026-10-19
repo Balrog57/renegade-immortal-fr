@@ -102,7 +102,7 @@ La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal.
 
 « Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Shui Daozi n'en avait jamais eu l'intention!!
 
-Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste de la Foudre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
+Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste du Tonnerre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
 
 Au plus profond du vortex se nichait une planète de culture. Cette dernière, de petite taille, était entièrement noire.
 

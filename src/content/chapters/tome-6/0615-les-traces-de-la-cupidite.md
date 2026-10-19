@@ -36,7 +36,7 @@ Les sourcils de Wang Lin se contractèrent violemment.
 
 « D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Culture s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps peut s'inverser à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Tout bien considéré, cette perle n'est qu'une chose de peu de valeur. Bien qu'elle puisse inverser le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
 
-Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Luo, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Luo, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul à être resté dans le Pays des Démons Célestes. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
+Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Luo, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Luo, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul à être resté dans le Pays du Démon Céleste. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
 
 « Qu'a donc découvert ce Cupidité... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -44,13 +44,13 @@ Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que
 
 « Cette guerre qui se déroule sous mes yeux est ma meilleure chance de collecter l'énergie de la boucherie, je ne peux pas la laisser passer. Mais je n'ai que la force d'un seul homme. Cette chose... Oui, je devrais procéder ainsi! » Le regard de Wang Lin devint glacial avant qu'il ne disparaisse.
 
-Wang Lin ne prit pas part à la bataille du Pays des Démons de Feu. Il se téléporta pendant plusieurs jours jusqu'au Tribu de l'Affinement de l'Âme, dans le Pays des Démons Célestes. Après dix ans de développement, le Tribu de l'Affinement de l'Âme avait pris une forme solide; il était devenu l'un des quatre plus grands clans des terres sauvages.
+Wang Lin ne prit pas part à la bataille du Pays des Démons de Feu. Il se téléporta pendant plusieurs jours jusqu'au Tribu de l'Affinement de l'Âme, dans le Pays du Démon Céleste. Après dix ans de développement, le Tribu de l'Affinement de l'Âme avait pris une forme solide; il était devenu l'un des quatre plus grands clans des terres sauvages.
 
 Le retour de Wang Lin provoqua une immense excitation au sein du clan. Bien que beaucoup n'eussent jamais vu son visage, la rumeur avait fait de lui une figure légendaire, semblable à un Démon Antique. Tous le vénéraient en leur for intérieur. Cette vallée était devenue leur terre sacrée!
 
 Dès son retour, Wang Lin convoqua rapidement Treize et Ouyang Hua pour rassembler dix mille membres du clan. Il distribua une parcelle d'énergie de la boucherie à chacun d'eux. Chaque fois que ces membres tuaient quelqu'un, la vitalité de leur victime était absorbée par cette parcelle d'énergie. Plus ces dix mille individus massacraient, plus l'énergie de la boucherie en leur sein se renforçait. Elle pouvait même se transformer en sceaux de vie pour protéger ces guerriers lors de crises majeures.
 
-Ces dix mille hommes furent ensuite envoyés dans le conflit du Pays des Démons de Feu. Wang Lin ne les fit pas rejoindre l'armée du Pays des Démons Célestes, mais leur ordonna d'agir de manière autonome. Il n'avait qu'une seule consigne: continuer à tuer pour nourrir l'énergie de la boucherie en eux.
+Ces dix mille hommes furent ensuite envoyés dans le conflit du Pays des Démons de Feu. Wang Lin ne les fit pas rejoindre l'armée du Pays du Démon Céleste, mais leur ordonna d'agir de manière autonome. Il n'avait qu'une seule consigne: continuer à tuer pour nourrir l'énergie de la boucherie en eux.
 
 Dix mille personnes ne représentaient pas grand-chose dans une guerre impliquant des dizaines de millions de soldats démons. Wang Lin en était conscient, c'est pourquoi il envoya également Ouyang Hua et Treize. Il leur remit des trésors et leur donna trois mois pour mener le reste du clan à dévorer les trois autres tribus restantes!
 
@@ -68,7 +68,7 @@ Wang Lin utilisa un sort pour ériger une haute tour là où se trouvait autrefo
 
 En un clin d'œil, dix années supplémentaires s'écoulèrent! Wang Lin ne fit pas un seul pas hors de sa tour durant cette décennie.
 
-Après que les trois grandes armées du Pays des Démons Célestes eurent ouvert la voie dans le Pays des Démons de Feu, ce dernier avait naturellement ses propres moyens de riposter. Ils lancèrent une contre-attaque, entamant un massacre sans fin sur de multiples champs de bataille. Ces dix ans de guerre n'étaient que le commencement.
+Après que les trois grandes armées du Pays du Démon Céleste eurent ouvert la voie dans le Pays des Démons de Feu, ce dernier avait naturellement ses propres moyens de riposter. Ils lancèrent une contre-attaque, entamant un massacre sans fin sur de multiples champs de bataille. Ces dix ans de guerre n'étaient que le commencement.
 
 Durant cette période, des vagues de membres du Tribu de l'Affinement de l'Âme, imprégnés de l'énergie de la boucherie de Wang Lin, rejoignirent les combats. Parallèlement, le clan continuait de croître, et les tribus sauvages du Pays des Démons de Feu étaient devenues leurs cibles privilégiées.
 

@@ -1,6 +1,6 @@
 ---
 n: 591
-title: Le Commandant en Chef du Ciel est ému
+title: Le Commandant Céleste est ému
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 591 - The Heaven Commander-in-Chief Is Moved
@@ -46,7 +46,7 @@ Voyant cela, l'homme en armure dorée fut un peu rassuré et un rictus réapparu
 
 Le silence tomba sur les environs. Personne n'osait plus parler après l'écho de la neuvième résonance sur la place. Ce résultat surpassait celui du premier général démoniaque, Mo Fei, et tous savaient qu'à partir de ce jour, le nom de « Wang Lin » brillerait dans le Pays du Démon Céleste!
 
-Il faut dire que l'Empereur Démon se souciait peu de l'origine des gens. Le Commandant en Chef du Ciel n'était-il pas lui aussi un cultivateur?!
+Il faut dire que l'Empereur Démon se souciait peu de l'origine des gens. Le Commandant Céleste n'était-il pas lui aussi un cultivateur?!
 
 Nul ne parlait, et tous les regards étaient rivés sur Wang Lin.
 
@@ -68,7 +68,7 @@ Wang Lin murmura: « Défier... »
 
 « Je me trompais. Utiliser les sceaux de vie pour résister à cette force de défi revenait à résister à ma propre nature de défi intérieure... » Les yeux de Wang Lin révélèrent une puissance mystérieuse. Puis, il retrouva une grande sérénité et fixa silencieusement le tambour démoniaque.
 
-À cet instant, le Commandant en Chef du Ciel entrouvrit les yeux pour observer Wang Lin.
+À cet instant, le Commandant Céleste entrouvrit les yeux pour observer Wang Lin.
 
 Wang Lin réfléchit longuement avant de faire un pas, puis un autre, encore un autre. Après dix-neuf pas, il se tint devant le tambour démoniaque. Il ne frappa pas immédiatement, mais utilisa sa paume pour le toucher délicatement, sentant sa surface rugueuse.
 
@@ -112,9 +112,9 @@ Non seulement eux, mais des exclamations retentirent parmi les généraux démon
 
 L'homme en armure dorée eut le regard froid et pensa avec mépris: « Purification de la moelle... Ce vieil homme suit l'Empereur Démon depuis longtemps, et l'Empereur a bien dit que l'on pouvait purifier sa moelle au son du tambour démoniaque. Cependant, cela n'est possible que si l'on possède un niveau de culture suffisamment élevé. Autrement, tenter de forcer la purification ne fera que vous blesser gravement! »
 
-Les yeux du Commandant en Chef du Ciel étaient à demi ouverts. Il laissa paraître une pointe de déception avant de refermer les paupières.
+Les yeux du Commandant Céleste étaient à demi ouverts. Il laissa paraître une pointe de déception avant de refermer les paupières.
 
-Au moment où le Commandant en Chef du Ciel ferma les yeux, il soupira intérieurement: « Il n'est plus nécessaire d'observer cet enfant... »
+Au moment où le Commandant Céleste ferma les yeux, il soupira intérieurement: « Il n'est plus nécessaire d'observer cet enfant... »
 
 Le visage de Wang Lin était d'une pâleur mortelle, mais ses yeux brillaient!
 
@@ -136,4 +136,4 @@ La tristesse pénétra son âme, son âme forgea une volonté, la volonté frapp
 
 « Le son du tambour contient une intention... Impossible, c'est impossible. Comment cet homme a-t-il pu parvenir à cela? C'est absolument impossible!!! » Pour la première fois, l'expression de l'homme en armure dorée changea radicalement. Il recula inconsciemment de plusieurs pas, les yeux fixés sur Wang Lin.
 
-Le Commandant en Chef du Ciel ouvrit complètement les yeux et se leva pour contempler Wang Lin! Dans toute la place, la seule personne qui captivait son attention était Wang Lin!
+Le Commandant Céleste ouvrit complètement les yeux et se leva pour contempler Wang Lin! Dans toute la place, la seule personne qui captivait son attention était Wang Lin!

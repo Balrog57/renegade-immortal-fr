@@ -30,7 +30,7 @@ Ouyang Hua prit une grande inspiration, s'assit en position du lotus, pressa le 
 
 Bien qu'il ait les yeux fermés, Wang Lin observait toujours Ouyang Hua.
 
-Cet homme était l'ancien de cette vallée car, lorsqu'il s'était rendu enfant à la Grande Muraille Antique pour s'initier, on avait découvert qu'il possédait la force d'une étoile. Bien que cela ne suffît pas pour s'y établir, son statut au sein du village avait considérablement augmenté.
+Cet homme était l'ancien de cette vallée car, lorsqu'il s'était rendu enfant à la Cité de l'Ancien Démon pour s'initier, on avait découvert qu'il possédait la force d'une étoile. Bien que cela ne suffît pas pour s'y établir, son statut au sein du village avait considérablement augmenté.
 
 Wang Lin pouvait clairement voir une aura ténue, semblable à un fil de soie, se déplacer lentement dans le dantian d'Ouyang Hua. Cependant, les méridiens de cet homme étaient tous obstrués. Non seulement le cycle de ce mince éclat d'aura était lent, mais son champ de mouvement était limité.
 

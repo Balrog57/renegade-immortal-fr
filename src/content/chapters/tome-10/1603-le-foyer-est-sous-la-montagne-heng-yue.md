@@ -80,23 +80,23 @@ Wang Lin, fatigué par l'observation, s'appuya contre le bateau. Il s'endormit t
 
 Grande Fortune laissa échapper un soupir et regarda son poignet droit, l'esprit ailleurs.
 
-Le soleil de midi était doux et chaud sur le corps de Wang Lin, lui permettant de dormir profondément. Cependant, en cette saison, quelques feuilles de saule flottaient dans l'air. L'une d'elles effleura doucement son visage, le poussant à ouvrir les yeux.
+Le soleil de midi était doux et chaud sur le corps de Wang Lin, lui permettant de dormir profondément. Cependant, en cette saison, quelques flocons de saule flottaient dans l'air. L'un d'eux effleura doucement son visage, le poussant à ouvrir les yeux.
 
 Le bateau continuait sa progression.
 
-En voyant la feuille de saule flotter devant lui, Wang Lin sourit soudainement.
+En voyant le flocon de saule flotter devant lui, Wang Lin sourit soudainement.
 
-« Grande Fortune, te souviens-tu de notre arrivée à la ville de Su il y a plus de vingt ans? À l'époque, il y avait tout autant de feuilles de saule, et nous étions également sur un bateau. »
+« Grande Fortune, te souviens-tu de notre arrivée à la ville de Su il y a plus de vingt ans? À l'époque, il y avait tout autant de flocons de saule, et nous étions également sur un bateau. »
 
 Alors qu'il riait, une autre embarcation passa à proximité. Au moment où elle longea leur sillage, deux voix douces et séduisantes s'élevèrent:
 
-« Senior Sister, ces feuilles de saule sont bien agaçantes. Elles sont désagréables lorsqu'elles se posent sur vous. »
+« Senior Sister, ces flocons de saule sont bien agaçants. Ils sont désagréables lorsqu'elles se posent sur vous. »
 
 « Si tu n'y prêtes pas attention, elles n'existeront pas. Junior Sister, ton cœur n'est pas calme. »
 
 En entendant ces voix, il fut saisi par la surprise. Elles lui semblaient étrangement familières, comme s'il les avait déjà entendues. Il se redressa et regarda vers l'autre bateau. Il aperçut les silhouettes de deux femmes.
 
-Ces deux femmes étaient très jeunes et d'une grande beauté. Elles se tenaient parmi les feuilles de saule éparses telles des divinités célestes. Le vent faisait flotter leurs vêtements, accentuant leur grâce.
+Ces deux femmes étaient très jeunes et d'une grande beauté. Elles se tenaient parmi les flocons de saule épars telles des divinités célestes. Le vent faisait flotter leurs vêtements, accentuant leur grâce.
 
 « Ce sont... elles... » Wang Lin fixa le bateau jusqu'à ce qu'il disparaisse. Dans son esprit, l'image de ce bateau par une nuit pluvieuse, il y a de cela plus de vingt ans, resurgit.
 
@@ -134,6 +134,6 @@ Assis sur le bateau, Wang Lin murmura doucement à Grande Fortune:
 
 « Sous la montagne Heng Yue. » Le bateau accosta sur la rive et Wang Lin ainsi que Grande Fortune descendirent. Il jeta un dernier regard vers la rivière et vers la ville de Su, là où ils avaient vécu pendant vingt-huit ans.
 
-Lorsqu'ils étaient arrivés, c'était la saison où les feuilles de saule voltigeaient. Il y avait quelques cruches de vin, une charrette, et eux deux.
+Lorsqu'ils étaient arrivés, c'était la saison où les flocons de saule voltigeaient. Il y avait quelques cruches de vin, une charrette, et eux deux.
 
 Lorsqu'ils partaient, il en était de même.

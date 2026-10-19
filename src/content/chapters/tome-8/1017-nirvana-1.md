@@ -46,15 +46,15 @@ La progression du sable était trop rapide; il venait de tous côtés comme pour
 
 L'expression de Wang Lin changea et il cracha un objet. Les 18 Tampons Célestes de Scellement de l'Enfer s'envolèrent, se transformant en une petite montagne. Il cria alors: « Arsenal Magique! » en agitant sa main droite.
 
-Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de l'Ancêtre de Sang.
+Un cri fantomatique résonna dans le ciel et des éclats de lumière remplirent le monde. D'innombrables âmes apparurent, y compris l'âme de l'Ancêtre Sanguin.
 
 Il y avait aussi les nombreuses âmes célestes et celles de tous les êtres que Wang Lin avait tués! Ces âmes, invoquées par son sortilège, poussèrent un rugissement collectif. Ce son couvrit tout le reste, y compris le sifflement du sable. Ces âmes de combat se positionnèrent autour de Wang Lin.
 
-D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de l'Ancêtre de Sang était la plus tyrannique. Elle tourna un regard injecté de sang vers Wang Lin, mais sans l'attaquer, elle chargea plutôt vers l'extérieur dans un rugissement!
+D'une simple pensée, Wang Lin les lança à l'assaut. Parmi elles, l'âme de l'Ancêtre Sanguin était la plus tyrannique. Elle tourna un regard injecté de sang vers Wang Lin, mais sans l'attaquer, elle chargea plutôt vers l'extérieur dans un rugissement!
 
 Les nombreuses âmes célestes semblaient également avoir perdu la raison, se précipitant sur tout ce qui les entourait.
 
-Parmi ces âmes se trouvaient des guerriers du Royaume du Massacre. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
+Parmi ces âmes se trouvaient des guerriers du Royaume de la Boucherie. C'étaient de nouvelles recrues, et leur apparition emplit la zone d'une intention meurtrière!
 
 Alors que les grains de sable volaient vers Wang Lin, ils entrèrent en collision avec les âmes. Un grondement infini résonna alors à travers le monde.
 

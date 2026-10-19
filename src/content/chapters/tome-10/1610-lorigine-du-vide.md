@@ -58,7 +58,7 @@ Presque tous les cultivateurs de ce continent finirent par trouver leur chemin v
 
 Certains traversèrent la mer depuis d'autres continents ou utilisèrent des formations de téléportation. Parmi eux se trouvaient Dun Tian, Nian Tian et une multitude de disciples de la Secte de l'Affinement de l'Âme.
 
-Il y avait aussi les cultivateurs de Xue Yue. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour chercher le Dao.
+Il y avait aussi les cultivateurs de Xue Yu. Sous la conduite de la femme froide, ils étaient arrivés, attirés par cette sensation mystérieuse. Ils s'assirent en silence pour chercher le Dao.
 
 La femme froide tenait un bébé, une petite fille qui semblait ne jamais grandir.
 
@@ -110,7 +110,7 @@ De plus en plus de cultivateurs convergèrent vers la montagne jusqu'à ce que t
 
 Le temps sembla s'étirer à l'infini. On ignorait combien de temps passait alors que Wang Lin tenait Li Muwan dans ses bras. Ils restèrent là, observant ensemble les levers et couchers de soleil, comptant les années l'un avec l'autre.
 
-« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables flocons de saule. On ne savait ni d'où elles venaient, ni où elles allaient.
+« Le karma ne peut être tranché car il est le vide... Le karma est le karma. Le destin se rassemble pour mieux se disperser dans le vide. » La voix de Wang Lin résonna à travers le monde, se transformant en d'innombrables flocons de saule. On ne savait ni d'où ils venaient, ni où elles allaient.
 
 Elles flottaient lentement dans les cieux avant de retomber sur les cultivateurs environnants, comme si elles portaient l'enregistrement de leurs propres vies.
 

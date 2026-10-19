@@ -40,7 +40,7 @@ Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déplo
 
 Cette formation était sans nom; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa culture.
 
-Alors que près de trois cent mille jades célestes descendaient, Wang Lin frappa à nouveau son sac et la Formation de l'Épée aux Sept Étoiles s'envola. Elle gravitait autour de lui pour le protéger. Le garde céleste surgit également de son ombre avant de se fondre dans le néant. Si quiconque osait le déranger, le garde céleste tuerait sans la moindre hésitation.
+Alors que près de trois cent mille jades célestes descendaient, Wang Lin frappa à nouveau son sac et la Formation d'Épées des Sept Étoiles s'envola. Elle gravitait autour de lui pour le protéger. Le garde céleste surgit également de son ombre avant de se fondre dans le néant. Si quiconque osait le déranger, le garde céleste tuerait sans la moindre hésitation.
 
 Après une profonde inspiration, Wang Lin ferma les yeux. Ses mains formèrent un sceau qu'il posa sur ses genoux, puis il murmura doucement: « Briser! »
 
@@ -88,7 +88,7 @@ Wang Lin prit une profonde inspiration. Il se leva, le regard aussi vif qu'une t
 
 « Il ne me manque qu'un éveil dans mon domaine pour atteindre le stade intermédiaire de l'Ascendant! Cependant, je ne peux précipiter cet éveil... Cela pourrait arriver dans un instant, dans dix ans ou dans cent ans... »
 
-« Il est maintenant temps de régler quelques comptes... Je voulais cultiver paisiblement sur la planète Ran Yun, mais certains refusent cette paix. Puisqu'il veut m'impliquer dans cette affaire, il devra faire preuve d'une sincérité suffisante! Je présume que ces trois-là ont compris le sens de ma démonstration de tout à l'heure. » Wang Lin esquissa un rictus et fit un geste de la main. La Formation de l'Épée aux Sept Étoiles retourna dans son sac et le garde céleste regagna son ombre.
+« Il est maintenant temps de régler quelques comptes... Je voulais cultiver paisiblement sur la planète Ran Yun, mais certains refusent cette paix. Puisqu'il veut m'impliquer dans cette affaire, il devra faire preuve d'une sincérité suffisante! Je présume que ces trois-là ont compris le sens de ma démonstration de tout à l'heure. » Wang Lin esquissa un rictus et fit un geste de la main. La Formation d'Épées des Sept Étoiles retourna dans son sac et le garde céleste regagna son ombre.
 
 En marchant, il utilisa une téléportation de grande envergure. Simultanément, il déploya son sens divin pour couvrir la planète entière. Après avoir verrouillé la cible — un cultivateur au stade intermédiaire de l'Ascendant —, Wang Lin disparut.
 

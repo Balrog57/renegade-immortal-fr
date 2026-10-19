@@ -42,11 +42,11 @@ Pourtant, à cet instant, des fissures apparurent sur les yeux de la statue. Tan
 
 « L'aura de ce vieux... » Les yeux de l'homme laissèrent passer une lueur étrange tandis qu'innombrables souvenirs s'éveillaient de leur sommeil pour envahir son esprit. Après un long moment, il referma les yeux et redevint une statue.
 
-Dans le système stellaire situé sous le Royaume Céleste de la Foudre, une femme se tenait au sommet d'une montagne sur une planète de culture. Elle contemplait le ciel, le regard empreint de souvenirs et de confusion.
+Dans le système stellaire situé sous le Royaume Céleste du Tonnerre, une femme se tenait au sommet d'une montagne sur une planète de culture. Elle contemplait le ciel, le regard empreint de souvenirs et de confusion.
 
 « Je ne m'en souviens pas... De quelle aura s'agit-il... Elle est si familière, si familière... »
 
-Au même instant, sur une planète de culture du système stellaire sous le Royaume Céleste de la Foudre, un jeune homme dormait sur une montagne. Son corps trembla alors qu'il redressait la tête pour regarder au loin. Après un long moment, il se gratta la tête.
+Au même instant, sur une planète de culture du système stellaire sous le Royaume Céleste du Tonnerre, un jeune homme dormait sur une montagne. Son corps trembla alors qu'il redressait la tête pour regarder au loin. Après un long moment, il se gratta la tête.
 
 « Ce vieux a failli mourir de peur. Je croyais que c'étaient ces vieux débris descendant du domaine céleste pour me capturer, mais pourquoi cette aura me semble-t-elle si familière... » Ce jeune homme était celui qui s'était échappé de la fissure lors de la rétribution divine de Wang Lin!
 

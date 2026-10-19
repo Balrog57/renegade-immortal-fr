@@ -12,13 +12,13 @@ Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux dev
 
 Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard était perçant. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
 
-L'essentiel de la puissance du Char de Guerre Anti-Dieux résidait dans l'animal spirituel. Chacun des sept sceaux de sang de l'âme originelle pouvait stimuler l'évolution de la bête.
+L'essentiel de la puissance du Char de Guerre Divinx résidait dans l'animal spirituel. Chacun des sept sceaux de sang de l'âme originelle pouvait stimuler l'évolution de la bête.
 
 Si les sceaux n'étaient pas levés lorsque cette stimulation atteindrait son apogée, l'animal spirituel exploserait et mourrait. Cependant, si le sceau était levé trop tôt, l'évolution de la bête serait interrompue et elle ne pourrait jamais atteindre sa puissance maximale à l'avenir.
 
 En vérité, aucun des trois Chars de Guerre Anti-Dieux n'avait été utilisé avant la mort de leur créateur. Selon son plan initial, les trois Chars de Guerre Anti-Dieux atteindraient la perfection après avoir été activés une première fois.
 
-C'est pourquoi il devait lever le sceau une fois que l'évolution aurait atteint son paroxysme. Ce n'était qu'à cette condition que la puissance du Char de Guerre Anti-Dieux serait à la hauteur de son nom!
+C'est pourquoi il devait lever le sceau une fois que l'évolution aurait atteint son paroxysme. Ce n'était qu'à cette condition que la puissance du Char de Guerre Divinx serait à la hauteur de son nom!
 
 Selon les plans originaux du créateur, il prévoyait de rassembler tous les matériaux nécessaires, puis de trouver un expert au niveau d'un Empereur Céleste pour l'aider lors de la première activation. Cela garantirait qu'aucun regret ne subsiste concernant l'un ou l'autre des chars de guerre!
 
@@ -55,9 +55,9 @@ Le moment qu'il choisit était celui-là même mentionné dans le jade. L'instan
 
 Le symbole sanguin fut gravé entre les sourcils de la bête. Au moment de l'impact, une lueur dorée jaillit. Wang Lin fut surpris, mais lorsqu'il regarda de plus près, toute trace de lumière dorée avait disparu.
 
-Une fois le quatrième symbole imprimé, la bête tonnerre ne lança plus de regard hostile à Wang Lin. Cependant, elle n'affichait aucune bienveillance non plus. Après l'avoir dévisagé, elle disparut pour retourner dans le Char de Guerre Anti-Dieux.
+Une fois le quatrième symbole imprimé, la bête tonnerre ne lança plus de regard hostile à Wang Lin. Cependant, elle n'affichait aucune bienveillance non plus. Après l'avoir dévisagé, elle disparut pour retourner dans le Char de Guerre Divinx.
 
-Wang Lin tendit sa main droite et le Char de Guerre Anti-Dieux fut rangé dans son sac de rangement. Ses yeux brillèrent de réflexion: « Cette lueur dorée ne peut pas être une illusion de ma vue, alors pourquoi est-elle apparue... Même avec une corne argentée, elle reste assez puissante pour affronter des cultivateurs Ascendants du stade intermédiaire! Les indigènes d'ici sont faciles à traiter, mais un cultivateur ayant atteint le milieu de l'Ascendance, s'il n'a pas de sorts redoutables, possède forcément des trésors incroyables, ou bien les deux! »
+Wang Lin tendit sa main droite et le Char de Guerre Divinx fut rangé dans son sac de rangement. Ses yeux brillèrent de réflexion: « Cette lueur dorée ne peut pas être une illusion de ma vue, alors pourquoi est-elle apparue... Même avec une corne argentée, elle reste assez puissante pour affronter des cultivateurs Ascendants du stade intermédiaire! Les indigènes d'ici sont faciles à traiter, mais un cultivateur ayant atteint le milieu de l'Ascendance, s'il n'a pas de sorts redoutables, possède forcément des trésors incroyables, ou bien les deux! »
 
 « Par conséquent, bien que je n'ose prétendre pouvoir vaincre n'importe quel cultivateur Ascendant du stade intermédiaire avec ma propre culture au stade initial... il est impossible qu'ils me tuent! Et si je rencontre un cultivateur de ce niveau dont les sorts et les trésors sont plus faibles que les miens, je serai capable de l'éliminer! »
 
@@ -75,7 +75,7 @@ Wang Lin fit un pas en avant et se téléporta dans la tour.
 
 Wang Lin s'assit en position du lotus dans la tour et médita.
 
-« Si j'ai plus d'un million de filaments d'énergie de massacre, l'étendard du milliard d'âmes, le Char de Guerre Anti-Dieux et la rivière des enfers... Pourrais-je vaincre un cultivateur Ascendant du stade avancé... » Wang Lin songeait en silence.
+« Si j'ai plus d'un million de filaments d'énergie de massacre, l'étendard du milliard d'âmes, le Char de Guerre Divinx et la rivière des enfers... Pourrais-je vaincre un cultivateur Ascendant du stade avancé... » Wang Lin songeait en silence.
 
 « Je n'en suis pas sûr... Cependant, avec l'énergie de l'épée de Ling Tianhou, si un cultivateur Ascendant du stade avancé me provoque réellement, je n'aurai d'autre choix que d'utiliser l'une de ces énergies d'épée! » Le regard de Wang Lin devint glacial.
 

@@ -100,7 +100,7 @@ Ces derniers restèrent silencieux, levant la tête vers la direction prise par 
 
 Wang Lin flottait dans les airs et déploya son Sens Divin. Il localisa la Prison des Ténèbres à l'intérieur de la ville et apparut devant elle, portant Treize inconscient.
 
-Cette Prison des Ténèbres était souterraine, sous la Grande Muraille Antique. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
+Cette Prison des Ténèbres était souterraine, sous la Cité de l'Ancien Démon. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 

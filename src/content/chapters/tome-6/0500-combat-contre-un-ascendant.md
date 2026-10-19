@@ -112,7 +112,7 @@ Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait 
 
 Chen Tao prit une profonde inspiration pour réprimer la violente énergie spirituelle céleste qui bouillonnait en lui. L'attaque de Wang Lin avait été totalement imprévue! S'il n'avait pas rencontré de chance sur son chemin et atteint le stade intermédiaire de l'Ascendant, il aurait certainement été blessé malgré sa capacité à encaisser le coup.
 
-L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Violette et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le détenteur du titre de l'un des sept véritables disciples de l'Omniscient de la Division Violette! »
+L'Omniscient observa Wang Lin. L'admiration dans ses yeux grandit et il sourit: « Vous appartenez tous deux à la Division Pourpre et êtes mes disciples, alors ne gardez aucune rancœur l'un envers l'autre. Chen Tao, tu as vaincu aujourd'hui, tu seras donc le détenteur du titre de l'un des sept véritables disciples de l'Omniscient de la Division Pourpre! »
 
 Sur ces mots, l'Omniscient pointa l'espace entre ses sourcils; un cristal pourpre d'une pureté cristalline apparut sur son front et tomba dans sa main. Il lança ensuite le cristal, qui vola dans un rayon de lumière pourpre vers Chen Tao et s'inséra entre ses sourcils.
 

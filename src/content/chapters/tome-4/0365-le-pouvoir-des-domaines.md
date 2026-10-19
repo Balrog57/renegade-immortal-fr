@@ -34,7 +34,7 @@ Le corps du géant trembla sous l'impact et de multiples fissures apparurent. De
 
 La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Papillon Rouge ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
 
-D'une voix pressante et empreinte d'obscurité, Papillon Rouge ordonna: « Fouet d'Âmes! Révèle ta véritable forme! »
+D'une voix pressante et empreinte d'obscurité, Papillon Rouge ordonna: « Fouet de l'Âmes! Révèle ta véritable forme! »
 
 Cette fois, un fouet d'un blanc pur apparut dans la main gauche du géant de glace. Ce fouet n'était plus une illusion comme auparavant, mais une arme solide qui fouetta la bête spirituelle avec frénésie.
 
@@ -64,13 +64,13 @@ Pourtant, cette fierté s'était effondrée lorsque Wang Lin lui avait tranché 
 
 Elle était résolue à le tuer pour restaurer l'intégrité de son cœur dao. Elle avait même sorti le trésor national de Xue Yu, le Dieu de Glace, pour l'anéantir.
 
-Même son frère aîné avait secrètement emprunté le trésor principal de la Secte du Jade Céleste, le Fouet d'Âmes, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet d'Âmes. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
+Même son frère aîné avait secrètement emprunté le trésor principal de la Secte du Jade Céleste, le Fouet de l'Âmes, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet de l'Âmes. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
 
-Cependant, ayant entendu tant de rumeurs sur le Fouet d'Âmes, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
+Cependant, ayant entendu tant de rumeurs sur le Fouet de l'Âmes, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
 
 Mais à présent, après tant d'échanges, leur combat atteignait son point de rupture. Les trésors de ce Ceng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
 
-Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet d'Âmes.
+Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet de l'Âmes.
 
 À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que 6,6 mètres de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
 

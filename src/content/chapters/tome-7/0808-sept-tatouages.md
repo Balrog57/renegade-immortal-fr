@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 808 - Seven Tattoos
 slug: sept-tatouages
 ---
-C'était le dernier Char de Guerre Anti-Dieu que Wang Lin possédait, et aussi le plus puissant. Son dessein était de forger un trésor assez redoutable pour terrasser un dieu!
+C'était le dernier Char de Guerre Divin que Wang Lin possédait, et aussi le plus puissant. Son dessein était de forger un trésor assez redoutable pour terrasser un dieu!
 
-Une pression écrasante émanait du Char de Guerre Anti-Dieu qui trônait devant lui. Les pointes qui jaillissaient du char luisaient d'un éclat glacial, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
+Une pression écrasante émanait du Char de Guerre Divin qui trônait devant lui. Les pointes qui jaillissaient du char luisaient d'un éclat glacial, et son apparence féroce suffisait à semer la terreur dans les cœurs. À l'époque, Wang Lin avait failli s'effondrer sous une telle pression; il n'avait pas osé l'utiliser et s'était contenté d'utiliser le sort hérité pour le sceller.
 
-Cependant, aujourd'hui, Wang Lin se tenait calmement aux côtés du Char de Guerre Anti-Dieu. Au cours de ces centaines d'années, il avait énormément progressé.
+Cependant, aujourd'hui, Wang Lin se tenait calmement aux côtés du Char de Guerre Divin. Au cours de ces centaines d'années, il avait énormément progressé.
 
-Après avoir fermé les yeux, Wang Lin les rouvrit un instant plus tard, le regard étincelant. Ses mains formèrent des sceaux tandis que ses lèvres murmuraient quelques paroles complexes. Puis, il plaça sa main gauche sur son poignet droit. Un éclair de lumière noire se concentra dans la main droite de Wang Lin, qu'il pressa ensuite contre le Char de Guerre Anti-Dieu.
+Après avoir fermé les yeux, Wang Lin les rouvrit un instant plus tard, le regard étincelant. Ses mains formèrent des sceaux tandis que ses lèvres murmuraient quelques paroles complexes. Puis, il plaça sa main gauche sur son poignet droit. Un éclair de lumière noire se concentra dans la main droite de Wang Lin, qu'il pressa ensuite contre le Char de Guerre Divin.
 
 La lumière noire percuta l'engin et ce dernier l'absorba. Soudain, une pression encore plus colossale jaillit du char de guerre.
 
@@ -20,9 +20,9 @@ Toutes les pointes diffusèrent une lueur noire avant de fusionner entre elles. 
 
 Sous les yeux de Wang Lin, la lumière noire se condensa pour former sept runes vacillantes.
 
-En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Anti-Dieu:
+En contemplant ces sept runes au cœur de la lueur sombre, Wang Lin se remémora les paroles laissées par le créateur du Char de Guerre Divin:
 
-« Le troisième Char de Guerre Anti-Dieu est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires: l'Aile du Mystère Mystérieux, le Bois de Culture de l'Inframonde et l'Âme du Papillon Céleste!
+« Le troisième Char de Guerre Divin est d'une puissance extrême, dépassant toutes mes espérances. Si son utilisateur parvient à en exploiter toute la force, il pourra aisément tuer un dieu céleste... Cependant, il demeure incomplet. Il requiert trois matériaux supplémentaires: l'Aile du Mystère Mystérieux, le Bois de Culture de l'Inframonde et l'Âme du Papillon Céleste!
 
 Je regrette de ne pas avoir pu trouver ces trois éléments. Puisse mon successeur les dénicher et apaiser mes regrets! Pour que le troisième char reconnaisse son maître, vous devez fusionner avec les sept runes et les raffiner pour en faire votre trésor lié à la vie. Ce n'est qu'à cette condition que sa véritable puissance sera libérée. Autrement, même en fusionnant avec les runes, vous ne pourrez jamais l'utiliser pleinement! Successeur, choisis toi-même; choisis avec prudence et discernement... »
 
@@ -38,7 +38,7 @@ C'était parce qu'une fois le lien établi, la puissance du trésor se multiplia
 
 Wang Lin avait lu cela dans des chroniques anciennes. Autrefois, un cultivateur utilisait une simple épée volante comme trésor lié à la vie. Au fil de ses progrès, la puissance de l'épée avait augmenté jusqu'à atteindre un degré inimaginable.
 
-« Ce troisième Char de Guerre Anti-Dieu est différent des deux précédents... » Wang Lin fixa silencieusement les sept runes. Sa main droite effleura sa sacoche de rangement et la bête moustique en surgit.
+« Ce troisième Char de Guerre Divin est différent des deux précédents... » Wang Lin fixa silencieusement les sept runes. Sa main droite effleura sa sacoche de rangement et la bête moustique en surgit.
 
 Cette créature ne s'était pas manifestée depuis longtemps. En sortant, elle poussa un cri strident qui déclencha une bourrasque de vent. Elle tourna autour de la zone, visiblement exaltée.
 
@@ -106,8 +106,8 @@ Xu Liguo regarda le Clan des Immortels Élus en se léchant les lèvres, se rem�
 
 Tenté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Élus ne lui prêta attention.
 
-Tous étaient stupéfaits devant le Char de Guerre Anti-Dieu et discutaient entre eux. Pourtant, même l'Ancêtre, l'homme le plus érudit ici présent, ignorait ce qu'était un tel objet.
+Tous étaient stupéfaits devant le Char de Guerre Divin et discutaient entre eux. Pourtant, même l'Ancêtre, l'homme le plus érudit ici présent, ignorait ce qu'était un tel objet.
 
 Néanmoins, la pression émanant du char faisait trembler leurs esprits.
 
-Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Anti-Dieu. Alors qu'elle apparaissait à peine, un cri retentit à plus de 330 mètres, depuis l'extérieur de la zone.
+Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Divin. Alors qu'elle apparaissait à peine, un cri retentit à plus de 330 mètres, depuis l'extérieur de la zone.

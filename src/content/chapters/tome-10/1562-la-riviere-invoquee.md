@@ -114,7 +114,7 @@ Wang Lin avait déjà vu ce vieillard en noir. Il s'agissait du seigneur du Pala
 
 Le niveau de culture de cet homme se situait juste en dessous des cinq maîtres du Royaume Extérieur: il était au début du stade Vide Arcane! Il n'avait pas atteint ce niveau en sacrifiant sa propre durée de vie comme le Maître Long Pan, mais l'avait véritablement atteint par la voie de la culture!
 
-Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes de Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
+Des dizaines de milliers de cultivateurs du Royaume Extérieur étaient assis sous les trois continents flottants, murmurant tous une incantation. Des filaments de Flammes Joss flottaient vers le ciel, formant des créatures étranges qui encerclaient le Maître Long Pan. Elles attaquaient de concert avec le seigneur du Palais de la Punition Céleste.
 
 Qing Shui était entré un instant avant Wang Lin. Dès son apparition, il jeta un regard au Maître Long Pan et au vieillard en noir avant qu'une lueur glaciale ne surgisse dans ses yeux; il se précipita alors vers les dizaines de milliers de cultivateurs du Royaume Extérieur. Les cris de douleur que Wang Lin entendit à son entrée provenaient de ces derniers.
 

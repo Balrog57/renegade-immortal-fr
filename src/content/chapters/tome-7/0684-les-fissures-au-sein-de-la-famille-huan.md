@@ -110,19 +110,19 @@ Le grondement sourd résonna entre ciel et terre. Les visages des membres de la 
 
 L'ancêtre de la famille Huan fronça les sourcils. S'il s'était agi d'un membre ordinaire, il l'aurait ignoré, mais l'identité de celui qui parlait était particulière. L'ancêtre se retourna pour contempler l'interlocuteur.
 
-Il s'agissait du chef de la famille Huan, Huan Fengshen!
+Il s'agissait du chef de la famille Huan, Huan Feng Shen!
 
 Huan Wuqing demanda d'un ton bas: « Fengshen, es-tu également contre moi? »
 
 « Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Céleste du Tonnerre, il possède une Bête du Tonnerre et une marionnette Yin Illusoire. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
 
-Les yeux de Huan Fengshen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée à la grande perfection du stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
+Les yeux de Huan Feng Shen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée à la grande perfection du stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
 
 Liu Mei ne manifesta aucune réaction face à ces propos. Elle se contentait de regarder droit devant elle, le regard vide.
 
-L'expression de l'ancêtre devint lugubre alors qu'il fixait Huan Fengshen. Après une longue réflexion, il trancha d'un ton plat: « Je sais comment gérer la situation! »
+L'expression de l'ancêtre devint lugubre alors qu'il fixait Huan Feng Shen. Après une longue réflexion, il trancha d'un ton plat: « Je sais comment gérer la situation! »
 
-Huan Fengshen soupira et joignit les mains. « Puisque l'Ancêtre insiste, Fengshen n'osera pas désobéir. Si cet homme ne parvient pas à briser la formation, tout ira bien. Cependant, dès qu'il l'aura brisée, je me retirerai immédiatement, par prudence! Ce que je recherche, c'est la stabilité, non le risque! »
+Huan Feng Shen soupira et joignit les mains. « Puisque l'Ancêtre insiste, Fengshen n'osera pas désobéir. Si cet homme ne parvient pas à briser la formation, tout ira bien. Cependant, dès qu'il l'aura brisée, je me retirerai immédiatement, par prudence! Ce que je recherche, c'est la stabilité, non le risque! »
 
 La formation de la famille Huan continuait de luire, parcourue d'ondulations constantes. Sous ce bombardement incessant, elle commença progressivement à décliner. La lumière semblait atteindre ses limites et les ondulations couvraient désormais toute la surface; on ne pouvait même plus distinguer l'extérieur de l'intérieur, comme si une épaisse couche d'eau séparait les deux mondes.
 

@@ -52,11 +52,11 @@ Désormais, une puissance de tonnerre résidait en son corps. En pourchassant Wa
 
 Le tonnerre rendit la bête humanoïde encore plus rapide. En un éclair, elle rattrapa Wang Lin. Une lueur meurtrière passa dans les yeux de Wang Lin; sa main droite effleura son sac de stockage et l'épée céleste apparut. Il abattit l'arme avec une férocité sans merci.
 
-Le « Tranchant Céleste » se manifesta immédiatement. La bête humanoïde s'arrêta, ses yeux trahissant la terreur. Elle voulut reculer, mais il était trop tard.
+Le « Coup Céleste » se manifesta immédiatement. La bête humanoïde s'arrêta, ses yeux trahissant la terreur. Elle voulut reculer, mais il était trop tard.
 
-La bête humanoïde se fendit silencieusement en deux et une immense quantité de brume jaillit dans un gémissement misérable. Wang Lin fit un pas en avant et disparut. Il réapparut aussitôt près de la brume et utilisa une nouvelle fois le Tranchant Céleste.
+La bête humanoïde se fendit silencieusement en deux et une immense quantité de brume jaillit dans un gémissement misérable. Wang Lin fit un pas en avant et disparut. Il réapparut aussitôt près de la brume et utilisa une nouvelle fois le Coup Céleste.
 
-Des rayons du Tranchant Céleste frappèrent alors que la brume continuait de s'effondrer. Cependant, quelques instants plus tard, la brume sembla commencer à résister au sort. La vitesse de sa désintégration ralentit et elle montra même des signes de reformation.
+Des rayons du Coup Céleste frappèrent alors que la brume continuait de s'effondrer. Cependant, quelques instants plus tard, la brume sembla commencer à résister au sort. La vitesse de sa désintégration ralentit et elle montra même des signes de reformation.
 
 Les yeux de Wang Lin brillèrent; sa main droite pointa vers l'avant et il cria: « Arrêt! »
 

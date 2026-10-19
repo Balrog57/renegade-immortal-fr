@@ -24,7 +24,7 @@ S'il les buvait, cela ne serait pas moins efficace que tout le mois de médicame
 
 En tant que disciple interne, il n'était pas obligé de loger dans la cour principale; il pouvait s'installer dans l'une des cinq autres cours. Il choisit une demeure isolée dans la cour du Feu, proche de la porte est.
 
-Les disciples internes recevaient un traitement différent selon la couleur de leurs vêtements. Il avait appris auprès de Sun Dazhu au cours du mois écoulé que, le 10 de chaque mois, chaque disciple interne pouvait venir chercher un fragment de pierre spirituelle de bas grade ainsi qu'une Pilule de Rassemblement de Qi.
+Les disciples internes recevaient un traitement différent selon la couleur de leurs vêtements. Il avait appris auprès de Sun Dazhu au cours du mois écoulé que, le 10 de chaque mois, chaque disciple interne pouvait venir chercher un fragment de pierre spirituelle de faible qualité ainsi qu'une Pilule de Rassemblement de Qi.
 
 En économisant dix fragments de pierre spirituelle, on pouvait s'adresser à son propre maître pour les échanger contre une pierre spirituelle entière de faible qualité.
 

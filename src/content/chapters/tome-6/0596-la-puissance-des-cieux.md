@@ -68,7 +68,7 @@ Une force inimaginable résultant de ces explosions provoqua l'effondrement tota
 
 Tous les généraux démons se retirèrent promptement, craignant d'être emportés par le chaos s'ils tardaient ne serait-ce qu'une seconde.
 
-Les expressions de tous les commandants changèrent et ils battirent en retraite, à l'exception du Commandant en Chef Céleste. Étant le plus proche, il vit tout ce qui se passait avant de laisser échapper un soupir. Il plongea alors la main dans son vêtement pour en sortir un sac de rangement, d'où s'envola une fiole de jade. Après lui avoir lancé un regard empreint de sens, il la projeta vers Wang Lin et s'en alla.
+Les expressions de tous les commandants changèrent et ils battirent en retraite, à l'exception du Commandant Céleste. Étant le plus proche, il vit tout ce qui se passait avant de laisser échapper un soupir. Il plongea alors la main dans son vêtement pour en sortir un sac de rangement, d'où s'envola une fiole de jade. Après lui avoir lancé un regard empreint de sens, il la projeta vers Wang Lin et s'en alla.
 
 Dans le ciel surplombant Wang Lin, le rouge et le noir s'annulaient mutuellement. Grâce à la puissance du drapeau de restriction, aux Cent Doigts de la Mort, au dragon de massacre formé de plus de 3 700 brins d'énergie de massacre et imprégné du cœur de Wang Lin voulant tuer les cieux, et à l'innombrable jade céleste converti en énergie démoniaque pour forger le Doigt Démoniaque le plus puissant que Wang Lin ait jamais créé, la lumière rouge fut finalement neutralisée par cette fusion de sorts.
 

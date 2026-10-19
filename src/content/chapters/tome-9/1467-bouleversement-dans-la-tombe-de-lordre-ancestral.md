@@ -80,7 +80,7 @@ Ce palais semblait aussi vaste que le ciel étoilé, rendant sa limite presque i
 
 Cette sensation funeste provenait des quatre rangées de cadavres de cultivateurs! Chaque rangée comptait près de mille individus. Ils se tenaient là, le sang suintant de leurs orifices. Leurs yeux étaient ouverts, injectés d'une intention meurtrière.
 
-Les vêtements de ces êtres étaient extrêmement étranges et différaient totalement de tout ce que Wang Lin avait vu jusqu'alors. Leurs habits semblaient faits d'eau courante, comme s'ils étaient vivants. Wang Lin n'avait aperçu de tels vêtements que sur les étrangers d'autrefois, au sein du Clan du Tonnerre Dispersé, dans les images du passé qu'il avait vues en recueillant la foudre impérissable. Des flammes vertes brûlaient au-dessus de leurs têtes, crépitant dans le silence du palais.
+Les vêtements de ces êtres étaient extrêmement étranges et différaient totalement de tout ce que Wang Lin avait vu jusqu'alors. Leurs habits semblaient faits d'eau courante, comme s'ils étaient vivants. Wang Lin n'avait aperçu de tels vêtements que sur les étrangers d'autrefois, au sein du Clan du Tonnerre Dispersé, dans les images du passé qu'il avait vues en recueillant le tonnerre éternel. Des flammes vertes brûlaient au-dessus de leurs têtes, crépitant dans le silence du palais.
 
 « Des lampes humaines... » Wang Lin flottait dans le palais, observant ces cultivateurs. Ces êtres étaient devenus la source de lumière du lieu: leurs cadavres et leurs âmes originelles servaient de bougies aux flammes ardentes.
 

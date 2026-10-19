@@ -64,7 +64,7 @@ La main droite de Wang Lin s'étira et arracha l'âme originelle du vieil homme 
 
 Une fois terminé, la froideur dans le regard de Wang Lin ne s'était pas dissipée; elle s'était intensifiée. Il se tourna vers le Pavillon des Nuages Pourpres et s'envola dans sa direction.
 
-« Puisque l'Omniscient m'a assigné au Pavillon des Nuages Pourpres, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la division pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
+« Puisque l'Omniscient m'a assigné au Pavillon des Nuages Pourpres, il a dû prévoir tout cela. Dans ce cas, je vais tout bouleverser et faire savoir aux gens de la Division Pourpre que moi, Wang Lin, je ne suis pas quelqu'un que l'on peut bousculer! »
 
 Il arriva peu après devant le pavillon. La femme vêtue de pourpre était assise à l'intérieur du palais. Elle caressait la peinture des montagnes et des rivières, le regard perdu dans ses pensées passées. En remarquant l'arrivée de Wang Lin, elle fronça les sourcils, puis son corps disparut pour réapparaître à l'extérieur du pavillon. Alors qu'elle fixait Wang Lin qui approchait tel un arc-en-ciel dans les airs, elle lança d'une voix froide:
 

@@ -88,11 +88,11 @@ Un cas remarquable était celui de Treize. La persévérance de cet enfant étai
 
 En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la culture car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps!
 
-Sa cible était la Grande Muraille Antique!
+Sa cible était la Cité de l'Ancien Démon!
 
 Quatre ans auparavant, Wang Lin avait eu l'occasion d'y aller, mais il s'en était abstenu car il ne disposait pas encore de sa propre force. Même s'il y était allé, cela aurait été vain.
 
-Après quatre ans, Wang Lin pouvait enfin se rendre à la Grande Muraille Antique sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
+Après quatre ans, Wang Lin pouvait enfin se rendre à la Cité de l'Ancien Démon sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
 
 Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu du Affinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
 
@@ -100,7 +100,7 @@ Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l
 
 L'autre s'appelait Hu Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
-Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
+Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe d'effacement de mémoire, faisant de lui un membre de la Tribu du Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 

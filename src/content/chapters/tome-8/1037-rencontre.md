@@ -8,13 +8,13 @@ slug: rencontre
 ---
 Lorsque le doigt de Wang Lin se posa sur le Sceau Céleste des 18 Enfers, une lueur rouge jaillit. Ce fut comme si une lumière couleur de sang avait envahi la grotte, faisant rougir les fleurs.
 
-À mesure que cette lueur s'intensifiait, une brume rouge émana de la 14e couche. L'Ancêtre de Sang fixa Wang Lin d'un regard assoiffé de sang depuis l'intérieur de la brume. Cependant, il remarqua immédiatement la présence de Yao Xixue et tourna les yeux vers elle. Il fut un instant stupéfait, puis son expression s'adoucit.
+À mesure que cette lueur s'intensifiait, une brume rouge émana de la 14e couche. L'Ancêtre Sanguin fixa Wang Lin d'un regard assoiffé de sang depuis l'intérieur de la brume. Cependant, il remarqua immédiatement la présence de Yao Xixue et tourna les yeux vers elle. Il fut un instant stupéfait, puis son expression s'adoucit.
 
 Le visage de Yao Xixue était pâle alors qu'elle contemplait ce qui se déroulait sous ses yeux.
 
-« Ancêtre de Sang, je vous avais promis autrefois que je vous permettrais de retrouver votre fille. Ma promesse est désormais tenue. » Wang Lin agita sa main droite et la brume rouge entourant l'Ancêtre de Sang se dissipa, le libérant du contrôle de Wang Lin.
+« Ancêtre Sanguin, je vous avais promis autrefois que je vous permettrais de retrouver votre fille. Ma promesse est désormais tenue. » Wang Lin agita sa main droite et la brume rouge entourant l'Ancêtre Sanguin se dissipa, le libérant du contrôle de Wang Lin.
 
-L'âme de l'Ancêtre de Sang brilla d'un éclat rouge avant de reprendre progressivement une forme humaine. Il fixa sa fille devant lui, les yeux emplis d'excitation.
+L'âme de l'Ancêtre Sanguin brilla d'un éclat rouge avant de reprendre progressivement une forme humaine. Il fixa sa fille devant lui, les yeux emplis d'excitation.
 
 « Les événements passés sont révolus. Yao Xixue a comploté contre moi et a été scellée pendant des centaines d'années. Vous vouliez me tuer, et vous en avez fini ainsi. J'ai également eu ma part de responsabilité dans cette affaire, car Yao Xixue a perdu la mémoire pour devenir la marionnette du démon du vent afin de se venger. Maintenant que je l'ai sauvée, oublions le passé.
 
@@ -22,29 +22,29 @@ L'âme de l'Ancêtre de Sang brilla d'un éclat rouge avant de reprendre progres
 
 La voix calme de Wang Lin laissait transparaître une pointe de froideur. Il fit un revers de manches et s'éloigna vers l'horizon.
 
-« Ancêtre de Sang, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans la Terre des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
+« Ancêtre Sanguin, vous n'avez pas besoin de retourner à la 14e couche. Je vous ai libéré pour que vous puissiez accompagner votre fille. Ceci est la Grotte de l'Empereur Céleste dans la Terre des Esprits Démoniaques. Vous pouvez trouver un endroit où vous cacher tous les deux jusqu'à ce que l'intégralité de la grotte soit ouverte, puis quitter les lieux. »
 
 Le regard de Yao Xixue se posa sur le dos de Wang Lin, habitée par la confusion. Elle ne parvenait pas à réfléchir, mais elle ne voulait pas non plus essayer. Une voix résonnait dans son esprit, lui murmurant que son passé était comme le vent: désormais disparu, elle devait simplement laisser les choses ainsi...
 
 Yao Xixue reconnut qu'il s'agissait de sa propre voix, comme si c'étaient les derniers mots qu'elle s'était laissés avant de perdre la mémoire.
 
-L'Ancêtre de Sang regarda Wang Lin s'éloigner progressivement, affichant une expression complexe. Une fois le sceau levé, il avait recouvré conscience. Bien qu'il ne fût qu'une âme, un être de son niveau de culture pourrait trouver un moyen de reformer un corps et de poursuivre sa pratique.
+L'Ancêtre Sanguin regarda Wang Lin s'éloigner progressivement, affichant une expression complexe. Une fois le sceau levé, il avait recouvré conscience. Bien qu'il ne fût qu'une âme, un être de son niveau de culture pourrait trouver un moyen de reformer un corps et de poursuivre sa pratique.
 
 En voyant la silhouette de Wang Lin s'éloigner, l'animosité qu'il éprouvait autrefois avait disparu.
 
-L'Ancêtre de Sang comprit que si Wang Lin avait voulu les tuer, cela ne lui aurait demandé aucun effort. Au lieu de cela, il ne les avait pas assassinés, leur offrant la liberté et une nouvelle vie pour sa fille.
+L'Ancêtre Sanguin comprit que si Wang Lin avait voulu les tuer, cela ne lui aurait demandé aucun effort. Au lieu de cela, il ne les avait pas assassinés, leur offrant la liberté et une nouvelle vie pour sa fille.
 
 Après avoir poussé un soupir, la haine n'avait plus d'importance. Seule comptait désormais la sécurité de sa fille. Bien qu'elle ait perdu ses souvenirs, c'était peut-être pour le mieux.
 
-Après tout ce qu'il avait traversé, l'Ancêtre de Sang se sentait vieux. Son unique préoccupation était de permettre à sa fille de vivre en paix... Il valait mieux laisser tout le reste derrière lui.
+Après tout ce qu'il avait traversé, l'Ancêtre Sanguin se sentait vieux. Son unique préoccupation était de permettre à sa fille de vivre en paix... Il valait mieux laisser tout le reste derrière lui.
 
-L'Ancêtre de Sang regarda tendrement Yao Xixue et dit doucement: « Enfant, viens avec moi. »
+L'Ancêtre Sanguin regarda tendrement Yao Xixue et dit doucement: « Enfant, viens avec moi. »
 
-Bien qu'elle eût perdu la mémoire, elle ressentit un instinct de confiance envers l'Ancêtre de Sang, dicté par son sang. Le père et la fille s'éloignèrent ainsi peu à peu.
+Bien qu'elle eût perdu la mémoire, elle ressentit un instinct de confiance envers l'Ancêtre Sanguin, dicté par son sang. Le père et la fille s'éloignèrent ainsi peu à peu.
 
 «... Papa, ce qu'il a dit tout à l'heure était-il vrai? »
 
-« La vérité et le mensonge n'ont plus d'importance. Nous n'aurons plus jamais de contact avec lui... Il n'est pas quelqu'un que nous pouvons provoquer... » Tandis qu'il parlait, l'Ancêtre de Sang scruta l'horizon. Il ne parvenait plus à cerner Wang Lin.
+« La vérité et le mensonge n'ont plus d'importance. Nous n'aurons plus jamais de contact avec lui... Il n'est pas quelqu'un que nous pouvons provoquer... » Tandis qu'il parlait, l'Ancêtre Sanguin scruta l'horizon. Il ne parvenait plus à cerner Wang Lin.
 
 « Il n'est plus ce junior à qui je pouvais ne même pas accorder d'attention. En seulement quelques centaines d'années, il a déjà atteint un tel degré de puissance... »
 
@@ -56,7 +56,7 @@ Sous l'effet de cette puissance colossale, le regard de Wang Lin devint plus vif
 
 Après avoir réglé l'affaire avec Yao Xixue et s'être libéré de ce karma, son cœur dao était devenu complet. Wang Lin sentit sa culture stagnante commencer à montrer les signes d'une percée imminente.
 
-Yao Xixue et l'Ancêtre de Sang avaient disparu derrière une restriction pour attendre le jour où la grotte serait totalement ouverte. En inspectant les environs, il constata qu'il ne restait plus personne dans la cavité.
+Yao Xixue et l'Ancêtre Sanguin avaient disparu derrière une restriction pour attendre le jour où la grotte serait totalement ouverte. En inspectant les environs, il constata qu'il ne restait plus personne dans la cavité.
 
 Les ruines causées par l'explosion du Bassin Funéraire Céleste étaient toujours là. Non loin de là se trouvait la fosse profonde qui abritait le bassin. Des éclats d'énergie glaciale s'en échappaient.
 

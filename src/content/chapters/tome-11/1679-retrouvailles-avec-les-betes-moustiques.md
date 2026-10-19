@@ -68,13 +68,13 @@ Wang Lin marcha à travers le système stellaire vêtu d'une robe blanche. À ce
 
 Lui, désormais, était un pur cultivateur. Il serait incapable de terrasser ses ennemis par la force brute de son corps et devrait compter sur ses sorts.
 
-« C'est le dernier mois avant que les quatre grands généraux ne sortent du Royaume Céleste Antique, et j'ai encore quelque chose à accomplir! Je dois réformer les quatre Grands Royaumes Célestes en un nouveau Royaume Céleste. Désormais, les cultivateurs du Royaume Intérieur vivront dans le Royaume Céleste et pourront condenser des Flammes de Joss! »
+« C'est le dernier mois avant que les quatre grands généraux ne sortent du Royaume Céleste Antique, et j'ai encore quelque chose à accomplir! Je dois réformer les quatre Grands Royaumes Célestes en un nouveau Royaume Céleste. Désormais, les cultivateurs du Royaume Intérieur vivront dans le Royaume Céleste et pourront condenser des Flammes Joss! »
 
 « Tous les cultivateurs nés à partir de maintenant pourront cultiver pour devenir des Célestes. Une fois qu'ils auront atteint le stade de la Formation de l'Âme, ils pourront se rendre dans le Royaume Céleste pour leur culture! » L'expression de Wang Lin était solennelle tandis qu'il traversait le Royaume Intérieur.
 
-À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes de Joss. Cependant, alors qu'il était grièvement blessé et au seuil de la mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
+À travers les âges, seul le précédent Seigneur du Royaume Scellé avait accompli une telle prouesse. Il avait créé les quatre Royaumes Célestes pour que les cultivateurs du Royaume Intérieur puissent rassembler des Flammes Joss. Cependant, alors qu'il était grièvement blessé et au seuil de la mort, les quatre royaumes s'étaient effondrés et le Royaume Intérieur ne pouvait plus collecter ces flammes.
 
-Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Formation de Scellement du Royaume et l'aura de l'Ancien Système Stellaire s'était engouffrée partout. La limitation des Flammes de Joss dans le Royaume Intérieur avait disparu; c'était le moment idéal pour réformer le Royaume Céleste!
+Mais aujourd'hui, la situation était différente. Wang Lin avait détruit la Formation de Scellement du Royaume et l'aura de l'Ancien Système Stellaire s'était engouffrée partout. La limitation des Flammes Joss dans le Royaume Intérieur avait disparu; c'était le moment idéal pour réformer le Royaume Céleste!
 
 Avant lui, d'autres avaient tenté l'aventure, mais les conditions n'étaient pas réunies. Ils ne possédaient pas le trésor du Seigneur du Royaume Scellé et, à l'époque, la Formation de Scellement du Royaume n'avait pas été suffisamment affaiblie.
 

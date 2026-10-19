@@ -8,7 +8,7 @@ slug: le-second-combat-contre-le-clan-immortel-dechu-commence
 ---
 Wang Lin sourit à la question de la vieille femme et répondit: « Je m'appelle Ceng Niu. »
 
-L'expression de la vieille femme changea. Elle fixa Wang Lin et dit: « Tuer Li Yuanfeng de Xue Yue et l'ancêtre du Clan du Démon Géant alors que tu n'étais qu'au stade de la Formation de l'Âme... Aujourd'hui, cette vieille femme est effectivement incapable de te tuer. »
+L'expression de la vieille femme changea. Elle fixa Wang Lin et dit: « Tuer Li Yuanfeng de Xue Yu et l'ancêtre du Clan du Démon Géant alors que tu n'étais qu'au stade de la Formation de l'Âme... Aujourd'hui, cette vieille femme est effectivement incapable de te tuer. »
 
 La vieille femme poussa un soupir. Bien qu'elle fût au stade avancé de la Transformation de l'Âme et qu'elle pût facilement tuer Wang Lin, elle n'avait aucune chance de le faire en présence de Du Tian. Après avoir jeté un regard au vieil homme à ses côtés, elle poussa un autre soupir intérieur.
 

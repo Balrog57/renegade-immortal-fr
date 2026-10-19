@@ -64,15 +64,15 @@ Si l'oiseau venait à se poser au bord de la rivière et apercevait le poisson, 
 
 « Après mon départ cette fois, il faudra longtemps avant que je puisse revenir… Ou peut-être que je ne reviendrai jamais… » murmura Li Qianmei à l'oreille de Wang Lin, le plongeant dans un silence encore plus profond.
 
-« Je suis une orpheline. Maître m'a recueillie. Aller sur le champ de bataille de la Secte des Démons est mon destin… Si je ne reviens jamais… j'espère que tu te souviendras… » Li Qianmei serra l'herbe entre ses doigts. Ses mains tremblaient légèrement, s'enroulant de plus en plus fermement autour des tiges.
+« Je suis une orpheline. Maître m'a recueillie. Aller sur le champ de bataille de la Secte Démon est mon destin… Si je ne reviens jamais… j'espère que tu te souviendras… » Li Qianmei serra l'herbe entre ses doigts. Ses mains tremblaient légèrement, s'enroulant de plus en plus fermement autour des tiges.
 
 Elle ne dit pas à Wang Lin que son image était devenue plus claire que jamais dans son cœur. Elle ne lui dit pas qu'elle avait risqué sa vie, alors qu'elle était gravement blessée, pour récupérer le stylo doré. Elle ne lui dit pas quel poids elle portait pour pouvoir venir ici!
 
-Son corps fragile ne pouvait supporter une telle pression. Seuls les morts quittent le champ de bataille de la Secte des Démons… Pourtant, elle avait enduré la pression de la Secte Brise-Ciel, celle de la Secte des Démons et cent ans de combat, pour finalement décider de tout quitter à mi-chemin afin de rencontrer un homme qui lui était si loin.
+Son corps fragile ne pouvait supporter une telle pression. Seuls les morts quittent le champ de bataille de la Secte Démon… Pourtant, elle avait enduré la pression de la Secte Brise-Ciel, celle de la Secte Démon et cent ans de combat, pour finalement décider de tout quitter à mi-chemin afin de rencontrer un homme qui lui était si loin.
 
-Elle ne lui dit pas non plus que son départ provoquait de vives voix de mécontentement au sein de la Secte Brise-Ciel, ni les condamnations qu'elle subissait à la Secte des Démons…
+Elle ne lui dit pas non plus que son départ provoquait de vives voix de mécontentement au sein de la Secte Brise-Ciel, ni les condamnations qu'elle subissait à la Secte Démon…
 
-Elle ne lui dit pas non plus que partir signifiait renoncer à l'opportunité d'intégrer véritablement la Secte des Démons pour y recevoir ses enseignements.
+Elle ne lui dit pas non plus que partir signifiait renoncer à l'opportunité d'intégrer véritablement la Secte Démon pour y recevoir ses enseignements.
 
 Elle ne disait rien, et Wang Lin n'en savait rien…
 

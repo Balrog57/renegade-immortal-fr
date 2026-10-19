@@ -100,7 +100,7 @@ Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restr
 
 Si deux tels cultivateurs étaient ainsi impuissants, qu'en était-il du Maître du Vide? Il cracha aussitôt du sang, le regard éteint. Se retirant en hâte, il forma un sceau pour invoquer d'innombrables grains de sable jaune autour de lui. Mais avant même que le sable ne puisse former un bouclier, il s'effondra. Tout le sable fut projeté dans le corps du Maître du Vide, le repoussant violemment et faisant jaillir le sang de ses pores.
 
-Seul Bei Lou parvint à peine à résister; en tant que membre de l'Ordre Ancestral, il se contenta de battre en retraite.
+Seul Bei Luo parvint à peine à résister; en tant que membre de l'Ordre Ancestral, il se contenta de battre en retraite.
 
 Quant à Wang Lin, des craquements résonnaient dans son corps sous la pression du rugissement de Ta Jia. Il cracha du sang, mais son expression devint plus féroce encore.
 

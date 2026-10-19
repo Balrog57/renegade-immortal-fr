@@ -18,7 +18,7 @@ Cependant, ils n'étaient pas aussi puissants qu'avant leur mort et s'étaient c
 
 Toutefois, grâce au sang d'âme dans le corps de Wang Lin, bien que leur force ait été amoindrie, ils n'auraient besoin que de quelques décennies pour se rétablir complètement.
 
-Seul un être possédant le sang d'âme pouvait utiliser un tel sortilège, si proche de la puissance de l'Ancêtre Ancestral. Après les cris, le silence retomba et tous regardèrent Wang Lin avec des expressions complexes.
+Seul un être possédant le sang d'âme pouvait utiliser un tel sortilège, si proche de la puissance de l'Ancêtre Ancien. Après les cris, le silence retomba et tous regardèrent Wang Lin avec des expressions complexes.
 
 Parmi eux se trouvaient les neuf personnes sous les ordres de Xuan Luo. Elles poussèrent des soupirs, sentant qu'elles venaient d'échapper à une immense calamité.
 
@@ -110,7 +110,7 @@ En voyant cela, le vieil homme s'exclama: « Le Verrou Ancestral d'Âme Violet!!
 
 L'Empereur Dao Antique esquissa un léger sourire et lança un regard froid à Xuan Luo. Puis il tourna ses yeux vers Wang Lin, son rire devenant plus débridé encore.
 
-« Elle est mon impératrice, nul ne peut l'emporter. J'ai déjà placé ce verrou sur son corps. C'est une relique de l'Ancêtre Ancestral. Si je meurs, elle meurt, et d'une simple pensée, elle ne peut s'éloigner de plus de cent pieds de moi. Sans briser ce verrou, qui pourra te la prendre? »
+« Elle est mon impératrice, nul ne peut l'emporter. J'ai déjà placé ce verrou sur son corps. C'est une relique de l'Ancêtre Ancien. Si je meurs, elle meurt, et d'une simple pensée, elle ne peut s'éloigner de plus de cent pieds de moi. Sans briser ce verrou, qui pourra te la prendre? »
 
 « Je contrôle sa vie et sa mort. Wang Lin, oses-tu me tuer? Si je meurs, elle mourra aussi! »
 

@@ -46,7 +46,7 @@ Lou Yun avait appris de son ancêtre que pour trouver rapidement ses racines ici
 
 C'est le seul moyen d'obtenir des exploits militaires, mais plus important encore, une fois ces exploits acquis, on n'est plus seul. On aura des soldats et des commandants démoniaques à son commandement. C'est la meilleure façon de prendre l'avantage dès le départ!
 
-Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt à la Grande Muraille Antique et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
+Le pays le plus proche est le Pays du Démon Céleste. Lou Yun s'était rendu plus tôt à la Cité de l'Ancien Démon et avait obtenu un jeton d'entrée du général démoniaque de l'aile gauche, mais il devait acquérir trois rangs d'énergie spirituelle démoniaque pour y pénétrer!
 
 Cet endroit utilise des rangs pour mesurer l'énergie spirituelle démoniaque. Trois rangs d'énergie spirituelle démoniaque équivalent à la quantité dont un cultivateur de l'Établissement des Fondations a besoin! »
 

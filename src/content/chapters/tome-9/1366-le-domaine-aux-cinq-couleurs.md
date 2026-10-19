@@ -24,9 +24,9 @@ Na Duo était l'un de ceux qui avaient traqué Situ Nan et qui s'était retrouv�
 
 Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avoir découvert un immense secret!
 
-« La lumière dorée entourant cette personne devrait être le Fouet d'Âmes. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Royaume Ji aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Royaume Intérieur? »
+« La lumière dorée entourant cette personne devrait être le Fouet de l'Âmes. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Royaume Ji aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Royaume Intérieur? »
 
-« Pour une raison inconnue, son Royaume Ji aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Fouet d'Âmes a été laissé derrière sur la planète Suzaku... »
+« Pour une raison inconnue, son Royaume Ji aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Fouet de l'Âmes a été laissé derrière sur la planète Suzaku... »
 
 « Na Duo doit en savoir beaucoup à ce sujet... La Planète des Cinq Éléments... Na Duo! » Tandis que Wang Lin méditait silencieusement, ses yeux s'illuminèrent. Après un long moment, il prit une profonde inspiration et écarta ces pensées. Ce n'était pas le moment de s'y attarder.
 

@@ -90,7 +90,7 @@ Les cultivateurs au stade de la Transformation de l'Âme sont de véritables pui
 
 L'ancêtre du Clan des Démons Géants n'était qu'au début du stade de la Transformation de l'Âme, mais cela lui suffisait pour contrôler un clan entier et en devenir le chef.
 
-Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la force, mais il était devenu le chef de Xue Yue.
+Li Yuanfeng avait été poussé au stade de la Transformation de l'Âme par la force, mais il était devenu le chef de Xue Yu.
 
 On pouvait ainsi mesurer la valeur d'un tel cultivateur.
 

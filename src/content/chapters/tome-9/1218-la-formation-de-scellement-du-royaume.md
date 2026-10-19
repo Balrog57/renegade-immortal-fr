@@ -32,7 +32,7 @@ Cet être était semblable à un dieu! Huit étoiles ornaient entre ses sourcils
 
 Il était l'existence la plus puissante, le souverain de ce champ stellaire. Après un long moment, la mélancolie fut remplacée par la confusion.
 
-« Le Royaume Céleste de la Pluie ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas son aura... Le Royaume Céleste de la Foudre ne possède pas cette aura. Où diable se cache-t-il?! » Le géant leva la tête, révélant son expression hideuse, et lâcha un rugissement qui fit trembler les cieux!
+« Le Royaume Céleste de la Pluie ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas son aura... Le Royaume Céleste du Tonnerre ne possède pas cette aura. Où diable se cache-t-il?! » Le géant leva la tête, révélant son expression hideuse, et lâcha un rugissement qui fit trembler les cieux!
 
 Alors qu'il rugissait, de puissantes vibrations se propagèrent à travers les étoiles. La planète abandonnée sous lui commença à s'effondrer, créant une onde de choc qui se propagea rapidement. Un changement vertigineux survint dans l'énergie originelle environnante.
 

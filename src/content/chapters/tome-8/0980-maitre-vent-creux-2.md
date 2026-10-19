@@ -108,7 +108,7 @@ Puis, les trois virent les individus sur le dos de Lei Ji. En voyant Wang Lin, i
 
 Cependant, aujourd'hui, ils étaient destinés à la confusion, car ils aperçurent Chen Feng!
 
-Le nom de Chen Feng était célèbre sur la planète Tian Yun. Bien qu'il ne pût se comparer à l'Ancêtre de Sang à l'époque, il était toujours considéré comme un vieux monstre renommé. Cet homme était connu pour sa vie dissolue et avait même porté des vues sur Ling Er. Bien qu'il ait renoncé plus tard, cela avait longtemps inquiété les frères Chen.
+Le nom de Chen Feng était célèbre sur la planète Tian Yun. Bien qu'il ne pût se comparer à l'Ancêtre Sanguin à l'époque, il était toujours considéré comme un vieux monstre renommé. Cet homme était connu pour sa vie dissolue et avait même porté des vues sur Ling Er. Bien qu'il ait renoncé plus tard, cela avait longtemps inquiété les frères Chen.
 
 Bien que Chen Feng soit devenu beaucoup plus svelte, les trois le reconnurent immédiatement. Outre la surprise, ils ne savaient pas si la situation actuelle était une bonne ou une mauvaise nouvelle.
 

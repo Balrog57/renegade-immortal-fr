@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 818 - Heaven Avoiding Coffin (2)
 slug: le-cercueil-evitant-les-cieux-2
 ---
-Le regard de Wang Lin se glaça. Alors qu'il lançait la « Coupe Céleste », il leva son épée céleste et déclencha dix autres Coupes Célestes qui poursuivirent de près les dix premières.
+Le regard de Wang Lin se glaça. Alors qu'il lançait la « Coup Céleste », il leva son épée céleste et déclencha dix autres Coupes Célestes qui poursuivirent de près les dix premières.
 
-Dans un fracas retentissant, le voile céleste trembla et se fendit. Immédiatement après, une deuxième Coupe Céleste frappa et le voile vola en éclats. Wang Lin bondit à travers le voile; au moment de le franchir, il projeta l'épée céleste en avant et hurla: « Arrête! »
+Dans un fracas retentissant, le voile céleste trembla et se fendit. Immédiatement après, un deuxième Coup Céleste frappa et le voile vola en éclats. Wang Lin bondit à travers le voile; au moment de le franchir, il projeta l'épée céleste en avant et hurla: « Arrête! »
 
 L'épée céleste était d'une rapidité fulgurante, fendant l'air comme un éclair. L'homme à la robe noire fronça les sourcils; il venait de s'interposer au-dessus du Sceau Céleste. Il leva sa main droite, prêt à saisir l'épée.
 

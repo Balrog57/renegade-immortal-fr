@@ -84,7 +84,7 @@ L'Oiseau Vermillon regarda Wang Lin et demanda: « Que voulez-vous obtenir en re
 
 « Je veux que vous me promettiez que, une fois le Souverain Céleste aux Sept Couleurs trouvé, vous me permettrez d'emmener toutes les créatures vivantes hors de ce monde pour leur donner la liberté, afin qu'elles n'aient plus à vivre dans cette grotte et puissent contempler le véritable ciel!
 
-« Ma dernière requête est qu'une fois tout cela terminé, je puisse me rendre sur le Continent Astral Immortel! Et là-bas, vous me fournirez toutes les ressources dont j'ai besoin! » Wang Lin tapota son front de sa main droite. Un filet de son Sens Divin s'en échappa et se condensa dans sa paume en un fil de fumée semblable à du duvet de saule.
+« Ma dernière requête est qu'une fois tout cela terminé, je puisse me rendre sur le Continent Astral Immortel! Et là-bas, vous me fournirez toutes les ressources dont j'ai besoin! » Wang Lin tapota son front de sa main droite. Un filet de son Sens Divin s'en échappa et se condensa dans sa paume en un fil de fumée semblable à des flocons de saule.
 
 « Si vous acceptez, utilisez vos Sens Divins pour sceller un vœu Dao. Si vous rompez ce vœu, votre Dao s'éteindra et votre être se dissipera! Si vous refusez, je sortirai l'Arc de Li Guang et je détruirai cet Ancien Royaume Céleste! » Les paroles de Wang Lin étaient inflexibles. Il ne laissait aucune place à l'hésitation.
 

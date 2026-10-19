@@ -68,11 +68,11 @@ Au moment même où le sens divin de Luo Su jaillissait, non seulement le géant
 
 Les trois géants étaient si rapides qu'ils créèrent une tempête en se précipitant sur lui. Les yeux de Wang Lin devinrent féroces et glacials; il recula promptement. Ses mains formèrent des sceaux et des restrictions apparurent pour bloquer l'un des colosses. Simultanément, il leva sa main droite et frappa impitoyablement un autre géant!
 
-Des dizaines de « Tranchants Célestes » apparurent instantanément. Ils traversèrent les restrictions pour atteindre le deuxième géant. Quant au troisième, Wang Lin fit un pas en avant et leva la main droite. La Paire Dao du Flétrissement brilla soudainement, et une aura maléfique envahit les cieux et la terre.
+Des dizaines de « Coups Célestes » apparurent instantanément. Ils traversèrent les restrictions pour atteindre le deuxième géant. Quant au troisième, Wang Lin fit un pas en avant et leva la main droite. La Paire Dao du Flétrissement brilla soudainement, et une aura maléfique envahit les cieux et la terre.
 
 Le troisième géant doré s'obscurcit immédiatement tandis qu'une lueur grise scintillait. Sans hésiter, Wang Lin forma une épée avec deux doigts et pointa le corps du géant.
 
-Le colosse s'effondra dans un fracas retentissant. Au même moment, par la combinaison des restrictions et des Tranchants Célestes, les deux autres géants dorés s'écroulèrent également.
+Le colosse s'effondra dans un fracas retentissant. Au même moment, par la combinaison des restrictions et des Coups Célestes, les deux autres géants dorés s'écroulèrent également.
 
 Cependant, juste au moment où les trois géants s'effondraient, Luo Su passa à l'action! C'était la première fois qu'il agissait physiquement au lieu d'utiliser son sens divin. Il se déplaça comme un éclair. Sa vitesse était phénoménale et, alors qu'il convergeait vers Wang Lin, il pointa son doigt vers lui!
 

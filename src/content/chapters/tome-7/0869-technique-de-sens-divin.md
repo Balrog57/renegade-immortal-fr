@@ -128,7 +128,7 @@ Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il sub
 
 Le Fouet du Karma s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
 
-Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau et des *Tranchants Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
+Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau et des *Coups Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
 
 Luo Su et Wang Lin accélérèrent de plus en plus. L'un attaquait avec son sens divin tout en se défendant avec son énergie originelle; l'autre attaquait avec son énergie originelle tout en se protégeant par son sens divin. Les deux engagèrent une bataille titanesque!
 

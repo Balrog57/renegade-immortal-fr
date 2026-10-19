@@ -124,4 +124,4 @@ La plupart des trésors sont raffinés par les cultivateurs, mais certains se fo
 
 La pierre à feu était l'un de ces matériaux naturels. À l'origine de l'élément métal, sa robustesse lui conférait une capacité mystérieuse qui générait des étincelles lors d'une friction.
 
-Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang qu'avait jadis utilisé l'intendant en chef du Pays des Démons Célestes, dans la Terre des Esprits Démoniaques. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.
+Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang qu'avait jadis utilisé l'intendant en chef du Pays du Démon Céleste, dans la Terre des Esprits Démoniaques. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.

@@ -16,9 +16,9 @@ Il était le seul cultivateur au stade avancé de l'Ascendant sur la planète Su
 
 Le véritable souverain de la planète Suzaku!
 
-Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte de l'Affinement de l'Âme. Si le pays de Suzaku est en danger, vous devez nous prêter le Drapeau d'Âmes au Milliard d'Âmes. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
+Zhu Quezi dit calmement: « Autrefois, mon pays de Suzaku avait conclu un accord avec votre Secte de l'Affinement de l'Âme. Si le pays de Suzaku est en danger, vous devez nous prêter le Étendard de l'Âme. Aujourd'hui, ce vieil homme est venu emprunter ce drapeau. Du Tian, apporte-le ici! »
 
-« Foutaises! » Du Tian serra fermement le Drapeau d'Âmes au Milliard d'Âmes et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
+« Foutaises! » Du Tian serra fermement le Étendard de l'Âme et, fixant Zhu Quezi du regard, il hurla: « Comment se fait-il que je n'aie jamais entendu parler de cet accord? Vieux voleur Zhuque, si tu veux le voler, viens donc le prendre; inutile de jouer la comédie avec cette mascarade répugnante. »
 
 Zhu Quezi regarda Du Tian, secoua légèrement la tête et soupira. « Cette affaire fut décidée entre la première génération de Suzaku et votre ancêtre fondateur, il est donc naturel que tu l'ignores, mais je l'ai découverte dans de vieux registres. Aujourd'hui, je ne suis pas venu pour voler, mais pour emprunter! » Sur ces mots, il tendit la main. Le ciel changea de teinte et une lumière rouge convergea de toutes les directions. Cette lueur forma une main gigantesque qui s'abattit sur Du Tian.
 
@@ -30,7 +30,7 @@ La voix combinée des mille millions de fragments d'âmes était plus puissante 
 
 Les 35 âmes primaires arboraient des expressions féroces tandis qu'elles déchiraient la main rouge en mille morceaux. Puis, elles encerclèrent Zhu Quezi en le fixant avec acharnement.
 
-Zhu Quezi observa les mille millions de fragments d'âmes qui l'entouraient. Ses pupilles se contractèrent légèrement lorsqu'il dit calmement: « Du Tian, puisque tu t'obstines ainsi, ce vieil homme devra te punir en lieu et place de tes ancêtres. J'ai dit que je voulais seulement emprunter le Drapeau d'Âmes au Milliard d'Âmes; je vais donc l'emprunter, puis je te le rendrai. »
+Zhu Quezi observa les mille millions de fragments d'âmes qui l'entouraient. Ses pupilles se contractèrent légèrement lorsqu'il dit calmement: « Du Tian, puisque tu t'obstines ainsi, ce vieil homme devra te punir en lieu et place de tes ancêtres. J'ai dit que je voulais seulement emprunter le Étendard de l'Âme; je vais donc l'emprunter, puis je te le rendrai. »
 
 Du Tian eut un rire moqueur. « Emprunter? Combien de temps comptes-tu le garder? »
 

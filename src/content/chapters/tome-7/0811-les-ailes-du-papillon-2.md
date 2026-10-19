@@ -82,9 +82,9 @@ Alors que l'homme d'âge mûr reculait, il cria: « Misérables esclaves, attaqu
 
 Lorsque sa voix atteignit les oreilles des membres du Clan des Immortels Élus qui luttaient, l'ordre devint un instinct auquel ils ne purent résister. Leurs yeux étaient remplis de tristesse et de lutte, mais leurs corps se précipitèrent tous vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il recula. Le papillon formé par le Char de Guerre Anti-Dieu suivait toujours Wang Lin. Puisque ce dernier reculait, la créature le suivait comme une ombre.
+Les yeux de Wang Lin s'illuminèrent et il recula. Le papillon formé par le Char de Guerre Divin suivait toujours Wang Lin. Puisque ce dernier reculait, la créature le suivait comme une ombre.
 
-Wang Lin eut une pensée. Il ne connaissait pas encore toute la puissance du troisième Char de Guerre Anti-Dieu. Ses yeux brillèrent alors que sa main droite formait un sceau qu'il pressa sur le corps du papillon.
+Wang Lin eut une pensée. Il ne connaissait pas encore toute la puissance du troisième Char de Guerre Divin. Ses yeux brillèrent alors que sa main droite formait un sceau qu'il pressa sur le corps du papillon.
 
 Une intention meurtrière apparut dans les yeux de Wang Lin tandis qu'il pointait l'homme aux robes bleues.
 
@@ -94,7 +94,7 @@ L'homme aux robes bleues s'arrêta net, le regard empreint de prudence. Il avait
 
 Les membres du Clan des Immortels Élus furent projetés dans les airs sans aucun contrôle et volèrent vers Wang Lin. La lutte dans leurs yeux s'intensifia, mais ils ne pouvaient rien contre la puissance de l'empreinte d'esclave.
 
-Les yeux de Wang Lin brillèrent alors qu'il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char de Guerre Anti-Dieu. Le papillon quitta le côté de Wang Lin et s'élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau!
+Les yeux de Wang Lin brillèrent alors qu'il fixait le papillon. Il voulait découvrir le véritable pouvoir de ce troisième Char de Guerre Divin. Le papillon quitta le côté de Wang Lin et s'élança en avant. Ses ailes marquèrent un instant de pause, puis battirent doucement à nouveau!
 
 Ce battement ne provoqua aucune perturbation physique, mais le visage de l'homme vigilant aux robes bleues, au loin, pâlit soudainement. Aucun vent ne soufflait autour de lui, et pourtant ses cheveux volèrent en arrière comme sous une légère brise.
 
@@ -116,7 +116,7 @@ En utilisant cette explosion, il parvint à reprendre temporairement le contrôl
 
 À cet instant, il chargea vers l'autel pour tenter de s'échapper.
 
-Les yeux de Wang Lin se rétrécirent et il prit une inspiration glacée. Il entretenait un lien mystérieux avec le Char de Guerre Anti-Dieu, et il sentait que ce char n'avait pas encore déployé son attaque la plus puissante.
+Les yeux de Wang Lin se rétrécirent et il prit une inspiration glacée. Il entretenait un lien mystérieux avec le Char de Guerre Divin, et il sentait que ce char n'avait pas encore déployé son attaque la plus puissante.
 
 Juste à ce moment-là, le papillon multicolore à côté de Wang Lin battit doucement de son aile gauche!
 

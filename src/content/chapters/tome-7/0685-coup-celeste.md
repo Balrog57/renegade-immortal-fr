@@ -32,15 +32,15 @@ Le premier à réagir fut l'ancêtre de la famille Huan. Ses yeux s'écarquillè
 
 C'était comme si les cieux et la terre étaient en train d'être lacérés. Ce bruit de déchirure résonna dans son esprit! Le firmament et le sol semblaient véritablement se briser!
 
-Non seulement lui, mais Huan Fengshen prit aussi une inspiration glacée.
+Non seulement lui, mais Huan Feng Shen prit aussi une inspiration glacée.
 
-Une intention meurtrière monstrueuse émana de l'épée au moment de sa chute. Cette intention se propagea avec frénésie, déchirant le regard de Huan Fengshen pour s'imprimer en lui.
+Une intention meurtrière monstrueuse émana de l'épée au moment de sa chute. Cette intention se propagea avec frénésie, déchirant le regard de Huan Feng Shen pour s'imprimer en lui.
 
-Le corps de Huan Fengshen se raidit soudainement.
+Le corps de Huan Feng Shen se raidit soudainement.
 
-« Ceci... Ceci est... » L'esprit de Huan Fengshen trembla. C'était comme si une épée venait de lui transpercer les sourcils pour ressortir par le sommet de son crâne. Inconsciemment, il recula de plusieurs pas. Avec sa culture au stade avancé de l'Ascendant, il n'était pas capable de percevoir la Loi de l'épée. Cependant, il sentit clairement qu'au moment où l'épée tomba, elle semblait contenir une loi céleste, mais plus encore, elle possédait le pouvoir de déchirer les cieux.
+« Ceci... Ceci est... » L'esprit de Huan Feng Shen trembla. C'était comme si une épée venait de lui transpercer les sourcils pour ressortir par le sommet de son crâne. Inconsciemment, il recula de plusieurs pas. Avec sa culture au stade avancé de l'Ascendant, il n'était pas capable de percevoir la Loi de l'épée. Cependant, il sentit clairement qu'au moment où l'épée tomba, elle semblait contenir une loi céleste, mais plus encore, elle possédait le pouvoir de déchirer les cieux.
 
-Bang, bang, bang! Huan Fengshen sentit son propre cœur s'emballer. Il eut l'illusion qu'il allait s'effondrer avec le monde.
+Bang, bang, bang! Huan Feng Shen sentit son propre cœur s'emballer. Il eut l'illusion qu'il allait s'effondrer avec le monde.
 
 Tous les descendants directs de la famille Huan qui scrutaient le ciel étaient frappés de stupeur. Cette simple chute leur donnait l'impression d'en faire partie, comme si l'épée qui déchirait le monde les avait eux aussi scindés en deux. Ils furent immédiatement couverts de sueur froide.
 
@@ -88,15 +88,15 @@ La puissance émanant du jade était semblable à une douce brise printanière, 
 
 Dans la demeure des Xu, le vieil homme sourit et murmura: « Le trésor céleste de la famille Huan a été emporté par l'autre ancêtre de leur lignée. L'ancêtre céleste en a laissé un autre, tout à fait convenable. Cependant, il n'aurait jamais cru que ce trésor finirait par tuer un cultivateur de la seconde étape de la famille Huan. »
 
-Au sein du domaine ancestral des Huan, au moment où le jade apparut, Huan Fengshen fixa Wang Lin. Il ne décela aucune trace de panique sur le visage de ce dernier.
+Au sein du domaine ancestral des Huan, au moment où le jade apparut, Huan Feng Shen fixa Wang Lin. Il ne décela aucune trace de panique sur le visage de ce dernier.
 
-Voyant que Huan Wuqing s'apprêtait à activer le sort sur le jade, Huan Fengshen eut un regard résolu. Il fit un pas en avant et déclara d'un ton grave: « Ancêtre, je ne permettrai pas que la famille Huan soit mêlée à cette affaire. Je retire la lignée des Huan de ce conflit. Si l'Ancêtre souhaite protéger cette Huan Mei, c'est votre problème personnel. Ne traînez pas toute la famille avec vous! »
+Voyant que Huan Wuqing s'apprêtait à activer le sort sur le jade, Huan Feng Shen eut un regard résolu. Il fit un pas en avant et déclara d'un ton grave: « Ancêtre, je ne permettrai pas que la famille Huan soit mêlée à cette affaire. Je retire la lignée des Huan de ce conflit. Si l'Ancêtre souhaite protéger cette Huan Mei, c'est votre problème personnel. Ne traînez pas toute la famille avec vous! »
 
-Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Camarade cultivateur, je suis le chef de la famille Huan, Huan Fengshen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous saurez distinguer le juste du tort! »
+Tout en parlant, il leva les yeux vers Wang Lin et joignit ses mains: « Camarade cultivateur, je suis le chef de la famille Huan, Huan Feng Shen. Comme je l'ai dit à l'instant, la famille Huan ne participera pas. C'est une querelle personnelle entre vous et Huan Wuqing. J'espère que vous saurez distinguer le juste du tort! »
 
-L'ancêtre des Huan lança un regard glacial à Huan Fengshen. Un rictus sinistre étira ses lèvres alors qu'il se tourna vers les descendants directs: « Et vous autres? »
+L'ancêtre des Huan lança un regard glacial à Huan Feng Shen. Un rictus sinistre étira ses lèvres alors qu'il se tourna vers les descendants directs: « Et vous autres? »
 
-Les descendants de la famille Huan restèrent silencieux un instant avant de se ranger aux côtés de Huan Fengshen.
+Les descendants de la famille Huan restèrent silencieux un instant avant de se ranger aux côtés de Huan Feng Shen.
 
 L'ancêtre des Huan laissa échapper un sourire lugubre en contemplant la foule, puis dit lentement: « Bande d'ordures! » Sur ce, il leva les yeux vers Wang Lin. Sa main droite traça un sceau et il hurla: « Jade de la Bonne Fortune, tue cet homme! »
 

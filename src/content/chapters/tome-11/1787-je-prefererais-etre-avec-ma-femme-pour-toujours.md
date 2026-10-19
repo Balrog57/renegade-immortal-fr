@@ -74,7 +74,7 @@ Wang Lin resta pétrifié un long moment.
 
 « Pourtant... quelqu'un m'a dit autrefois que s'il y avait quelqu'un sur le Continent Astral Immortel pour m'accueillir, cela réduirait la puissance de la loi... »
 
-« Celui qui t'a dit cela t'a menti! C'est impossible, à moins que les neuf soleils n'agissent simultanément pour résister à la loi suprême du Continent Astral Immortel! Cette loi a été forgée par le lignage de l'Ancêtre Céleste et de l'Ancêtre Antique; elle est immuable! »
+« Celui qui t'a dit cela t'a menti! C'est impossible, à moins que les neuf soleils n'agissent simultanément pour résister à la loi suprême du Continent Astral Immortel! Cette loi a été forgée par le lignage de l'Ancêtre Céleste et de l'Ancêtre Ancien; elle est immuable! »
 
 Le visage de Wang Lin devint livide, comme si tout son sang s'était retiré. Il recula en titubant, et la dernière trace de vie sembla s'échapper du coin de sa bouche sous forme d'un filet de sang. La lueur dans ses yeux s'éteignit instantanément, tandis qu'une douleur lancinante née du désespoir lui transperçait le cœur.
 

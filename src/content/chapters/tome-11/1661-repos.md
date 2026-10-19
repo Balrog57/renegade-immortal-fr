@@ -70,7 +70,7 @@ Ceux qui subsistaient représentaient toute la puissance restante du Royaume Int
 
 Le nombre de morts subis durant ce siècle de guerre était sans précédent pour le Royaume Intérieur. Ce dernier ne comptait déjà plus beaucoup de cultivateurs du troisième niveau, et beaucoup venaient de disparaître. Ceux qui restaient étaient tous blessés.
 
-Les Flammes de Joss manquaient cruellement, rendant leur récupération très difficile; ils pourraient ne jamais retrouver leur apogée.
+Les Flammes Joss manquaient cruellement, rendant leur récupération très difficile; ils pourraient ne jamais retrouver leur apogée.
 
 Après cette guerre, seules 19 planètes subsistaient dans la formation planétaire. Les 50 000 cultivateurs restèrent sur ces mondes pour se soigner.
 

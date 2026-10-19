@@ -10,11 +10,11 @@ slug: le-vent-balaye-lancien-dao
 
 Il a déchiré la trame de la réalité et utilisé la pression de son doigt pour faire comprimer et s'effondrer l'univers environnant. Les bêtes n'étaient que des dommages collatéraux. »
 
-Cependant, le geste de Wang Lin était très lent, comme si des couches de barrières invisibles se dressaient devant lui, l'empêchant de pointer le doigt vers l'avant avec la même aisance que l'Ancien Ancêtre.
+Cependant, le geste de Wang Lin était très lent, comme si des couches de barrières invisibles se dressaient devant lui, l'empêchant de pointer le doigt vers l'avant avec la même aisance que l'Ancêtre Ancien.
 
 Un instant plus tard, Wang Lin retira son doigt et ne tenta plus l'expérience. Il baissa la tête et resta pensif.
 
-« À travers ce sortilège, je vois que la puissance de l'Ancien Ancêtre a atteint un royaume inimaginable... Mais avec ce fragment de mémoire et l'Art Rapide du Sort, je peux le copier. »
+« À travers ce sortilège, je vois que la puissance de l'Ancêtre Ancien a atteint un royaume inimaginable... Mais avec ce fragment de mémoire et l'Art Rapide du Sort, je peux le copier. »
 
 Wang Lin leva la tête et fixa les fragments de jade tout en fermant les yeux.
 
@@ -64,7 +64,7 @@ Un second ajouta aussitôt: « J'ai réparti les membres de notre clan et les pu
 
 Les sept s'exprimèrent tour à tour avant de baisser la tête, attendant les ordres de cette existence suprême.
 
-« Selon les rites, la cérémonie durera 99 jours. Hormis l'offrande à l'Ancien Ancêtre le premier jour, je n'y participerai pas. Si quoi que ce soit arrive, vous en porterez l'entière responsabilité! » L'homme en robe royale donna ses instructions et les sept s'inclinèrent immédiatement.
+« Selon les rites, la cérémonie durera 99 jours. Hormis l'offrande à l'Ancêtre Ancien le premier jour, je n'y participerai pas. Si quoi que ce soit arrive, vous en porterez l'entière responsabilité! » L'homme en robe royale donna ses instructions et les sept s'inclinèrent immédiatement.
 
 « La cérémonie débutera dans trois jours. Chaque génération d'empereur de l'Ancien Dao a organisé un banquet la veille pour permettre au peuple et aux messagers des deux autres nations d'apercevoir l'impératrice... Comment avez-vous orchestré cela? »
 

@@ -72,9 +72,9 @@ Wang Lin volait presque en ligne droite à travers le Pays des Démons de Feu, e
 
 Une traînée de mort immense restait derrière lui. C'était une humiliation et une provocation sans précédent pour un pays. Des dizaines de généraux démons furent dépêchés pour encercler et réprimer ce cultivateur diabolique!
 
-Le point de jonction de l'encerclement se situait près de la frontière entre le Pays des Démons de Feu et le Pays des Démons Célestes, en un lieu nommé la Montagne des Millions de Démons!
+Le point de jonction de l'encerclement se situait près de la frontière entre le Pays des Démons de Feu et le Pays du Démon Céleste, en un lieu nommé la Montagne des Millions de Démons!
 
-Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays des Démons de Feu, et la Cité du Feu Fondant du Pays des Démons Célestes.
+Un brouillard épais et éternel recouvrait la Montagne des Millions de Démons. Deux cités se trouvaient à proximité de ces montagnes, l'une de chaque côté: la Cité du Ciel Paisible du Pays des Démons de Feu, et la Cité du Feu Fondant du Pays du Démon Céleste.
 
 À cet instant, 100 000 soldats démons étaient en position dans la Cité du Ciel Paisible, tandis que plus de dix généraux démons scrutaient l'horizon.
 
@@ -86,7 +86,7 @@ Un autre général démon rit: « C'est vrai. Avec le Vice-Commandant en Chef ic
 
 L'homme d'âge moyen répondit calmement: « Que vous tous terminiez cette bataille rapidement. Une fois ce cultivateur éliminé, je partirai. » Malgré sa sévérité, une pointe de fierté brillait dans ses yeux. En tant que vice-commandant en chef, son statut était très élevé, et il n'aurait normalement pas quitté la capitale pour un simple cultivateur.
 
-Il devait initialement se rendre au Pays des Démons Célestes pour une affaire personnelle, mais à son arrivée, il avait reçu l'ordre de l'Empereur Démon de rester quelques jours pour mener les généraux démons dans une lutte contre un cultivateur.
+Il devait initialement se rendre au Pays du Démon Céleste pour une affaire personnelle, mais à son arrivée, il avait reçu l'ordre de l'Empereur Démon de rester quelques jours pour mener les généraux démons dans une lutte contre un cultivateur.
 
 Il subissait cet arrangement avec résignation. À ses yeux, il était inutile d'envoyer autant de troupes pour abattre un seul homme. C'était trop fastidieux.
 

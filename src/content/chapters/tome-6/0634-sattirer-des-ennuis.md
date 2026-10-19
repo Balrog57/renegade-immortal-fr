@@ -80,15 +80,15 @@ Il se tourna alors vers Wang Lin, le visage empreint d'hésitation: « Jeune Fr�
 
 Wang Lin garda un visage neutre et acquiesça.
 
-Du Jian soupira: « Lorsque Sun Yun était dans la force de l'âge, je n'étais qu'un disciple ordinaire et Maître ne m'avait pas encore admis dans la Division Rouge. Cependant, je me souviens parfaitement de cette épée. Elle doit être l'épée de la Division Violette que Maître remit à Sun Yun lorsqu'il devint un véritable disciple de ladite division! »
+Du Jian soupira: « Lorsque Sun Yun était dans la force de l'âge, je n'étais qu'un disciple ordinaire et Maître ne m'avait pas encore admis dans la Division Rouge. Cependant, je me souviens parfaitement de cette épée. Elle doit être l'épée de la Division Pourpre que Maître remit à Sun Yun lorsqu'il devint un véritable disciple de ladite division! »
 
 Le regard de Wang Lin se fixa sur l'épée volante dans la crevasse, sans dire un mot.
 
-Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Sœurs Cadettes Zhao et Xu, cette épée appartient à ma Secte du Destin Céleste, et c'est même une arme de la Division Violette. Pourriez-vous me faire l'honneur de la remettre à mon Jeune Frère Wang? Il est un disciple de la Division Violette de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Violette en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
+Un éclair de froideur passa dans les yeux de Du Jian alors qu'il joignait les mains en signe de respect vers Murong Zhuo et les deux femmes. « Frère Murong, Sœurs Cadettes Zhao et Xu, cette épée appartient à ma Secte du Destin Céleste, et c'est même une arme de la Division Pourpre. Pourriez-vous me faire l'honneur de la remettre à mon Jeune Frère Wang? Il est un disciple de la Division Pourpre de notre secte; lui donner cette épée revient donc à la restituer à son véritable propriétaire. De plus, une fois qu'il l'aura obtenue, son rang au sein de la Division Pourpre en sera grandement transformé. » La voix de Du Jian était empreinte d'une sincérité manifeste.
 
 Bien que le regard de Murong Zhuo fût glacial, une étrange lueur y brillait. Sa réponse fut brève: « Aucun problème! »
 
-Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte: « Jeune Frère Wang, bien que mon niveau de culture soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Violette; votre Frère Aîné ne vous la volera pas et ne permettra à personne d'autre de le faire! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
+Les deux femmes n'eurent naturellement aucune objection. Du Jian se tourna vers Wang Lin, les yeux empreints d'une bienveillance feinte: « Jeune Frère Wang, bien que mon niveau de culture soit inférieur au vôtre, je suis entré dans la secte avant vous. J'espère que vous ne m'en voudrez pas de vous appeler ainsi. Cette épée appartient à votre Division Pourpre; votre Frère Aîné ne vous la volera pas et ne permettra à personne d'autre de le faire! J'espère seulement qu'elle brillera aussi intensément qu'au temps de Sun Yun. »
 
 Wang Lin regarda calmement Du Jian. L'expression de ce dernier ne trahissait rien d'anormal, affichant un sourire empreint de douceur.
 

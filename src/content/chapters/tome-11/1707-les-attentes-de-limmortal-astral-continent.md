@@ -36,7 +36,7 @@ Dès que les trois gouttes fusionnèrent, une aura antique se propagea. Cette go
 
 Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car elle appartenait à la Race Ancienne et non aux cultivateurs!
 
-Cette aura avait pour but d'invoquer l'Ancêtre Ancestral. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
+Cette aura avait pour but d'invoquer l'Ancêtre Ancien. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
 
 Dans le Royaume Intérieur, le démon ancien de la Mer des Nuages, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
 
@@ -94,7 +94,7 @@ Le jeune homme laissa échapper un reniflement froid.
 
 « Oncle, cette affaire est bien étrange. Je me demande quelles sont les chances de succès? » L'homme regarda la statue de son ancêtre qui lui ressemblait tant.
 
-Le jeune homme réfléchit longuement avant de répondre: « L'héritier de Ye Mo est un accident, j'ignore ce qui s'est passé. Je ne l'ai que ressenti par le sang. Quant à savoir s'il obtiendra la reconnaissance de l'Ancêtre Ancestral, je n'en suis pas certain. »
+Le jeune homme réfléchit longuement avant de répondre: « L'héritier de Ye Mo est un accident, j'ignore ce qui s'est passé. Je ne l'ai que ressenti par le sang. Quant à savoir s'il obtiendra la reconnaissance de l'Ancêtre Ancien, je n'en suis pas certain. »
 
 « L'héritier de Ye Mo? C'est... comment est-ce possible? » L'homme en robe royale trembla. Il semblait découvrir cette information à l'instant même.
 

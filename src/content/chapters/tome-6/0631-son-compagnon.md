@@ -6,11 +6,11 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 631 - Its Companion
 slug: son-compagnon
 ---
-En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays des Démons de Feu avait considérablement évolué et le Pays des Démons Célestes avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
+En un clin d'œil, plusieurs mois passèrent. La bataille au sein du Pays des Démons de Feu avait considérablement évolué et le Pays du Démon Céleste avait retiré ses troupes. La guerre, qui avait duré près d'un siècle, s'achevait dans le dévorement mutuel des anciens démons.
 
 L'ancien démon Bei Luo acheva sa première dévoration et fusionna avec l'âme résiduelle de l'ancien démon du Pays des Démons de Feu. Ayant atteint un état de puissance suprême, il n'avait plus besoin du sang de Wang Lin pour prendre forme et pouvait désormais partir par lui-même.
 
-Wang Lin était assis en position de lotus, les yeux clos, au sein du Lac du Dragon près de la capitale du Pays des Démons Célestes. Son visage était impassible.
+Wang Lin était assis en position de lotus, les yeux clos, au sein du Lac du Dragon près de la capitale du Pays du Démon Céleste. Son visage était impassible.
 
 Lorsqu'il avait touché l'os, il était entré dans un état mystérieux. Après que Bei Luo eut dévoré l'âme de l'autre ancien démon, il utilisa un sort pour amener Wang Lin ici.
 

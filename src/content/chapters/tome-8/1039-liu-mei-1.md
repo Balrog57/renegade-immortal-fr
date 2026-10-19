@@ -26,7 +26,7 @@ Dès que son regard se posait sur les édifices ou les fleurs, ceux-ci se désin
 
 Le monde entier semblait avoir subi une métamorphose profonde.
 
-« Pas étonnant que des personnes comme Bei Lou puissent voyager si aisément à travers les 99 royaumes du flacon... Vraisemblablement, si Situ Nan le voulait, il pourrait en faire autant... Même Maître Fu Fengzi pouvait briser un royaume dans le monde du flacon. »
+« Pas étonnant que des personnes comme Bei Luo puissent voyager si aisément à travers les 99 royaumes du flacon... Vraisemblablement, si Situ Nan le voulait, il pourrait en faire autant... Même Maître Fu Fengzi pouvait briser un royaume dans le monde du flacon. »
 
 « Si je retournais dans le monde du flacon, même si je ne peux pas traverser les 99 royaumes, je serais certainement capable d'en franchir plusieurs d'un coup... »
 

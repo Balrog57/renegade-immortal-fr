@@ -80,7 +80,7 @@ Le regard de Wang Lin était très sérieux. Après tout, son temps en tant que 
 
 Après réflexion, Wang Lin regarda Sun Tai et demanda: « Quel est votre statut au sein de la famille Ran? »
 
-« Je ne suis qu'un invité de la famille Ran, et je passe ma retraite au Pavillon des Trésors. L'ancêtre de la famille Ran ne m'a accueilli que parce que je possède quelques compétences en alchimie et en raffinage de trésors. » Les yeux de Sun Tai étaient empreints de mélancolie. Il hésita, puis ajouta: « Vous... vous n'auriez pas dû prendre cette pilule de rang huit. C'était un piège tendu par l'ancêtre de la famille Ran. Il y a quatre ans... »
+« Je ne suis qu'un invité de la famille Ran, et je passe ma retraite au Pavillon du Trésor Intégral. L'ancêtre de la famille Ran ne m'a accueilli que parce que je possède quelques compétences en alchimie et en raffinage de trésors. » Les yeux de Sun Tai étaient empreints de mélancolie. Il hésita, puis ajouta: « Vous... vous n'auriez pas dû prendre cette pilule de rang huit. C'était un piège tendu par l'ancêtre de la famille Ran. Il y a quatre ans... »
 
 Sun Tai expliqua tout ce qu'il savait de ces quatre dernières années. Cela revenait pratiquement à ce que Sun Xi lui avait raconté.
 

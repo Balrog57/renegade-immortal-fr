@@ -66,7 +66,7 @@ Le Sceau des 18 Enfers brilla intensément. Alors que Wang Lin agitait ses manch
 
 L'Arsenal Magique provoqua une onde de choc dans la mer de fleurs. C'était la première fois que Wang Lin utilisait les trois sorts célestes de Bai Fan. La puissance combinée de ces trois sorts était inégalable. Le vent noir repoussa les pétales et les cristaux de glace firent résonner des détonations à travers la grotte.
 
-Enfin, les innombrables âmes de combat de l'Arsenal Magique, en particulier celle de l'Ancêtre de Sang, balayèrent la zone. Les trois sorts formèrent une tempête qui semblait vouloir dévorer le monde.
+Enfin, les innombrables âmes de combat de l'Arsenal Magique, en particulier celle de l'Ancêtre Sanguin, balayèrent la zone. Les trois sorts formèrent une tempête qui semblait vouloir dévorer le monde.
 
 *Grondement, grondement!*
 

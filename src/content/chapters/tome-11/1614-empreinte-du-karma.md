@@ -48,7 +48,7 @@ Les yeux de Wang Lin étaient empreints d'une froideur sans fin. Il se redressa,
 
 « Essence du tonnerre! »
 
-Le tonnerre céleste s'entremêla aux éclairs infinis. En un clin d'œil, toute la foudre se rassembla pour former un éclair éternel. Il flottait à l'extérieur de la lueur sanglante et, simultanément, l'empreinte de tonnerre dans l'œil droit de Wang Lin jaillit pour fusionner avec cet éclair éternel.
+Le tonnerre céleste s'entremêla aux éclairs infinis. En un clin d'œil, toute la foudre se rassembla pour former un tonnerre éternel. Il flottait à l'extérieur de la lueur sanglante et, simultanément, l'empreinte de tonnerre dans l'œil droit de Wang Lin jaillit pour fusionner avec cet tonnerre éternel.
 
 Cela forma une empreinte éternelle de l'essence originelle du tonnerre et de la foudre du ciel et de la terre!
 

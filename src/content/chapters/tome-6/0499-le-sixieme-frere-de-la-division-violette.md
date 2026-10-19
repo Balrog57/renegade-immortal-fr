@@ -1,12 +1,12 @@
 ---
 n: 499
-title: Le Sixième Frère de la Division Violette
+title: Le Sixième Frère de la Division Pourpre
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 499 - The Purple Divisions Sixth Brother
 slug: le-sixieme-frere-de-la-division-violette
 ---
-Zhao Xinmeng regarda Wang Lin. Après avoir réfléchi un instant, elle sourit soudainement et dit doucement: « Je t'ai sous-estimé. Septième frère, je me rends! » Sur ces mots, elle retourna auprès des disciples de la Division Violette.
+Zhao Xinmeng regarda Wang Lin. Après avoir réfléchi un instant, elle sourit soudainement et dit doucement: « Je t'ai sous-estimé. Septième frère, je me rends! » Sur ces mots, elle retourna auprès des disciples de la Division Pourpre.
 
 Cependant, à cet instant précis, un rayon de lumière violette jaillit soudainement de l'horizon.
 
@@ -24,7 +24,7 @@ Il portait une robe violette dont la coupe était presque identique à celles de
 
 Une expression complexe traversa le regard de la quatrième sœur, Zhao Xinmeng, qui fixait également cet homme.
 
-« Le Sixième Frère de la Division Violette! »
+« Le Sixième Frère de la Division Pourpre! »
 
 « Celui qui détenait le titre de disciple véritable avant Sun Yun! »
 
@@ -54,7 +54,7 @@ L'Ancien Sun esquissa un léger sourire et hocha la tête. « C'est exact. C'est
 
 L'Omniscient leva la main droite pour saisir la fleur, puis sourit: « Bien, je l'accepte! »
 
-Les yeux de Chen Tao s'illuminèrent. Il tourna ensuite son regard vers les trois disciples de la Division Violette et dit calmement: « On dirait que ma Division Violette devient de plus en plus restreinte. Bai Wei, Zhao Xinmeng, comment allez-vous? »
+Les yeux de Chen Tao s'illuminèrent. Il tourna ensuite son regard vers les trois disciples de la Division Pourpre et dit calmement: « On dirait que ma Division Pourpre devient de plus en plus restreinte. Bai Wei, Zhao Xinmeng, comment allez-vous? »
 
 L'expression de Bai Wei devint embarrassée; il resta silencieux.
 
@@ -76,7 +76,7 @@ L'Omniscient continuait d'observer ses disciples, souriant en silence.
 
 Chen Tao regarda l'Omniscient avec respect et déclara avec détermination: « Maître, si je suis revenu aujourd'hui, c'est pour réclamer mon titre de disciple véritable. J'espère que Maître l'acceptera! »
 
-L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Violette, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
+L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Pourpre, toi et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
 
 Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 

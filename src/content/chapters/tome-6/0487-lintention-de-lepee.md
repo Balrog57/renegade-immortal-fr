@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 487 - Sword Intent
 slug: lintention-de-lepee
 ---
-Le pavillon des trésors trônait à mi-hauteur de la montagne de la division pourpre, sur une plateforme gigantesque qui s'avançait en biais depuis la paroi. Ce pavillon comptait neuf étages et, lorsqu'on le contemplait de loin, l'énergie spirituelle dense qu'il dégageait formait des ondulations qui se propageaient dans toutes les directions.
+Le pavillon des trésors trônait à mi-hauteur de la montagne de la Division Pourpre, sur une plateforme gigantesque qui s'avançait en biais depuis la paroi. Ce pavillon comptait neuf étages et, lorsqu'on le contemplait de loin, l'énergie spirituelle dense qu'il dégageait formait des ondulations qui se propageaient dans toutes les directions.
 
 Le pavillon était édifié en dalles de jade vert. L'extérieur du bâtiment exhalait une aura antique, comme s'il avait été purifié d'innombrables fois par le passage du temps. Certaines dalles de jade avaient même viré au gris.
 
@@ -94,7 +94,7 @@ Le regard de Wang Lin resta calme alors qu'il lançait le jeton. Ce dernier vola
 
 Peu après, le géant reprit la parole.
 
-« Le septième disciple de la division pourpre n'a pas retiré de jades célestes depuis 103 ans. Souhaitez-vous tous les récupérer en une seule fois? »
+« Le septième disciple de la Division Pourpre n'a pas retiré de jades célestes depuis 103 ans. Souhaitez-vous tous les récupérer en une seule fois? »
 
 Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être ébranlé. Il prit une profonde inspiration et déclara: « Je veux tout retirer! »
 

@@ -58,7 +58,7 @@ Après une courte réflexion, Wang Lin ne dit mot, jeta un dernier regard au vie
 
 La Poupée Yi Si fut rappelée et revint aux côtés de Wang Lin avec le Roi Moustique. D'un geste de la manche, il les rangea.
 
-Alors que Wang Lin avançait, des ondulations résonnèrent et il se fondit dans l'environnement. Utilisant la Déviation Spatiale, il disparut pour quitter la prairie.
+Alors que Wang Lin avançait, des ondulations résonnèrent et il se fondit dans l'environnement. Utilisant la Distorsion Spatiale, il disparut pour quitter la prairie.
 
 Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres émergèrent de la terre et plus d'une douzaine de personnes fixèrent l'endroit où Wang Lin s'était volatilisé.
 
@@ -68,7 +68,7 @@ Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres 
 
 « Les quatre du Dao de la Montagne Noire ne peuvent s'en prendre qu'à eux-mêmes. Ils l'ont suivi pendant trop de jours. Ils sont morts, alors que cette affaire se termine ici. Cultivateurs, dispersez-vous! » dit le vieil homme avant de faire demi-tour.
 
-Quant à Wang Lin, après avoir utilisé une seconde fois la Déviation Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
+Quant à Wang Lin, après avoir utilisé une seconde fois la Distorsion Spatiale, il apparut dans une chaîne de montagnes. Selon la carte de Yan Luan, il lui restait trois mois de route vers l'est pour atteindre la mer intérieure.
 
 « Le continent du Taureau Céleste est trop vaste... » murmura Wang Lin en invoquant la bête moustique pour s'installer sur son dos alors qu'elle s'envolait vers l'est. La bête était très rapide. Cet endroit se situait près du Continent du Démon Vert, il n'y avait donc guère de cultivateurs aux alentours; seules quelques cités mortelles apparaissaient occasionnellement.
 
@@ -76,7 +76,7 @@ Wang Lin ne savait pas grand-chose sur le Continent du Démon Vert, mais Kang Re
 
 Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais aucun n'interagit avec lui; ils se contentaient de passer son chemin. Même lorsque leurs Sens Divins s'étendaient, ils hésitaient après avoir distingué l'apparence de Wang Lin avant de s'écarter.
 
-Après dix jours, Wang Lin utilisa sa troisième Déviation Spatiale et disparut de cette chaîne de montagnes.
+Après dix jours, Wang Lin utilisa sa troisième Distorsion Spatiale et disparut de cette chaîne de montagnes.
 
 Le Continent de l'Est était immense, et entre le Continent du Taureau Céleste et le Continent du Démon Vert s'étendait une mer intérieure appelée la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
 

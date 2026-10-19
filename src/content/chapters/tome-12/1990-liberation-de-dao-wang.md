@@ -28,9 +28,9 @@ Cette lumière dorée était despotique à l'extrême. Elle dégageait une aura 
 
 La lumière dorée, impérieuse, annihila instantanément toute tentative de résistance de Wang Lin. Elle occupa totalement ses membres et enveloppa son corps.
 
-Cependant, une partie du corps de Wang Lin demeura immuable, peu importe l'invasion de la lumière dorée: c'était là que se trouvait le sang de l'âme de l'Ancien Ancêtre!
+Cependant, une partie du corps de Wang Lin demeura immuable, peu importe l'invasion de la lumière dorée: c'était là que se trouvait le sang de l'âme de l'Ancêtre Ancien!
 
-Le sang de l'âme de l'Ancien Ancêtre étant du même niveau que l'héritage de l'Ancêtre Céleste, la lumière dorée ne put l'affecter. Toutefois, comme ce sang d'âme était peu abondant, il ne put s'étendre pour riposter; ainsi, les deux forces ne se rencontrèrent pas.
+Le sang de l'âme de l'Ancêtre Ancien étant du même niveau que l'héritage de l'Ancêtre Céleste, la lumière dorée ne put l'affecter. Toutefois, comme ce sang d'âme était peu abondant, il ne put s'étendre pour riposter; ainsi, les deux forces ne se rencontrèrent pas.
 
 « Une fois que la lumière dorée aura supprimé son corps, je pourrai utiliser cette lumière pour écraser son âme et provoquer son effondrement. Alors, ce vieil homme pourra enfin prendre le contrôle de son corps! » Les pensées de l'Enseignant Impérial résonnaient dans l'esprit de Wang Lin.
 
@@ -40,7 +40,7 @@ Cette lumière dorée avait envahi chaque parcelle du corps de Wang Lin, à l'ex
 
 À mesure que la lumière se propageait, il semblait que la tête de l'Ancêtre Céleste retrouvait un soupçon de vitalité!
 
-« Le corps de ce Wang Lin est extrêmement étrange; il contient l'aura de l'Ancien Ancêtre. Cette aura ne peut être effacée... mais elle peut être scellée afin qu'elle n'interfère pas avec mes plans! » pensa l'Enseignant Impérial. La lumière dorée se concentra alors autour du sang de l'âme. Bien qu'elle ne puisse l'anéantir, elle n'entraverait plus la possession de l'Enseignant Impérial.
+« Le corps de ce Wang Lin est extrêmement étrange; il contient l'aura de l'Ancêtre Ancien. Cette aura ne peut être effacée... mais elle peut être scellée afin qu'elle n'interfère pas avec mes plans! » pensa l'Enseignant Impérial. La lumière dorée se concentra alors autour du sang de l'âme. Bien qu'elle ne puisse l'anéantir, elle n'entraverait plus la possession de l'Enseignant Impérial.
 
 « J'ai déjà conquis le corps, il ne reste que la tête. Une fois la tête occupée, je pourrai supprimer son âme! » L'Enseignant Impérial était transporté d'excitation. Il sentit la lumière dorée se propager par vagues vers le cou de Wang Lin après avoir scellé le sang de l'âme.
 

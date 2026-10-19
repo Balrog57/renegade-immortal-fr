@@ -117,7 +117,7 @@ Soudain, l'expression de l'Omniscient devint grave. Toute sa douceur précédent
 
 Sans un mot, Wang Lin s'agenouilla promptement et leva la tête pour contempler l'Omniscient.
 
-La main droite de l'Omniscient pointa vers Wang Lin et il cria: « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Violette sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
+La main droite de l'Omniscient pointa vers Wang Lin et il cria: « Aujourd'hui, moi, l'Omniscient, j'accepte Wang Lin comme septième disciple de la Division Pourpre sous les neuf couleurs! Wang Lin, es-tu prêt à devenir mon disciple, à suivre les règles de la secte, à ne jamais trahir la Secte du Destin Céleste, à te concentrer sur ta culture, à marcher sur le chemin du Grand Dao et à accomplir ton propre Dao?! Réponds-moi! »
 
 Le regard de Wang Lin se fit solennel. Il afficha une détermination sans faille et répondit: « Tant que Maître ne me trahira pas, je ne trahirai pas Maître! Tant que la Secte du Destin Céleste ne me trahira pas, je ne trahirai pas la Secte du Destin Céleste! C'est ma promesse, celle de Wang Lin! »
 
@@ -131,6 +131,6 @@ Cet autel était d'une taille démesurée. Lorsqu'une partie seulement commença
 
 L'ongle de l'Omniscient était tranchant comme un couteau alors qu'il gravait rapidement des inscriptions sur la tablette.
 
-« Planète Tian Yun, première année de Yanwu, Wang Lin a été accepté comme septième disciple de la Division Violette! » Sur ce, l'Omniscient lança la tablette qui s'enflamma de flammes violettes, avant de repartir dans un rayon de lumière pour rejoindre l'autel.
+« Planète Tian Yun, première année de Yanwu, Wang Lin a été accepté comme septième disciple de la Division Pourpre! » Sur ce, l'Omniscient lança la tablette qui s'enflamma de flammes violettes, avant de repartir dans un rayon de lumière pour rejoindre l'autel.
 
 « Maintenant, je vais t'enseigner une technique interdite. Quel type souhaites-tu apprendre? »

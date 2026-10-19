@@ -76,7 +76,7 @@ Dans la région de rang un du système stellaire de la Mer des Nuages, se trouva
 
 Au plus profond du continent, dans une vallée, un homme d'âge moyen vêtu de rouge était assis en silence.
 
-Devant lui, le maître de la Secte des Démons et divers Anciens étaient agenouillés avec respect, comme s'ils attendaient une réponse de l'homme en rouge.
+Devant lui, le maître de la Secte Démon et divers Anciens étaient agenouillés avec respect, comme s'ils attendaient une réponse de l'homme en rouge.
 
 Ce dernier ouvrit soudainement les yeux. L'aura choquante qui jaillissait de son corps se rétracta immédiatement, réprimée jusqu'à disparaître totalement.
 

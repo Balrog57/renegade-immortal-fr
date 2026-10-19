@@ -6,15 +6,15 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 916 - Alliances Style
 slug: le-style-de-lalliance
 ---
-D’innombrables fragments d'âmes se trouvaient à l'intérieur du Drapeau des Un Milliard d'Âmes, et tous s'engouffrèrent dans les dix-huit couches de l'enfer. La rancœur au sein de ces abysses ne cessait de croître à mesure que les fragments d'âmes s'y précipitaient. Leurs hurlements déments auraient fait perdre connaissance à n'importe quel mortel qui les aurait entendus.
+D’innombrables fragments d'âmes se trouvaient à l'intérieur du Étendard de l'Âme, et tous s'engouffrèrent dans les dix-huit couches de l'enfer. La rancœur au sein de ces abysses ne cessait de croître à mesure que les fragments d'âmes s'y précipitaient. Leurs hurlements déments auraient fait perdre connaissance à n'importe quel mortel qui les aurait entendus.
 
 Même l'esprit d'un cultivateur serait ébranlé par ces cris. Ils étaient le fruit de la douleur et des griefs des âmes d'innombrables êtres que Wang Lin avait massacrés!
 
 Parmi eux se trouvaient l'Ancêtre Sanguin, les êtres célestes, les membres de la famille Yao et bien d'autres puissants cultivateurs. Bien qu'ils ne fussent que des fragments d'âmes et n'aient plus leur force d'autrefois, leur puissance n'était pas de nature à ce que des cultivateurs ordinaires puissent y résister!
 
-S'y ajoutaient les innombrables fragments d'âmes contenus dans le Drapeau des Un Milliard d'Âmes. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
+S'y ajoutaient les innombrables fragments d'âmes contenus dans le Étendard de l'Âme. Avec eux, les dix-huit couches de l'enfer étaient désormais dignes de leur nom!
 
-À l'intérieur du Drapeau des Un Milliard d'Âmes, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Sceau Céleste.
+À l'intérieur du Étendard de l'Âme, il ne restait plus que les âmes primaires; Wang Lin le rangea donc. S'il n'avait pas été un présent de Dun Tian, il aurait lui-même placé le drapeau dans le Sceau Céleste.
 
 Alors que Wang Lin se tenait là, une lueur de froideur traversa son regard et il s'écria: « Voici mon cycle de réincarnation des dix-huit couches de l'enfer! »
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 378 - Crazy Recovery (1)
 slug: recuperation-folle-1
 ---
-Pays de Xue Yue, à l'intérieur du Sanctuaire divin de la Neige et de la Glace.
+Pays de Xue Yu, à l'intérieur du Sanctuaire divin de la Neige et de la Glace.
 
 Li Yuanfeng était actuellement assis en position de lotus, en pleine culture. Autour de lui se trouvaient cinq grands blocs de glace. Chacun d’eux émettait une lumière aux cinq couleurs ainsi que des éclats d'énergie spirituelle céleste qu'il pouvait absorber.
 

@@ -98,7 +98,7 @@ La culture de Huan Dong étant au milieu du stade Ascendant, Wang Lin dut emprun
 
 Les souvenirs de Huan Dong n'étaient que fragments que Wang Lin parcourait avec l'aide du garde céleste. Tandis qu'il les consultait, le corps de Huan Dong se mit à trembler violemment et ses yeux exprimèrent une lutte douloureuse.
 
-En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra en une masse de chair et de sang, tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans le Drapeau d'Âmes au Milliard d'Âmes.
+En fouillant dans ces mémoires, Wang Lin tomba soudainement sur l'image d'une femme magnifique, et son expression s'assombrit. Il relâcha sa pression et frappa le corps de Huan Dong. Celui-ci s'effondra en une masse de chair et de sang, tandis que son âme originelle était capturée par Wang Lin, qui la jeta dans le Étendard de l'Âme.
 
 Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagnons, qui furent chacun plongés dans leurs propres réflexions.
 
@@ -114,6 +114,6 @@ Assis en position du lotus sur le dragon d'argent, Wang Lin murmura pour lui-mê
 
 Une fois sa décision prise, Wang Lin cessa de songer à Liu Mei pour se concentrer sur la carte mentale qui l'habitait. Il se dirigeait vers la planète Yun Xia.
 
-« Le filon de métal à flamme de la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la perle défiant le ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
+« La veine de métal à flamme de la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la perle défiant le ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
 
 Tout au long du voyage, Wang Lin ne marqua aucun repos. Un mois plus tard, la planète Yun Xia apparut dans son sens divin, très loin à l'horizon.

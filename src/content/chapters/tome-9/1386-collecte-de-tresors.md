@@ -78,7 +78,7 @@ Il s'enfuit très rapidement et, peu après, il fut loin de la planète où se t
 
 Sur la planète du Clan des Scorpions Noirs, la main géante de Wang Lin balaya le sol. Après avoir pris les neuf tablettes de pierre, la lance de brume et le grand fourneau, son regard se posa sur l'arbre géant au sol.
 
-« Les trésors que Cupidité possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume du Massacre! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante!
+« Les trésors que Cupidité possédait sont bien plus puissants qu'auparavant. Ces 99 épées seules sont bien plus fortes que celles du Royaume de la Boucherie! De plus, ces neuf tablettes sont faites d'os et dégagent une aura puissante!
 
 « Plus important encore, la lance de brume possède l'aura d'un ancien démon. Son aura est extrêmement antique. Elle existe probablement depuis des dizaines de milliers d'années, voire... bien plus!
 

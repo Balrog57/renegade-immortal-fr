@@ -110,7 +110,7 @@ Wang Lin murmura pour lui-même en regardant la lave tomber comme une pluie de f
 
 Les vibrations se propagèrent et firent trembler un autre volcan au loin, qui commença à cracher fumée et lave.
 
-Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effondrement des Montagnes dans le Royaume du Massacre apparurent dans son esprit.
+Wang Lin ferma lentement les yeux, et les scènes de Qing Shui utilisant l'Effondrement des Montagnes dans le Royaume de la Boucherie apparurent dans son esprit.
 
 En vérité, dans la Terre des Esprits Démoniaques, Wang Lin avait entrevu une trace de compréhension de ce sort lors d'une éruption volcanique, mais le sentiment était resté ténu. En raison des dangers qu'il affrontait, il n'avait pas eu le temps d'approfondir sa réflexion.
 

@@ -72,37 +72,37 @@ Les yeux de Wang Lin s'illuminèrent. La silhouette lumineuse qui le protégeait
 
 S'ils avaient été en dehors des 7 Millions de Mondes et que le Grand Ancien avait été prêt à sacrifier mille ans de vie, Wang Lin n'aurait certainement pas été son égal.
 
-« Pour le blesser maintenant, je dois utiliser les Flammes de Joss! Les Flammes de Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde du Vent et de la Pluie. Son sens divin se propagea et une voix puissante résonna dans ce monde:
+« Pour le blesser maintenant, je dois utiliser les Flammes Joss! Les Flammes Joss sont toxiques et inutiles pour moi, mais elles peuvent servir à tuer! » Songea Wang Lin rapidement avant d'activer le Monde du Vent et de la Pluie. Son sens divin se propagea et une voix puissante résonna dans ce monde:
 
-« Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes de Joss. Rassemblez-les pour moi! »
+« Vous tous qui avez été tués par moi, adorez-moi et devenez mes disciples. Au prix de vos âmes, consacrez-vous aux Flammes Joss. Rassemblez-les pour moi! »
 
-Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes de Joss jaillirent des têtes des innombrables âmes au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
+Alors que le sens divin de Wang Lin s'étendait, d'immenses quantités de Flammes Joss jaillirent des têtes des innombrables âmes au sein du Monde du Vent et de la Pluie! Beaucoup d'âmes s'effondrèrent, se sacrifiant pour libérer ces flammes.
 
-Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes de Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient le tiers du total!
+Ceux possédant un haut niveau de culture produisaient une grande quantité de Flammes Joss, mais aucun ne pouvait égaler l'ancienne concubine céleste. Les flammes qu'elle dégageait représentaient le tiers du total!
 
-Wang Lin rassembla ces Flammes de Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère!
+Wang Lin rassembla ces Flammes Joss à travers le Monde du Vent et de la Pluie et les condensa en une sphère!
 
 Les flammes tourbillonnaient frénétiquement à l'intérieur, dégageant une pression infinie.
 
 En voyant cette pression se propager, les pupilles du Grand Ancien se rétractèrent, remplies d'incrédulité. Au cours de ce combat, Wang Lin l'avait surpris maintes fois, mais devant cette petite sphère, il fut ébranlé!
 
-« Des Flammes de Joss!!! Tu... tu possèdes réellement des Flammes de Joss!! »
+« Des Flammes Joss!!! Tu... tu possèdes réellement des Flammes Joss!! »
 
 Wang Lin savait que le temps pressait. Tandis que les flammes s'accumulaient, une intention meurtrière brilla dans ses yeux et il projeta la sphère en avant. La boule de flammes chargea et, lorsqu'elle toucha le vortex des six tonnerres divins, elle explosa soudainement!
 
-La puissance des Flammes de Joss était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
+La puissance des Flammes Joss était celle que maîtrisaient les cultivateurs de la troisième étape. Au moment de l'explosion, le monde trembla, les couches de l'espace se désintégrèrent et les six tonnerres divins vibrèrent violemment.
 
 La majeure partie de la sphère se dissipa, mais au moment même de sa disparition, Wang Lin lança une volonté démente dans le Monde du Vent et de la Pluie:
 
-« Détruisez les âmes, offrez les Flammes de Joss!! »
+« Détruisez les âmes, offrez les Flammes Joss!! »
 
-Alors que sa voix résonnait, une multitude d'âmes dans le Monde du Vent et de la Pluie explosèrent. Elles se transformèrent en une masse colossale de Flammes de Joss qui bombardèrent le Grand Ancien.
+Alors que sa voix résonnait, une multitude d'âmes dans le Monde du Vent et de la Pluie explosèrent. Elles se transformèrent en une masse colossale de Flammes Joss qui bombardèrent le Grand Ancien.
 
 Le vortex des six tonnerres s'effondra et les flammes restantes chargèrent l'ennemi. Simultanément, l'attaque du Daoïste Esprit Dispersé devint plus intense encore.
 
 Des grondements tonitruants déchirèrent le monde tandis que le Grand Ancien crachait du sang à plusieurs reprises. Une armure de lumière de tonnerre azurée avait surgi autour de lui sans qu'il s'en aperçoive. Son corps fut repoussé, ses yeux devinrent vitreux et injectés de sang, habités par la folie.
 
-« Je sacrifie ma vitalité pour invoquer l'éclair éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, l'éclair éternel du temple de la terre sainte s'agita soudainement. C'était...
+« Je sacrifie ma vitalité pour invoquer l'tonnerre éternel de mon clan afin qu'il descende sur les 7 Millions de Mondes et punisse tous les êtres vivants! » rugit-il. À l'extérieur des 7 Millions de Mondes, l'tonnerre éternel du temple de la terre sainte s'agita soudainement. C'était...
 
 L'intégralité du tonnerre sembla s'éveiller et quitta la terre sainte. Il perça le vide et chargea vers les 7 Millions de Mondes!
 

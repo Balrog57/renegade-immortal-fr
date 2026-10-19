@@ -38,7 +38,7 @@ Alors que le tumulte se propageait, l'espace se modifia et même les nuages de l
 
 C'était comme si, dans ce périmètre, le Dieu de Sang était un véritable être céleste!
 
-« Des paroles qui contiennent la Loi! » haleta Wang Lin. Cultiver des mots contenant la Loi à un tel degré était absolument stupéfiant. Bien qu'il ne comprît pas comment le Dieu de Sang parvenait à altérer les lois par la parole, il pouvait ressentir une force aussi terrifiante que si des dizaines de milliers de Tranchants Célestes frappaient simultanément.
+« Des paroles qui contiennent la Loi! » haleta Wang Lin. Cultiver des mots contenant la Loi à un tel degré était absolument stupéfiant. Bien qu'il ne comprît pas comment le Dieu de Sang parvenait à altérer les lois par la parole, il pouvait ressentir une force aussi terrifiante que si des dizaines de milliers de Coups Célestes frappaient simultanément.
 
 C'était comme si tout ce qui se trouvait dans la zone s'effondrait sous le poids de ces mots. Le corps de Wang Lin fut lui aussi affecté!
 

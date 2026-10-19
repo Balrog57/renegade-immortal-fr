@@ -46,7 +46,7 @@ Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui 
 
 Wang Lin s'arrêta net, l'expression extrêmement sombre, sur le point de reculer. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
-Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait de lui. Bien qu'elle ne fût pas aussi écrasante que celle de l'Ancêtre de Sang, elle n'en demeurait pas moins redoutable.
+Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait de lui. Bien qu'elle ne fût pas aussi écrasante que celle de l'Ancêtre Sanguin, elle n'en demeurait pas moins redoutable.
 
 C'était comme si une tempête céleste faisait rage dans la zone et que cet homme en était le centre!
 

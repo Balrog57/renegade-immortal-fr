@@ -64,10 +64,10 @@ Wang Lin ouvrit sa porte. C'était l'après-midi. D'un pas vif, il sortit par la
 
 Une fois propre, il s'allongea sur un rocher. Il se remémora une technique mentionnée dans les Trois Étapes de la Condensation de Qi.
 
-Elle présentait une technique immortelle appelée la Technique de l'Attraction. Elle était considérée comme l'une des techniques les plus élémentaires et pouvait être utilisée dès que le premier niveau de la Condensation de Qi était atteint.
+Elle présentait une technique immortelle appelée la Technique d'Attraction. Elle était considérée comme l'une des techniques les plus élémentaires et pouvait être utilisée dès que le premier niveau de la Condensation de Qi était atteint.
 
 La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des aînés conseillaient de choisir la voie de l'épée.
 
-La culture de l'épée consistait à concentrer toute sa pratique sur l'arme. Bien que le chemin de la culture soit plus difficile par la suite, cette voie était extrêmement puissante au début et facile à maîtriser. La Technique de l'Attraction constituait d'ailleurs la base pour contrôler les épées volantes.
+La culture de l'épée consistait à concentrer toute sa pratique sur l'arme. Bien que le chemin de la culture soit plus difficile par la suite, cette voie était extrêmement puissante au début et facile à maîtriser. La Technique d'Attraction constituait d'ailleurs la base pour contrôler les épées volantes.
 
-Outre la Technique de l'Attraction, deux autres techniques étaient répertoriées dans les Trois Étapes de la Condensation de Qi: la Technique de la Boule de Feu et la Technique de la Fissure de la Terre.
+Outre la Technique d'Attraction, deux autres techniques étaient répertoriées dans les Trois Étapes de la Condensation de Qi: la Technique de la Boule de Feu et la Technique de la Fissure de la Terre.

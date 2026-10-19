@@ -42,9 +42,9 @@ La belle femme resta silencieuse, plongée dans ses pensées, et mordilla sa lè
 
 Également dans le Continent Central, au sein de la cité impériale, se trouvait un palais luxueux. Bien que personne n'y résidât, un rideau d'eau révélait clairement la scène de Wang Lin dans l'Épreuve Empyrée.
 
-Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions: la Secte Ziyang.
+Continent de l'Est, la secte numéro un parmi les neuf sectes et treize factions: la Secte Yang Pourpre.
 
-Dans la terre interdite de la Secte Ziyang, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
+Dans la terre interdite de la Secte Yang Pourpre, au sein d'une chambre de pierre, un homme d'âge moyen observait intensément un immense miroir reflétant l'Épreuve Empyrée. Cependant, une lumière dorée saturait le miroir, rendant la silhouette floue.
 
 Près de lui se trouvaient deux fillettes, l'une vêtue de rouge et l'autre de violet. Elles semblaient avoir sept ou huit ans. Telles de petites poupées de jade, leurs yeux brillaient d'éclat. Elles étaient adorables. À cet instant, la petite en rouge soutenait son menton de la main tout en bâillant, les yeux fixés sur le miroir, bien qu'en réalité elle ne songeait qu'à aller jouer dehors. Elle lança un regard à la fillette en violet et elles clignèrent des yeux avant de faire la moue en même temps.
 

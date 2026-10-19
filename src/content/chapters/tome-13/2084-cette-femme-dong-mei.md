@@ -46,13 +46,13 @@ Gu Dao observa le phénomène et dit: « Lorsque toute l'eau aura été aspirée
 
 «...Pour une réponse! » Gu Dao se tourna vers Wang Lin.
 
-« Après avoir obtenu les souvenirs de l'Ancêtre Antique, il y avait une question à laquelle je devais l'aider à répondre... J'ai attendu ce jour pendant longtemps, et votre arrivée fut l'opportunité dont j'avais besoin pour trouver cette réponse! »
+« Après avoir obtenu les souvenirs de l'Ancêtre Ancien, il y avait une question à laquelle je devais l'aider à répondre... J'ai attendu ce jour pendant longtemps, et votre arrivée fut l'opportunité dont j'avais besoin pour trouver cette réponse! »
 
 « La réponse... » murmura Wang Lin.
 
 « Si je trouve cette réponse, peut-être pourrai-je quitter le clan Antique et aller partout où je le souhaite. » Un éclair de sentiments complexes traversa le regard de Gu Dao.
 
-« Vous possédez la tête de l'Ancêtre Céleste, vous avez donc dû voir que celui-ci est mort en paix — sans douleur... L'Ancêtre Antique est également mort... »
+« Vous possédez la tête de l'Ancêtre Céleste, vous avez donc dû voir que celui-ci est mort en paix — sans douleur... L'Ancêtre Ancien est également mort... »
 
 « Je peux ressentir cette mort dans ses souvenirs. Il a marché vers la fin avec hésitation, incrédulité et détermination. »
 
@@ -62,7 +62,7 @@ Les alentours grondaient sans relâche et le vortex continuait sa voracité jusq
 
 Il ne fallut pas longtemps pour que l'océan soit entièrement englouti.
 
-Gu Dao détourna les yeux de Wang Lin et fixa la tempête qui se contractait, avant de dire d'une voix rauque: « L'Ancêtre Céleste et l'Ancêtre Antique ont découvert un secret inimaginable. Ils ont hésité, ils ont douté, et finalement, pour poursuivre la vérité, ils ont marché vers la mort... »
+Gu Dao détourna les yeux de Wang Lin et fixa la tempête qui se contractait, avant de dire d'une voix rauque: « L'Ancêtre Céleste et l'Ancêtre Ancien ont découvert un secret inimaginable. Ils ont hésité, ils ont douté, et finalement, pour poursuivre la vérité, ils ont marché vers la mort... »
 
 « Maintenant, je vais partir en quête de cette réponse. »
 

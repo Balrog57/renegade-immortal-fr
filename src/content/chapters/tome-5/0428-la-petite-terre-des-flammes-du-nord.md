@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 428 - Little Northern Flame Land
 slug: la-petite-terre-des-flammes-du-nord
 ---
-La Petite Terre des Flammes du Nord se situe au nord de la planète Suzaku. C'est là que Xue Yue était autrefois établi.
+La Petite Terre des Flammes du Nord se situe au nord de la planète Suzaku. C'est là que Xue Yu était autrefois établi.
 
 Ici, la glace n'a jamais fondu depuis l'arrivée des cultivateurs sur cette planète. Le vent glacial hurle sans relâche et la terre est recouverte de glace. De loin, on peut apercevoir un nuage de brume bleu foncé qui flotte dans la région. Partout où cette brume passe, tout ce qui possède la vie meurt.
 
@@ -14,7 +14,7 @@ Cette brume glaciale est appelée la Brume de Jiuli. Cette mystérieuse puissanc
 
 Outre sa capacité à tout détruire, la Brume de Jiuli a un autre effet: elle aspire ce qu'elle ne peut pas détruire aussitôt pour le raffiner lentement.
 
-La Petite Terre des Flammes du Nord est immense. Lorsque Xue Yue était ici, ils n'ont pu explorer qu'un tiers de la région avant d'être incapables de progresser davantage; ils finirent par établir leur pays à la frontière de cette zone.
+La Petite Terre des Flammes du Nord est immense. Lorsque Xue Yu était ici, ils n'ont pu explorer qu'un tiers de la région avant d'être incapables de progresser davantage; ils finirent par établir leur pays à la frontière de cette zone.
 
 Cependant, certains cultivateurs puissants savaient qu'au centre de la Petite Terre des Flammes du Nord se trouvait un champ de glace rouge.
 

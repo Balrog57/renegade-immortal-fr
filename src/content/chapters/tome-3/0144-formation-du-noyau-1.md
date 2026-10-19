@@ -38,7 +38,7 @@ Trois mois supplémentaires s'écoulèrent avant que la barrière ne cède enfin
 
 Son visage pâlit instantanément. Après un léger mouvement de sa gorge, il cracha une brume de sang. Dès qu'elle toucha l'air, le sang se changea en givre et se suspendit aux parois de la grotte, formant des plaques de cristaux de glace rouges.
 
-Après avoir recraché ce sang, il sortit rapidement huit pierres spirituelles de qualité inférieure qu'il réduisit en poussière. Cette poudre circula promptement autour de lui pour former un symbole étrange.
+Après avoir recraché ce sang, il sortit rapidement huit pierres spirituelles de faible qualité qu'il réduisit en poussière. Cette poudre circula promptement autour de lui pour former un symbole étrange.
 
 Le symbole brilla faiblement avant de disparaître. Une épée volante noire apparut alors, fit le tour de Wang Lin et s'immobilisa devant lui. La silhouette du démon émergea lentement de la lame.
 

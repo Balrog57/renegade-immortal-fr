@@ -44,7 +44,7 @@ Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il
 
 Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plus d'un kilomètre. À en juger par son regard, même elle redoutait cette bête.
 
-Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la division pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
+Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la Division Pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
 Parmi les disciples présents se trouvaient également des anciens disciplinaires, qui se lamentaient tous intérieurement. Ils réalisèrent que les luttes entre les disciples de l'Ancêtre n'étaient pas de leur ressort. Quel disciple accepté par l'Ancêtre pouvait être ordinaire? Ils avaient sous-estimé ce jeune homme parce qu'il n'était qu'au stade initial de la Transformation de l'Âme, mais sa force de combat stupéfiait même un cultivateur du stade avancé de la Transformation de l'Âme.
 
@@ -66,7 +66,7 @@ L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le
 
 Wang Lin rangea le Fouet de l'Âme et sortit l'étendard de l'âme. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
 
-Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au loin, tous les disciples de la division pourpre baissèrent la tête, n'osant croiser son regard.
+Après cela, Wang Lin flotta calmement dans les airs et observa les environs. Au loin, tous les disciples de la Division Pourpre baissèrent la tête, n'osant croiser son regard.
 
 Même les anciens disciplinaires inclinèrent la tête, le cœur rempli de crainte.
 
@@ -100,7 +100,7 @@ Bai Wei et la femme au stade avancé de la Transformation de l'Âme devinrent é
 
 Quant à l'homme d'âge moyen, qui n'était toujours pas réintégré dans son corps, il se montra tout aussi déférent. Il cessa toute tentative de retour et s'inclina: « Ce disciple salue le Maître. »
 
-À cet instant, tous les disciples de la division pourpre présents s'inclinèrent pour le saluer.
+À cet instant, tous les disciples de la Division Pourpre présents s'inclinèrent pour le saluer.
 
 Le vieil homme hocha légèrement la tête, puis d'un mouvement de sa main droite, l'âme originelle de l'homme fut enveloppée d'une douce lumière. L'âme de l'homme retourna dans son corps et toutes ses blessures furent instantanément guéries.
 
@@ -114,7 +114,7 @@ Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largeme
 
 Ce sort fit trembler violemment le cœur de Wang Lin.
 
-« Wang Lin, lorsque je t'ai vu sur la planète Suzaku, j'ai eu l'envie de te prendre pour disciple. J'avais initialement prévu de faire de toi un disciple honorifique pour cent ans, mais en te revoyant, j'ai changé d'avis. Wang Lin, es-tu prêt à m'accepter comme maître, à cultiver le Dao des Cieux et à devenir un véritable disciple de la division pourpre? »
+« Wang Lin, lorsque je t'ai vu sur la planète Suzaku, j'ai eu l'envie de te prendre pour disciple. J'avais initialement prévu de faire de toi un disciple honorifique pour cent ans, mais en te revoyant, j'ai changé d'avis. Wang Lin, es-tu prêt à m'accepter comme maître, à cultiver le Dao des Cieux et à devenir un véritable disciple de la Division Pourpre? »
 
 L'Omniscient fixait Wang Lin avec une expression solennelle.
 

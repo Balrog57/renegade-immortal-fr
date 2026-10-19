@@ -10,23 +10,23 @@ Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. S
 
 Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 
-Le Royaume Céleste de la Foudre de la Rivière Invoquée était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière Invoquée, on pouvait clairement apercevoir une rivière argentée et étincelante.
+Le Royaume Céleste du Tonnerre de la Rivière Invoquée était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière Invoquée, on pouvait clairement apercevoir une rivière argentée et étincelante.
 
-Cette rivière d'argent était le Royaume Céleste de la Foudre!
+Cette rivière d'argent était le Royaume Céleste du Tonnerre!
 
-Wang Lin s'était rendu à la Rivière Invoquée à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste de la Foudre, mais il n'y était jamais entré.
+Wang Lin s'était rendu à la Rivière Invoquée à plusieurs reprises, mais il avait toujours été pressé. Il avait vu cette rivière argentée et savait qu'il s'agissait du Royaume Céleste du Tonnerre, mais il n'y était jamais entré.
 
 Le Royaume Céleste du Vent se précipita et, dès son apparition dans la Rivière Invoquée, une ondulation se propagea, accompagnée d'une pression écrasante.
 
-Le continent du Royaume Céleste du Vent s'arrêta lentement devant la rivière argentée au nord. Wang Lin se leva et contempla le Royaume Céleste de la Foudre. Il fit un pas en avant et pénétra dans les eaux argentées.
+Le continent du Royaume Céleste du Vent s'arrêta lentement devant la rivière argentée au nord. Wang Lin se leva et contempla le Royaume Céleste du Tonnerre. Il fit un pas en avant et pénétra dans les eaux argentées.
 
 La rivière contenait d'innombrables fragments minuscules dont les lueurs fusionnaient pour former cette éternelle rivière d'argent.
 
-Le troisième jour après être entré dans le Royaume Céleste de la Foudre, Wang Lin en ressortit d'un pas, l'air fatigué. Il agita la main et toute la rivière argentée trembla. Elle vola vers le continent du Royaume Céleste du Vent et commença à graviter lentement autour de lui.
+Le troisième jour après être entré dans le Royaume Céleste du Tonnerre, Wang Lin en ressortit d'un pas, l'air fatigué. Il agita la main et toute la rivière argentée trembla. Elle vola vers le continent du Royaume Céleste du Vent et commença à graviter lentement autour de lui.
 
 En tournant, elle enveloppa le continent du Royaume Céleste du Vent. De loin, le spectacle était d'une beauté saisissante.
 
-« La destruction du Royaume Céleste de la Foudre est irrémédiable. Il ne pourra subsister que comme une rivière gardienne pour le futur Royaume Céleste. » Wang Lin soupira tout en dirigeant le continent du Royaume Céleste du Vent et la rivière argentée pour quitter les lieux.
+« La destruction du Royaume Céleste du Tonnerre est irrémédiable. Il ne pourra subsister que comme une rivière gardienne pour le futur Royaume Céleste. » Wang Lin soupira tout en dirigeant le continent du Royaume Céleste du Vent et la rivière argentée pour quitter les lieux.
 
 Le troisième endroit qu'il devait visiter était le Royaume Céleste du Tonnerre à Luotian!
 
@@ -76,7 +76,7 @@ Dès qu'elle apparut, l'empreinte fondit sur le continent sous le contrôle de W
 
 Des grondements tonitruants résonnèrent et le continent grandit considérablement. De loin, il paraissait déjà d'une immensité incomparable!
 
-« La rivière argentée du Royaume Céleste de la Foudre protégera le nouveau Royaume Céleste. Cette rivière séparera les mortels des êtres célestes afin qu'aucun cultivateur inférieur au stade de la Formation de l'Âme ne puisse y pénétrer. Telle est la Loi! » Wang Lin agita sa manche et la rivière argentée s'élança, enveloppant tout le continent dans un éclat argenté fulgurant.
+« La rivière argentée du Royaume Céleste du Tonnerre protégera le nouveau Royaume Céleste. Cette rivière séparera les mortels des êtres célestes afin qu'aucun cultivateur inférieur au stade de la Formation de l'Âme ne puisse y pénétrer. Telle est la Loi! » Wang Lin agita sa manche et la rivière argentée s'élança, enveloppant tout le continent dans un éclat argenté fulgurant.
 
 Sous cette lumière, le nouveau Royaume Céleste devint un royaume à part entière!
 

@@ -78,13 +78,13 @@ Li Qianmei observa le profil de Wang Lin. Après une courte réflexion, elle rep
 
 Wang Lin resta silencieux, pensif.
 
-« Ou viendras-tu à la Secte des Démons pour résister à l'invasion des bêtes féroces à mes côtés? » La voix de Li Qianmei était mélodieuse, telle une musique caressant les oreilles de Wang Lin.
+« Ou viendras-tu à la Secte Démon pour résister à l'invasion des bêtes féroces à mes côtés? » La voix de Li Qianmei était mélodieuse, telle une musique caressant les oreilles de Wang Lin.
 
 Lui resta muet. Li Qianmei se détourna et poussa un soupir en regardant l'horizon.
 
 Le deuxième article fut vendu. L'Ancien sortit le troisième: une peinture. Elle ne représentait aucune montagne, mais ses rivières et ses lacs étaient animés, d'un réalisme saisissant.
 
-Li Qianmei resta silencieuse un long moment avant de dire doucement: « Je ne comptais pas partir si tôt, car il y a encore des choses que je n'ai pas résolues. Cependant, le Maître a envoyé un appel hier... Les bêtes féroces à la Secte des Démons ont soudainement augmenté en nombre. Tous les disciples des sectes de rang 9 doivent accourir pour aider au plus vite. Je ne sais pas combien de temps je serai absente cette fois... »
+Li Qianmei resta silencieuse un long moment avant de dire doucement: « Je ne comptais pas partir si tôt, car il y a encore des choses que je n'ai pas résolues. Cependant, le Maître a envoyé un appel hier... Les bêtes féroces à la Secte Démon ont soudainement augmenté en nombre. Tous les disciples des sectes de rang 9 doivent accourir pour aider au plus vite. Je ne sais pas combien de temps je serai absente cette fois... »
 
 Wang Lin dit lentement: « Bon voyage. »
 

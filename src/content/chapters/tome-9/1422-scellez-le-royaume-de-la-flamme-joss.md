@@ -40,7 +40,7 @@ Ce n'était pas fini. En un instant, d'autres dragons de tonnerre apparurent et 
 
 « Le Royaume du Tonnerre Ancien sera la base de mon tatouage de tonnerre, et les neuf anciens dragons de tonnerre renforceront mes éclairs accompagnateurs. J'invoque l'apogée du tonnerre céleste! » La voix de Wang Lin résonna à travers le monde. Ses longs cheveux flottaient au vent tandis qu'il pointait la main vers l'avant.
 
-Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré l'éclair éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
+Outre son essence de feu, l'essence de tonnerre était le sort le plus puissant de Wang Lin. Après avoir dévoré l'tonnerre éternel du Clan du Tonnerre Dispersé et après avoir sondé l'âme du Grand Ancien, les sorts de tonnerre de Wang Lin avaient atteint un sommet!
 
 Sans cela, comment aurait-il pu faire apparaître la Porte du Vide avec sa seule essence de tonnerre, puis réussir à l'entrouvrir?
 

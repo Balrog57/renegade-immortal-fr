@@ -28,9 +28,9 @@ Chaque jour, en plus de renforcer l'empreinte sur le démon dispersé, il créai
 
 L'étendard des âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de l'Affinement de l'Âme. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
 
-Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Anti-Dieux. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
+Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Divinx. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
 
-Une fois le premier sceau libéré, ce Char de Guerre Anti-Dieux pouvait menacer des cultivateurs au sommet de la phase tardive de la Transformation de l'Âme. Quant au second sceau, Wang Lin se contenta de le scanner avec son sens divin, ce qui provoqua immédiatement l'apparition de filaments de foudre. Ces derniers poursuivirent son sens divin et parvinrent même à le suivre hors du sceau. Wang Lin était déjà prêt; il activa l'énergie spirituelle céleste en lui et prit plusieurs respirations pour dissiper complètement la foudre.
+Une fois le premier sceau libéré, ce Char de Guerre Divinx pouvait menacer des cultivateurs au sommet de la phase tardive de la Transformation de l'Âme. Quant au second sceau, Wang Lin se contenta de le scanner avec son sens divin, ce qui provoqua immédiatement l'apparition de filaments de foudre. Ces derniers poursuivirent son sens divin et parvinrent même à le suivre hors du sceau. Wang Lin était déjà prêt; il activa l'énergie spirituelle céleste en lui et prit plusieurs respirations pour dissiper complètement la foudre.
 
 À travers ces éclairs, Wang Lin comprit que si le second sceau était levé, la bête deviendrait extrêmement puissante! Il est fort probable que ce second sceau scellait le pouvoir de foudre de l'esprit de la bête!
 
@@ -42,7 +42,7 @@ Le sortilège de vent, de pluie, de tonnerre et de foudre utilisé par le vieill
 
 Wang Lin était confiant quant à l'ouverture du second sceau. Cependant, après avoir analysé la foudre, il réalisa que si le second sceau était levé, le piège à bêtes s'effondrerait sous la force de la créature!
 
-Le piège à bêtes lui avait été confié dans la Terre de l'Ancien Dieu par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Anti-Dieux, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
+Le piège à bêtes lui avait été confié dans la Terre de l'Ancien Dieu par un ancien cultivateur sous les ordres de Tuo Sen, en guise de paiement pour son aide. Cet objet s'était révélé très utile à Wang Lin au cours de ces centaines d'années, particulièrement pour le Char de Guerre Divinx, car il lui permettait d'utiliser le char même lorsque son niveau de culture n'était pas assez élevé!
 
 Mais maintenant que le niveau de culture de Wang Lin avait augmenté et que davantage de sceaux étaient ouverts, cet objet ne pouvait plus contrôler l'esprit de la bête!
 
@@ -52,7 +52,7 @@ En observant le piège, les yeux de Wang Lin trahirent une hésitation. Sans l'a
 
 Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redressa. Il disparut de la tour et réapparut à cinq mille kilomètres de la Tribu de l'Affinement de l'Âme.
 
-L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Anti-Dieux.
+L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Divinx.
 
 Le char de guerre féroce, couvert d'épines, apparut en dégageant une lumière puissante. Simultanément, la bête spirituelle surgit. Son corps de trois cent trente mètres de haut ressemblait à une petite montagne.
 
@@ -66,7 +66,7 @@ La poussière s'éleva en un large cercle et toute la terre trembla. La bête sp
 
 Wang Lin regarda calmement la bête. Lui, autrefois, n'aurait pu rivaliser avec elle. Mais désormais, il pouvait facilement la contenir au point qu'elle ne puisse plus se libérer.
 
-Sa main droite maintenait la bête à distance. Wang Lin mordit le bout de sa langue, puis commença lentement à tracer des symboles dans l'air jusqu'à ce qu'un symbole de sang se condense. Ce symbole avait été laissé par le créateur du Char de Guerre Anti-Dieux. Il y avait au total sept symboles et, une fois les sept placés, le char reconnaîtrait véritablement son maître!
+Sa main droite maintenait la bête à distance. Wang Lin mordit le bout de sa langue, puis commença lentement à tracer des symboles dans l'air jusqu'à ce qu'un symbole de sang se condense. Ce symbole avait été laissé par le créateur du Char de Guerre Divinx. Il y avait au total sept symboles et, une fois les sept placés, le char reconnaîtrait véritablement son maître!
 
 Cependant, deux de ces sept symboles n'étaient censés être utilisés qu'une fois le quatrième sceau levé.
 
@@ -94,7 +94,7 @@ L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fix
 
 Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 33 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
 
-Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays des Démons Célestes il y a vingt ans! »
+Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays du Démon Céleste il y a vingt ans! »
 
 Un silence pesant régna dans le château avant qu'une voix sinistre ne s'en échappe: « Quel est son niveau de culture actuel? »
 

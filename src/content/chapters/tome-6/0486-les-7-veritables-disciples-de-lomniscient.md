@@ -16,13 +16,13 @@ Wang Lin attrapa le sac et l'examina avec son Sens Divin. Le sac contenait effec
 
 Wang Lin joignit les mains et dit: « Merci infiniment! »
 
-Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la division pourpre; que dirais-tu que ton frère aîné te fasse visiter les lieux? »
+Bai Wei sourit. « Je t'en prie. Tu ne connais pas encore bien la Division Pourpre; que dirais-tu que ton frère aîné te fasse visiter les lieux? »
 
 Un éclat étrange passa dans les yeux de Wang Lin, qui refusa catégoriquement: « Je te remercie pour ta bienveillance, frère aîné, mais je suis encore occupé par ma culture. Faisons cela un autre jour. »
 
 En parlant, Wang Lin recula de deux pas. Il ressentait une sensation étrange émanant de Bai Wei, et discuter avec lui le mettait profondément mal à l'aise.
 
-Le regard de Bai Wei s'assombrit et il dit doucement: « Septième Frère, je ne cherche pas à te nuire, mais la division pourpre est d'une grande complexité. J'ai réfléchi toute la nuit avant de me décider à te les dire. Ne veux-tu vraiment pas les entendre? »
+Le regard de Bai Wei s'assombrit et il dit doucement: « Septième Frère, je ne cherche pas à te nuire, mais la Division Pourpre est d'une grande complexité. J'ai réfléchi toute la nuit avant de me décider à te les dire. Ne veux-tu vraiment pas les entendre? »
 
 Wang Lin réfléchit un instant, puis frappa son sac de rangement. Dans un éclat de lumière blanche, une table et deux chaises apparurent, accompagnées d'un service à thé sur la table.
 
@@ -36,7 +36,7 @@ Bai Wei prit sa tasse et en but une gorgée, puis ses yeux s'illuminèrent: « W
 
 L'expression de Wang Lin resta sereine. Il leva la tête vers Bai Wei, attendant la suite.
 
-Bai Wei posa sa tasse et reprit lentement: « Ton frère aîné est celui qui suit Maître depuis le plus longtemps au sein de la division pourpre; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton frère aîné connaît certainement la vérité derrière tout cela. »
+Bai Wei posa sa tasse et reprit lentement: « Ton frère aîné est celui qui suit Maître depuis le plus longtemps au sein de la Division Pourpre; il connaît donc des secrets que nous ignorons, comme la raison pour laquelle Maître réside sur cette planète depuis des dizaines de milliers d'années. Parmi ses disciples, hormis une infime minorité, la plupart ne cultivent que depuis un millénaire environ, et très peu dépassent les dix mille ans. Ton frère aîné connaît certainement la vérité derrière tout cela. »
 
 Le regard de Wang Lin devint sérieux. Il avait déjà envisagé cette question, mais faute de connaissances, il n'y avait pas approfondi le sujet. En entendant Bai Wei en parler, ses pensées s'emballèrent.
 
@@ -46,13 +46,13 @@ Le regard de Wang Lin devint sérieux. Il avait déjà envisagé cette question,
 
 Wang Lin réfléchit un instant. Peu après, il dit calmement: « Troisième Frère, en l'absence de preuves concluantes, il vaut mieux ne pas faire de conjectures sauvages. »
 
-Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La division pourpre est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
+Une lueur mystérieuse traversa les yeux de Bai Wei. Il marqua une pause avant de poursuivre: « La Division Pourpre est la plus faible de toutes les divisions, mais la compétition y reste féroce; ton frère aîné convoite cette position de véritable disciple depuis très longtemps. »
 
 « Ne sous-estime pas ton frère aîné; sa culture n'a pas toujours été ainsi. Autrefois, il avait échoué dans son combat contre Sixième Frère pour le titre de véritable disciple et en était ressorti avec des blessures irréparables, ce qui avait fait chuter son niveau de culture. Cependant, il est d'une détermination sans faille; il s'est retiré en culture fermée pendant des centaines d'années pour se préparer à laver son affront. »
 
 « Malheureusement, Sun Yun est apparu, et il a vaincu Sixième Frère ainsi que ton frère aîné pour obtenir la position de véritable disciple de Maître. »
 
-« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la division pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton frère aîné devra impérativement éliminer! »
+« Lors de la célébration de l'anniversaire de Maître dans trois mois, le nouveau véritable disciple de la Division Pourpre sera choisi. À moins que Sixième Frère ne revienne de son entraînement à l'extérieur, tu seras la personne que ton frère aîné devra impérativement éliminer! »
 
 Wang Lin fronça légèrement les sourcils: « Le titre des sept véritables disciples de l'Omniscient n'est qu'un titre. Pourquoi se battre ainsi? »
 
@@ -106,13 +106,13 @@ Wang Lin possédait de nombreuses techniques des anciens dieux issues des souven
 
 Il était midi. Le soleil brûlant trônait au zénith alors que Wang Lin sortait, vêtu de violet, ses longs cheveux flottant au vent, lui conférant un air d'élégance.
 
-Alors qu'il traversait la division pourpre, chaque disciple croisé s'arrêtait pour lui faire une révérence respectueuse en l'appelant: « Septième Ancêtre ».
+Alors qu'il traversait la Division Pourpre, chaque disciple croisé s'arrêtait pour lui faire une révérence respectueuse en l'appelant: « Septième Ancêtre ».
 
 En chemin, Wang Lin réalisa progressivement une chose: cette Secte du Destin Céleste ne ressemblait pas aux sectes de la planète Suzaku où seul le plus fort était respecté. Elle maintenait les traditions ancestrales où l'ancienneté dictait le respect, et la position d'un individu dépendait de son ancienneté au sein de la secte.
 
 Par conséquent, à l'exception de quelqu'un comme Wang Lin qui était apparu soudainement, les rangs étaient extrêmement stables de génération en génération. C'est pourquoi même Sun Yun, bien qu'étant devenu l'un des sept véritables disciples, devait encore appeler Zhao Xingsha « frère aîné » lorsqu'ils se rencontraient.
 
-La division pourpre était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la division pourpre!
+La Division Pourpre était immense. Ayant déjà exploré la zone à plusieurs reprises, il n'était pas étranger au chemin. Sa destination cette fois-ci: le pavillon des trésors de la Division Pourpre!
 
 C'est dans ce pavillon que les disciples obtenaient leurs pilules et leurs pierres spirituelles. C'est aussi là que Bai Wei avait récupéré le jeton et les vêtements de Wang Lin. En tant que disciple de l'Omniscient, il bénéficierait de privilèges spéciaux, comme une allocation mensuelle de jade céleste. Il avait décidé de s'y rendre après les explications de Bai Wei.
 

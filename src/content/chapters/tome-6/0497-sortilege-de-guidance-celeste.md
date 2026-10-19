@@ -64,9 +64,9 @@ La scène créée par le Sortilège de Guidance Céleste n'avait manifestement p
 
 Après avoir démontré ce sort, l'Omniscient ne déclara pas la fin de cette séance d'enseignement du Dao. Au lieu de cela, ses yeux brillèrent d'une lueur mystérieuse et il dit lentement: « Aujourd'hui, outre la célébration de mon anniversaire, je souhaite que mes compagnons cultivateurs soient témoins. Je possède au total sept divisions de disciples, et seules les Divisions Jaune et Violette n'ont aucun détenteur du titre de véritable disciple. Aujourd'hui est le jour où les véritables disciples de ces deux divisions seront choisis! »
 
-À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Violette. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Violette.
+À ces mots, les regards des cultivateurs environnants se tournèrent vers les Divisions Jaune et Violette. Cependant, la plupart fixaient la Division Jaune; peu s'intéressaient à la Division Pourpre.
 
-Après tout, nul n'ignorait que la Division Violette était bien trop faible.
+Après tout, nul n'ignorait que la Division Pourpre était bien trop faible.
 
 La Division Jaune comptait six personnes. Le Troisième Frère de la Division Jaune portait le titre de véritable disciple. Cependant, il y a trente ans, il avait disparu lors d'un voyage hors de la secte et on n'avait plus jamais eu de ses nouvelles.
 
@@ -118,4 +118,4 @@ Après un long moment, Yundao Zi se tourna vers lui et esquissa un léger sourir
 
 Ce sourire était singulier; c'était comme s'il avait tout percé à jour.
 
-« La suite concerne le titre de véritable disciple pour la Division Violette. Wang Lin, Zhao Xinmeng, Bai Wei, êtes-vous tous les trois prêts? » L'Omniscient regarda Wang Lin et hocha la tête avec un sourire.
+« La suite concerne le titre de véritable disciple pour la Division Pourpre. Wang Lin, Zhao Xinmeng, Bai Wei, êtes-vous tous les trois prêts? » L'Omniscient regarda Wang Lin et hocha la tête avec un sourire.

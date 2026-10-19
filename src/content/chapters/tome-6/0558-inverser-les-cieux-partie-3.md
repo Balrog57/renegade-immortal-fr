@@ -74,7 +74,7 @@ Sa destinée était suspendue à ce va-et-vient!
 
 « Je vais simplement te sceller dans un lieu où tu endureras des millénaires de solitude, coincée entre la vie et la mort, incapable de trépasser. Même si tu tentais de te mordre la langue pour te suicider, le sceau sur ton front t'en empêcherait! Je veux voir comment tu te relèveras avec ta Pilule de l'Âme Sanguine! » La voix de Wang Lin était calme, mais ses paroles firent chanceler l'expression de Yao Xixue.
 
-En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsqu'il avait vu sa culture détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yue. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité!
+En prononçant ces mots, Wang Lin ne put s'empêcher de repenser à la planète Suzaku, lorsqu'il avait vu sa culture détruite par l'Ancêtre du Clan des Démons Géants et le cultivateur de Xue Yu. Après être devenu un incapable, il avait été jeté dans une prison aquatique par des bandits. Là, il avait trouvé le squelette d'une femme scellée depuis une éternité!
 
 Wang Lin pensa: « Il y a un cycle à toute chose en ce monde! »
 

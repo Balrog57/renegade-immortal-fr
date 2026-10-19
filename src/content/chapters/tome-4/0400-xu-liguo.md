@@ -94,7 +94,7 @@ Boum!
 
 Toutes les lances explosèrent dans un unique retentissement, créant une onde de choc qui se propagea dans toutes les directions.
 
-Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le drapeau aux un milliard d'âmes, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
+Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le Étendard de l'Âme, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
 
 D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais que l'âme principale du drapeau, n'agissant que par instinct.
 

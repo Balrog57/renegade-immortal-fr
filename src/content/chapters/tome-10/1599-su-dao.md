@@ -8,9 +8,9 @@ slug: su-dao
 ---
 « Le monde est une auberge pour tous les êtres vivants... Le temps est l'invité des âges... Et la vie fugace est semblable à un rêve... combien de joies nous offre-t-elle... et pour combien de joies? »
 
-En juin, la ville de Su laissa derrière elle la saison où tout renaît pour entrer dans le mois où les fleurs s'épanouissent en mille couleurs. Les feuilles de saule qui voltigeaient dans le ciel semblaient vouloir emporter avec elles le passage du temps.
+En juin, la ville de Su laissa derrière elle la saison où tout renaît pour entrer dans le mois où les fleurs s'épanouissent en mille couleurs. Les flocons de saule qui voltigeaient dans le ciel semblaient vouloir emporter avec elles le passage du temps.
 
-Les feuilles de saule emplissaient le ciel comme de la neige; c'était une scène d'une grande beauté. Elles ressemblaient à des flocons estivaux dérivant dans les airs. Si le vent soufflait plus fort, elles s'agitaient davantage, semblant dépourvues de racines. Bien que magnifiques, elles dégageaient aussi une pointe de mélancolie.
+Les flocons de saule emplissaient le ciel comme de la neige; c'était une scène d'une grande beauté. Elles ressemblaient à des flocons estivaux dérivant dans les airs. Si le vent soufflait plus fort, elles s'agitaient davantage, semblant dépourvues de racines. Bien que magnifiques, elles dégageaient aussi une pointe de mélancolie.
 
 Elles paraissaient être des vagabondes sans foyer, ne pouvant se mouvoir qu'au gré du vent, ignorant leur destination. Peut-être atterriraient-elles dans la rivière pour ne faire qu'un avec l'eau, ou tomberaient-elles au sol pour se mêler à la poussière, avant d'être emportées par un vent puissant.
 
@@ -24,13 +24,13 @@ Derrière lui se tenait un homme d'âge mûr, vêtu de l'habit d'un serviteur le
 
 « Une cruche de vin d'osmanthus coûte sept pièces d'argent. C'est cher, vraiment trop cher! Chaque gorgée revient presque à avaler la moitié d'une pièce d'argent... »
 
-La feuille de saule tombée dans la main du jeune homme marqua un temps d'arrêt, mais ne sembla pas atteindre son terme. Elle parut pousser un léger soupir avant de s'envoler de sa paume. Elle papillonna au loin avec une pointe de folie, comme si elle connaissait sa destinée et fonçait sans relâche vers son but.
+Le flocon de saule tombé dans la main du jeune homme marqua un temps d'arrêt, mais ne sembla pas atteindre son terme. Elle parut pousser un léger soupir avant de s'envoler de sa paume. Elle papillonna au loin avec une pointe de folie, comme si elle connaissait sa destinée et fonçait sans relâche vers son but.
 
-Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les feuilles de saule s'éloignaient, les pétales de pêcher tombaient dans la rivière, créant des ondulations successives.
+Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les flocons de saule s'éloignaient, les pétales de pêcher tombaient dans la rivière, créant des ondulations successives.
 
 « Les saules fous dansent avec le vent, les légères fleurs de pêcher flottent au fil de l'eau. » Wang Lin vida d'un trait le vin qu'il tenait et son rire résonna.
 
-Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, passant sous les ponts de pierre qui enjambaient la rivière, accompagnée des feuilles de saule, pour s'éloigner paisiblement vers l'horizon.
+Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, passant sous les ponts de pierre qui enjambaient la rivière, accompagnée des flocons de saule, pour s'éloigner paisiblement vers l'horizon.
 
 « Grande Fortune, apporte le vin! » Wang Lin se retourna vers l'homme d'âge mûr en riant.
 

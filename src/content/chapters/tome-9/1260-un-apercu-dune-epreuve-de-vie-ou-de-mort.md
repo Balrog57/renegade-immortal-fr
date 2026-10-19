@@ -44,7 +44,7 @@ Le visage de Lu Yuncong était empreint d'amertume tandis qu'il secouait la têt
 
 L'esprit de Li Qianmei fut également ébranlé en contemplant la silhouette devant elle. Elle ne pouvait détacher cette figure de celle d'il y a cent ans. Elle ne comprenait pas comment sa puissance avait pu changer à ce point, mais cela n'avait pas d'importance. Ce qui importait, c'était qu'elle soit ici et l'ait vu.
 
-Ce qui importait, c'est qu'elle avait quitté la Secte Démoniaque pour voir une seule personne, et elle l'avait vue... C'était tout.
+Ce qui importait, c'est qu'elle avait quitté la Secte Démon pour voir une seule personne, et elle l'avait vue... C'était tout.
 
 Mu Bingmei se mordit la lèvre inférieure. Chaque fois qu'elle voyait Wang Lin, il était totalement différent. Cependant, elle ne pensait pas qu'il changerait à ce point lors de cette rencontre fortuite.
 

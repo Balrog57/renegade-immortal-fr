@@ -40,7 +40,7 @@ Le regard de Wang Lin resta calme tandis qu'il balayait l'assemblée. Son attent
 
 L'expression de Cupidité ne changea nullement. Il ne regarda Wang Lin qu'au moment précis de son apparition, avant de refermer les yeux.
 
-Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu Wang Lin, de la Division Violette de la Secte du Destin Céleste? »
+Une voix basse s'éleva de la bouche de Chen Long: « Je suis Chen Long. Es-tu Wang Lin, de la Division Pourpre de la Secte du Destin Céleste? »
 
 Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas, attendant de voir si ces membres de la Secte de l'Épée Da Luo étaient ici de leur plein gré ou s'ils y étaient piégés. C'était un point crucial: s'ils étaient là volontairement, son intuition précédente était erronée.
 

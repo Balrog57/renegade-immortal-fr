@@ -20,7 +20,7 @@ Dans les yeux de Papillon Rouge, Wang Lin ne voyait qu'un silence de mort.
 
 L'actuelle Papillon Rouge était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
-La Papillon Rouge d'autrefois était le génie de Xue Yue, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
+La Papillon Rouge d'autrefois était le génie de Xue Yu, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs différends, creusés peu à peu, les avaient finalement menés à leur bataille décisive.
 
 Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certain. Ce respect était celui que l'on accorde à un adversaire de valeur.
 

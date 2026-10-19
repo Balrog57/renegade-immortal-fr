@@ -42,7 +42,7 @@ Cinq coups de tambour prennent un bras, dix coups prennent deux bras, quinze cou
 
 Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement blessé! Si une seule des voix s'était manifestée, il n'aurait pas été si affaibli qu'il ne pouvait plus se défendre; il ne serait pas devenu un mortel.
 
-Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
+Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays du Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
 
 Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité du Démon Céleste et percer le vide.
 
@@ -52,7 +52,7 @@ Sur la place, le Commandant Céleste était le plus proche de Wang Lin. À cet i
 
 Les sept autres commandants observaient Wang Lin avec des sentiments très complexes. Leur attention ne portait pas sur la culture de Wang Lin, mais sur le fait qu'il ait frappé le tambour quinze fois!
 
-Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin, officiellement, celui qui avait frappé le plus de coups dans le Pays Démon Céleste!
+Quinze fois! Cela surpassait tout le monde, faisant de Wang Lin, officiellement, celui qui avait frappé le plus de coups dans le Pays du Démon Céleste!
 
 Les vice-commandants étaient plongés dans un silence de stupeur. Le Vice-Commandant Xuan prit une profonde inspiration. Sa culture, bloquée depuis si longtemps, était sur le point de franchir un nouveau palier. Tout cela grâce au son du nettoyage médullaire de Wang Lin et au changement intérieur que ce dernier avait provoqué en lui.
 

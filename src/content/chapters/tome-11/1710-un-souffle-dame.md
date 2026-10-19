@@ -16,7 +16,7 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « Du Sang d'Âme... Mon Dieu, j'ai vu une goutte de Sang d'Âme violet! En toutes les générations du pays ancestral, il n'y en a eu que neuf! »
 
-« La légende raconte que l'Ancêtre Ancestral offrit neuf gouttes de Sang d'Âme à ses trois fils. Ces trois fils fondèrent chacun un des clans anciens. Mon clan est le Clan Dao, issu de son troisième fils, et il perdure encore aujourd'hui... »
+« La légende raconte que l'Ancêtre Ancien offrit neuf gouttes de Sang d'Âme à ses trois fils. Ces trois fils fondèrent chacun un des clans anciens. Mon clan est le Clan Dao, issu de son troisième fils, et il perdure encore aujourd'hui... »
 
 « Et maintenant, la dixième goutte vient d'apparaître... Ceci... »
 
@@ -24,13 +24,13 @@ Ils contemplèrent la lumière violette et démoniaque émanant du Sang d'Âme a
 
 « La troisième épreuve comporte trois calamités, la première étant le Sang Céleste de la Race Ancienne. Il a obtenu neuf gouttes de sang suivies d'une goutte de Sang d'Âme, et ce n'est que la première étape. S'il atteint la deuxième calamité, les Trois Distractions du Dao Ancien... quelle fortune obtiendra-t-il alors? »
 
-« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancestral. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'il est un génie, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancestral que nul n'a jamais obtenu? »
+« Et il y a aussi la dernière calamité, la Bénédiction de l'Ancêtre Ancien. S'il a obtenu une telle reconnaissance de l'Ancêtre et qu'il est un génie, je ne peux imaginer ce qu'il recevra ensuite... Peut-être l'héritage légendaire de l'Ancêtre Ancien que nul n'a jamais obtenu? »
 
 Les débats firent écho alors que tous restaient bouleversés par cette goutte de Sang d'Âme. Heureusement, cet endroit avait été scellé par le Grand Empyréen Xuan Luo qui, de sa puissance immense, empêcha quiconque de divulguer ce qui s'était produit ici.
 
 Faute de quoi, cette nouvelle aurait provoqué une onde de choc monumentale sur le Continent Astral Immortel. Les clans Ji et Shi ne tarderaient pas à venir enquêter dès qu'ils en auraient appris connaissance, ce qui pourrait même déclencher un conflit.
 
-Il faut dire que l'apparition de la dixième goutte de Sang d'Âme était d'une importance capitale pour le pays ancestral. Si Wang Lin parvenait à obtenir deux gouttes supplémentaires, il pourrait disperser son essence sanguine et fonder un quatrième clan ancien, à l'instar des trois fils de l'Ancêtre Ancestral!
+Il faut dire que l'apparition de la dixième goutte de Sang d'Âme était d'une importance capitale pour le pays ancestral. Si Wang Lin parvenait à obtenir deux gouttes supplémentaires, il pourrait disperser son essence sanguine et fonder un quatrième clan ancien, à l'instar des trois fils de l'Ancêtre Ancien!
 
 Si les Célestes l'apprenaient, ils en seraient stupéfaits. Bien que cela ne déclenche pas une guerre ouverte, ils enverraient des gens pour surveiller la situation de très près.
 
@@ -66,9 +66,9 @@ Une odeur de sang se répandit. Une silhouette émergea lentement des décombres
 
 À ces mots, des centaines de silhouettes semblables à de la fumée apparurent et s'agenouillèrent devant lui.
 
-L'homme en robe royale agita sa manche et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait au sommet de la plus haute tour du palais. Il se tenait là, face au monde, surplombant le domaine et la statue de l'Ancêtre Ancestral qui perçait les cieux.
+L'homme en robe royale agita sa manche et disparut sans laisser de trace. Lorsqu'il réapparut, il se trouvait au sommet de la plus haute tour du palais. Il se tenait là, face au monde, surplombant le domaine et la statue de l'Ancêtre Ancien qui perçait les cieux.
 
-« Je suis l'empereur du pays Dao, un véritable descendant de l'Ancêtre Ancestral, et son sang coule dans mes veines. Un simple héritier de Ye Mo... quelles qualifications a-t-il pour être si hautement estimé par Xuan Luo? »
+« Je suis l'empereur du pays Dao, un véritable descendant de l'Ancêtre Ancien, et son sang coule dans mes veines. Un simple héritier de Ye Mo... quelles qualifications a-t-il pour être si hautement estimé par Xuan Luo? »
 
 « Sang d'Âme... » L'homme en robe royale paraissait calme, mais sa main droite se serra en un poing puissant. Il se mit soudain à rire.
 

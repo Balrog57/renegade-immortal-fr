@@ -52,7 +52,7 @@ Cette secousse tira Xu Liguo de sa confusion. Le visage pâle, il pointa Wang Li
 
 Wang Lin ferma les yeux, dissimulant la tristesse qui y régnait. Il savait que le fou n'avait aucun souvenir du monde des grottes.
 
-« Dao Fei, pars! » Une voix colérique s'éleva du Temple du Dao Céleste et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme un duvet de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
+« Dao Fei, pars! » Une voix colérique s'éleva du Temple du Dao Céleste et l'Empereur Céleste en sortit. D'un revers de main, il projeta le jeune homme à la chemise fleurie qui étranglait Wang Lin, l'envoyant au loin comme un flocon de saule. Le jeune homme en robe verte et Xu Liguo s'enfuirent rapidement; ils n'osaient rester.
 
 L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, expulsez-le du palais et interdisez-lui toute entrée! »
 

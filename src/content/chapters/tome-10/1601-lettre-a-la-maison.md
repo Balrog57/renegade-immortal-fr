@@ -8,7 +8,7 @@ slug: lettre-a-la-maison
 ---
 En un éclair, une autre décennie s'écoula.
 
-Su Dao était mort de vieillesse il y a trois ans; il s'était éteint durant l'hiver. Il avait lutté pour survivre à la saison froide afin de vivre encore quelques mois et pouvoir contempler les feuilles de saule l'année suivante.
+Su Dao était mort de vieillesse il y a trois ans; il s'était éteint durant l'hiver. Il avait lutté pour survivre à la saison froide afin de vivre encore quelques mois et pouvoir contempler les flocons de saule l'année suivante.
 
 Cependant, bien que son esprit fût capable de comprendre le monde, son corps ne pouvait altérer la vie ou la mort. Durant l'hiver, les flocons tombaient, laissant le monde et la rivière figés sous une mince couche de glace. Il contemplait la chute de la neige comme si elle allait durer une éternité.
 

@@ -74,7 +74,7 @@ Cette agitation attira même l'attention des neuf soleils, créant une occurrenc
 
 Personne ne pourrait oublier cette scène; elle resterait gravée dans les mémoires pendant des années. Elle devint un mystère sur lequel tout le monde spéculerait.
 
-Lors de la naissance de l'Ancêtre Céleste, trois signes apparurent. Le ciel doré et la terre noire furent le premier! Lors de la naissance de l'Ancêtre Antique, neuf chants retentirent. Les yeux argentés en faisaient partie!
+Lors de la naissance de l'Ancêtre Céleste, trois signes apparurent. Le ciel doré et la terre noire furent le premier! Lors de la naissance de l'Ancêtre Ancien, neuf chants retentirent. Les yeux argentés en faisaient partie!
 
 Bien que les cultivateurs ordinaires l'ignorassent, quiconque avait atteint un certain niveau de culture ou appartenait à une secte puissante en connaissait les fondements.
 
@@ -108,7 +108,7 @@ Si cela s'était arrêté là, le choc aurait été immense mais n'aurait pas su
 
 L'apparition de ce vortex déclencha une vague de choc et de terreur inimaginable!
 
-« Ceci... c'est impossible! Comment un troisième vortex peut-il apparaître alors que les illusions de l'Ancêtre Céleste et de l'Ancêtre Antique descendent?! »
+« Ceci... c'est impossible! Comment un troisième vortex peut-il apparaître alors que les illusions de l'Ancêtre Céleste et de l'Ancêtre Ancien descendent?! »
 
 « Un troisième vortex est apparu sous les Ancêtres Céleste et Antique... Qu'est-ce que cela signifie?! »
 

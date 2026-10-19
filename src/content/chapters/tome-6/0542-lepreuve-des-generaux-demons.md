@@ -56,7 +56,7 @@ Les yeux de Wang Lin s'illuminèrent légèrement alors qu'il l'étudiait avec a
 
 D'un seul pas, une aura féroce surgit soudainement derrière lui et se propagea avec frénésie.
 
-La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays du Démon Céleste. Tu es sans doute venu à la Grande Muraille Antique pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
+La femme en robe blanche regarda froidement Wang Lin, puis elle fronça les sourcils, recula d'un pas et déclara: « Ainsi, tu te trouves aussi dans le Pays du Démon Céleste. Tu es sans doute venu à la Cité de l'Ancien Démon pour obtenir des mérites militaires toi aussi; une bataille entre nous n'aurait donc aucun sens! »
 
 Tout en parlant, elle se détourna et pénétra dans la ville.
 
@@ -66,7 +66,7 @@ La vitesse de la femme en robe blanche n'était pas très élevée. Elle ne se d
 
 Des soldats démons gardaient le dispositif. En voyant la femme, ils s'agenouillèrent tous avec une grande déférence.
 
-À l'intérieur du réseau de transfert, la femme se retourna et lança froidement à Wang Lin: « Suis-moi pour rencontrer le général de l'aile gauche. Dans la Grande Muraille Antique, seul un général démon peut t'octroyer une fonction! »
+À l'intérieur du réseau de transfert, la femme se retourna et lança froidement à Wang Lin: « Suis-moi pour rencontrer le général de l'aile gauche. Dans la Cité de l'Ancien Démon, seul un général démon peut t'octroyer une fonction! »
 
 Wang Lin acquiesça et dit à Treize et Hu Pao: « Attendez-moi à l'intérieur de la ville. » Sur ces mots, il entra dans le réseau de transfert.
 

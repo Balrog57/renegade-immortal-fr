@@ -114,7 +114,7 @@ Une année, puis une autre.
 
 L'oiseau blanc ne réapparut jamais; c'était comme s'il avait quitté le rêve.
 
-Sous leurs regards croisés et au son de la cithare, Wang Lin et Li Muwan vécurent le renouveau de la vie au printemps, les feuilles de saule dansant dans l'air en été et les feuilles mortes roulant au sol en automne.
+Sous leurs regards croisés et au son de la cithare, Wang Lin et Li Muwan vécurent le renouveau de la vie au printemps, les flocons de saule dansant dans l'air en été et les feuilles mortes roulant au sol en automne.
 
 Ils contemplèrent ensemble la pluie et la neige lors d'hivers qui n'étaient plus froids.
 

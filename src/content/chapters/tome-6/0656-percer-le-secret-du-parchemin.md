@@ -46,7 +46,7 @@ Si ce qu'il avait entendu précédemment ressemblait à dix mille éclairs foudr
 
 Son âme originelle, ses souvenirs, tout ce qu'il était, entra instantanément en éruption comme un déluge monstrueux à la suite de cette seconde phrase. C'était comme si le ciel entier s'effondrait. Malgré sa force mentale, Wang Lin ne put empêcher son corps de trembler. Il se retourna et fixa la femme. Ses yeux possédaient l'éclat d'une bête sauvage, ayant perdu toute la sérénité acquise durant ses 800 ans de culture!
 
-À cet instant, que ce soit l'Omniscient, la grotte, l'Ancêtre de Sang ou la Terre des Esprits Démoniaques n'avait plus d'importance! Tout cela s'était effondré; seule importait la présence du regard éperdu de Wang Lin sur la femme!
+À cet instant, que ce soit l'Omniscient, la grotte, l'Ancêtre Sanguin ou la Terre des Esprits Démoniaques n'avait plus d'importance! Tout cela s'était effondré; seule importait la présence du regard éperdu de Wang Lin sur la femme!
 
 « Qu'avez-vous dit...? » Une voix rauque, d'un ton que Wang Lin n'avait jamais employé auparavant, s'échappa de sa bouche.
 

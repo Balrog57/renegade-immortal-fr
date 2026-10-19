@@ -66,7 +66,7 @@ La scène changea une fois de plus. Cette fois, c'était une grotte dans la for�
 
 Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à la Vallée Jue Ming, au Champ de Bataille Extérieur, à Huo Fen, et enfin à la Mer des Démons avec le tendon de dragon qui enchaînait mille cadavres et l'Ordre des Dix Mille Démons de cent jours.
 
-Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yue, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yue [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
+Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yu, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yu [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans le Tombeau de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
 La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre Sanguin, l'intérieur de la Bête des Limbes, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la bataille pour le Titre Céleste au Temple Céleste du Tonnerre, sur la ligne menant au ciel.
 
@@ -98,7 +98,7 @@ Chaque couche dégageait une aura de ressentiment dense et des éclats d'une som
 
 C'était son propre domaine qu'il avait créé pour l'Arsenal Magique!
 
-Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume du Massacre. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
+Bai Fan possédait le Royaume Mystérieux et Qing Shui son Royaume de la Boucherie. Wang Lin, lui, avait ses 18 Couches de la Réincarnation Infernale!
 
 Le Sceau Céleste servait de terre, les sceaux dorés de protection, la rivière des enfers de cycle de réincarnation, le tout imprégné d'une aura de ressentiment pour parfaire les 18 couches de l'enfer.
 
@@ -114,7 +114,7 @@ Wang Lin se leva et contempla les 18 couches de l'enfer dans le ciel. Un vortex 
 
 Un gaz noir infini s'échappa de cette énergie. Ce gaz noir représentait toutes les personnes tuées par Wang Lin. Dès qu'ils approchèrent des 18 couches de l'enfer, chaque couche les absorba selon leur force.
 
-Au même moment, Wang Lin frappa son sac de stockage et le Drapeau des Un Milliard d'Âmes s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
+Au même moment, Wang Lin frappa son sac de stockage et le Étendard de l'Âme s'envola. Il agita le drapeau pour l'ouvrir, et les fragments d'âme s'en échappèrent comme des démons en furie.
 
 ***
 1. Le pays du Papillon Rouge.

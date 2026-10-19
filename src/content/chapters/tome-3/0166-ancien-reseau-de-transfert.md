@@ -12,7 +12,7 @@ Mais dès que l'idée traversa son esprit, elle s'évanouit. Il soupira secrète
 
 Il vit un érudit d'âge mûr, vêtu d'une robe grise en toile de chanvre et portant un bandeau carré sur la tête, arriver de loin en flottant. Le visage de cet homme était aussi blanc que le jade et une lueur de froideur passait parfois dans ses yeux quand il les ouvrait et les refermait.
 
-Son corps, léger comme un duvet de saule dans le vent, descendit du ciel. D'un coup de manche, il dit d'un ton calme: « Duanmu Ji, mon bateau terrestre a-t-il été utile? »
+Son corps, léger comme un flocon de saule dans le vent, descendit du ciel. D'un coup de manche, il dit d'un ton calme: « Duanmu Ji, mon bateau terrestre a-t-il été utile? »
 
 Les pupilles de Wang Lin se contractèrent. Il n'était pas capable de percer le niveau de culture de cet homme, tout comme il ne pouvait sonder celui du Seigneur Démon des Huit Extrêmes. À voir comment il s'adressait au Seigneur Démon des Huit Extrêmes sur un pied d'égalité, leurs niveaux de culture devaient être similaires.
 

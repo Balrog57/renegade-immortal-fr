@@ -100,7 +100,7 @@ Non loin de Xi Zifeng siégeait une vieille femme. Bien qu'elle ne fût manifest
 
 Elle fronça les sourcils en regardant Xi Zifeng et soupira: « Une relation maudite! »
 
-Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Luotian. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de l'Ancêtre de Sang, et beaucoup le surpassaient largement.
+Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Luotian. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de l'Ancêtre Sanguin, et beaucoup le surpassaient largement.
 
 Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Yan Leizi, imperturbable, déclara lentement: « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun! Les six voies mystérieuses, par la réincarnation, tempéreront l'intention du Dao! »
 

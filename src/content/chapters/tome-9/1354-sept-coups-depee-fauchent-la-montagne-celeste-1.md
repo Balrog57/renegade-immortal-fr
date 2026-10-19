@@ -8,7 +8,7 @@ slug: sept-coups-depee-fauchent-la-montagne-celeste-1
 ---
 À l'instant même où Wang Lin pénétra dans les 7 Millions de Mondes via le talisman, un réseau de lumière apparut devant lui. Ce bouclier lumineux lui offrait une protection, lui permettant de reculer encore plus rapidement.
 
-L'éclair éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
+L'tonnerre éternel frappa immédiatement le réseau de lumière, et un grondement tonitruant résonna à travers les 7 Millions de Mondes. Le réseau vacilla frénétiquement avant de s'effondrer.
 
 Au moment où le réseau se brisa, les dizaines de milliers de membres du Clan du Tonnerre Dispersé présents dans les 7 Millions de Mondes saignèrent abondamment par tous leurs orifices et périrent instantanément!
 
@@ -16,17 +16,17 @@ Le Daoïste Esprit Dispersé avait capturé tous les membres du clan ici après 
 
 À cet instant, le réseau s'effondra et tous les membres du Clan du Tonnerre Dispersé présents moururent!
 
-L'éclair éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
+L'tonnerre éternel trembla également. La protection du réseau avait été si puissante qu'elle avait considérablement affaibli l'éclair. Alors que celui-ci s'apprêtait à poursuivre Wang Lin, une silhouette illusoire surgit du vide!
 
-Le Daoïste Esprit Dispersé émergea du néant, le regard mystérieux, et saisit l'éclair éternel de sa main droite.
+Le Daoïste Esprit Dispersé émergea du néant, le regard mystérieux, et saisit l'tonnerre éternel de sa main droite.
 
-Des grondements assourdissants ébranlèrent le monde. Les vêtements du Daoïste Esprit Dispersé flottaient violemment, des craquements résonnaient dans son corps et il cracha du sang. Pourtant, il maintint sa prise sur l'éclair éternel. Bien que celui-ci continuât de faiblir, il ne s'effondrait pas encore.
+Des grondements assourdissants ébranlèrent le monde. Les vêtements du Daoïste Esprit Dispersé flottaient violemment, des craquements résonnaient dans son corps et il cracha du sang. Pourtant, il maintint sa prise sur l'tonnerre éternel. Bien que celui-ci continuât de faiblir, il ne s'effondrait pas encore.
 
 Wang Lin cessa de reculer et chargea. Sa main droite se crispa en un poing et il lança un coup sans la moindre hésitation. La foudre jaillit de son œil droit, formant un réseau de tonnerre.
 
-Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort, ce qui l'affaiblit davantage. Puis il relâcha sa pression, et à cet instant précis, le coup de poing de Wang Lin et la foudre s'abattirent sur cette portion de l'éclair éternel.
+Le Daoïste Esprit Dispersé poussa un rugissement et serra l'éclair plus fort, ce qui l'affaiblit davantage. Puis il relâcha sa pression, et à cet instant précis, le coup de poing de Wang Lin et la foudre s'abattirent sur cette portion de l'tonnerre éternel.
 
-Un fracas assourdissant retentit et, grâce à leur attaque combinée, l'éclair éternel finit par se briser!
+Un fracas assourdissant retentit et, grâce à leur attaque combinée, l'tonnerre éternel finit par se briser!
 
 Une onde de choc dévastatrice projeta Wang Lin et le Daoïste Esprit Dispersé en arrière. Tout cela se produisit en un éclair. Tandis qu'ils reculaient, le Grand Ancien apparut non loin de là.
 

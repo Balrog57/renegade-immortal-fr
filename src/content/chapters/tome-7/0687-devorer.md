@@ -78,9 +78,9 @@ Le démon dispersé, via le corps de Wang Lin, tourna son regard vers l'écran d
 
 Des fissures apparurent sur l'écran, mais celui-ci ne céda pas. Sous la protection de la lumière, le visage de l'ancêtre de la famille Huan était d'une pâleur mortelle.
 
-Huan Fengshen déclara d'un ton grave: « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
+Huan Feng Shen déclara d'un ton grave: « Ancêtre, remettez Liu Mei... » Il poussa un soupir. Bien que l'adversaire ne soit qu'un cultivateur Ascendant, ses trésors magiques et ses sorts étaient trop puissants, surtout après l'apparition du démon. Même si la culture de l'Ancêtre n'avait pas décliné, il ne serait toujours pas de taille.
 
-L'ancêtre de la famille Huan jeta un regard vers Huan Fengshen, qui s'était séparé de lui et se tenait non loin, puis détourna les yeux pour fixer Liu Mei d'un air sombre. Il hésita un instant avant de dire lentement: « Liu Mei... »
+L'ancêtre de la famille Huan jeta un regard vers Huan Feng Shen, qui s'était séparé de lui et se tenait non loin, puis détourna les yeux pour fixer Liu Mei d'un air sombre. Il hésita un instant avant de dire lentement: « Liu Mei... »
 
 Cependant, avant qu'il n'ait pu achever sa phrase, Liu Mei leva ses beaux yeux vers lui. Elle écarta les mèches de cheveux qui retombaient sur sa tête et dit doucement: « Maître, si Liu Mei part, je mourrai certainement. »
 

@@ -48,7 +48,7 @@ La plateforme était vide, mais entourée d'une barrière invisible empêchant t
 
 Cette barrière était entièrement formée par les lois du Continent Astral Immortel. Sans parler de Wang Lin, même Xuan Luo aurait eu du mal à briser cette barrière pour y pénétrer.
 
-Seuls l'Ancêtre Céleste, l'Ancêtre Antique et les neuf bêtes étranges qui les accompagnaient, nées des lois du Continent Astral Immortel, pouvaient franchir ce rempart.
+Seuls l'Ancêtre Céleste, l'Ancêtre Ancien et les neuf bêtes étranges qui les accompagnaient, nées des lois du Continent Astral Immortel, pouvaient franchir ce rempart.
 
 Dans ses souvenirs flous, le Roi Moustique se rappelait que ses ancêtres étaient nés sur une plateforme ronde semblable à celle-ci... Ainsi, dès que son maître entrerait sur une telle plateforme, il s'éveillerait certainement!
 

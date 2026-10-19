@@ -22,7 +22,7 @@ Au moment où le Démon Dispersé apparut pour la première fois, l'expression d
 
 « Alors, c'était là son atout! »
 
-Huan Fengshen haleta, se réjouissant intérieurement de sa décision prise plus tôt. Tous les descendants directs de la famille Huan derrière lui ressentirent la même chose.
+Huan Feng Shen haleta, se réjouissant intérieurement de sa décision prise plus tôt. Tous les descendants directs de la famille Huan derrière lui ressentirent la même chose.
 
 Le cœur de Qian Kuizi, de la famille Qian, s'emballa sauvagement. Ce Démon Dispersé était trop puissant. Malgré son niveau de culture, il en frissonna réellement à sa vue.
 

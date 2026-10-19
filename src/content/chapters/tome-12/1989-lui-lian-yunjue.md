@@ -82,7 +82,7 @@ Mais en voyant personnellement la tête de l'Ancêtre Céleste, le choc et l'hor
 
 Le cœur de Wang Lin trembla. Ce qu'il voyait aujourd'hui semblait ouvrir une porte sur le passé antique du clan céleste!! Que s'était-il passé à cette époque?
 
-Si l'Ancêtre Céleste était mort, alors qu'en était-il de l'Ancien Ancêtre...
+Si l'Ancêtre Céleste était mort, alors qu'en était-il de l'Ancêtre Ancien...
 
 Toutes ces pensées résonnèrent instantanément dans son esprit. La lumière fantomatique de l'Enseignant Impérial poussa un cri rauque vers le ciel après avoir invoqué la tête de l'Ancêtre Céleste. Il ferma les yeux, puis sa main gauche couvrit son œil gauche tandis que son œil droit s'ouvrait soudainement!
 

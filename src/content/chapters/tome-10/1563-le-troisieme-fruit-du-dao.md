@@ -30,7 +30,7 @@ Tout cela s'était produit en un battement de cils. À peine quelques respiratio
 
 Bloqué par le Maître Long Pan, les yeux du Seigneur du Palais de la Punition Céleste brillèrent d'une lueur glaciale. Il décida d'ignorer Wang Lin qui fonçait vers le Fruit du Dao. À ses yeux, Wang Lin n'était que le Seigneur du Royaume Scellé de nom et se révélait bien trop faible. Tenter de sauver le Maître Hong Shan ne ferait qu'attirer des ennuis inutiles.
 
-À cet instant, il forma un sceau de ses mains pour rassembler les Flammes de Joss et reprit son combat contre le Maître Long Pan!
+À cet instant, il forma un sceau de ses mains pour rassembler les Flammes Joss et reprit son combat contre le Maître Long Pan!
 
 Wang Lin atteignit le Fruit du Dao et observa le Maître Hong Shan. Ses yeux s'illuminèrent et il frappa le fruit de la paume droite.
 
@@ -62,7 +62,7 @@ Le Maître Long Pan forma également un sceau, et le Peinture des Montagnes et d
 
 « Ce vieil homme n'a pas encore assez combattu, ne sois pas si pressé de partir. »
 
-Un éclair de froideur passa dans les yeux de l'homme en noir lorsqu'il tourna son regard vers Qing Shui et le Maître Long Pan. Son expression se fit sombre et il renonça simplement à fuir. Au lieu de cela, il agita ses manches et son Royaume des Flammes de Joss se déploya.
+Un éclair de froideur passa dans les yeux de l'homme en noir lorsqu'il tourna son regard vers Qing Shui et le Maître Long Pan. Son expression se fit sombre et il renonça simplement à fuir. Au lieu de cela, il agita ses manches et son Royaume des Flammes Joss se déploya.
 
 « Puisque vous refusez de laisser ce vieil homme partir, vous en paierez le prix! »
 
@@ -92,7 +92,7 @@ La paume formée par le Maître Long Pan vola en éclats sous l'impact; sa silho
 
 Le corps de Qing Shui fut projeté en arrière, sa culture étant insuffisante pour encaisser un tel choc. Bien que l'essence de massacre fût puissante, il n'en sortit pas indemne. Du sang coula du coin de sa bouche, mais son expression restait d'une froideur extrême.
 
-Le Seigneur du Palais de la Punition Céleste cracha du sang, le corps tremblant. Les innombrables âmes de Flammes de Joss utilisées pour bloquer l'attaque se dissipèrent toutes. Lorsque la lune sur son visage disparut, cinq fissures profondes apparurent et s'étendirent sur tout son corps.
+Le Seigneur du Palais de la Punition Céleste cracha du sang, le corps tremblant. Les innombrables âmes de Flammes Joss utilisées pour bloquer l'attaque se dissipèrent toutes. Lorsque la lune sur son visage disparut, cinq fissures profondes apparurent et s'étendirent sur tout son corps.
 
 Des éclats de lumière solaire jaillirent de ces fissures, infligeant une douleur atroce au vieil homme. L'essence de massacre faisait rage en lui. Ses vêtements furent déchirés dans son dos, révélant une immense empreinte de paume sur sa peau. À l'intérieur de cette marque, des montagnes et des rivières semblaient palpiter, provoquant le flétrissement instantané du corps du vieil homme.
 

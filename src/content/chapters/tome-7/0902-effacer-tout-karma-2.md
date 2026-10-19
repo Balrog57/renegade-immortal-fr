@@ -54,7 +54,7 @@ Les veines de son visage saillaient, révélant un réseau de lignes noires. Tan
 
 Après un long moment, il laissa échapper un profond soupir. Son visage paraissait épuisé et il était couvert de sueur.
 
-« Ancêtre du Sang Écarlate, si je, Li Qiqing, ne parviens pas à me venger, alors je ne suis plus humain! » Une expression hideuse se dessina sur son visage, trahissant une haine inimaginable accumulée en lui.
+« Ancêtre Sanguin Écarlate, si je, Li Qiqing, ne parviens pas à me venger, alors je ne suis plus humain! » Une expression hideuse se dessina sur son visage, trahissant une haine inimaginable accumulée en lui.
 
 Cette haine était presque monstrueuse. Un cercle bleu pâle de mille pieds de large l'entourait. Sa culture avait attiré l'attention de certaines bêtes de la Mer des Démons. Les monstres s'approchèrent rapidement, mais ils poussèrent des cris de douleur dès qu'ils touchèrent ces traces bleues.
 
@@ -64,11 +64,11 @@ Le corps de la bête se desséchait à une vitesse visible pour bientôt devenir
 
 Le visage du vieil homme prit une légère teinte rouge. Il prit une grande inspiration avant de retourner à sa culture. Il observa la Mer des Démons, ses yeux brûlant d'une haine puissante.
 
-« Ancêtre du Sang Écarlate, si ce n'était pas pour votre traque de ma sœur, comment aurait-elle pu rencontrer ce Wang Lin... » Li Qiqing était le frère de Li Muwan, son seul et unique parent.
+« Ancêtre Sanguin Écarlate, si ce n'était pas pour votre traque de ma sœur, comment aurait-elle pu rencontrer ce Wang Lin... » Li Qiqing était le frère de Li Muwan, son seul et unique parent.
 
-Cet Ancêtre du Sang Écarlate était le cultivateur qui traquait Li Muwan. La haine que Li Qiqing lui portait était d'une intensité extrême. Il avait découvert que cet Ancêtre était venu dans la Mer des Démons, ce qui l'avait poussé à s'y infiltrer secrètement. Il voulait initialement se venger, mais son niveau de culture n'était pas assez élevé et il avait été frappé par une rune sanguine. Désormais, il vivait une existence pire que la mort, mais sa haine n'en était que plus forte.
+Cet Ancêtre Sanguin Écarlate était le cultivateur qui traquait Li Muwan. La haine que Li Qiqing lui portait était d'une intensité extrême. Il avait découvert que cet Ancêtre était venu dans la Mer des Démons, ce qui l'avait poussé à s'y infiltrer secrètement. Il voulait initialement se venger, mais son niveau de culture n'était pas assez élevé et il avait été frappé par une rune sanguine. Désormais, il vivait une existence pire que la mort, mais sa haine n'en était que plus forte.
 
-Une lueur de froideur passa dans ses yeux et il prit une profonde inspiration. Il savait qu'à chaque activation de la rune sanguine, l'Ancêtre du Sang Écarlate connaîtrait sa position; il devait donc partir rapidement. Cependant, ses pupilles se contractèrent soudainement, les poils de son corps se hérissèrent et il fixa droit devant lui.
+Une lueur de froideur passa dans ses yeux et il prit une profonde inspiration. Il savait qu'à chaque activation de la rune sanguine, l'Ancêtre Sanguin Écarlate connaîtrait sa position; il devait donc partir rapidement. Cependant, ses pupilles se contractèrent soudainement, les poils de son corps se hérissèrent et il fixa droit devant lui.
 
 Il vit la silhouette de Wang Lin apparaître à quelques dizaines de pieds. Wang Lin afficha une émotion complexe en regardant ce vieil homme.
 

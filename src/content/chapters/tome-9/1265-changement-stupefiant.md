@@ -16,7 +16,7 @@ Avant de s'en aller, la silhouette de Mu Bingmei, baignée par la lumière lunai
 
 "Je suis Liu Mei, la mère de Wang Ping... Lorsque je me libérerai du Royaume du Vide Brillant, j'accompagnerai Wang Ping à travers d'innombrables cycles de réincarnation et je serai une véritable mère", murmura Mu Bingmei en s'éloignant progressivement. Son cœur dao tendait vers la complétion après avoir prononcé ces mots.
 
-Domaine des Mille Illusions Impitoyables... Domaine des Dix Mille Illusions Démoniaques... Finalement, il changea lentement.
+Domaine de la Cruauté des Mille Illusions... Domaine des Dix Mille Illusions Démoniaques... Finalement, il changea lentement.
 
 Parmi les Saintesses du Vide Brillant, une seule personne avait réussi à maîtriser le sort hérité de la lignée, toutes les autres ayant échoué. Mu Bingmei avait tenté un raccourci en y fusionnant sa propre voie, mais elle avait échoué avec Liu Mei. Son cœur dao était incomplet et une fissure était ainsi apparue sur le sort le plus puissant du Royaume du Vide Brillant.
 

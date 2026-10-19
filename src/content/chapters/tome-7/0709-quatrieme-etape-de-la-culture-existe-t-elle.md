@@ -66,7 +66,7 @@ Wang Lin fronça les sourcils. Il ne souhaitait pas attirer autant d'attention. 
 
 La Bête du Tonnerre fonça droit vers le domaine de la famille Huan, conformément aux souvenirs de Wang Lin.
 
-Avant qu'il n'atteigne sa cible, tous les cultivateurs de la famille Huan sortirent, menés par Huan Fengshen. Ils contemplèrent l'orage qui approchait avec horreur dans les yeux.
+Avant qu'il n'atteigne sa cible, tous les cultivateurs de la famille Huan sortirent, menés par Huan Feng Shen. Ils contemplèrent l'orage qui approchait avec horreur dans les yeux.
 
 Lorsqu'ils distinguèrent clairement Wang Lin assis sur la Bête du Tonnerre, certains s'exclamèrent à voix haute.
 
@@ -74,17 +74,17 @@ Les membres de la famille Huan n'auraient jamais pu oublier Wang Lin.
 
 Assis sur la Bête du Tonnerre, les yeux de Wang Lin étincelant de lueurs électriques, il déclara calmement: « Chef de la famille Huan, avancez! »
 
-Huan Fengshen prit une profonde inspiration. Il s'avança et dit respectueusement: « Huan Fengshen, chef de la famille Huan, salue le messager du Temple Céleste du Tonnerre. Je n'avais pas reconnu Seigneur Messager auparavant; j'espère que cela ne vous offusque pas. »
+Huan Feng Shen prit une profonde inspiration. Il s'avança et dit respectueusement: « Huan Feng Shen, chef de la famille Huan, salue le messager du Temple Céleste du Tonnerre. Je n'avais pas reconnu Seigneur Messager auparavant; j'espère que cela ne vous offusque pas. »
 
 Wang Lin ne s'expliqua naturellement pas et répondit: « Il est inutile de parler du passé. Je veux savoir si vous avez un moyen d'obtenir en peu de temps une grande quantité de Fruits d'Ascension Céleste! »
 
-« Des Fruits d'Ascension Céleste? » Huan Fengshen fut surpris et répondit immédiatement avec amertume: « Seigneur Messager, cela... »
+« Des Fruits d'Ascension Céleste? » Huan Feng Shen fut surpris et répondit immédiatement avec amertume: « Seigneur Messager, cela... »
 
-Les yeux de Wang Lin se plissèrent alors qu'il fixait Huan Fengshen. La Bête du Tonnerre sous lui commença à grogner.
+Les yeux de Wang Lin se plissèrent alors qu'il fixait Huan Feng Shen. La Bête du Tonnerre sous lui commença à grogner.
 
-Huan Fengshen laissa échapper un soupir et afficha un regard résolu. Il hocha la tête et dit: « Peu importe, la famille Huan renoncera à l'opportunité d'entrer dans le Royaume Céleste du Tonnerre dans cent ans et remettra tous les Fruits d'Ascension Céleste collectés au Seigneur Messager. »
+Huan Feng Shen laissa échapper un soupir et afficha un regard résolu. Il hocha la tête et dit: « Peu importe, la famille Huan renoncera à l'opportunité d'entrer dans le Royaume Céleste du Tonnerre dans cent ans et remettra tous les Fruits d'Ascension Céleste collectés au Seigneur Messager. »
 
-L'expression de Wang Lin resta neutre, mais il commença à réfléchir. Les paroles de Huan Fengshen contenaient des indices. Les Fruits d'Ascension Céleste avaient-ils un lien avec le Royaume Céleste du Tonnerre...?
+L'expression de Wang Lin resta neutre, mais il commença à réfléchir. Les paroles de Huan Feng Shen contenaient des indices. Les Fruits d'Ascension Céleste avaient-ils un lien avec le Royaume Céleste du Tonnerre...?
 
 Le Royaume Céleste du Tonnerre allait s'ouvrir dans cent ans. Wang Lin l'avait déjà appris de Sun Xi.
 

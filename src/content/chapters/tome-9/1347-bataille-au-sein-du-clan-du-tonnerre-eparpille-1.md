@@ -36,7 +36,7 @@ Il s'enfonça dans le tonnerre, créant un fracas assourdissant qui faisait trem
 
 Wang Lin, drapé de foudre et foulant les éclairs, marcha vers la terre sainte du Clan du Tonnerre Dispersé!
 
-L'éclair éternel résidant dans le temple du continent rugit également, semblant se préparer à affronter Wang Lin!
+L'tonnerre éternel résidant dans le temple du continent rugit également, semblant se préparer à affronter Wang Lin!
 
 Wang Lin n'était plus loin de la terre sainte du Clan du Tonnerre Dispersé. Il s'en approcha immédiatement, et une voix puissante retentit soudainement depuis le lieu sacré.
 
@@ -118,12 +118,12 @@ On pouvait voir le lac de tonnerre déferler depuis des distances lointaines!
 
 Cette scène spectaculaire donnait l'impression que le lac de tonnerre venait pour tout anéantir. Les expressions de tous les cultivateurs venus des planètes changèrent radicalement! Même celle de l'homme grand fut profondément affectée!
 
-Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugissement puissant émana de l'éclair éternel à l'intérieur du temple de la terre sainte.
+Le fracas du tonnerre submergea tout. Cependant, à ce moment précis, un rugissement puissant émana de l'tonnerre éternel à l'intérieur du temple de la terre sainte.
 
 « Qui es-tu?! »
 
-Cette voix ne provenait pas du temple, mais des profondeurs mêmes de l'éclair éternel. C'était l'Ancien principal du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
+Cette voix ne provenait pas du temple, mais des profondeurs mêmes de l'tonnerre éternel. C'était l'Ancien principal du Clan du Tonnerre Dispersé, qui était en réclusion pour cultiver et avait atteint le cinquième niveau de Fléau Céleste!
 
-Un visage de mille pieds apparut au sein de l'éclair éternel. Ce visage était semblable à un soleil, illuminant tout le ciel étoilé!
+Un visage de mille pieds apparut au sein de l'tonnerre éternel. Ce visage était semblable à un soleil, illuminant tout le ciel étoilé!
 
-Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer de l'éclair éternel et détruire votre Clan du Tonnerre Dispersé! »
+Les yeux de Wang Lin brillèrent et il déclara lentement: « Je suis Wang Lin. Aujourd'hui, je suis venu pour m'emparer de l'tonnerre éternel et détruire votre Clan du Tonnerre Dispersé! »

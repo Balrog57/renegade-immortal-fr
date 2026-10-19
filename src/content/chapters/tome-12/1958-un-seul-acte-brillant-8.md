@@ -30,13 +30,13 @@ Alors que les deux discutaient par sens divin, dans le ciel, Wang Lin prit une p
 
 À l'instant où il pénétra dans le palais, Dao Yi et Wu Feng cessèrent de parler et levèrent la tête. Tous les cultivateurs présents, qu'ils fussent Exaltés Empyréens ou Ascendant Empyréens, levèrent les yeux.
 
-Seules les quelques personnes observant l'Épreuve Empyrée depuis l'extérieur avaient des pensées différentes. L'homme d'âge mûr de la Secte Ziyang regarda amèrement le miroir et poussa un profond soupir.
+Seules les quelques personnes observant l'Épreuve Empyrée depuis l'extérieur avaient des pensées différentes. L'homme d'âge mûr de la Secte Yang Pourpre regarda amèrement le miroir et poussa un profond soupir.
 
 « Ah, comment a-t-il pu franchir le onzième palais... Le onzième est une chose, mais il ne pourra pas passer le douzième... Une fois qu'il aura percé, que pourrai-je utiliser pour le recruter... »
 
 « Je crains qu'il ne soit immédiatement attiré par l'Empereur Céleste et le Grand Empyréen Jiu Di. Même les Grands Empyréens Dao Yi et Wu Feng auraient du mal à rivaliser avec ces deux-là... »
 
-« Quel dommage. Si le Grand Empyréen Gémeaux de ma Secte Ziyang n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
+« Quel dommage. Si le Grand Empyréen Gémeaux de ma Secte Yang Pourpre n'avait pas subi d'accident lors de sa dernière réincarnation, nous pourrions rivaliser avec l'Empereur Céleste et Jiu Di... »
 
 L'homme soupira amèrement, prêt à abandonner toute idée de recruter cet homme. Cependant, à ce moment précis, la porte fut enfoncée et une petite fille en rouge s'y engouffra en courant.
 
@@ -78,7 +78,7 @@ Bien que sa culture fût limitée, lorsque le Grand Empyréen Gémeaux avait sub
 
 À l'époque, il n'était qu'un Exalté Empyréen inconnu sous les ordres du Grand Empyréen Gémeaux, mais aujourd'hui, il était le seul fidèle restant.
 
-Tandis que des rires résonnaient dans la Secte Ziyang, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
+Tandis que des rires résonnaient dans la Secte Yang Pourpre, sur le Mont de l'Empereur, dans le Continent Central, le Grand Empyréen Jiu Di, autrefois si nonchalant, fixait intensément une feuille d'automne devant lui.
 
 « Tenter le douzième palais après avoir franchi le onzième... Ce type... Il peut tout juste passer pour quelqu'un d'important. Je pourrais lui faire une offre par pure complaisance... Mais avec Hai Zi là, si j'y vais, cela ne correspondrait pas tout à fait à ce que j'ai affirmé auparavant... » Bien qu'il marmonnât ces paroles, le vieil homme ne cillait pas, les yeux rivés sur la feuille.
 

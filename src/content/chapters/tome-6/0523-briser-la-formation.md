@@ -36,7 +36,7 @@ Sa vitesse était telle qu'elle brisait le mur du son. Le souffle créé par sa 
 
 À cet instant, la figure verdoyante s'effondra sous la violence du vent.
 
-Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui flottaient alentour comme du duvet de saule s'éteignirent soudainement!
+Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qui flottaient alentour comme des flocons de saule s'éteignirent soudainement!
 
 Mais elles retrouvèrent aussitôt leur éclat!
 

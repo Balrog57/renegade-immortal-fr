@@ -8,13 +8,13 @@ slug: le-regroupement-des-trois-clans-de-lordre-ancien
 ---
 Après s'être transformé en son véritable corps de Dieu Ancestral, Wang Lin laissa échapper un rugissement. Ce cri déchaîna une tempête qui percuta silencieusement le rugissement du Démon Ancestral.
 
-Au même moment, l'Ancien Démon Bei Lou, qui tentait de s'échapper, s'arrêta soudainement, ses yeux brillant d'une lueur démoniaque et folle.
+Au même moment, l'Ancien Démon Bei Luo, qui tentait de s'échapper, s'arrêta soudainement, ses yeux brillant d'une lueur démoniaque et folle.
 
-« Aujourd'hui, les trois clans de l'Ordre Ancien sont réunis au même endroit. Quel spectacle grandiose! Si je fuyais encore, je serais indigne de mon statut d'ancien démon! » Le corps de Bei Lou vacilla et grandit instantanément. Le corps du démon ancestral à sept étoiles mesurait des milliers de pieds de haut, atteignant presque la stature du corps de Dieu Ancestral de Wang Lin.
+« Aujourd'hui, les trois clans de l'Ordre Ancien sont réunis au même endroit. Quel spectacle grandiose! Si je fuyais encore, je serais indigne de mon statut d'ancien démon! » Le corps de Bei Luo vacilla et grandit instantanément. Le corps du démon ancestral à sept étoiles mesurait des milliers de pieds de haut, atteignant presque la stature du corps de Dieu Ancestral de Wang Lin.
 
 À cet instant, la bataille n'appartenait plus aux cultivateurs, mais aux trois clans de l'Ordre Ancien qui existaient depuis les temps immémoriaux!
 
-Une fois transformé en son corps de démon ancestral, Bei Lou poussa un rugissement démoniaque. Cela créa une force intangible qui se joignit au cri de Wang Lin pour fondre sur l'Ancien Démon Ta Jia.
+Une fois transformé en son corps de démon ancestral, Bei Luo poussa un rugissement démoniaque. Cela créa une force intangible qui se joignit au cri de Wang Lin pour fondre sur l'Ancien Démon Ta Jia.
 
 « C'est un Dieu Ancestral Royal! » s'exclama l'Ancien Démon Ta Jia en fixant Wang Lin. Il vit clairement une trace d'or entre les cinq étoiles situées entre les sourcils de Wang Lin.
 
@@ -22,11 +22,11 @@ Cette trace d'or témoignait du lignage royal!
 
 Les rugissements furieux des trois clans de l'Ordre Ancien engendrèrent une tempête indescriptible. Elle balaya le huitième étage, faisant s'effondrer tous les bâtiments environnants. Le ciel lui-même semblait sur le point de s'écrouler, tandis que de fines fissures apparaissaient et que des bouffées de gaz brûlants emplissaient l'espace.
 
-L'Ancien Démon Bei Lou fit un pas en avant et hurla: « Dieu Ancestral, oses-tu affronter ce démon ancestral avec moi?! »
+L'Ancien Démon Bei Luo fit un pas en avant et hurla: « Dieu Ancestral, oses-tu affronter ce démon ancestral avec moi?! »
 
 La main droite de Wang Lin s'étira vers le vide devant lui, déchirant l'espace pour créer une immense brèche. Des éclairs violets jaillirent de la faille, et il en tira la Lance Tueuse de Dieux longue de mille pieds. Saisissant l'arme, il cria: « Pourquoi n'oserais-je pas?! »
 
-L'Ancien Démon Bei Lou rit tandis que sa main droite plongeait également dans le vide. Un immense drapeau apparut instantanément, semblant couvrir le monde entier, et vola droit vers le démon ancestral.
+L'Ancien Démon Bei Luo rit tandis que sa main droite plongeait également dans le vide. Un immense drapeau apparut instantanément, semblant couvrir le monde entier, et vola droit vers le démon ancestral.
 
 Wang Lin fit un pas et chargea le démon ancestral.
 
@@ -34,7 +34,7 @@ Le démon ancestral afficha une expression de dérision en levant la lame qu'il 
 
 Alors qu'il riait, l'énergie de la lame qui faisait trembler le ciel jaillit. Il n'y avait que deux rayons d'énergie: l'un balayait le firmament tandis que l'autre survolait la terre. Ils représentaient le Ciel et la Terre. Une fois qu'ils se croiseraient, ils engendreraient une force de destruction pure.
 
-L'Ancien Démon Bei Lou agita sa main droite, et une énergie démoniaque infinie jaillit du drapeau de mille pieds pour percuter l'énergie de la lame dans le ciel. Une aura démoniaque explosa de son corps, offrant un spectacle terrifiant et grandiose.
+L'Ancien Démon Bei Luo agita sa main droite, et une énergie démoniaque infinie jaillit du drapeau de mille pieds pour percuter l'énergie de la lame dans le ciel. Une aura démoniaque explosa de son corps, offrant un spectacle terrifiant et grandiose.
 
 Wang Lin projeta la Lance Tueuse de Dieux qu'il tenait; les éclairs violets emplirent le monde. La lance, enveloppée de foudre pourpre, percuta l'énergie de la lame au sol.
 
@@ -42,17 +42,17 @@ Des grondements soudains résonnèrent et une puissante onde de choc balaya la z
 
 Le corps divin ancestral de Wang Lin subit un impact inimaginable lors de cette collision, et des craquements sinistres résonnèrent dans son organisme. Il cracha une bouchée de sang et les étoiles du Dieu Ancestral entre ses sourcils s'estompèrent.
 
-Dans le ciel, le drapeau de l'Ancien Démon Bei Lou percuta l'énergie de la lame, propageant un choc colossal, une onde de choc annulaire balayant les environs. De nouvelles fissures déchirèrent la voûte céleste; dans ces fissures, du magma suintait en filets rouge sang. À ce moment précis, on aurait dit que le ciel pouvait s'effondrer d'un simple toucher.
+Dans le ciel, le drapeau de l'Ancien Démon Bei Luo percuta l'énergie de la lame, propageant un choc colossal, une onde de choc annulaire balayant les environs. De nouvelles fissures déchirèrent la voûte céleste; dans ces fissures, du magma suintait en filets rouge sang. À ce moment précis, on aurait dit que le ciel pouvait s'effondrer d'un simple toucher.
 
-« Wang Lin, nous devons tout donner contre lui; sinon, aucun de nous n'échappera à cette Grotte de l'Empereur Céleste! » rugit l'Ancien Démon Bei Lou en chargeant le démon ancestral. Cependant, son corps commença soudainement à battre en retraite. Il fut si rapide qu'il laissa une image rémanente derrière lui, se précipitant vers le ciel fracturé.
+« Wang Lin, nous devons tout donner contre lui; sinon, aucun de nous n'échappera à cette Grotte de l'Empereur Céleste! » rugit l'Ancien Démon Bei Luo en chargeant le démon ancestral. Cependant, son corps commença soudainement à battre en retraite. Il fut si rapide qu'il laissa une image rémanente derrière lui, se précipitant vers le ciel fracturé.
 
-Pourtant, si Bei Lou était rapide, Wang Lin l'était plus encore. Dès que l'Ancien Démon Bei Lou rugit, Wang Lin saisit également Wang Wei et Hu Juan avant de charger vers les cieux. Il fut légèrement plus rapide que Bei Lou en frappant le ciel de son poing.
+Pourtant, si Bei Luo était rapide, Wang Lin l'était plus encore. Dès que l'Ancien Démon Bei Luo rugit, Wang Lin saisit également Wang Wei et Hu Juan avant de charger vers les cieux. Il fut légèrement plus rapide que Bei Luo en frappant le ciel de son poing.
 
 Le ciel, déjà extrêmement fragile, fut pulvérisé par le coup de poing de Wang Lin. Il se brisa totalement et la voûte céleste se désintégra!
 
 Au moment où le ciel s'effondra, une pluie de magma infini s'abattit sur eux. Le corps de Wang Lin plongea dans la lave et chargea droit vers le haut.
 
-L'Ancien Démon Bei Lou jura en silence, mais sans ralentir, il chargea lui aussi vers les hauteurs.
+L'Ancien Démon Bei Luo jura en silence, mais sans ralentir, il chargea lui aussi vers les hauteurs.
 
 Maître du Vide avait cultivé pendant de nombreuses années. Bien que son esprit eût été troublé par l'arrivée précoce du premier Fléau Céleste, il était d'une clarté sans précédent à cet instant. Lorsque le ciel s'effondra, il cracha du sang et utilisa l'Évasion Sanguine pour se précipiter dans le magma. Il fit fi de la température extrême et des blessures infligées par la bataille entre les trois membres de l'Ordre Ancien. En s'engouffrant dans la lave, il n'eut même pas le temps de songer à en vouloir à Wang Lin; sa seule priorité était de fuir cet endroit.
 
@@ -76,7 +76,7 @@ Une fois Hu Juan partie, les yeux de Wang Lin s'illuminèrent. Il était déterm
 
 À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir partiellement.
 
-Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Lou et le Maître du Vide chargeaient dans la lave, poursuivis par l'Ancien Démon Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
+Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Luo et le Maître du Vide chargeaient dans la lave, poursuivis par l'Ancien Démon Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
 
 C'est alors qu'un rugissement assourdissant, qui fit trembler le magma même, retentit des profondeurs du volcan. Une tête de dragon gigantesque émergea de la lave. À ce moment-là, tout le magma que Wang Lin n'avait pas absorbé ou qui était tombé au huitième étage commença à bouger comme s'il possédait une intelligence propre, chargeant tous vers le dragon.
 

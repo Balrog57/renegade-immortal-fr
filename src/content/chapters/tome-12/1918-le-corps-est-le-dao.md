@@ -60,7 +60,7 @@ Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais 
 
 « Si mon analyse est correcte, il doit exister un niveau au-delà des Grands Empyréens! Peut-être est-ce la quatrième étape, ou peut-être non... Ce niveau nécessiterait que mes trois Corps Véritables d'Essence fusionnent en un seul pour atteindre le stade de l'Âme Véritable!! »
 
-« Ce niveau devrait être quelque chose que même les Grands Empyréens n'ont pas encore atteint, une quête perpétuelle! Ou peut-être est-ce le niveau de l'Ancêtre Céleste et de l'Ancêtre Antique!! » L'esprit de Wang Lin était d'une clarté limpide à cet instant. Bien qu'il ne s'agisse que de spéculations, c'était la voie qu'il devait emprunter.
+« Ce niveau devrait être quelque chose que même les Grands Empyréens n'ont pas encore atteint, une quête perpétuelle! Ou peut-être est-ce le niveau de l'Ancêtre Céleste et de l'Ancêtre Ancien!! » L'esprit de Wang Lin était d'une clarté limpide à cet instant. Bien qu'il ne s'agisse que de spéculations, c'était la voie qu'il devait emprunter.
 
 Qu'elle soit vraie ou non, il le saurait lorsqu'il aurait atteint ce stade!
 

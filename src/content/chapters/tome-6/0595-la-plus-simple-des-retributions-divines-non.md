@@ -38,7 +38,7 @@ Non seulement ces trois-là, mais de nombreux vieux monstres remarquèrent la de
 
 Rien ne pouvait arrêter la chute de cette lumière rouge. Bien que la porte de la Mer des Esprits Démoniaques Orientale ne fût pas ouverte, la lueur rouge réussit tout de même à la percer.
 
-Sur la place de la cité impériale du Pays des Démons Célestes, Wang Lin se tenait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
+Sur la place de la cité impériale du Pays du Démon Céleste, Wang Lin se tenait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
 
 Le stade Ascendant exige que l'on possède suffisamment d'énergie spirituelle céleste et que son cœur Dao soit achevé. Une fois ces deux conditions réunies, elles fusionnent, et cette fusion constitue l'ascension!
 

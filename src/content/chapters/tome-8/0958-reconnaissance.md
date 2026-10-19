@@ -98,13 +98,13 @@ L'expression de Wang Lin resta calme. Il recula de quelques pas, frappa son sac 
 
 Instantanément, des rayons de lumière argentée jaillirent de son sac pour s'unir aux 27 épées. Au total, 45 épées longues de sept pieds tournèrent frénétiquement, formant un vortex. Les cheveux de Wang Lin flottèrent dans l'air alors que sa main se refermait et qu'il pointait impitoyablement vers l'avant!
 
-« Tranchant Céleste! »
+« Coup Céleste! »
 
-Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Tranchants Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
+Par ce geste, la vitesse de circulation de son énergie originelle atteignit presque son apogée. D'innombrables Coups Célestes jaillirent et fusionnèrent avec le vortex devant lui. Le vortex entier trembla, se condensa, puis s'élança avec violence.
 
 Wang Lin avait obtenu ces épées dans le Royaume de la Boucherie et, en chemin vers la Secte du Destin Céleste, en avait déjà raffiné 45 en modifiant leur apparence. Seuls les habitants du Royaume de la Massacre pourraient désormais les identifier.
 
-À cet instant, ce vortex d'épées contenant la puissance d'innombrables Tranchants Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
+À cet instant, ce vortex d'épées contenant la puissance d'innombrables Coups Célestes entra en collision avec le sortilège de Ling Tianhou. Le monde changea de couleur et sembla s'inverser.
 
 Un grondement intense résonna à travers l'univers. Les sons de l'effondrement constant remplacèrent tout autre bruit.
 

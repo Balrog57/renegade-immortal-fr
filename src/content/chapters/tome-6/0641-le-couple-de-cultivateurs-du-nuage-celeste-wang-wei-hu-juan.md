@@ -122,7 +122,7 @@ Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. 
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 
-Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait dans la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
+Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Luo, qui se trouvait dans la capitale du Pays du Démon Céleste, ouvrit soudainement les yeux. Ses yeux émettaient une lumière extrêmement éclatante qui disparut aussitôt.
 
 « Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Luo.
 

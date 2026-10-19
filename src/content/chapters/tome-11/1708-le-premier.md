@@ -108,7 +108,7 @@ Rien d'autre que pour sa volonté indomptable, cette volonté qui défiait les c
 
 « Puisque vous reconnaissez mon sang ancien, alors quatre gouttes ne suffiront pas! » Un éclat de froideur traversa le regard de Wang Lin alors qu'il bondissait dans les airs, chargé vers le vortex en pleine dissipation!
 
-Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancestral. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
+Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancien. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
 
 Sur ce point, personne sur le Continent Astral Immortel, pas même le Grand Empyréen Xuan Luo, ne pouvait lui être comparé. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
 

@@ -114,7 +114,7 @@ En voyant l'un des leurs blessé, les soldats démons se levèrent tous, emprein
 
 Seul l'homme au visage sombre restait assis, immobile. Son regard était toujours fixé sur Wang Lin.
 
-« Vous, sauvages, osez semer le trouble dans la Grande Muraille Antique?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
+« Vous, sauvages, osez semer le trouble dans la Cité de l'Ancien Démon?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
 
 Les six soldats attaquèrent de concert, et Hu Pao se lamenta intérieurement. Il libéra immédiatement les fragments d'âme contenus dans ses drapeaux, qui envahirent le restaurant.
 

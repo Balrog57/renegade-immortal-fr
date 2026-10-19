@@ -45,13 +45,13 @@ Une foule immense provenant des cinq planètes mineures gravitant autour de Tian
 
 Tous les disciples des sept divisions de la Secte du Destin Céleste étaient extrêmement occupés. Avec une telle concentration de membres d'autres sectes et d'étrangers, les échanges et les conversations étaient inévitables. Personne présent ici n'était faible; échanger avec autrui était donc pour eux une opportunité très bénéfique.
 
-Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la division pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
+Ce jour-là, la personne chargée d'accueillir ceux qui arrivaient sur la planète Tian Yun était le frère aîné de la Division Pourpre, Zhao Xingsha. Il portait une robe violette brodée de fils de soie dorés, un pendentif de jade chaud pendait à sa taille et une épée ancienne reposait dans son dos. Son allure était très élégante et, avec son sourire empreint de douceur, quiconque le voyait éprouvait instinctivement un sentiment de sympathie envers lui.
 
 Il se tenait actuellement au sommet de la brume violette, contemplant la planète en contrebas. Il esquissa un sourire et murmura pour lui-même: « C'est la première fois que je participe à l'anniversaire du Maître, et j'ai effectivement rencontré beaucoup d'amis. Surtout le jeune maître de la Secte Yun Luo; sa culture est plutôt impressionnante et sa personnalité me plaît. »
 
 « Malheureusement, mon septième frère ne pourra pas se faire d'amis. Septième frère, il n'y a jamais eu d'animosité entre nous, mais tu n'aurais jamais dû tenter de me disputer le titre de véritable disciple! »
 
-« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma division pourpre! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement de cent ans en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la division pourpre m'est acquis! »
+« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma Division Pourpre! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement de cent ans en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la Division Pourpre m'est acquis! »
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse et ses lèvres formèrent un léger sourire. La brume violette commença soudainement à s'agiter; Zhao Xingsha retrouva alors son expression sereine et regarda au loin.
 
@@ -61,7 +61,7 @@ Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps 
 
 Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était allongé un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
 
-Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la division pourpre de la Secte du Destin Céleste. Salutations, Senior Démon Doré. »
+Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la Division Pourpre de la Secte du Destin Céleste. Salutations, Senior Démon Doré. »
 
 Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
 

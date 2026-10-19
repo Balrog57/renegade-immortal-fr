@@ -104,7 +104,7 @@ Une partie de la foudre de rétribution pénétra dans le miroir de bronze.
 
 Dans l'espace brumeux, Wang Lin était tel une épée dégainée. Il chargea vers le haut, porté par la rotation du gaz noir et blanc. La tempête générée par ces flux rugissait violemment autour de lui.
 
-« Tranchant Céleste! » rugit Wang Lin. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté!
+« Coup Céleste! » rugit Wang Lin. Le gaz noir et blanc à l'extérieur de son corps fusionna rapidement pour former un rayon d'énergie d'épée grise qui fut projeté!
 
 Boom! Un fracas retentit alors que le miroir dans la main de Yao Yun volait en éclats. D'innombrables fragments furent projetés par la violence de l'impact.
 

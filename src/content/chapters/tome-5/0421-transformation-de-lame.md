@@ -78,7 +78,7 @@ Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un écla
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 
-« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Drapeau d'Âmes au Milliard d'Âmes, ce qui lui fera un petit renfort. »
+« Le parfum issu de la première étape de la Transformation de l'Âme attire des bêtes démoniaques puissantes et des âmes féroces qui cherchent à posséder ce corps. Cependant, ma Secte de l'Affinement de l'Âme est l'ancêtre de ceux qui contrôlent les âmes; si ces âmes ne viennent pas, tant mieux, mais si elles osent se présenter, elles seront absorbées par le Étendard de l'Âme, ce qui lui fera un petit renfort. »
 
 « Je ne crains pas non plus les bêtes. La formation de protection de la Secte peut les tenir à distance. Aucune créature n'a encore réussi à m'effrayer. »
 
@@ -124,4 +124,4 @@ Dans le ciel, une silhouette drapée de rouge apparut. Elle dégageait une aura 
 
 À cet instant, le ciel perdit toutes ses couleurs; seule cette silhouette semblait exister.
 
-« Zhu Quezi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Drapeau d'Âmes au Milliard d'Âmes pour l'emmagasiner précipitamment.
+« Zhu Quezi! » L'expression de Du Tian devint livide. N'ayant plus le temps de s'amuser avec ce fragment d'âme, il agita le Étendard de l'Âme pour l'emmagasiner précipitamment.

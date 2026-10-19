@@ -28,7 +28,7 @@ Après avoir laissé échapper un soupir, plutôt que de charger, il recula. Son
 
 Le général de l'aile gauche fut surpris. Ses yeux brillèrent d'une lueur furtive avant qu'il n'éclate d'un rire tonitruant: « Tu sais quand te retirer et tu comprends quand prendre la bonne décision. Bien! » Sur ces mots, il tendit la main droite et, dans une série de grondements sourds, les poings des dix effondrements disparurent. À cet instant, le ciel et la terre semblèrent retrouver leur calme naturel.
 
-« Bien que tu n'aies pas brisé mes poings des dix effondrements, tu es assez puissant pour être un commandant! Moi, Yun Lihai, général de l'aile gauche, je te confère le poste de commandant de la Grande Muraille Antique et le commandement de dix mille soldats démons! » Tandis que le général parlait, sa main droite s'avança. Un jeton couleur bronze apparut soudainement et il le lança vers Wang Lin.
+« Bien que tu n'aies pas brisé mes poings des dix effondrements, tu es assez puissant pour être un commandant! Moi, Yun Lihai, général de l'aile gauche, je te confère le poste de commandant de la Cité de l'Ancien Démon et le commandement de dix mille soldats démons! » Tandis que le général parlait, sa main droite s'avança. Un jeton couleur bronze apparut soudainement et il le lança vers Wang Lin.
 
 L'expression de Wang Lin resta neutre. Après avoir rattrapé le jeton, il joignit les mains et dit: « Merci, Général! »
 
@@ -38,7 +38,7 @@ Après avoir assisté à cette scène, Yao Xixue s'apprêta à parler, mais Wang
 
 Le beau front de Yao Xixue se plissa tandis qu'elle laissait échapper un reniflement de mépris avant de s'éloigner à son tour.
 
-Wang Lin marcha tranquillement vers l'horizon et, au fur et à mesure de sa progression, l'aura démoniaque qui l'entourait se dissipa lentement. Il se trouvait déjà dans le centre de la Grande Muraille Antique; après une heure de marche, de larges avenues et des édifices imposants apparurent devant lui.
+Wang Lin marcha tranquillement vers l'horizon et, au fur et à mesure de sa progression, l'aura démoniaque qui l'entourait se dissipa lentement. Il se trouvait déjà dans le centre de la Cité de l'Ancien Démon; après une heure de marche, de larges avenues et des édifices imposants apparurent devant lui.
 
 Wang Lin s'installa silencieusement dans une auberge pour cultiver.
 
@@ -56,7 +56,7 @@ C'était précisément pour cette raison qu'il avait décidé de battre en retra
 
 De plus, la raison pour laquelle Wang Lin avait accepté cet état, outre l'apprentissage du pouvoir de la foi, était d'obtenir un poste extérieur. Après avoir démontré sa force, bien qu'il n'ait pas surmonté le huitième effondrement, il savait que le général ne lui accorderait pas simplement un poste d'Ancien.
 
-Si Yun Lihai avait été aussi aveugle, Wang Lin aurait immédiatement quitté la Grande Muraille Antique pour retourner vers sa tribu. Au pire, il serait revenu plus tard pour conquérir cette ville!
+Si Yun Lihai avait été aussi aveugle, Wang Lin aurait immédiatement quitté la Cité de l'Ancien Démon pour retourner vers sa tribu. Au pire, il serait revenu plus tard pour conquérir cette ville!
 
 Après avoir passé quatre jours et nuits dans l'auberge, Wang Lin réussit enfin à comprimer les idéaux démoniaques de son corps en un point unique pour les sceller en lui. Cet idéal démoniaque était impossible à extraire, et Wang Lin ne cherchait pas à s'en débarrasser car, lorsqu'il serait utilisé avec discernement, il pourrait accroître considérablement sa puissance.
 
@@ -64,7 +64,7 @@ Treize et Hu Pao étaient arrivés à l'auberge la veille et s'étaient install�
 
 Après plusieurs jours de culture, Wang Lin sortit de l'auberge le cinquième jour, suivi de près par Treize et Hu Pao.
 
-En arpentant les rues de la Grande Muraille Antique, Wang Lin eut l'impression d'être dans un autre monde. Les différences avec le monde de la culture étaient flagrantes; des bâtiments à l'environnement, tout était étranger.
+En arpentant les rues de la Cité de l'Ancien Démon, Wang Lin eut l'impression d'être dans un autre monde. Les différences avec le monde de la culture étaient flagrantes; des bâtiments à l'environnement, tout était étranger.
 
 « Cette Mer des Esprits Démoniaques de l'Est est un monde à part entière, ce qui la rend très mystérieuse. J'ignore comment un tel lieu a pu se former. La rumeur selon laquelle il s'agirait de la grotte de culture d'un puissant empereur céleste avant l'effondrement du Royaume Céleste pourrait-elle être vraie... » Wang Lin avait du mal à y croire. Si cette rumeur était exacte, alors la culture de cet empereur dépassait l'entendement. Être capable de transformer sa propre grotte de culture en un monde entier était une perspective terrifiante.
 
@@ -78,7 +78,7 @@ Wang Lin secoua la tête avec un sourire amer. Il se dit qu'il réfléchissait t
 
 Treize et Hu Pao suivaient Wang Lin. L'expression de Treize restait glaciale, son regard scrutant constamment les environs pour déceler toute menace. Quant à Hu Pao, il ne se posait pas de questions existentielles; ses yeux parcouraient les bâtiments et les étals, s'illuminant parfois lorsqu'un objet de curiosité attirait son attention.
 
-Wang Lin n'éprouvait aucun intérêt pour la Grande Muraille Antique. Après quatre heures de marche, il arriva devant un restaurant bondé de clients.
+Wang Lin n'éprouvait aucun intérêt pour la Cité de l'Ancien Démon. Après quatre heures de marche, il arriva devant un restaurant bondé de clients.
 
 Depuis qu'il était devenu cultivateur, Wang Lin avait perdu tout intérêt pour la nourriture mortelle; désormais, il était parvenu au stade où la seule respiration suffisait à combler les besoins de son corps.
 

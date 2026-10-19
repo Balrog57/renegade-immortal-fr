@@ -50,7 +50,7 @@ Même dans sa situation désespérée, il écarquilla les yeux pour fixer Wang L
 
 Voyant leur chef de régiment capturé, les mille soldats démons s'élancèrent soudainement vers Wang Lin.
 
-Le regard de Wang Lin se glaça et il ordonna: « Treize, récite la 8e loi militaire du Pays Démon! »
+Le regard de Wang Lin se glaça et il ordonna: « Treize, récite la 8e loi militaire du Pays du Démon Céleste! »
 
 Treize avait mémorisé le contenu du jade. Puisque Wang Lin posait la question, il répondit promptement: « Ceux qui se révoltent contre leur supérieur sont exécutés! »
 
@@ -110,11 +110,11 @@ Il méditait plus tôt et, en entendant le chaos dans le camp, il s'était immé
 
 Sima Yan déclara d'un ton grave: « Seigneur Commandant, quelle qu'en soit la raison, après avoir tué le chef de régiment Sun, vous avez également massacré ses soldats. Je ne laisserai pas passer cela! »
 
-L'expression de Wang Lin resta imperturbable et il esquissa un léger sourire. « Treize, récite la 13e loi militaire du Pays Démon! »
+L'expression de Wang Lin resta imperturbable et il esquissa un léger sourire. « Treize, récite la 13e loi militaire du Pays du Démon Céleste! »
 
 Treize récita promptement: « Ceux qui se mutinent dans le camp et encerclent leur supérieur doivent se retirer en trente respirations. Faute de quoi, ils sont exécutés! »
 
-« Récite la deuxième loi du Pays Démon! »
+« Récite la deuxième loi du Pays du Démon Céleste! »
 
 « L'utilisation de formations de niveau Massacre d'Immortels ou supérieur pour des affaires internes sans autorisation doit cesser en vingt respirations, faute de quoi cela constitue un crime majeur! »
 

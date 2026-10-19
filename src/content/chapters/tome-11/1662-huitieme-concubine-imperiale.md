@@ -14,7 +14,7 @@ Son visage pâle accentuait sa splendeur, lui conférant un air de fragilité m�
 
 La femme en violet et Wang Lin se contemplèrent. Après un long moment, la femme finit par dire d'une voix glaciale: « Zi Xia. » Sa voix semblait un peu hésitante, comme si elle n'avait pas parlé depuis une éternité.
 
-« Seriez-vous l'Empereur Céleste Zi Xia du Royaume Céleste de la Foudre? » Wang Lin avait vaguement deviné son identité. Il joignit les mains en signe de respect.
+« Seriez-vous l'Empereur Céleste Zi Xia du Royaume Céleste du Tonnerre? » Wang Lin avait vaguement deviné son identité. Il joignit les mains en signe de respect.
 
 Zi Xia réfléchit un instant, puis déclara froidement: « Remets-moi la concubine impériale céleste que tu as scellée. »
 

@@ -94,7 +94,7 @@ Cela perdura pendant plusieurs mois. Ce jour-là, Wang Lin était piégé ici de
 
 C'était la toute dernière trace de ces lignes dans son corps. Au moment où elle fut forcée de sortir, Wang Lin ouvrit les yeux. Son regard trahissait sa fatigue, mais une lueur de froideur y brillait également.
 
-« Art de la Boucherie Céleste! »
+« Art de la Massacre Céleste! »
 
 Il réfléchit longuement, et la froideur dans ses yeux s'estompa lentement. Il baissa la tête vers le réseau de transfert, lui jeta un dernier regard, puis ne s'en soucia plus pour se concentrer sur la force d'aspiration environnante.
 

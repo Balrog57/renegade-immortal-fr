@@ -66,7 +66,7 @@ Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retro
 
 « Tonnerre! »
 
-L'index droit de Wang Lin sembla se muer en un éclair éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième niveau.
+L'index droit de Wang Lin sembla se muer en un tonnerre éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième niveau.
 
 Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
 

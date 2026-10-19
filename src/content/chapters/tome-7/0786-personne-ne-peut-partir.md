@@ -46,7 +46,7 @@ Ce membre était tout simplement trop singulier. Dès qu'il l'avait vu, il n'ava
 
 « Ce bras est extrêmement puissant; il équivaut à la force d'un cultivateur du sommet du stade Corporel Yang et frôle infiniment la puissance d'un cultivateur Scruteur du Nirvana! » Les yeux de Wang Lin étaient froids alors qu'il traquait le membre et frappait impitoyablement avec l'épée céleste!
 
-La Coupe Céleste projeta un rayon d'énergie de l'épée. En tombant, elle sembla trancher les lois mêmes du monde, faisant trembler violemment le vide. Une longue fissure spatiale apparut soudainement et fonça droit sur le bras sectionné.
+Le Coup Céleste projeta un rayon d'énergie de l'épée. En tombant, elle sembla trancher les lois mêmes du monde, faisant trembler violemment le vide. Une longue fissure spatiale apparut soudainement et fonça droit sur le bras sectionné.
 
 Le membre s'arrêta net en plein vol, commença à former un sceau et le pressa contre la fissure spatiale. Cela provoqua un fracas immédiat, et tout ce qui se trouvait dans un rayon de 330 mètres autour du bras sembla s'effondrer.
 

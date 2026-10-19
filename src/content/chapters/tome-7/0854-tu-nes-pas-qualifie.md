@@ -50,11 +50,11 @@ Avant d'atteindre le stade du Scruteur du Nirvana, Wang Lin ne pouvait créer qu
 
 Des craquements retentirent dans les environs. Cette bourrasque était si puissante que l'espace environnant commença à se fissurer. Au même moment, la main de Wang Lin forma un sceau et le Sceau Céleste brilla intensément. Un éclair de rétribution divine se forma rapidement et fonça vers le Dieu de Sang.
 
-Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Tranchants Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
+Wang Lin frappa son sac de stockage et l'épée céleste apparut dans sa main. À ce stade, il ne se souciait plus de l'énergie originelle et enchaîna les Coups Célestes. Il perdait le compte de ses attaques tant elles s'enchaînaient avec rapidité.
 
 L'expression du Dieu de Sang restait calme alors qu'il s'approchait nonchalamment. Il pointa le ciel du doigt, et l'éclair formé par le Sceau Céleste s'effondra.
 
-Puis le Dieu de Sang effectua un geste du doigt. L'attaque dévastatrice des cent Tranchants Célestes fut percutée par une force colossale avant de s'évanouir!
+Puis le Dieu de Sang effectua un geste du doigt. L'attaque dévastatrice des cent Coups Célestes fut percutée par une force colossale avant de s'évanouir!
 
 Enfin, le Dieu de Sang pointa vers l'avant, et le vent glacial craché par les dragons noirs se brisa. Même les deux dragons noirs poussèrent des gémissements de douleur avant d'être tranchés en deux par une puissance inimaginable.
 

@@ -100,4 +100,4 @@ Derrière elle, neuf bêtes moustiques dorées firent leur apparition. Chacune d
 
 « La rumeur prétend que le Continent Astral Immortel n'était qu'une terre sauvage à l'origine. Puis le Royaume Divin apparut et créa la vie. Ensuite, les étoiles surgirent, mais elles se trouvaient sous le continent!
 
-« Puis la loi du Continent Astral Immortel descendit telle l'eau de la mer. Neuf bêtes distinctes apparurent simultanément avec l'Ancêtre Antique et l'Ancêtre Céleste. Ceci... cette bête peut fusionner avec le chaos du Continent Astral Immortel. Se pourrait-il que... elles... » Les yeux de Xuan Luo s'écarquillèrent, pétrifiés par l'incrédulité.
+« Puis la loi du Continent Astral Immortel descendit telle l'eau de la mer. Neuf bêtes distinctes apparurent simultanément avec l'Ancêtre Ancien et l'Ancêtre Céleste. Ceci... cette bête peut fusionner avec le chaos du Continent Astral Immortel. Se pourrait-il que... elles... » Les yeux de Xuan Luo s'écarquillèrent, pétrifiés par l'incrédulité.

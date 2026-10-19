@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: "Chapter 402 - The ancestor dies!"
 slug: la-mort-de-lancetre
 ---
-L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister au Drapeau de l'Âme d'un Milliard d'Âmes que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
+L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister au Étendard de l'Âme que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
 
 Ses yeux s'illuminèrent; dans un rugissement, il projeta la hache vers Wang Lin.
 
@@ -24,7 +24,7 @@ S'il n'avait pas utilisé ce pouvoir jusqu'à présent, c'était parce que l'uti
 
 Ce n'est qu'une fois la possession accomplie qu'il pourrait utiliser la lignée en toute sécurité, car la majeure partie du contrecoup serait absorbée par le corps. Bien qu'une partie atteigne encore son âme originelle, elle resterait supportable.
 
-Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan des Démons Géants. Il pointa le Drapeau de l'Âme d'un Milliard d'Âmes, et une nouvelle salve de fragments d'âmes s'élança.
+Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan des Démons Géants. Il pointa le Étendard de l'Âme, et une nouvelle salve de fragments d'âmes s'élança.
 
 Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant le Ciel. Il devait le tuer, quoi qu'il en coûte.
 
@@ -112,11 +112,11 @@ L'arme rougeoyait et dégageait une intention meurtrière redoutable. Wang Lin r
 
 « Intéressant! » Les yeux de Wang Lin brillèrent. Il forma un sceau et son âme originelle quitta son corps. Il fixa la hache rouge et aspira. L'arme trembla avant de se transformer en un rayon de lumière pour être engloutie par l'âme originelle de Wang Lin.
 
-Désormais, deux objets résidaient dans l'âme originelle de Wang Lin: le Drapeau de l'Âme d'un Milliard d'Âmes et la hache rouge.
+Désormais, deux objets résidaient dans l'âme originelle de Wang Lin: le Étendard de l'Âme et la hache rouge.
 
 Son âme originelle réintégra son corps.
 
-« Il doit y avoir un esprit de hache à l'intérieur. Je ne le forcerai pas à sortir, mais je vais le supprimer avec le Drapeau de l'Âme d'un Milliard d'Âmes et le raffiner par mon âme originelle. Voyons combien de temps cet esprit pourra tenir! » Wang Lin ricana en sortant un sac.
+« Il doit y avoir un esprit de hache à l'intérieur. Je ne le forcerai pas à sortir, mais je vais le supprimer avec le Étendard de l'Âme et le raffiner par mon âme originelle. Voyons combien de temps cet esprit pourra tenir! » Wang Lin ricana en sortant un sac.
 
 Ce sac appartenait à l'ancêtre du Clan des Démons Géants.
 

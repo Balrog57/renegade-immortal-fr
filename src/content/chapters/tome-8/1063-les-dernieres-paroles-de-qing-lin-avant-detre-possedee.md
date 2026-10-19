@@ -22,7 +22,7 @@ Ce changement soudain ébranla l'esprit du Maître du Vide. Cependant, cela ne l
 
 L'homme sur la gourde, voyant que même l'Omniscient avait été repoussé, vit son visage se transformer en une expression d'horreur. Il recula sans hésiter, mais il était déjà trop tard.
 
-Le tourbillon du brouillard noir atteignit son apogée dans un fracas de grondements assourdissants. Puis, un gémissement étouffé retentit alors que Bei Lou était impitoyablement projeté hors du brouillard noir, projetant des éclaboussures de sang partout. L'énergie démoniaque dispersée autour de Bei Lou se rassembla rapidement; ses yeux étaient empreints d'une rancœur dense.
+Le tourbillon du brouillard noir atteignit son apogée dans un fracas de grondements assourdissants. Puis, un gémissement étouffé retentit alors que Bei Luo était impitoyablement projeté hors du brouillard noir, projetant des éclaboussures de sang partout. L'énergie démoniaque dispersée autour de Bei Luo se rassembla rapidement; ses yeux étaient empreints d'une rancœur dense.
 
 Derrière lui, le brouillard noir se contracta brusquement et, en un instant, il se rétracta pour redevenir l'ancien démon blindé.
 
@@ -40,27 +40,27 @@ Tout cela se produisit en un instant. L'Ancien Démon Ta Jia ne marqua aucune pa
 
 Cette scène fit pousser un cri de stupeur chez tous les spectateurs. L'homme en noir, saisi par une peur encore plus profonde, s'enfuit à une vitesse accrue.
 
-Des gouttes de sang dégoulinaient de la lame. L'ancien démon afficha une expression hideuse avant de poursuivre Bei Lou.
+Des gouttes de sang dégoulinaient de la lame. L'ancien démon afficha une expression hideuse avant de poursuivre Bei Luo.
 
-« Bei Lou, autrefois, je ne t'ai pas tué parce que nos ancêtres appartenaient au même clan, mais puisque tu es venu chercher la mort, ce démon ne peut que combler ton désir! »
+« Bei Luo, autrefois, je ne t'ai pas tué parce que nos ancêtres appartenaient au même clan, mais puisque tu es venu chercher la mort, ce démon ne peut que combler ton désir! »
 
-« Foutaises! À l'époque, nous avions convenu que je prendrais le corps et que tu prendrais les souvenirs. Si tu n'avais pas trahi notre accord, ce corps m'aurait appartenu! » rugit Bei Lou en reculant.
+« Foutaises! À l'époque, nous avions convenu que je prendrais le corps et que tu prendrais les souvenirs. Si tu n'avais pas trahi notre accord, ce corps m'aurait appartenu! » rugit Bei Luo en reculant.
 
-L'ancien démon blindé esquissa un sourire moqueur, la lame à la main: « C'est simplement que j'ai changé d'avis un peu plus vite. Si j'avais agi plus tard, nos rôles auraient été inversés! » Sur ces mots, il abattit sa lame sur Bei Lou.
+L'ancien démon blindé esquissa un sourire moqueur, la lame à la main: « C'est simplement que j'ai changé d'avis un peu plus vite. Si j'avais agi plus tard, nos rôles auraient été inversés! » Sur ces mots, il abattit sa lame sur Bei Luo.
 
 « Révèle ta forme de démon pour ce démon! »
 
 Une lame d'une taille phénoménale apparut dans le monde, comme si elle pouvait fendre le ciel en deux. Lorsque l'ancien démon frappa, un grondement tonitruant retentit.
 
-Un rayon d'énergie tranchante, long de centaines de milliers de pieds, apparut soudainement et balaya impitoyablement Bei Lou, faisant changer radicalement son expression. La lame était si rapide qu'il n'eut pas le temps de l'esquiver avant qu'elle ne l'atteigne.
+Un rayon d'énergie tranchante, long de centaines de milliers de pieds, apparut soudainement et balaya impitoyablement Bei Luo, faisant changer radicalement son expression. La lame était si rapide qu'il n'eut pas le temps de l'esquiver avant qu'elle ne l'atteigne.
 
-L'énergie de la lame pénétra le corps de Bei Lou et s'écrasa au sol. Un puissant fracas retentit alors que le sol s'effondrait, créant un ravin de cent mille pieds de long et d'une profondeur inconnue.
+L'énergie de la lame pénétra le corps de Bei Luo et s'écrasa au sol. Un puissant fracas retentit alors que le sol s'effondrait, créant un ravin de cent mille pieds de long et d'une profondeur inconnue.
 
-Le corps de Bei Lou fut tranché en deux et s'effondra en un amas de chair et de sang. Cependant, alors que son corps se désagrégeait, une lumière démoniaque verte jaillit dans les airs et se mua instantanément en un ancien démon de mille pieds de haut!
+Le corps de Bei Luo fut tranché en deux et s'effondra en un amas de chair et de sang. Cependant, alors que son corps se désagrégeait, une lumière démoniaque verte jaillit dans les airs et se mua instantanément en un ancien démon de mille pieds de haut!
 
-C'était le véritable corps de l'Ancien Démon Bei Lou. Dès qu'il apparut, il recula à une vitesse fulgurante. L'ancien démon laissa échapper un reniflement froid et le poursuivit de sa lame. Quant aux autres, il ne les considérait nullement comme des menaces. Hormis Bei Lou, la seule autre présence méritant son attention était cette dégoûtante aura d'ancien dieu qu'il avait ressentie lors de son apparition.
+C'était le véritable corps de l'Ancien Démon Bei Luo. Dès qu'il apparut, il recula à une vitesse fulgurante. L'ancien démon laissa échapper un reniflement froid et le poursuivit de sa lame. Quant aux autres, il ne les considérait nullement comme des menaces. Hormis Bei Luo, la seule autre présence méritant son attention était cette dégoûtante aura d'ancien dieu qu'il avait ressentie lors de son apparition.
 
-Tout en poursuivant Bei Lou, l'ancien démon lança un regard glacial à Wang Lin, au loin.
+Tout en poursuivant Bei Luo, l'ancien démon lança un regard glacial à Wang Lin, au loin.
 
 Wang Lin se déplaçait aussi vite que possible pour éviter le Maître du Vide, qui se comportait comme un chien enragé, mais sa vitesse restait bien trop lente face à celle de son poursuivant. En ce moment de crise, Wang Lin sortit le talisman de vitesse du clan des Tatouages et l'appliqua sur son corps, portant immédiatement sa vitesse à son paroxysme.
 
@@ -86,13 +86,13 @@ Les yeux du Maître du Vide se remplirent de peur et d'amertume. Son corps vacil
 
 « Tout à l'heure, j'ai senti que je perdais le contrôle de moi-même, mais maintenant j'en suis certain... Je ne pensais pas que le premier Fléau Céleste arriverait si vite... » Le Maître du Vide se précipita dans le pilier de lumière et disparut.
 
-L'Ancien Démon Bei Lou, poursuivi par l'ancien démon, laissait échapper des rugissements de rage. Lorsqu'il vit que le réseau de transfert pour quitter les lieux s'était ouvert, il se précipita vers lui sans hésiter. Cependant, alors qu'il approchait, l'ancien démon qui le traquait afficha un regard sanguinaire. Il lâcha la lame qu'il tenait et ouvrit soudainement les bras.
+L'Ancien Démon Bei Luo, poursuivi par l'ancien démon, laissait échapper des rugissements de rage. Lorsqu'il vit que le réseau de transfert pour quitter les lieux s'était ouvert, il se précipita vers lui sans hésiter. Cependant, alors qu'il approchait, l'ancien démon qui le traquait afficha un regard sanguinaire. Il lâcha la lame qu'il tenait et ouvrit soudainement les bras.
 
-« Le Démon dévore tous les esprits! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en une gueule géante qui tenta de dévorer impitoyablement Bei Lou en fuite.
+« Le Démon dévore tous les esprits! » Alors qu'il criait, l'armure de l'ancien démon libéra une brume noire infinie qui envahit à nouveau le monde. Cette brume se mua en une gueule géante qui tenta de dévorer impitoyablement Bei Luo en fuite.
 
-Bei Lou poussa un gémissement de douleur avant que son corps ne s'effondre dans un fracas. La moitié de son être fut dévorée, et l'autre moitié retrouva la taille d'un homme ordinaire. Il disparut ensuite dans le réseau de transfert.
+Bei Luo poussa un gémissement de douleur avant que son corps ne s'effondre dans un fracas. La moitié de son être fut dévorée, et l'autre moitié retrouva la taille d'un homme ordinaire. Il disparut ensuite dans le réseau de transfert.
 
-La brume noire absorba rapidement la moitié du corps spirituel de Bei Lou. Puis, elle enveloppa Ta Jia et se transforma en dragon. Le dragon fonça vers le réseau de transfert et s'élança vers le ciel.
+La brume noire absorba rapidement la moitié du corps spirituel de Bei Luo. Puis, elle enveloppa Ta Jia et se transforma en dragon. Le dragon fonça vers le réseau de transfert et s'élança vers le ciel.
 
 Le ciel fut déchiré alors qu'il chargeait vers les hauteurs.
 
@@ -100,7 +100,7 @@ Le ciel fut déchiré alors qu'il chargeait vers les hauteurs.
 
 Quant à Wang Lin et au Couple Céleste, les trois apparurent instantanément dans le palais du huitième étage. Hu Juan s'exclama rapidement: « Lorsque le Maître m'a parlé tout à l'heure, il n'a prononcé qu'une seule phrase! "Temple du Royaume Céleste de la Pluie, Cristal d'Âme Originelle, le sang de Qing Shuang!" »
 
-Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et le Maître du Vide émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Lou apparut également.
+Les yeux de Wang Wei se rétrécirent. Avant qu'il ne puisse parler, l'homme en noir et le Maître du Vide émergèrent du réseau de transfert. Au même moment, le corps spirituel misérable de l'Ancien Démon Bei Luo apparut également.
 
 De plus, à cet instant précis, le sol sur lequel tout le monde se tenait s'effondra. Tandis que la terre cédait, des filaments d'énergie démoniaque jaillirent des fissures. Lorsque le sol fut totalement détruit, le dragon formé d'énergie démoniaque surgit. Il ouvrit une gueule capable de dévorer le monde et tenta d'engloutir tout le monde.
 

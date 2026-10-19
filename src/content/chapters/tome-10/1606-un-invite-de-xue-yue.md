@@ -1,6 +1,6 @@
 ---
 n: 1606
-title: Un Invité de Xue Yue
+title: Un Invité de Xue Yu
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1606 - A Guest From Xue Yue
@@ -102,4 +102,4 @@ Wang Lin ouvrit les yeux et regarda calmement la femme avant d'acquiescer d'un s
 
 L'un se tenait à l'intérieur du pavillon, là où la pluie ne tombait pas. L'autre se tenait à l'extérieur, et là aussi, aucune goutte ne le touchait; toute la pluie se transformait en glace autour d'elle.
 
-« Je viens de Xue Yue et j'ai une question à vous poser. » La voix de la femme était glaciale, comme si elle émanait de la neige elle-même.
+« Je viens de Xue Yu et j'ai une question à vous poser. » La voix de la femme était glaciale, comme si elle émanait de la neige elle-même.

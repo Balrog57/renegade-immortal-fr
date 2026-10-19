@@ -102,6 +102,6 @@ Son corps trembla violemment et son visage pâlit. Une douleur inimaginable l'en
 
 Cependant, au moment où la lame tranchait Wang Lin, elle sembla incapable de supporter la puissance de l'âme de celui-ci et s'effondra! Sur les trois lames superposées, il n'en resta que deux!
 
-L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Ancestral pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que la lame était formée de son sang essentiel, elle n'aurait pu blesser l'âme de Wang Lin du tout.
+L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Ancien pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que la lame était formée de son sang essentiel, elle n'aurait pu blesser l'âme de Wang Lin du tout.
 
 Bien qu'elle eût réussi à diviser l'âme de Wang Lin en trois, la lame ne put résister à la force de recul de son âme. Elle se dissipa à jamais, incapable d'être invoquée de nouveau.

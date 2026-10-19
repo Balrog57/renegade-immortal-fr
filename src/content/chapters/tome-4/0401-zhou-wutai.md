@@ -40,7 +40,7 @@ Un rugissement jaillit de la bouche de l'ancêtre du Clan des Démons Géants. I
 
 « Petit enfant Wang Lin, meurs! » L'ancêtre leva la hache et frappa de nouveau.
 
-Tout en reculant, le regard de Wang Lin devint glacial. Sa main traça un sceau et il s'écria: « Drapeau de l'Âme Honorée! »
+Tout en reculant, le regard de Wang Lin devint glacial. Sa main traça un sceau et il s'écria: « Étendard de l'Âme! »
 
 Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme d'une dizaine de mètres de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
 
@@ -58,9 +58,9 @@ Ses yeux rouges trahirent une pointe de choc et un signe de terreur profondémen
 
 Pourtant, à cet instant, ce drapeau était l'exacte réplique de celui de sa mémoire, ce qui l'obligeait à l'accepter.
 
-Le Drapeau de l'Âme d'un Milliard d'Âmes était utilisé par Wang Lin pour la première fois.
+Le Étendard de l'Âme était utilisé par Wang Lin pour la première fois.
 
-À ce moment précis, aux confins du Clan des Démons Géants, la femme en robe violette qui observait la scène fronça soudainement les sourcils. « Du Tian m'a expulsée de la Secte de l'Affinement de l'Âme pour pouvoir transmettre le Drapeau de l'Âme d'un Milliard d'Âmes à Wang Lin. Bien qu'il ne s'agisse que d'une illusion, ce n'est pas une chose à laquelle l'ancêtre du Clan des Démons Géants peut résister. »
+À ce moment précis, aux confins du Clan des Démons Géants, la femme en robe violette qui observait la scène fronça soudainement les sourcils. « Du Tian m'a expulsée de la Secte de l'Affinement de l'Âme pour pouvoir transmettre le Étendard de l'Âme à Wang Lin. Bien qu'il ne s'agisse que d'une illusion, ce n'est pas une chose à laquelle l'ancêtre du Clan des Démons Géants peut résister. »
 
 La femme en robe violette soupira. Elle observait Wang Lin depuis longtemps sans parvenir à sonder son cœur de Dao. Elle pourrait peut-être y parvenir en utilisant une technique secrète pendant qu'il serait inconscient.
 
@@ -92,7 +92,7 @@ La femme en robe violette marqua une nouvelle pause et fixa l'homme. Sous sa bea
 
 À l'époque où Wang Lin avait vu cet homme, il n'avait pu que soupirer. Ce n'était pas une voie qu'il aurait pu emprunter lui-même.
 
-Wang Lin leva le Drapeau de l'Âme d'un Milliard d'Âmes et y projeta son âme originelle. Le drapeau se mit à s'agiter et un hurlement capable de déchirer les cieux jaillit de son sein.
+Wang Lin leva le Étendard de l'Âme et y projeta son âme originelle. Le drapeau se mit à s'agiter et un hurlement capable de déchirer les cieux jaillit de son sein.
 
 D'innombrables fragments d'âmes s'échappèrent du drapeau, guidés par les douze fragments d'âme or violacé de la Transformation de l'Âme.
 

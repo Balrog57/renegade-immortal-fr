@@ -72,7 +72,7 @@ Il avait peur de la mort!
 
 Cependant, il finit par oublier cette prudence après avoir rassemblé dix gardiens célestes. Il commença à agir personnellement pour capturer davantage de cultivateurs afin de les fusionner avec les jades brisés, espérant ainsi cultiver des experts du niveau des gardiens célestes.
 
-« Quel est le pedigree de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité des Démons Anciens qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
+« Quel est le pedigree de ce maudit Wang Lin? Comment peut-il être aussi puissant?! Bon sang, si je m'échappe cette fois, j'irai briser la tête du cultivateur de la Cité de l'Ancien Démon qui m'a donné des nouvelles de lui! » lança le vieil homme dans sa fuite, maudissant intérieurement.
 
 Les yeux de Wang Lin étaient embrasés par la passion. Même s'il devait épuiser toute l'énergie spirituelle céleste de son corps, il ne laisserait pas ce vieil homme s'échapper. Ses yeux étaient d'un rouge éclatant; non pas à cause du massacre, mais à cause du trésor que tenait l'homme.
 

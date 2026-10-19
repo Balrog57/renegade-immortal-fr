@@ -108,7 +108,7 @@ Luttant contre la douleur, Wang Lin s'assit sur le cœur. Il ferma les yeux et c
 
 Cependant, au moment où sa conscience s'étendit, le cœur se mit à battre avec une violence accrue. Il refusait toute synchronisation et généra une force de rejet colossale.
 
-« J'ai traversé la plupart des Trois Épreuves et des Sept Calamités, et j'ai obtenu l'approbation de l'Ancêtre Antique! J'ai acquis plus de la moitié de tes héritages, et il ne reste que le cœur. Je sais que tu y es réticent, mais tu es déjà mort! »
+« J'ai traversé la plupart des Trois Épreuves et des Sept Calamités, et j'ai obtenu l'approbation de l'Ancêtre Ancien! J'ai acquis plus de la moitié de tes héritages, et il ne reste que le cœur. Je sais que tu y es réticent, mais tu es déjà mort! »
 
 « Tu es déjà mort, alors donne-moi ton héritage et j'accomplirai tes dernières volontés! Je prendrai soin de tes proches sur le Continent Astral Immortel et je les protégerai! »
 

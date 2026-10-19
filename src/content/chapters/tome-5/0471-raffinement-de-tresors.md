@@ -140,7 +140,7 @@ Après avoir maîtrisé cette bête indomptable, l'énergie spirituelle dans le 
 
 Wang Lin ouvrit les yeux, toucha le piège à bêtes sur son poignet et afficha une expression d'inquiétude.
 
-« Ce sera un trésor puissant! Malheureusement, il ne reste que trois âmes primaires dans la bannière de l'âme. Sinon, utilisée de concert avec la bannière, elle aurait entièrement masqué le défaut de la longue durée d'activation du char de guerre. »
+« Ce sera un trésor puissant! Malheureusement, il ne reste que trois âmes primaires dans l'Étendard de l'Âme. Sinon, utilisée de concert avec la bannière, elle aurait entièrement masqué le défaut de la longue durée d'activation du char de guerre. »
 
 « Avec mes trésors actuels, je n'ai rien à craindre face à des cultivateurs au stade intermédiaire de la Transformation de l'Âme. Contre des cultivateurs ordinaires au stade avancé de la Transformation de l'Âme, tant que j'ai le temps d'activer le char de guerre, je pourrai tenir tête. Cependant, contre ceux qui possèdent un trésor céleste ou qui, au sommet du stade avancé de la Transformation de l'Âme, sont à demi-pas du stade Ascendant, je perdrai probablement. Quant aux cultivateurs Ascendants, je n'ai aucune chance de l'emporter. »
 

@@ -22,7 +22,7 @@ Wang Lin ne répondit rien.
 
 Tous deux, ou plutôt une seule et même personne, étaient assis sur ce bateau à boire du vin tandis que le monde demeurait figé.
 
-Le temps ne passait plus. Les feuilles de saule restaient immobiles dans l'air, mais les deux compères avaient trop bu.
+Le temps ne passait plus. Les flocons de saule restaient immobiles dans l'air, mais les deux compères avaient trop bu.
 
 Après un long moment, le jeune homme en blanc dit doucement: « Comment est cette vie...? »
 
@@ -64,7 +64,7 @@ Mais il était comme du feu. Lorsqu'il atteignit son estomac, il le brûla.
 
 « Qu'est-ce que le karma... Quand j'ouvre ma paume, c'est la cause karmique; quand je ferme ma paume, c'est l'effet karmique... »
 
-Le monde gronda. Le bateau sur lequel se trouvait Wang Lin disparut. Avec lui s'évanouirent la rivière, le pont de pierre, les innombrables embarcations et les feuilles de saule infinies dans le ciel.
+Le monde gronda. Le bateau sur lequel se trouvait Wang Lin disparut. Avec lui s'évanouirent la rivière, le pont de pierre, les innombrables embarcations et les flocons de saule infinis dans le ciel.
 
 Une onde invisible se propagea de Wang Lin comme centre. Tous les édifices de la ville de Su disparurent en un éclair. Non seulement Su, mais tout le pays de Zhao — ses montagnes, ses rivières, ses sectes, ses villages et tout le reste — s'effaça instantanément.
 
@@ -117,7 +117,7 @@ Il vit une femme tenant un bébé sous la pluie devant un pavillon. Elle était 
 Il vit l'incompréhension dans les yeux de Liu Mei aux confins de Zhao, et la pilule qu'elle avait laissée avec un sourire.
 Il vit son père fermer les yeux dans ses bras. Il vit une feuille d'automne s'envoler avec son âme, s'éloignant toujours plus loin... Il vit les yeux de sa mère ne jamais se rouvrir, et un sourire apparaître au coin de ses lèvres, comme si elle avait retrouvé son père.
 Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de Su. Une seule phrase suffit à effrayer l'assaillant!
-Il vit Su Dao et son enterrement. Il revit l'année où lui et Grande Fortune arrivèrent pour la première fois à Su, quand les feuilles de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
+Il vit Su Dao et son enterrement. Il revit l'année où lui et Grande Fortune arrivèrent pour la première fois à Su, quand les flocons de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
 
 Enfin, il vit une auberge au bord de la route royale. Sur une table, à l'intérieur, gisait un jeune homme ivre. Le serveur, le sourcil froncé, s'approcha pour le secouer.
 « Petit frère, réveille-toi... Ah, voilà un vrai érudit. À peine deux coupes et déjà ivre. Mon auberge va fermer, dépêche-toi de te lever... »

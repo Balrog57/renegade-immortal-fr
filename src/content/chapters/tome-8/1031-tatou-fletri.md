@@ -60,7 +60,7 @@ Bien qu'il se soignât, il ne coupa pas son Sens Divin. Celui-ci se propageait s
 
 Le temps passa lentement et, en un clin d'œil, sept jours s'écoulèrent. Le huitième jour, Wang Lin ouvrit les yeux, une lueur ardente brillant dans son regard.
 
-Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte de l'Empereur Céleste, comme l'éveil inattendu de l'Oiseau Vermillon qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Lou.
+Il réfléchit un instant. Dans le silence des profondeurs, Wang Lin se remémora tout ce qui s'était passé dans la Grotte de l'Empereur Céleste, comme l'éveil inattendu de l'Oiseau Vermillon qui avait brisé le monde en bouteille. Sa mémoire se fixa sur le parchemin qui était apparu dans la main du Démon Ancien Bei Luo.
 
 « Je présume qu'il s'agissait de la Peinture des Montagnes et des Rivières, la Peinture de la Fumée du Désert Solitaire. »
 

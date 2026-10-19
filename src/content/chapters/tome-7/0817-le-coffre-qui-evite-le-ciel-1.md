@@ -54,11 +54,11 @@ Le Sceau Céleste vacilla et marqua une pause.
 
 Le visage de l'homme à la robe noire pâlit légèrement. Wang Lin chargea immédiatement, toucha sa sacoche et en sortit l'épée céleste. Il frappa sans hésitation.
 
-Coupe Céleste!
+Coup Céleste!
 
-Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement à s'accumuler. Au moment où la Coupe Céleste approchait, deux rayons de lumière jaillirent de ses yeux pour percuter l'attaque.
+Les yeux de l'homme se rétractèrent et une lumière noire commença rapidement à s'accumuler. Au moment où le Coup Céleste approchait, deux rayons de lumière jaillirent de ses yeux pour percuter l'attaque.
 
-La puissance de la Coupe Céleste se dissipa dans un fracas!
+La puissance de le Coup Céleste se dissipa dans un fracas!
 
 « Avec un tel niveau de culture, ce n'est même pas suffisant pour me faire bouger. Si c'est là tout ce que tu as, tu n'es pas digne de posséder le trésor de mon maître! » La voix rauque de l'homme était glaciale.
 

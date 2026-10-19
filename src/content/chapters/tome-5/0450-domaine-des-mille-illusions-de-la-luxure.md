@@ -60,7 +60,7 @@ Mais lors de sa retraite précédente, une partie du brouillard était entrée d
 
 Alors que le brouillard l'encerclait, la brume emprisonnée en lui brisa ses sceaux et se propagea dans tout son organisme. Entre la menace intérieure et extérieure, Wang Lin perdit le contrôle pour la première fois.
 
-Le Domaine des Mille Illusions Impitoyables était déjà au stade intermédiaire de la Transformation de l'Âme. Il ne s'agissait en réalité que de 999 illusions, chacune représentant une vie que Liu Mei avait vécue. La Liu Mei de la Secte Tian Dao n'était qu'un avatar parmi d'autres.
+Le Domaine de la Cruauté des Mille Illusions était déjà au stade intermédiaire de la Transformation de l'Âme. Il ne s'agissait en réalité que de 999 illusions, chacune représentant une vie que Liu Mei avait vécue. La Liu Mei de la Secte Tian Dao n'était qu'un avatar parmi d'autres.
 
 Liu Mei possédait 999 avatars ainsi pour expérimenter 999 illusions différentes; il ne lui en manquait plus qu'une seule pour que son domaine atteigne le stade avancé de la Transformation de l'Âme. Une fois ce stade atteint, il ne lui faudrait que suffisamment de jades célestes pour entreprendre l'épreuve de la vie et de la mort afin d'atteindre le stade Ascendant. Un seul pas pourrait mener à la mort, ou bien franchir le stade Ascendant!
 
@@ -82,7 +82,7 @@ Peu après, le brouillard disparut totalement et la vallée retrouva son aspect 
 
 Elle se leva, observa les taches rouges sur l'autel et commença à réfléchir.
 
-« Je n'arrive pas à croire que la dernière illusion du Domaine des Mille Illusions Impitoyables soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine des Mille Illusions de la Luxure. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur taoïste de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
+« Je n'arrive pas à croire que la dernière illusion du Domaine de la Cruauté des Mille Illusions soit celle-ci. À l'instant où elle apparaît, le domaine devient le Domaine des Mille Illusions de la Luxure. Tout cela ressemble à un songe, et pourtant c'est si réel. Je n'aurais jamais pensé que la dernière illusion de mon domaine s'obtiendrait ainsi... Le Maître voulait que je laisse ma marque dans le cœur taoïste de Wang Lin, mais il n'aurait jamais imaginé que ma dernière illusion contiendrait son aura... »
 
 Les sourcils de Liu Mei se froncèrent intensément alors qu'elle regardait au loin, avant de laisser échapper un soupir. Elle éprouvait des sentiments complexes et, à cet instant, se sentit soudainement perdue. Tout ce qui venait de se produire dépassait toutes ses attentes.
 

@@ -58,11 +58,11 @@ D'un mot, il figea le monde. Le gigantesque vortex gronda, mais bien que le sort
 
 Les yeux de Wang Lin brillèrent et il s'avança. Sa main droite tendit vers le vortex et agita un geste; il créa une puissante force de succion qui arracha une grande quantité de puissance de la Porte du Vide qui ne lui appartenait pas originellement.
 
-Les grondements du vortex devinrent plus intenses encore. Son rugissement colérique semblait exprimer son mécontentement face aux agissements de Wang Lin. Cependant, celui-ci n'en avait cure. Tandis qu'il extrayait davantage de puissance, il sortit la minuscule lueur qui constituait les restes de son Char de Guerre Anti-Dieu détruit.
+Les grondements du vortex devinrent plus intenses encore. Son rugissement colérique semblait exprimer son mécontentement face aux agissements de Wang Lin. Cependant, celui-ci n'en avait cure. Tandis qu'il extrayait davantage de puissance, il sortit la minuscule lueur qui constituait les restes de son Char de Guerre Divin détruit.
 
-Ce Char de Guerre Anti-Dieu avait été anéanti lors de la première bataille de Wang Lin contre le Shui Daozi. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Shui Daozi.
+Ce Char de Guerre Divin avait été anéanti lors de la première bataille de Wang Lin contre le Shui Daozi. Lorsqu'il fut détruit, il restait encore un sceau sur lui, mais cela suffit pourtant à surprendre et à blesser le Shui Daozi.
 
-Le pouvoir de ce trésor était extraordinaire! Il avait été créé par l'Estimé Xuan Bao du Royaume Céleste de la Pluie. Nommé Char de Guerre Anti-Dieu, il était d'une puissance extrême. Wang Lin avait survécu à de nombreux périls grâce à lui.
+Le pouvoir de ce trésor était extraordinaire! Il avait été créé par l'Estimé Xuan Bao du Royaume Céleste de la Pluie. Nommé Char de Guerre Divin, il était d'une puissance extrême. Wang Lin avait survécu à de nombreux périls grâce à lui.
 
 Wang Lin avait sorti les restes du Char pour voir si ce mystérieux pouvoir de la Porte du Vide pouvait le restaurer!
 
@@ -80,11 +80,11 @@ Des ondes de poudre multicolore tombèrent des ailes du papillon. Il dansa autou
 
 Finalement, le papillon se posa sur l'épaule de Wang Lin et resta immobile.
 
-Wang Lin éclata de rire. Il regarda le papillon en se remémorant son expérience avec le Char de Guerre Anti-Dieu. Il ne pensait jamais revoir ce papillon!
+Wang Lin éclata de rire. Il regarda le papillon en se remémorant son expérience avec le Char de Guerre Divin. Il ne pensait jamais revoir ce papillon!
 
-Ce papillon était l'esprit du Char de Guerre Anti-Dieu!
+Ce papillon était l'esprit du Char de Guerre Divin!
 
-« Peu importe la difficulté, je prendrai la puissance de la Porte du Vide! Puisque le Char de Guerre Anti-Dieu peut être restauré, je sortirai un autre trésor. Si celui-là peut aussi être réparé, j'aurai un autre puissant sort de survie! » Les yeux de Wang Lin étaient empreints d'excitation. Il agita la main droite et un objet vola hors de son espace de stockage: un fragment de bouclier.
+« Peu importe la difficulté, je prendrai la puissance de la Porte du Vide! Puisque le Char de Guerre Divin peut être restauré, je sortirai un autre trésor. Si celui-là peut aussi être réparé, j'aurai un autre puissant sort de survie! » Les yeux de Wang Lin étaient empreints d'excitation. Il agita la main droite et un objet vola hors de son espace de stockage: un fragment de bouclier.
 
 Le fragment émettait une faible lueur verte, si ténue qu'elle semblait pouvoir s'éteindre à tout instant.
 

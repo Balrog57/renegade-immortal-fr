@@ -62,13 +62,13 @@ Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna l
 
 « De plus, le Clan du Tonnerre Dispersé comptait des centaines de milliers de membres et de nombreux cultivateurs puissants. Comment ont-ils pu être exterminés ainsi?! »
 
-« Le Clan du Tonnerre Dispersé possédait également l'éclair éternel, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
+« Le Clan du Tonnerre Dispersé possédait également l'tonnerre éternel, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
 
-Le jeune homme en noir s'apprêtait à partir, mais il se retourna et ajouta froidement: « Ce n'est pas encore confirmé, mais le Conseil Souverain affirme que l'éclair éternel a été dévoré par cet individu! Pour le moment, tout le Système Stellaire Antique est en alerte. Le Conseil Souverain a même dépêché un Ancien pour traquer cette personne! »
+Le jeune homme en noir s'apprêtait à partir, mais il se retourna et ajouta froidement: « Ce n'est pas encore confirmé, mais le Conseil Souverain affirme que l'tonnerre éternel a été dévoré par cet individu! Pour le moment, tout le Système Stellaire Antique est en alerte. Le Conseil Souverain a même dépêché un Ancien pour traquer cette personne! »
 
 Sous les nuages où tombait la pluie, Wang Lin détourna lentement le regard. Ses yeux étaient calmes alors qu'il s'asseyait et regardait sur le côté.
 
-Une lueur passa dans son regard et il murmura: « On m'a découvert si vite... Le Conseil Souverain. Je dois affiner ce dernier dragon de tonnerre ancien au plus vite, puis fusionner avec l'éclair éternel! »
+Une lueur passa dans son regard et il murmura: « On m'a découvert si vite... Le Conseil Souverain. Je dois affiner ce dernier dragon de tonnerre ancien au plus vite, puis fusionner avec l'tonnerre éternel! »
 
 Wang Lin médita en silence, les yeux clos. La flamme monstrueuse nichée dans son âme originelle était en train d'affiner le dernier dragon de tonnerre ancien.
 
@@ -102,12 +102,12 @@ Dans la partie orientale de la planète se dressait une immense chaîne de monta
 
 À cet instant, au sein du Clan Zhen Yan, un homme aux cheveux blancs se tenait au sommet d'une montagne. Il paraissait très vieux et fixait l'horizon. Après un long moment, il murmura: « Pourquoi ai-je l'impression qu'une calamité est sur le point de frapper... »
 
-Wang Lin savait que le temps pressait. Après avoir dévoré les huit dragons de tonnerre anciens, il libéra l'éclair éternel. Dès sa libération, ce dernier tenta de s'extirper du corps de Wang Lin.
+Wang Lin savait que le temps pressait. Après avoir dévoré les huit dragons de tonnerre anciens, il libéra l'tonnerre éternel. Dès sa libération, ce dernier tenta de s'extirper du corps de Wang Lin.
 
-Cependant, juste au moment où il allait bouger, l'âme originelle de Wang Lin, devenue un éclair de foudre, se précipita sur l'éclair éternel et commença à le dévorer frénétiquement!
+Cependant, juste au moment où il allait bouger, l'âme originelle de Wang Lin, devenue un éclair de foudre, se précipita sur l'tonnerre éternel et commença à le dévorer frénétiquement!
 
-L'éclair éternel se débattit avec acharnement. Une volonté résidait en lui, semblable à celle d'un cultivateur, et elle engagea une lutte mortelle contre Wang Lin!
+L'tonnerre éternel se débattit avec acharnement. Une volonté résidait en lui, semblable à celle d'un cultivateur, et elle engagea une lutte mortelle contre Wang Lin!
 
-« Fusionne avec moi et deviens une part de mon âme originelle. Permets à ma source du Dao du tonnerre d'atteindre la grande perfection et, avec les tonnerres qui l'accompagnent, de percer le firmament et d'accroître mon niveau de culture! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'éclair éternel.
+« Fusionne avec moi et deviens une part de mon âme originelle. Permets à ma source du Dao du tonnerre d'atteindre la grande perfection et, avec les tonnerres qui l'accompagnent, de percer le firmament et d'accroître mon niveau de culture! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'tonnerre éternel.
 
 « Sortilège du Dao... Fusionne! » L'œil droit de Wang Lin s'illumina et les deux empreintes distinctes de sources de foudre dans sa pupille droite commencèrent à pivoter. Son regard dégageait alors une aura démoniaque!

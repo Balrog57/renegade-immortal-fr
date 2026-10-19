@@ -98,7 +98,7 @@ Xuan Luo regarda l'âme de Ye Mo derrière Wang Lin avec une pointe de pitié et
 
 Ye Mo avait dispersé son sang, dont quelques gouttes de sang d'âme originelle. Une fois le sang d'âme réuni, son âme originelle se reformerait et il pourrait posséder le corps. Comme ce corps appartiendrait à l'un de ses descendants, il n'y aurait aucun risque d'échec.
 
-Cependant, Wang Lin était différent. Il avait obtenu la reconnaissance de l'Ancien Ancêtre et le sang d'âme de ce dernier...
+Cependant, Wang Lin était différent. Il avait obtenu la reconnaissance de l'Ancêtre Ancien et le sang d'âme de ce dernier...
 
 Par conséquent, il était une existence encore plus noble que Ye Mo; Ye Mo ne pouvait donc pas réussir sa possession! À cet instant, l'âme originelle de Ye Mo se transforma en sept filaments de fumée et pénétra dans le corps de Wang Lin par ses orifices.
 
@@ -106,7 +106,7 @@ Au moment où Ye Mo entra, Wang Lin ouvrit les yeux, mais son expression resta s
 
 L'âme originelle de Ye Mo pénétra ainsi dans le corps de Wang Lin. Après trois heures, Wang Lin expira profondément. Son corps rétrécit progressivement sous une lumière fantomatique jusqu'à retrouver la taille d'un homme ordinaire.
 
-Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'était dissipée à l'intérieur de lui. Ye Mo n'avait pu résister au sang d'âme de l'Ancien Ancêtre et était devenu, lentement, une partie de l'héritage de l'Ancien Dao de Wang Lin.
+Ses yeux étaient aussi profonds que les étoiles. L'âme originelle de Ye Mo s'était dissipée à l'intérieur de lui. Ye Mo n'avait pu résister au sang d'âme de l'Ancêtre Ancien et était devenu, lentement, une partie de l'héritage de l'Ancien Dao de Wang Lin.
 
 Les blessures de Wang Lin étaient totalement guéries. Cette goutte de sang et l'âme originelle de Ye Mo avaient eu un effet prodigieux. Autrement, il lui aurait fallu plusieurs mois, voire plus, pour se remettre.
 

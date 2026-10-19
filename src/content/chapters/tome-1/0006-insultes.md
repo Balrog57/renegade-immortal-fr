@@ -42,18 +42,18 @@ La situation était à l'opposé total de la scène précédente, comme le ciel 
 
 Le père de Wang Zhuo rit intérieurement et ricana: « Lao Er, ne t'avais-je pas dit que pour devenir disciple d'un immortel, il faut avoir le destin de son côté et que les exigences sont très strictes? Comment pourrait-il y avoir la moindre chance sans posséder un talent comme celui de mon fils? Pourtant, tu as sérieusement cru que c'était possible. Voilà que tu pousses ton fils à bout! Était-ce vraiment nécessaire? »
 
-Le père de Tie Zhu ne put plus contenir sa rage. Il hurla: « Wang Tianshan, tais-toi! À l'époque, sur son lit de mort, notre père m'avait laissé une part de l'héritage. Tu t'es ligué avec les autres pour me la voler, et maintenant tu oses m'insulter? Penses-tu vraiment que moi, Wang Tian Shui, je vais subir cela en silence? »
+Le père de Tie Zhu ne put plus contenir sa rage. Il hurla: « Wang Tian Shan, tais-toi! À l'époque, sur son lit de mort, notre père m'avait laissé une part de l'héritage. Tu t'es ligué avec les autres pour me la voler, et maintenant tu oses m'insulter? Penses-tu vraiment que moi, Wang Tian Shui, je vais subir cela en silence? »
 
 « Et vous tous aussi! Il y a un instant, vous me félicitiez joyeusement, et voilà que vous nous insultez. Notre fils est déjà dans cet état, et vous ajoutez l'insulte à la blessure. Êtes-vous encore des êtres humains? »
 
-Wang Tianshan marqua une pause avant de répondre: « Pourquoi ramener le passé sur le tapis? Je t'ai prévenu avec de bonnes intentions que ton fils n'avait aucun talent, et pourtant tu m'en veux. Hmph, avec un père comme toi, le fils ne sera pas bien meilleur! »
+Wang Tian Shan marqua une pause avant de répondre: « Pourquoi ramener le passé sur le tapis? Je t'ai prévenu avec de bonnes intentions que ton fils n'avait aucun talent, et pourtant tu m'en veux. Hmph, avec un père comme toi, le fils ne sera pas bien meilleur! »
 
 Toutes les insultes lancées contre l'abattu Wang Lin étaient comme des épines transperçant son cœur. Il regarda froidement l'assemblée et grava leurs visages dans sa mémoire.
 
 « Toi... je te combattrai jusqu'à la mort! » Le père de Tie Zhu, hors de lui, saisit un tabouret pour en faire une arme. Le quatrième oncle de Tie Zhu se précipita pour l'en empêcher, murmurant: « Frère, ne sois pas impulsif. Le frère aîné a beaucoup de serviteurs chez lui, tu risques d'y perdre. Je suis là, regarde-moi faire. »
 
-Le quatrième oncle lança un regard noir à Wang Tianshan et déclara: « Grand frère, est-ce là une façon de parler? Je n'en peux plus de t'entendre. Si tu oses encore insulter mon deuxième frère devant moi, ne me reproche pas de ne plus tenir aux liens fraternels. La famille Wang est peut-être grande, mais je me suis fait ces dernières années bien des amis dans le monde du jianghu. Gare à ne pas être réduits en cendres d'un seul incendie! »
+Le quatrième oncle lança un regard noir à Wang Tian Shan et déclara: « Grand frère, est-ce là une façon de parler? Je n'en peux plus de t'entendre. Si tu oses encore insulter mon deuxième frère devant moi, ne me reproche pas de ne plus tenir aux liens fraternels. La famille Wang est peut-être grande, mais je me suis fait ces dernières années bien des amis dans le monde du jianghu. Gare à ne pas être réduits en cendres d'un seul incendie! »
 
-Wang Tianshan marmonna quelques mots, craignant encore l'influence de ce quatrième oncle bien introduit.
+Wang Tian Shan marmonna quelques mots, craignant encore l'influence de ce quatrième oncle bien introduit.
 
 « Lao Si, tes propos sont injustes, rétorqua le troisième grand-oncle, le plus âgé de la génération, avec mécontentement. Nous n'avons pas tort de souligner que le fils de Lao Er manque de talent. Qu'y a-t-il de mal à ce que la génération aînée réprimande les plus jeunes? Tu es bien excessif! »

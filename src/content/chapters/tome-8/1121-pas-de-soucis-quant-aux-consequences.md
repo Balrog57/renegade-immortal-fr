@@ -68,7 +68,7 @@ C'était comme si un marteau céleste lui avait frappé la poitrine; le visage d
 
 Wang Lin prit une profonde inspiration en fixant Qing Lin. L'espoir dans ses yeux fut ravivé.
 
-« Le Maître a entendu dire que le Cercueil Évitant le Ciel apparut pour la première fois dans le Royaume Céleste de la Foudre et appartenait à l'Empereur Céleste Zi Xia. La culture de Zi Xia se situait juste en dessous de la mienne et au-dessus de celle de Bai Fan. Elle a peut-être survécu à l'effondrement du Royaume Céleste de la Foudre, ou elle a peut-être laissé des disciples derrière elle. Tu pourrais peut-être trouver l'incantation du Cercueil Évitant le Ciel auprès d'elle! »
+« Le Maître a entendu dire que le Cercueil Évitant le Ciel apparut pour la première fois dans le Royaume Céleste du Tonnerre et appartenait à l'Empereur Céleste Zi Xia. La culture de Zi Xia se situait juste en dessous de la mienne et au-dessus de celle de Bai Fan. Elle a peut-être survécu à l'effondrement du Royaume Céleste du Tonnerre, ou elle a peut-être laissé des disciples derrière elle. Tu pourrais peut-être trouver l'incantation du Cercueil Évitant le Ciel auprès d'elle! »
 
 « Même si tu ne parviens pas à la trouver, ce n'est pas grave. Une fois que ma culture sera rétablie, je t'aiderai sans faute! »
 

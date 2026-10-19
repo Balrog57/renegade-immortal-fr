@@ -66,7 +66,7 @@ Bien qu'il semblât aussi fragile qu'un souffle de vent, il dégageait toujours 
 
 « Je ne pensais pas... que tu posséderais un tel trésor!!! Wang Lin, je t'ai sous-estimé! » La voix de Tuo Sen, glaciale, émana de cette silhouette.
 
-Hormis les quatre âmes primaires poursuivant Liu Mei, tous les autres fragments d'âme du drapeau aux un milliard d'âmes avaient explosé pour créer ce désastre. Pourtant, même ainsi, cela n'avait pas suffi à anéantir complètement ce fragment de Sens Divin de Tuo Sen. Ce dernier était tout simplement trop puissant!
+Hormis les quatre âmes primaires poursuivant Liu Mei, tous les autres fragments d'âme du Étendard de l'Âme avaient explosé pour créer ce désastre. Pourtant, même ainsi, cela n'avait pas suffi à anéantir complètement ce fragment de Sens Divin de Tuo Sen. Ce dernier était tout simplement trop puissant!
 
 Wang Lin ressentit une amertume profonde; il laissa échapper un soupir et porta la main à son front. Il ignorait s'il pourrait se cacher de Tuo Sen dans la perle défiant le ciel. Il ne savait plus quoi faire...
 

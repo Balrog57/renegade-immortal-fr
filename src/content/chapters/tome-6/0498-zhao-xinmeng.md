@@ -26,7 +26,7 @@ Lorsque Yundao Zi sentit le regard de son maître, son cœur trembla et il baiss
 
 Les paroles de l'Omniscient résonnèrent parmi les disciples des six autres divisions. Leurs regards, empreints de confusion et de remise en question, se tournèrent tous vers Wang Lin.
 
-Car à leurs yeux, il était extrêmement rare que leur Maître tente de changer l'avis de quelqu'un. Dans la Division Violette, hormis Sun Yun, Wang Lin était la deuxième personne à qui cela arrivait!
+Car à leurs yeux, il était extrêmement rare que leur Maître tente de changer l'avis de quelqu'un. Dans la Division Pourpre, hormis Sun Yun, Wang Lin était la deuxième personne à qui cela arrivait!
 
 Le temps passa lentement. Les yeux de Wang Lin s'illuminèrent; il regarda l'Omniscient, joignit respectueusement les mains et déclara: « Ce disciple va se battre pour l'obtenir! »
 

@@ -76,11 +76,11 @@ Après avoir parcouru plus de 100 000 pieds, des ondulations se firent entendre 
 
 Sans marquer de pause, il poursuivit son vol rapide.
 
-Le temps s'écoula lentement. En un clin d'œil, plus d'une demi-lune s'était écoulée. Wang Lin n'était plus très loin de la Secte de la Grande Âme, mais ce n'était qu'en utilisant la Déviation Spatiale. S'il devait voler normalement, il lui faudrait encore plusieurs mois.
+Le temps s'écoula lentement. En un clin d'œil, plus d'une demi-lune s'était écoulée. Wang Lin n'était plus très loin de la Secte de la Grande Âme, mais ce n'était qu'en utilisant la Distorsion Spatiale. S'il devait voler normalement, il lui faudrait encore plusieurs mois.
 
 Il se trouvait également dans les profondeurs du Continent du Taureau Céleste. Des chaînes de montagnes s'étendaient partout et une herbe verdoyante recouvrait le sol. Cette zone n'avait pas été affectée par l'impact de la Mer des Pilules. Après tout, le Continent du Taureau Céleste était d'une immensité telle que la zone touchée par l'explosion n'en représentait qu'une infime partie.
 
-Entre deux utilisations de la Déviation Spatiale, Wang Lin s'asseyait sur le dos du roi moustique qui volait prestement devant lui. En complément de la Déviation Spatiale, il se reposait sur l'insecte pour récupérer. Après plus d'un demi-mois, ses blessures étaient guéries à 80 ou 90 %. Le reste était négligeable.
+Entre deux utilisations de la Distorsion Spatiale, Wang Lin s'asseyait sur le dos du roi moustique qui volait prestement devant lui. En complément de la Distorsion Spatiale, il se reposait sur l'insecte pour récupérer. Après plus d'un demi-mois, ses blessures étaient guéries à 80 ou 90 %. Le reste était négligeable.
 
 Ce jour-là, alors qu'il volait, Wang Lin leva soudainement la tête et plissa les yeux. Devant lui, plusieurs éclats de lumière fantomatique apparurent. Des grues en papier noir volaient au cœur de ces lueurs!
 

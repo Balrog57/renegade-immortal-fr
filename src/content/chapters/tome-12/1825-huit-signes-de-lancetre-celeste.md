@@ -66,7 +66,7 @@ Aux yeux de Wang Lin, cette force terrifiante était telle que, sans parler de l
 
 Alors que la glace scellait le ciel, l'homme à la robe impériale leva sa main, les cinq doigts tendus vers les cieux, puis il pointa soudain vers le bas. Simultanément, une voix majestueuse retentit:
 
-« Huitième niveau du Dao Céleste, Dao du Feu Extrême! »
+« Dao des Huit Extrêmes, Dao du Feu Extrême! »
 
 Dès que ces mots furent prononcés, un filet de fumée verte jaillit des doigts de l'être impérial. La fumée tourbillonna autour de ses doigts, formant neuf anneaux, avant de s'élancer vers le Taureau Céleste dans les cieux.
 
@@ -104,6 +104,6 @@ Les yeux de la jeune femme se plissèrent tandis que son corps reprenait ses mou
 
 Alors qu'elle chargeait Wang Lin, celui-ci leva soudainement les yeux et tendit sa main droite.
 
-« Huitième niveau du Dao Céleste, Dao du Feu Extrême! »
+« Dao des Huit Extrêmes, Dao du Feu Extrême! »
 
 Il ne possédait pas le sang du clan céleste, mais il disposait d'autres méthodes!

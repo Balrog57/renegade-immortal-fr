@@ -106,7 +106,7 @@ Zhou Wutai rit. Il se versa une autre coupe et dit: « Ne parlons plus du passé
 
 Avec un sourire aux lèvres, Wang Lin se versa une coupe et la vida d'un trait.
 
-Les yeux de Zhou Wutai brillèrent: « Frère Wang, je te porte une seconde coupe pour te remercier d'avoir tué Li Yuanfeng et scellé Xue Yue! » Sur ce, il but sa coupe.
+Les yeux de Zhou Wutai brillèrent: « Frère Wang, je te porte une seconde coupe pour te remercier d'avoir tué Li Yuanfeng et scellé Xue Yu! » Sur ce, il but sa coupe.
 
 Après ces deux coupes, un silence soudain s'installa entre eux.
 

@@ -90,7 +90,7 @@ Sitôt ces mots prononcés, le monde autour de lui devint flou, comme s'il tourn
 
 Wang Lin se retrouva debout là où il se tenait précédemment. Devant lui se trouvait un homme vêtu de pourpre qui l'observait avec un sourire serein.
 
-« Jeune frère apprenti Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la division pourpre de Maître, je suis celui qui est entré le plus tôt dans la secte. Tu peux m'appeler Frère Aîné. »
+« Jeune frère apprenti Wang Lin, je suis Zhao Xingsha. Parmi les disciples de la Division Pourpre de Maître, je suis celui qui est entré le plus tôt dans la secte. Tu peux m'appeler Frère Aîné. »
 
 Wang Lin regarda l'homme, puis joignit les mains: « Wang Lin salue le Frère Aîné. »
 
@@ -106,11 +106,11 @@ Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait t
 
 Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Omniscient possède-t-il? »
 
-Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté des disciples dans sept divisions. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la division pourpre. »
+Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté des disciples dans sept divisions. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la Division Pourpre. »
 
-« La division pourpre... » Les yeux de Wang Lin s'illuminèrent.
+« La Division Pourpre... » Les yeux de Wang Lin s'illuminèrent.
 
-Zhao Xingsha soupira: « Parmi les sept divisions, notre division pourpre est la plus faible. Avec le temps, tu le découvriras par toi-même, je ne t'en dirai pas davantage. »
+Zhao Xingsha soupira: « Parmi les sept divisions, notre Division Pourpre est la plus faible. Avec le temps, tu le découvriras par toi-même, je ne t'en dirai pas davantage. »
 
 Après avoir survolé les montagnes pendant un certain temps, un sommet perçant les nuages apparut devant eux. Une tour extrêmement luxueuse trônait sur la cime. Cette tour émettait une lueur pourpre qui illuminait toute la zone environnante.
 
@@ -126,7 +126,7 @@ D'un seul regard, Wang Lin estima qu'il y avait au moins 100 000 disciples ici.
 
 Cette montagne était d'une démesure absolue, particulièrement sa face arrière qui semblait infinie. On aurait dit un dragon géant endormi. Si l'on n'était pas vigilant, on se perdrait aisément dans cette immense secte.
 
-Zhao Xingsha joignit les mains avec un léger sourire: « Voici la division pourpre de la Secte du Destin Céleste. Jeune frère apprenti Wang Lin, le Pavillon des Nuages Pourpres se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
+Zhao Xingsha joignit les mains avec un léger sourire: « Voici la Division Pourpre de la Secte du Destin Céleste. Jeune frère apprenti Wang Lin, le Pavillon des Nuages Pourpres se trouve à l'ouest. Si tu déploies ton Sens Divin, tu le trouveras. J'ai encore d'importantes affaires à régler, je ne t'accompagnerai donc pas! »
 
 Wang Lin acquiesça, salua Zhao Xingsha et s'élança vers l'ouest tel un éclair.
 
@@ -136,7 +136,7 @@ En volant, Wang Lin laissa échapper un froid reniflement. Dès le premier insta
 
 Peu après, Wang Lin déploya son Sens Divin et repéra un palais dégageant une légère aura pourpre. Sur la façade du palais étaient inscrits trois grands caractères: « Pavillon des Nuages Pourpres ».
 
-« Cette Secte du Destin Céleste est d'une immensité sans nom. Si la seule division pourpre est déjà si vaste, je me demande de quelle taille sont les six autres. La secte principale doit être encore plus inimaginable. » Les yeux de Wang Lin brillèrent alors qu'il atterrissait devant le Pavillon des Nuages Pourpres.
+« Cette Secte du Destin Céleste est d'une immensité sans nom. Si la seule Division Pourpre est déjà si vaste, je me demande de quelle taille sont les six autres. La secte principale doit être encore plus inimaginable. » Les yeux de Wang Lin brillèrent alors qu'il atterrissait devant le Pavillon des Nuages Pourpres.
 
 Juste au moment où il s'apprêtait à faire un pas en avant, il fronça les sourcils et fixa l'intérieur du palais.
 

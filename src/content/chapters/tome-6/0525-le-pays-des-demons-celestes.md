@@ -1,6 +1,6 @@
 ---
 n: 525
-title: Le Pays des Démons Célestes
+title: Le Pays du Démon Céleste
 book: 6
 bookTitle: Arriving on Tian Yun
 en: Chapter 525 - Sky Demon Country
@@ -20,17 +20,17 @@ Ouyang Hua, debout sur le côté, dit respectueusement: « Le nuage noir dans la
 
 « Ce soir, la lune sera pleine. Le Céleste Suprême pourra observer la chasse des esprits démoniaques un peu plus tard. » Ouyang Hua détourna le regard.
 
-L'expression de Wang Lin resta imperturbable. Après avoir médité un instant, il demanda lentement: « De quoi parliez-vous? Cette chose dont j'ai besoin et que je devrais trouver dans la Grande Muraille Antique? »
+L'expression de Wang Lin resta imperturbable. Après avoir médité un instant, il demanda lentement: « De quoi parliez-vous? Cette chose dont j'ai besoin et que je devrais trouver dans la Cité de l'Ancien Démon? »
 
-À ces mots, Ouyang Hua hésita, mais il serra immédiatement les dents et déclara: « Puisque le Céleste Suprême le demande, je ne perdrai pas de temps. La terre des esprits démoniaques est bien trop vaste, et la rumeur veut qu'elle soit composée de neuf pays au total. Le pays où nous nous trouvons est le Pays des Démons Célestes. Le lieu le plus lointain où ce vieil homme soit allé de sa vie est la Grande Muraille Antique, qui est l'une des cités de notre Pays des Démons Célestes! »
+À ces mots, Ouyang Hua hésita, mais il serra immédiatement les dents et déclara: « Puisque le Céleste Suprême le demande, je ne perdrai pas de temps. La terre des esprits démoniaques est bien trop vaste, et la rumeur veut qu'elle soit composée de neuf pays au total. Le pays où nous nous trouvons est le Pays du Démon Céleste. Le lieu le plus lointain où ce vieil homme soit allé de sa vie est la Cité de l'Ancien Démon, qui est l'une des cités de notre Pays du Démon Céleste! »
 
-« Pour être plus précis, cet endroit fait partie du Pays des Démons Célestes, mais c'est une terre désolée. Après que ce vieil homme eut réveillé son pouvoir dans la Grande Muraille Antique, je n'ai pu atteindre qu'une seule étoile. Je n'étais pas qualifié pour y rester, alors je suis retourné auprès de ma tribu en tant qu'Ancien pour éduquer mes semblables. »
+« Pour être plus précis, cet endroit fait partie du Pays du Démon Céleste, mais c'est une terre désolée. Après que ce vieil homme eut réveillé son pouvoir dans la Cité de l'Ancien Démon, je n'ai pu atteindre qu'une seule étoile. Je n'étais pas qualifié pour y rester, alors je suis retourné auprès de ma tribu en tant qu'Ancien pour éduquer mes semblables. »
 
-« Dans le Pays des Démons Célestes règne l'Empereur Démon Kun Xu. Sous lui se trouvent les huit grands Généraux Démons, dix millions de soldats démons et plus de cent cités. Voilà la puissance d'un seul pays! »
+« Dans le Pays du Démon Céleste règne l'Empereur Démon Kun Xu. Sous lui se trouvent les huit grands Généraux Démons, dix millions de soldats démons et plus de cent cités. Voilà la puissance d'un seul pays! »
 
 Ouyang Hua reprit respectueusement: « Quant à la chose dont ce vieil homme a parlé, ô Céleste Suprême, c'est une longue histoire. Presque tout le monde ici sait que des étrangers apparaissent tous les cinq mille ans. »
 
-« Chaque fois que ces étrangers arrivent, ils provoquent un bain de sang. Ils se rendent dans divers pays et occupent différents postes. Plus leur contribution est grande, plus leur rang est élevé! Des rumeurs circulent même selon lesquelles l'un des huit grands généraux du Pays des Démons Célestes serait un étranger venu il y a d'innombrables années et qui n'est jamais reparti. »
+« Chaque fois que ces étrangers arrivent, ils provoquent un bain de sang. Ils se rendent dans divers pays et occupent différents postes. Plus leur contribution est grande, plus leur rang est élevé! Des rumeurs circulent même selon lesquelles l'un des huit grands généraux du Pays du Démon Céleste serait un étranger venu il y a d'innombrables années et qui n'est jamais reparti. »
 
 « Une fois entrés, ces étrangers subissent une transformation mystérieuse. Ils s'entretuent souvent comme si cela pouvait leur porter profit. C'est un point que ce vieil homme ne parvient pas à comprendre. Puisque le Céleste Suprême est lui-même un étranger, je suis convaincu que vous comprendrez cela mieux que moi. »
 

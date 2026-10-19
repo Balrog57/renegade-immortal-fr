@@ -8,11 +8,11 @@ slug: armure-de-cuir-de-lancien-dieu
 ---
 Au moment où l'homme en robe bleue mourut, la porte de l'autel se referma. Bien que l'expression de Wang Lin fût calme, son cœur fut ébranlé lorsqu'il observa le papillon aux cinq couleurs qui voletait près de lui. Après un bref instant de réflexion, Wang Lin leva sa main droite pour former un sceau et le pressa délicatement vers le papillon.
 
-Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de lueurs multicolores qui se dissipèrent lentement. Un instant plus tard, elles reprirent leur forme initiale: celle du Char de Guerre Anti-Dieu.
+Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de lueurs multicolores qui se dissipèrent lentement. Un instant plus tard, elles reprirent leur forme initiale: celle du Char de Guerre Divin.
 
 Le cœur de Wang Lin se détendit, mais une fine couche de sueur perla sur son front. Cette sensation de transpiration froide était rare pour lui. Cependant, la vision d'un cultivateur au sommet du stade Yang Corporel dont le corps et l'âme originelle s'effondraient totalement suite à un simple battement d'aile du papillon l'avait profondément choqué.
 
-« Avec ce Char de Guerre Anti-Dieu et la Paire de Dao Fanée, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan des Immortels Élus retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
+« Avec ce Char de Guerre Divin et la Paire de Dao Fanée, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan des Immortels Élus retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
 
 Au loin, Ta Shan revint blessé, tenant une grande marmite à la main. Il avait réussi à absorber la bête de brouillard qui s'en prenait aux enfants. Toutefois, ses blessures étaient si graves qu'à son retour, il perdit connaissance.
 
@@ -76,7 +76,7 @@ Des filaments reliaient encore la brume bleue à l'armure. À cet instant, Wang 
 
 Les Coups Célestes jaillirent. Ce qu'il tranchait, c'était la Loi elle-même! Il tranchait les derniers liens entre l'esprit de trésor et l'Armure de Cuir de l'Ancien Dieu!
 
-Les filaments se rompirent dans un crépitement et la brume bleue s'élança vers le ciel. Wang Lin sortit alors le Drapeau d'Âmes au Milliard d'Âmes. Celui-ci se mua en une brume noire qui dévora la brume bleue.
+Les filaments se rompirent dans un crépitement et la brume bleue s'élança vers le ciel. Wang Lin sortit alors le Étendard de l'Âme. Celui-ci se mua en une brume noire qui dévora la brume bleue.
 
 L'Armure de Cuir de l'Ancien Dieu flotta devant lui. Les yeux de Wang Lin brillèrent; son sens divin se projeta dans l'armure pour y laisser sa propre empreinte. Cette marque était si puissante que l'armure dégagea instantanément une aura antique.
 

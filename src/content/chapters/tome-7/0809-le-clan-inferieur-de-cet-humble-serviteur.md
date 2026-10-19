@@ -36,7 +36,7 @@ Le spectacle de Xu Liguo était très animé, mais Wang Lin l'ignorait totalemen
 
 Alors que le grondement du tonnerre résonnait au sein de son âme originelle, l'une des runes commença à se désagréger. Ce ne fut pas instantané, mais un processus continu.
 
-Pendant ce temps, le Char de Guerre Anti-Dieu sous l'âme originelle de Wang Lin émit une lueur noire qui devint progressivement plus intense. À la fin, elle semblait capable d'engloutir la lumière elle-même.
+Pendant ce temps, le Char de Guerre Divin sous l'âme originelle de Wang Lin émit une lueur noire qui devint progressivement plus intense. À la fin, elle semblait capable d'engloutir la lumière elle-même.
 
 Sous cet éclat noir, quiconque posait les yeux sur Wang Lin en ressentait le frisson.
 
@@ -58,7 +58,7 @@ Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deu
 
 « Dois-je la raffiner en un trésor lié à ma vie? » Tandis que Wang Lin méditait silencieusement, les sept runes fusionnèrent pour former une rune unique près de sa poitrine. Dès l'apparition de cette rune, la lumière noire accumulée par le char de guerre se concentra sur la poitrine de Wang Lin.
 
-« Char de Guerre Anti-Dieu, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
+« Char de Guerre Divin, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
 C'était une bête spirituelle haute de près de 330 mètres. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Élus. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 

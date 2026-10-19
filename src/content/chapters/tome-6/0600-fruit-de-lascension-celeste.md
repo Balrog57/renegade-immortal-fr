@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 600 - Celestial Ascension Fruit
 slug: fruit-de-lascension-celeste
 ---
-À cet instant, dans le Pays des Démons Célestes, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
+À cet instant, dans le Pays du Démon Céleste, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
 
 « Il vient tout juste d'atteindre le stade d'Ascendant, son énergie originelle n'a donc pas encore totalement fusionné avec son corps. Il lui faudra quarante-neuf jours pour achever ce processus, et cette fenêtre est une opportunité que j'attends depuis dix ans... »
 

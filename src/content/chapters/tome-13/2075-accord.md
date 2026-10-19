@@ -56,7 +56,7 @@ La Secte Heng Yue lui apparut en mémoire, ainsi que la jeune fille radieuse. Pu
 
 Cette image changeait sans cesse. Du moment passé dans le système stellaire de Luotian au cri déchirant de Wang Ping, jusqu'à l'instant précis où Wang Lin avait quitté le monde des grottes. Ses souvenirs défilaient comme une fresque picturale.
 
-Ce jour-là, une pluie légère tombait sur le Royaume Céleste. Dans cette averse, une femme en blanc flottait tel un duvet de saule.
+Ce jour-là, une pluie légère tombait sur le Royaume Céleste. Dans cette averse, une femme en blanc flottait tel un flocon de saule.
 
 Une femme magnifique, un parapluie à la main. Ses longs cheveux noirs lui donnaient l'air d'une créature émanant d'un autre monde. Son arrivée avait plongé le monde dans le silence, ne laissant que le murmure de la pluie. Une force étrange imprégnait l'air, semblant faire oublier tout le reste pour ne laisser place qu'à cette silhouette éthérée dans la brume légère.
 

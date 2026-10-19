@@ -1,6 +1,6 @@
 ---
 n: 1291
-title: La Fissure Spatiale à la Secte des Démons
+title: La Fissure Spatiale à la Secte Démon
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1291 - The Spatial Crack at the Demon Secte

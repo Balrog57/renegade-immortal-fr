@@ -1,6 +1,6 @@
 ---
 n: 1323
-title: Flammes de Joss
+title: Flammes Joss
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1323 - Joss Flame
@@ -24,27 +24,27 @@ Cette aura n'était pas étrangère à Wang Lin. Lorsque la statue du démon anc
 
 Dans la Mer des Nuages, lors du combat contre le Shui Daozi, le dernier sort utilisé par ce dernier contenait également cette aura...
 
-La conversation avec le Seigneur du Royaume Scellé et le Maître du Dao Rêve Bleu pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes de Joss!
+La conversation avec le Seigneur du Royaume Scellé et le Maître du Dao Rêve Bleu pointait tous vers la clé pour devenir un cultivateur de la troisième étape: les Flammes Joss!
 
-Wang Lin ne comprenait pas ce que sont les Flammes de Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde du Vent et de la Pluie avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
+Wang Lin ne comprenait pas ce que sont les Flammes Joss ni comment elles étaient créées. Cependant, en fusionnant le Monde du Vent et de la Pluie avec le Sceau Céleste, cette scène s'était déployée, ce qui ne fit qu'accroître sa confusion.
 
-Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes de Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même le Maître du Dao Rêve Bleu n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
+Ces âmes de guerriers étaient toutes des personnes qu'il avait tuées, mais elles étaient devenues des disciples lui fournissant des Flammes Joss. C'était la fortune de Wang Lin, l'héritage du Seigneur du Royaume Scellé et une mutation presque impossible à reproduire. Même le Maître du Dao Rêve Bleu n'aurait jamais imaginé que l'enseignement du sort de fusion à Wang Lin engendrerait un tel changement.
 
-Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes de Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
+Le Sceau Céleste était formé d'un fragment du Royaume Céleste du Tonnerre. Ce dernier avait été créé il y a des éons par le Seigneur du Royaume Scellé afin d'empêcher la Formation du Royaume Scellé d'absorber les Flammes Joss du Royaume Intérieur, permettant ainsi à ces dernières d'apparaître dans le Royaume Intérieur.
 
-Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes de Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la rétribution divine. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
+Bien que les quatre Royaumes Célestes fussent détruits, ils constituaient les meilleurs matériaux pour produire des Flammes Joss! Toutefois, cela seul n'aurait pas suffi; mais ce fragment avait également subi la rétribution divine. C'était comme si le Ciel lui-même avait raffiné ce fragment pour en faire un trésor destiné à Wang Lin!
 
-L'élément permettant la naissance des Flammes de Joss avait été une fois de plus affiné par la rétribution divine.
+L'élément permettant la naissance des Flammes Joss avait été une fois de plus affiné par la rétribution divine.
 
-Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En employant son domaine de vie et de mort, il avait créé dix-huit couches d'enfer qui absorbaient toutes les âmes des personnes qu'il avait tuées afin qu'elles ne puissent entrer dans le cycle de la réincarnation. Au fil du temps, le pouvoir de générer des Flammes de Joss à partir des fragments avait comblé ces dix-huit couches d'enfer.
+Wang Lin avait involontairement utilisé cet objet pour son Arsenal Magique. En employant son domaine de vie et de mort, il avait créé dix-huit couches d'enfer qui absorbaient toutes les âmes des personnes qu'il avait tuées afin qu'elles ne puissent entrer dans le cycle de la réincarnation. Au fil du temps, le pouvoir de générer des Flammes Joss à partir des fragments avait comblé ces dix-huit couches d'enfer.
 
-Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes de Joss sans jamais le libérer.
+Cependant, sans une opportunité de l'activer, ce pouvoir se serait lentement dissipé. Wang Lin n'aurait jamais remarqué d'anomalie, car ces âmes de guerriers étaient simplement entourées du pouvoir créateur des Flammes Joss sans jamais le libérer.
 
 Cette opportunité survint lorsque le Maître du Dao Rêve Bleu fusionna l'Appel du Vent et l'Invocation de la Pluie en un monde! C'était comme donner des racines à une plante dépourvue de racines!
 
 Puis, Wang Lin tenta de fusionner l'Arsenal Magique et le Monde du Vent et de la Pluie. Cela permit à ce changement, à cette opportunité, d'éclore!
 
-Bien que les âmes de guerriers fussent peu nombreuses et les Flammes de Joss très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes de Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
+Bien que les âmes de guerriers fussent peu nombreuses et les Flammes Joss très faibles — bien loin des deux milliards de disciples du Shui Daozi — il s'agissait là de véritables Flammes Joss. La clé pour atteindre la troisième étape, un trésor de Dao pour lequel les cultivateurs de ce niveau se disputeraient avec acharnement!
 
 L'expression de Wang Lin était très singulière. Il ouvrit les yeux et médita silencieusement un instant avant de mettre cette pensée de côté. Après tout, le danger représenté par la femme en blanc à l'extérieur du Clan de la Soie Bleue persistait. Même s'il avait créé ce trésor par inadvertance, cela ne lui serait d'aucun secours si cela ne l'aidait pas à résoudre la crise posée par cette femme.
 
@@ -58,9 +58,9 @@ Contemplant cette moitié d'os, les étoiles du dieu ancien de Wang Lin apparure
 
 « Tuo Sen a utilisé un sort extrêmement puissant pour permettre à ses étoiles de dévorer le doigt. Il peut même dévorer des cultivateurs de la troisième étape pour renforcer ses étoiles... Cependant, il y a une volonté dans cette aura antique, il lui serait donc certainement difficile de la dévorer... Mais cela ne signifie pas que je n'ai aucun moyen de l'absorber... » Les yeux de Wang Lin brillèrent alors qu'il leva sa main droite et plongea à nouveau dans son espace de stockage.
 
-Dans un éclat de lumière, le Fouet d'Âme apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, pour venir se placer devant Wang Lin.
+Dans un éclat de lumière, le Fouet de l'Âme apparut, emportant avec lui l'âme originelle du vieil homme aux cheveux blancs du Clan de la Lune, pour venir se placer devant Wang Lin.
 
-Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet d'Âme.
+Le vieil homme avait les yeux clos. La marque en croissant de lune entre ses sourcils brillait faiblement, résistant au Fouet de l'Âme.
 
 « Puisque le Clan de la Lune possédait l'os de doigt du dieu ancien, ils doivent avoir une méthode pour l'utiliser... » Le regard de Wang Lin se posa sur l'âme originelle du vieillard.
 
@@ -70,11 +70,11 @@ Cependant, cet homme s'était évidemment montré incapable de résister aux att
 
 Même son âme originelle était lourdement endommagée, ce qui offrit à Wang Lin l'occasion de le capturer.
 
-Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'était matérialisée tel un corps véritable. Sans l'effet fatal du Fouet d'Âme sur les âmes originelles, Wang Lin n'aurait pu le sceller.
+Pourtant, ce vieillard était d'une puissance inouïe, et son âme originelle s'était matérialisée tel un corps véritable. Sans l'effet fatal du Fouet de l'Âme sur les âmes originelles, Wang Lin n'aurait pu le sceller.
 
-Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet d'Âme émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
+Fixant l'âme originelle du vieil homme, Wang Lin forma un sceau de ses mains et pointa du doigt. Le Fouet de l'Âme émit immédiatement une lueur d'or sombre et se rétracta. L'âme originelle du vieillard trembla et son visage se crispa de douleur. Il ouvrit les yeux et lança un regard glacial à Wang Lin.
 
-« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan de la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet d'Âme, tout était scellé.
+« Tu n'es qu'un dieu ancien à six étoiles. Mon Clan de la Lune en a tué bien des semblables. Même si tu as capturé mon âme originelle, que peux-tu espérer? Elle s'est déjà matérialisée; elle ne peut ni mourir, ni être détruite! » Le vieillard ricana et ferma les yeux. Il cessa de prêter attention à Wang Lin pour tenter d'utiliser son énergie originelle. Cependant, grâce au Fouet de l'Âme, tout était scellé.
 
 Wang Lin resta silencieux et agita la main droite. Dans un éclat de lumière sanglante, l'Épée de Sang apparut. Sans la moindre pitié, il poignarda l'âme originelle du vieillard avec l'épée.
 
@@ -88,7 +88,7 @@ D'immenses quantités d'essence d'âme originelle furent libérées, et Wang Lin
 
 Wang Lin ne répondit pas. Son expression restait indifférente alors qu'il maniait l'Épée de Sang contre l'âme originelle du vieillard. Les cris de ce dernier s'estompèrent peu à peu. Devinant vaguement les intentions de Wang Lin, il commença à paniquer.
 
-Wang Lin n'avait pas l'intention de le tuer, mais de continuer à l'affaiblir. Avec le Fouet d'Âme, il ne pouvait même pas se régénérer. Il ne pouvait que contempler avec effroi la fuite de son essence d'âme originelle, incapable même de recourir à l'autodestruction.
+Wang Lin n'avait pas l'intention de le tuer, mais de continuer à l'affaiblir. Avec le Fouet de l'Âme, il ne pouvait même pas se régénérer. Il ne pouvait que contempler avec effroi la fuite de son essence d'âme originelle, incapable même de recourir à l'autodestruction.
 
 Après plusieurs heures, le vieillard était affaibli jusqu'à ses derniers retranchements. Toute l'énergie originelle de son corps s'était écoulée et des blessures couvraient son âme originelle. L'Épée de Sang exerçait également une force d'aspiration qui lui volait une part de sa vitalité à chaque entaille. Ce n'était pas seulement douloureux; il était en train de mourir.
 

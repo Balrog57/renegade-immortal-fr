@@ -10,7 +10,7 @@ Wang Lin regarda la femme au visage froid, puis son regard se posa sur le bébé
 
 L'expression de la femme demeurait indifférente et ses yeux semblaient contenir les vents de l'hiver. Elle observa Wang Lin, puis le monde qui se trouvait derrière lui.
 
-« Votre nom est célèbre sur la planète Suzaku; j'en ai même entendu parler jusqu'à Xue Yue. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde et leur a montré le chemin lorsqu'ils s'égaraient. »
+« Votre nom est célèbre sur la planète Suzaku; j'en ai même entendu parler jusqu'à Xue Yu. Monsieur est un érudit de grand renom qui a aidé de nombreux cultivateurs à comprendre les mystères du monde et leur a montré le chemin lorsqu'ils s'égaraient. »
 
 « Je suis venue aujourd'hui pour cet enfant. » La femme baissa les yeux vers le bébé endormi. Une pointe de douceur perça son regard glacial.
 
@@ -58,13 +58,13 @@ Les paroles de Wang Lin étaient douces et empreintes d'un sentiment inexplicabl
 
 « Je ne maîtrise pas les sorts et je ne sais comment l'aider à éviter sa calamité de vie ou de mort. J'ai vu une vision dans mon rêve, je vais la dessiner pour vous. Si vous parvenez à la comprendre, peut-être pourra-t-elle résoudre son destin. » Wang Lin soupira en rendant la petite fille à la femme froide. Il leva sa main droite vers la pluie et se dirigea vers la table de pierre du pavillon. Fermant les yeux comme s'il tentait de se remémorer quelque chose, il commença à tracer un motif complexe.
 
-Ce motif était une formation. Elle était d'une complexité extrême, ce qui stupéfia la femme de Xue Yue, qui s'efforça de la mémoriser avec soin.
+Ce motif était une formation. Elle était d'une complexité extrême, ce qui stupéfia la femme de Xue Yu, qui s'efforça de la mémoriser avec soin.
 
 Après un long moment, Wang Lin acheva le dernier trait et ouvrit les yeux.
 
 « Une fois que vous l'aurez comprise, prenez une mèche de cheveux de l'enfant et placez-la à l'intérieur... » L'expression de Wang Lin était complexe alors qu'il contemplait le ciel. Les nuages sombres commençaient à se dissiper.
 
-Le motif sur la table s'effaça progressivement sous l'effet du vent, devenant illisible. La femme de Xue Yue ferma les yeux un instant avant de s'incliner devant Wang Lin. Elle prit l'enfant et s'enfonça dans la pluie.
+Le motif sur la table s'effaça progressivement sous l'effet du vent, devenant illisible. La femme de Xue Yu ferma les yeux un instant avant de s'incliner devant Wang Lin. Elle prit l'enfant et s'enfonça dans la pluie.
 
 Wang Lin ne regarda pas la femme partir. Il fixa le pavillon et observa la pluie faiblir, le regard empreint de confusion.
 

@@ -84,7 +84,7 @@ Si elle n'avait pas été blessée, elle aurait pu utiliser cet héritage à la 
 
 Cette scène stupéfia le vieil homme en blanc. À ce moment, Li Qianmei libéra également une aura terrifiante. Une intention meurtrière monstrueuse fut déchaînée, comme si un démon surgissait pour déchirer la force de suppression. Li Qianmei s'affranchit de la pression du vieil homme et chargea.
 
-Un jade apparut devant elle. C'était le jade que l'être mystérieux de la Secte Démoniaque lui avait offert!
+Un jade apparut devant elle. C'était le jade que l'être mystérieux de la Secte Démon lui avait offert!
 
 Tout cela se produisit en un éclair. Alors que Li Qianmei et Mu Bingmei s'élançaient, Wang Lin leva son pied droit et fit un pas en avant. À cet instant, il fusionna avec le monde, devenant une entité unique avec la planète de culture. Une aura antique imprégna tout son être.
 

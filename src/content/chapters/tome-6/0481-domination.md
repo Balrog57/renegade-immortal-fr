@@ -53,7 +53,7 @@ La troisième pièce était une chambre secrète dédiée à la culture. Le plaf
 
 Wang Lin ne trouva rien d'anormal dans ce lieu.
 
-Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà installé dans la division pourpre de la Secte du Destin Céleste depuis une demi-lunaison.
+Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà installé dans la Division Pourpre de la Secte du Destin Céleste depuis une demi-lunaison.
 
 Durant cette période, personne ne vint le chercher. Même les autres disciples lui lançaient des regards étranges et l'évitaient comme s'il était un fléau. L'Omniscient ne l'avait jamais convoqué; c'était comme si l'Omniscient l'avait oublié.
 
@@ -71,7 +71,7 @@ L'un des vieillards hurla: « Qui t'a permis d'ouvrir une grotte ici? Tu as le t
 
 Le regard de Wang Lin devint plus calme encore et il demanda: « Qui êtes-vous deux? »
 
-Celui qui était resté silencieux répondit calmement: « Les Anciens disciplinaires de la division pourpre! »
+Celui qui était resté silencieux répondit calmement: « Les Anciens disciplinaires de la Division Pourpre! »
 
 Wang Lin fit un geste de la main droite derrière lui et, dans un fracas retentissant, la grotte où il résidait depuis quinze jours s'effondra, soulevant un immense nuage de poussière. La silhouette de Wang Lin semblait osciller au sein du nuage, mais ses yeux restaient sereins.
 
@@ -79,15 +79,15 @@ L'homme agressif ricana: « Bien que tu aies détruit la grotte, tu as déjà en
 
 Wang Lin prit une profonde inspiration, regarda les deux hommes et dit calmement: « Je ne voulais que cultiver en paix sans m'impliquer dans vos complots, mais depuis mon arrivée, je n'ai essuyé que du rejet. Tant pis! »
 
-Sur ce, il avança et frappa son sac de rangement. Le Fouet d'Âme apparut soudainement dans sa main et il l'abattit vers les deux hommes tel un dragon.
+Sur ce, il avança et frappa son sac de rangement. Le Fouet de l'Âme apparut soudainement dans sa main et il l'abattit vers les deux hommes tel un dragon.
 
 Les expressions des deux Anciens changèrent instantanément et ils reculèrent précipitamment. Ils commencèrent à incanter des formules et, bientôt, une lumière noire et blanche émana de chacun d'eux.
 
 L'un des Anciens s'écria: « Tu oses attaquer un Ancien disciplinaire?! »
 
-Cependant, le Fouet d'Âme était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
+Cependant, le Fouet de l'Âme était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
 
-Le Fouet d'Âme était spécialisé dans l'attaque des âmes originelles!
+Le Fouet de l'Âme était spécialisé dans l'attaque des âmes originelles!
 
 Une terreur inimaginable se lut sur son visage alors qu'il luttait pour réintégrer son corps. Mais Wang Lin ne lui laisserait aucune chance; il traça un arc de sa main. Un éclair rouge jaillit vers l'Ancien. Ce dernier, le visage déformé par la douleur, cracha un nuage de brume pour tenter de bloquer l'éclair.
 

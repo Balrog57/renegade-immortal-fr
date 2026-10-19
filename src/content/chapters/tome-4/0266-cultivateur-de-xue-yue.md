@@ -1,6 +1,6 @@
 ---
 n: 266
-title: Cultivateur de Xue Yue
+title: Cultivateur de Xue Yu
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 266 - Cultivator of Xue Yu

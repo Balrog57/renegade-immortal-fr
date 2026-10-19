@@ -52,7 +52,7 @@ Wang Lin, l'expression sereine, était assis en position du lotus face au vieil 
 
 Les prisonniers avaient déjà été libérés et étaient retournés dans la vallée.
 
-La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est la Grande Muraille Antique! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
+La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est la Cité de l'Ancien Démon! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
 
 Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'où je viens? »
 
@@ -60,7 +60,7 @@ Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'o
 
 Wang Lin demanda d'un ton serein: « Avez-vous des nouvelles d'autres étrangers? »
 
-Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Grande Muraille Antique; vous y trouverez peut-être ce que vous cherchez. »
+Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Cité de l'Ancien Démon; vous y trouverez peut-être ce que vous cherchez. »
 
 Wang Lin demanda calmement: « Cette chose dont vous avez parlé à deux reprises comme de ce dont j'ai besoin? Qu'est-ce que c'est, exactement? »
 

@@ -96,7 +96,7 @@ Ouyang s'agenouilla au sol et répondit d'une voix grave: « Je ne décevrai pas
 
 Wang Lin fendit le ciel, telle une traînée de lumière, et chargea directement vers la Cité du Démon Antique.
 
-« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays des Démons Célestes. Outre moi, plusieurs autres personnes de la Secte Tian Yun sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
+« Je me demande quels types de dragons et de tigres se cachent dans la capitale du Pays du Démon Céleste. Outre moi, plusieurs autres personnes de la Secte Tian Yun sont venues dans cette Terre des Esprits Démoniaques. Je me demande si j'en croiserai dans la capitale... »
 
 « Il y a également cette dizaine de personnes de la Secte de l'Épée Da Luo. Si j'en rencontre dans la capitale, je devrai en capturer un pour l'interroger sur l'endroit où Zhou Yi est scellé! » Wang Lin réfléchissait, mais sa vitesse ne faiblissait pas et il disparut par-delà l'horizon.
 

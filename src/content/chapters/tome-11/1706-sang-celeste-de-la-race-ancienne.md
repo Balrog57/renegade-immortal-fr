@@ -82,7 +82,7 @@ Un sentiment de puissance brute envahit l'esprit de Wang Lin. Il serra les poing
 
 La troisième épreuve des clans anciens, où les trois viendraient à la fois!
 
-Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancestral!
+Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancien!
 
 Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Astral Immortel.
 
@@ -94,11 +94,11 @@ Avec le pouvoir de huit étoiles issu des trois clans anciens, même sans sa cul
 
 Le Sang Céleste de la Race Ancienne, la calamité est arrivée!
 
-La soi-disant calamité du Sang Céleste exigeait que l'on condense toute la puissance des trois clans en une seule goutte de sang. Cette goutte était tout pour celui qui affrontait cette épreuve! Elle devait être utilisée pour percer les cieux et être offerte en sacrifice à la race ancienne. Une fois la reconnaissance de l'Ancêtre Ancestral obtenue, peu importe où vous vous trouviez, une goutte de sang vous serait renvoyée.
+La soi-disant calamité du Sang Céleste exigeait que l'on condense toute la puissance des trois clans en une seule goutte de sang. Cette goutte était tout pour celui qui affrontait cette épreuve! Elle devait être utilisée pour percer les cieux et être offerte en sacrifice à la race ancienne. Une fois la reconnaissance de l'Ancêtre Ancien obtenue, peu importe où vous vous trouviez, une goutte de sang vous serait renvoyée.
 
 Cette goutte fusionnerait avec celle formée par l'essence de la personne subissant la calamité. Une fois la fusion accomplie, le corps reconstruit posséderait la véritable lignée des Êtres Anciens! Cette lignée était l'égale de la lignée céleste!
 
-La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancestral. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
+La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancien. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
 
 L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Dao!
 

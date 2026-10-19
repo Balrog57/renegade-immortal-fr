@@ -118,7 +118,7 @@ Wang Lin observa les alentours une dernière fois avant de laisser échapper un 
 
 Tie Yan était trempé de sueur. Il rangea soigneusement le sac de rangement et retourna à la Secte du Ciel Nuageux.
 
-Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yue, là où les vents glacés pouvaient glacer jusqu'aux os et arrêter tout être vivant.
+Dans l'extrême nord de la planète Suzaku, là où se trouvait autrefois le pays de Xue Yu, là où les vents glacés pouvaient glacer jusqu'aux os et arrêter tout être vivant.
 
 On ne savait quand, mais un champ de roses y avait poussé; cependant, ces roses n'étaient pas rouges, mais blanches.
 

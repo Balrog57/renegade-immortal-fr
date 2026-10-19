@@ -80,11 +80,11 @@ L'homme au visage rouge scruta Zhao Xingsha et demanda: « Tu me connais? »
 
 Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte du Destin Céleste il y a plus de mille ans, j'ai rencontré l'Oncle-Maître une fois. »
 
-Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ce frère aîné ne participera pas à la compétition pour le titre de disciple véritable de ta Division Violette, tu peux donc te détendre! »
+Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ce frère aîné ne participera pas à la compétition pour le titre de disciple véritable de ta Division Pourpre, tu peux donc te détendre! »
 
-Puis, l'homme joignit les mains vers les cultivateurs environnants et déclara: « Je crois que certains d'entre vous me connaissent. Aujourd'hui, la bataille entre les juniors de la Division Violette a gâché l'ambiance. J'espère que vous ne m'en tiendrez pas rigueur! »
+Puis, l'homme joignit les mains vers les cultivateurs environnants et déclara: « Je crois que certains d'entre vous me connaissent. Aujourd'hui, la bataille entre les juniors de la Division Pourpre a gâché l'ambiance. J'espère que vous ne m'en tiendrez pas rigueur! »
 
-Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop modeste. Comment notre humeur pourrait-elle être gâchée par cela? En réalité, ce duel entre juniors nous a tous soulagés, car la Division Violette aura de puissants successeurs! »
+Jiang Tianzun regarda Chi Lie et répondit avec respect: « Senior est trop modeste. Comment notre humeur pourrait-elle être gâchée par cela? En réalité, ce duel entre juniors nous a tous soulagés, car la Division Pourpre aura de puissants successeurs! »
 
 À peine eut-il fini de parler que d'autres s'empressèrent de l'imiter. Bientôt, presque tous les cultivateurs présents exprimèrent la même opinion.
 
@@ -98,7 +98,7 @@ Wang Lin n'avait pas ouvert la bouche depuis l'apparition du vieillard. Il se ve
 
 Tandis qu'il méditait, de nombreux membres des différentes sectes vinrent porter des toasts à Wang Lin.
 
-Le combat précédent avait prouvé que Wang Lin pouvait éliminer aisément le Deuxième Frère de la Division Violette et forcer le frère aîné à utiliser son atout. Cependant, nul n'ignorait que le sort utilisé par Zhao Xingsha s'était retourné contre lui avec violence. On pouvait lire sur le visage de ce dernier qu'il allait subir un terrible contrecoup.
+Le combat précédent avait prouvé que Wang Lin pouvait éliminer aisément le Deuxième Frère de la Division Pourpre et forcer le frère aîné à utiliser son atout. Cependant, nul n'ignorait que le sort utilisé par Zhao Xingsha s'était retourné contre lui avec violence. On pouvait lire sur le visage de ce dernier qu'il allait subir un terrible contrecoup.
 
 De plus, le Septième Frère n'était même pas intervenu personnellement; il s'était contenté d'utiliser ses trésors magiques. Bien que l'issue du combat fût incertaine si la lutte avait persisté, les propos de Chi Lie révélaient l'importance capitale de ce Septième Frère pour l'Omniscient.
 
@@ -110,7 +110,7 @@ C'est pour cette raison que beaucoup vinrent trinquer à sa santé.
 
 Wang Lin chassa ses pensées et salua l'assemblée avec un sourire. Souhaitant s'implanter solidement sur la planète Tian Yun, il n'y avait aucun mal à se constituer des alliés hors de la secte.
 
-Le dernier jour du festival de sept jours, les célébrations de la Division Violette atteignirent leur apogée alors que Wang Lin, remplaçant Zhao Xingsha, devint le centre de l'attention et but avec tout le monde.
+Le dernier jour du festival de sept jours, les célébrations de la Division Pourpre atteignirent leur apogée alors que Wang Lin, remplaçant Zhao Xingsha, devint le centre de l'attention et but avec tout le monde.
 
 Quant à Bai Wei et la Quatrième Sœur, peu de gens vinrent à leur rencontre. En comparaison, leur côté paraissait bien vide.
 

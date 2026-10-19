@@ -36,7 +36,7 @@ Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita 
 
 Wang Lin avait déjà frappé la Porte du Vide auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
 
-Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier éclair éternel du monde, percuta la Porte du Vide.
+Le coup partit et un fracas de tonnerre retentit. La silhouette de Wang Lin, telle le premier tonnerre éternel du monde, percuta la Porte du Vide.
 
 Les grondements de tonnerre résonnèrent dans toutes les directions. L'onde de choc violente fit cracher le sang à de nombreux cultivateurs alentour, les projetant en arrière. Terrifiés, certains cherchèrent à fuir.
 

@@ -1,6 +1,6 @@
 ---
 n: 363
-title: "Le Fouet d'Âmes"
+title: "Le Fouet de l'Âmes"
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 363 - Soul Lasher
@@ -142,7 +142,7 @@ De plus, une image fantomatique de fouet se mit à luire. À chaque éclat de ce
 
 « Quel dommage! » Les yeux de Wang Lin s'illuminèrent et il abattit l'épée céleste sur le géant. Il poussa un rugissement en dirigeant un puissant rayon d'énergie d'épée vers le colosse de glace.
 
-Le géant ouvrit la bouche pour hurler, mais c'est la voix de Papillon Rouge qui s'en échappa: « Le Fouet d'Âmes! »
+Le géant ouvrit la bouche pour hurler, mais c'est la voix de Papillon Rouge qui s'en échappa: « Le Fouet de l'Âmes! »
 
 À cet instant précis, le fouet à l'intérieur du géant brilla intensément, jaillit de la poitrine du colosse et frappa Wang Lin.
 

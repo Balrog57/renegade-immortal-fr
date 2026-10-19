@@ -30,7 +30,7 @@ Il avait gardé le Royaume Intérieur pendant trois ans, avait créé le nouveau
 
 Le chemin de l'avenir s'éloignait peu à peu sous ses pas.
 
-Sa silhouette blanche était comme un duvet de saule flottant parmi les étoiles. Elle n'avait pas de racines, mais elle ne s'égarait pas. Elle flottait doucement, comme si elle cherchait quelque chose, avant d'être finalement engloutie par l'obscurité de l'espace, sans laisser aucune trace derrière elle.
+Sa silhouette blanche était comme un flocon de saule flottant parmi les étoiles. Elle n'avait pas de racines, mais elle ne s'égarait pas. Elle flottait doucement, comme si elle cherchait quelque chose, avant d'être finalement engloutie par l'obscurité de l'espace, sans laisser aucune trace derrière elle.
 
 Le corps original de Wang Lin était assis dans la formation en roue au sein de la Mer des Nuages. Durant les trois derniers jours de la troisième année, il ouvrit lentement ses yeux froids.
 

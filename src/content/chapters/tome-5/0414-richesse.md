@@ -130,7 +130,7 @@ Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un
 
 « Wang Lin, tu es enfin revenu. L'Aîné sait déjà que tu es de retour. J'espère que tu ne le décevras pas. » L'homme tapa sur son sac de stockage et un morceau de jade apparut dans sa main.
 
-« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yue. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et deviens le prochain Suzaku. »
+« Tu m'as aidé à tuer Li Yuanfeng et à sceller le pays de Xue Yu. Moi, Zhou Wutai, je n'ai aucun moyen de te remercier si ce n'est en te remettant ce jade. Il contient le domaine de Liu Mei que j'ai acquis au prix de ma vie. J'espère que tu sauras combler les espoirs de l'Aîné: dévore le cœur du Dao de Liu Mei et deviens le prochain Suzaku. »
 
 Il fit un pas et disparut.
 

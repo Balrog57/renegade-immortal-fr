@@ -92,7 +92,7 @@ L'environnement retomba dans un silence total; les membres de la famille Huan é
 
 Wang Lin regarda calmement Liu Mei, les yeux clos. Il resta silencieux durant un long moment.
 
-Huan Fengshen hésita un instant avant de s'avancer: « Cher compagnon de culture, avant que Liu Mei ne parte, elle avait conclu un accord avec... Huan Wuqing. S'il ne pouvait pas vous tuer, il devait vous remettre ce sac de rangement. »
+Huan Feng Shen hésita un instant avant de s'avancer: « Cher compagnon de culture, avant que Liu Mei ne parte, elle avait conclu un accord avec... Huan Wuqing. S'il ne pouvait pas vous tuer, il devait vous remettre ce sac de rangement. »
 
 Wang Lin leva les yeux et son regard se posa sur le sac qui était tombé lors de la disparition du corps de Huan Wuqing. D'un geste de la main, il fit atterrir l'objet dans sa paume.
 

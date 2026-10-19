@@ -68,7 +68,7 @@ Dans la vallée, les enfants sortirent jouer et les femmes apparurent toutes. En
 
 « Céleste Suprême, attendez, attendez! » s'écria Ouyang Hua en se précipitant. Son expression était d'une sincérité absolue.
 
-Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'ouest pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement la Grande Muraille Antique située à quinze millions de kilomètres de là.
+Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'ouest pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement la Cité de l'Ancien Démon située à quinze millions de kilomètres de là.
 
 Quant à interroger ces gens, Wang Lin avait perdu tout intérêt. Les yeux innocents des enfants et les regards craintifs des femmes lui avaient rappelé trop de choses.
 

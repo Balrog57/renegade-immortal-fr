@@ -98,6 +98,6 @@ Une fois apparu, le brouillard sanguin se condensa rapidement pour former une si
 
 Au même moment, les expressions des âmes résiduelles des démons anciens des sept autres pays changèrent toutes. Leurs yeux s'illuminèrent et ils tournèrent tous leur regard vers la capitale du Pays des Démons de Feu.
 
-Le ton du démon ancien du Pays des Démons de Feu fut bas lorsqu'il dit lentement: « Votre chance est immense d'avoir trouvé un cultivateur portant l'aura d'un Dieu Ancien. Son sang et le lien de Sens Divin entre vous deux permettent à cette forme de sang de subsister pour une longue période. Cela vous permettra de vous condenser par le sang en n'importe quel lieu et de quitter le Pays des Démons Célestes où vous êtes confiné! »
+Le ton du démon ancien du Pays des Démons de Feu fut bas lorsqu'il dit lentement: « Votre chance est immense d'avoir trouvé un cultivateur portant l'aura d'un Dieu Ancien. Son sang et le lien de Sens Divin entre vous deux permettent à cette forme de sang de subsister pour une longue période. Cela vous permettra de vous condenser par le sang en n'importe quel lieu et de quitter le Pays du Démon Céleste où vous êtes confiné! »
 
 La voix calme de Bei Luo émana de l'être de sang: « Nous avons été séparés trop longtemps. Si cela continue, nous serons bientôt détruits un par un. Une fois notre fusion accomplie, nous renaîtrons en tant que démon ancien absolument nouveau! Quant aux sept autres, je les dévorerai tous, un par un! »

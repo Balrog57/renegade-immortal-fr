@@ -60,7 +60,7 @@ Alors qu'il observait la barrière, le jeune homme sous le rocher ouvrit les yeu
 
 L'expression de Wang Lin resta imperturbable tandis qu'il demandait calmement: « Y a-t-il des différences entre elles? »
 
-Le jeune homme afficha un air impatient: « Les chambres supérieures coûtent mille pierres spirituelles de qualité inférieure par an, et les inférieures en coûtent cent. »
+Le jeune homme afficha un air impatient: « Les chambres supérieures coûtent mille pierres spirituelles de faible qualité par an, et les inférieures en coûtent cent. »
 
 Wang Lin réfléchit un instant avant de sortir cent pierres spirituelles et de les poser. Le jeune homme eut un regard méprisant; d'un revers de manche, il ramassa les pierres, saisit un jeton sur le rocher, le lança vers Wang Lin et déclara: « La cinquième maison à partir de l'ouest, allez! » Sur ce, le jeune homme referma les yeux pour se concentrer sur sa culture.
 

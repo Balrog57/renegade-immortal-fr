@@ -78,7 +78,7 @@ Cupidité n'osa rien cacher et parla précipitamment.
 
 « Je voyageai en toute sécurité, ne voulant pas retourner dans le système stellaire de l'Alliance. De plus, comme j'avais été dévoré par le serpent aux yeux de lune, une odeur fétide s'était imprégnée de mon corps et de mon âme originelle. Cette puanteur persistait et était devenue insupportable.
 
-« Ainsi, j'ai voyagé à travers les étoiles, cherchant un moyen de me débarrasser de cette infection. Les jours et les nuits passèrent jusqu'au jour où je m'approchai de la barrière du Royaume Céleste de la Foudre. Là, je trouvai un étrange vortex.
+« Ainsi, j'ai voyagé à travers les étoiles, cherchant un moyen de me débarrasser de cette infection. Les jours et les nuits passèrent jusqu'au jour où je m'approchai de la barrière du Royaume Céleste du Tonnerre. Là, je trouvai un étrange vortex.
 
 « Ce vortex apparut soudainement, comme s'il avait été créé exprès pour moi. Je ne trouvai pas cela très étrange; j'ai rencontré des choses bien plus insolites dans ma vie. Comme autrefois, alors que j'étais au stade de la Formation du Noyau, j'ai affronté un ennemi contre lequel je n'avais aucune chance, et un fourneau est tombé du ciel pour l'écraser... »
 

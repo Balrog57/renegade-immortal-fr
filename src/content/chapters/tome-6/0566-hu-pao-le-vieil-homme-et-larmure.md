@@ -38,7 +38,7 @@ Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déj�
 
 « Garde bien la Tribu du Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
-Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Drapeau des Un Milliard d'Âmes, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
+Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Étendard de l'Âme, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
 « Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 

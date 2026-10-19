@@ -60,7 +60,7 @@ L'âme de la montagne jaillit et s'écrasa devant les sphères de sang, dégagea
 
 Après avoir lancé l'âme de la montagne, Wang Lin recula d'un pas, dégaina l'épée céleste et la mania avec célérité.
 
-La Coupe Céleste jaillit comme un éclair, séparant instantanément deux sphères de sang qui étaient en train de fusionner.
+Le Coup Céleste jaillit comme un éclair, séparant instantanément deux sphères de sang qui étaient en train de fusionner.
 
 Wang Lin ne s'arrêta pas là. Le puissant tonnerre niché dans son âme originelle déferla, formant des éclairs dévastateurs qui frappèrent les sphères de sang.
 

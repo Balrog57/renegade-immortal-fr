@@ -54,15 +54,15 @@ Sun Dazhu lâcha un reniflement froid: « Tu sais vraiment comment trouver les m
 
 Wang Lin soutint le regard de Sun Dazhu et dit respectueusement: « Le disciple ne savait pas. Le disciple ne cultivera plus jamais ici. »
 
-L'expression de Sun Dazhu redevint normale, puis il ajouta: « Cependant, si tu me trouves une autre gourde, bien que je ne puisse te laisser cultiver dans le jardin d'herbes, je pourrai te donner une pierre spirituelle de bas grade. Avec elle, ta Condensation de Qi sera bien plus facile. »
+L'expression de Sun Dazhu redevint normale, puis il ajouta: « Cependant, si tu me trouves une autre gourde, bien que je ne puisse te laisser cultiver dans le jardin d'herbes, je pourrai te donner une pierre spirituelle de faible qualité. Avec elle, ta Condensation de Qi sera bien plus facile. »
 
 Wang Lin baissa la tête. Un éclair de moquerie traversa son visage avant qu'il ne réponde: « Le disciple peut retourner vérifier les sources en montagne. Si la chance me sourit, je pourrais peut-être en trouver une autre. »
 
-Sun Dazhu réfléchit un instant et dit: « Va voir. N'oublie pas, si tu me ramènes une autre gourde, je te récompenserai d'une pierre spirituelle de bas grade. »
+Sun Dazhu réfléchit un instant et dit: « Va voir. N'oublie pas, si tu me ramènes une autre gourde, je te récompenserai d'une pierre spirituelle de faible qualité. »
 
 Wang Lin leva les yeux vers lui et demanda: « Ce que Maître dit est-il vrai? Si je rapporte une gourde, vous me donnerez une pierre spirituelle? »
 
-Un air satisfait apparut sur le visage de Sun Dazhu: « Oui. Tant que j'obtiens une gourde, je te donnerai une pierre spirituelle de bas grade. »
+Un air satisfait apparut sur le visage de Sun Dazhu: « Oui. Tant que j'obtiens une gourde, je te donnerai une pierre spirituelle de faible qualité. »
 
 Wang Lin ricana intérieurement, mais en surface, il hocha respectueusement la tête.
 

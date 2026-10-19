@@ -12,11 +12,11 @@ Il se heurta, encore et encore, à l'échec. Il ne parvint à produire qu'une un
 
 Wang Lin eut un rire amer. « Le talent... c'est toujours une question de talent! » Il tenta ensuite la technique de la Fissure de la Terre sur un rocher voisin. Bien que le résultat fût supérieur à celui de la Boule de Feu, la fissure n'avait pas plus de la taille de son petit doigt. Ce genre de technique pouvait bien tromper des mortels, mais dans une véritable bataille, elle était inutile.
 
-Enfin, il s'exerça à la Technique de la Force d'Attraction. Il n'en était pas encore satisfait.
+Enfin, il s'exerça à la Technique d'Attraction. Il n'en était pas encore satisfait.
 
-Mais considérant que le taux de réussite de cette dernière était le plus élevé, Wang Lin consacra tous ses efforts à sa pratique. Pour dire les choses simplement, la Force d'Attraction consistait essentiellement à contrôler des objets à distance.
+Mais considérant que le taux de réussite de cette dernière était le plus élevé, Wang Lin consacra tous ses efforts à sa pratique. Pour dire les choses simplement, la Technique d'Attraction consistait essentiellement à contrôler des objets à distance.
 
-Si l'on maîtrisait parfaitement la Force d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la technique de propulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
+Si l'on maîtrisait parfaitement la Technique d'Attraction et que l'on atteignait le second niveau de Condensation de Qi, on pouvait alors pratiquer la technique de propulsion. Une fois le troisième niveau franchi pour entrer dans le quatrième, il était possible de se rendre à la Maison de l'Esprit de l'Épée afin de choisir une épée volante.
 
 Après de longues heures de pratique, Wang Lin commença à regagner son domicile avant que la nuit ne tombe. Maintenant qu'il avait atteint le premier niveau de Condensation de Qi, sa vue et son ouïe s'étaient grandement affinées. En franchissant la porte est, il perçut des voix familières en passant devant la maison des tâches subalternes.
 
@@ -32,7 +32,7 @@ La voix glaciale du disciple Liu jaillit de la pièce et Zhang Hu laissa échapp
 
 Le premier visage que Wang Lin vit fut celui, hideux, du jeune homme nommé Liu. Il était sur le point de planter une dague dans le corps de Zhang Hu, qui était plaqué contre le mur, le visage déformé par la terreur.
 
-Réalisant qu'il n'aurait pas le temps d'aider Zhang Hu physiquement, Wang Lin utilisa promptement la Technique de la Force d'Attraction. Par chance, elle réussit cette fois. Une main invisible immobilisa l'agresseur. Cependant, la dague avait déjà entaillé la poitrine de Zhang Hu, et le sang jaillissait de la plaie.
+Réalisant qu'il n'aurait pas le temps d'aider Zhang Hu physiquement, Wang Lin utilisa promptement la Technique d'Attraction. Par chance, elle réussit cette fois. Une main invisible immobilisa l'agresseur. Cependant, la dague avait déjà entaillé la poitrine de Zhang Hu, et le sang jaillissait de la plaie.
 
 Le jeune homme nommé Liu fut pris d'une immense frayeur. Son corps semblait soudainement dénué de toute force, retenu par une puissance invisible qui empêchait la dague de descendre davantage.
 
@@ -40,13 +40,13 @@ Le visage de Zhang Hu était livide, et la sueur perlait sur son front. Il jeta 
 
 Choqué, le jeune Liu se mit aussitôt à se débattre avec acharnement. Le front de Wang Lin se couvrit d'une sueur abondante, comme s'il perdait pied avec sa technique.
 
-C'était la première fois que Wang Lin utilisait cette méthode sur un être humain. De toute évidence, il ne la maîtrisait pas encore assez bien; de plus, les mouvements convulsifs de sa cible rendaient le contrôle extrêmement difficile. Le corps de Wang Lin tremblait. Voyant que Zhang Hu n'était plus en danger immédiat, il se détendit légèrement, ce qui provoqua un relâchement de la Force d'Attraction.
+C'était la première fois que Wang Lin utilisait cette méthode sur un être humain. De toute évidence, il ne la maîtrisait pas encore assez bien; de plus, les mouvements convulsifs de sa cible rendaient le contrôle extrêmement difficile. Le corps de Wang Lin tremblait. Voyant que Zhang Hu n'était plus en danger immédiat, il se détendit légèrement, ce qui provoqua un relâchement de la Technique d'Attraction.
 
 En voyant que Liu allait réussir à se libérer, l'expression de Zhang Hu changea étrangement. Il regarda Wang Lin, puis le frère Liu. Son visage se mua en une grimace impitoyable. Il saisit une hachette de bûcheron et s'avança vers le frère Liu.
 
 Le visage du frère Liu fut envahi par la terreur tandis qu'il se débattait avec encore plus de ferveur. Zhang Hu serra les dents et murmura pour lui-même: « Un homme sans venin n'est pas un homme. Frère Liu, tu m'as forcé à faire ça. Tu voulais tuer toute ma famille? »
 
-« Zhang Hu, qu'est-ce que tu vas faire? » s'exclama Wang Lin, surpris, ce qui fit perdre son effet à la Technique de la Force d'Attraction.
+« Zhang Hu, qu'est-ce que tu vas faire? » s'exclama Wang Lin, surpris, ce qui fit perdre son effet à la Technique d'Attraction.
 
 À l'instant même où le jeune Liu retrouva la maîtrise de ses mouvements, Zhang Hu abattit la hachette sur la tête du frère Liu. Ce dernier fut trop lent pour esquiver. Un bruit sec, semblable au fracas d'une pastèque que l'on brise, emplit brièvement la pièce. Le corps du frère Liu tressaillit au sol avant de s'immobiliser définitivement.
 

@@ -100,7 +100,7 @@ La première était une femme aux longs cheveux soyeux d'une grande beauté. Ses
 
 À ses côtés se tenait un homme d'âge moyen. Son expression était sombre et il dégageait une présence massive comme une montagne. Une pression colossale émanait de son corps, frappant les cultivateurs environnants telle une tempête, les forçant à reculer. Une fumée floue entourait l'homme, parsemée de visages déformés poussant des rugissements silencieux. Pas moins de plusieurs millions de visages différents s'y pressaient.
 
-« Les Flammes de Joss! Un cultivateur du troisième pas!!! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
+« Les Flammes Joss! Un cultivateur du troisième pas!!! » Certains reconnurent immédiatement la nature de cette fumée, et leurs visages se décomposèrent.
 
 « Cette jeune fille est Yun Luo. Je suis venue représenter le Conseil Souverain pour saluer le Grand Empereur. J'ai été invitée à assister à la cérémonie de sélection des Anciens du Conseil Déchu, et je salue tous les cultivateurs de la Terre Déchue. »
 

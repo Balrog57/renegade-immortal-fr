@@ -34,7 +34,7 @@ Une telle prouesse ne s'était jamais produite au sein du Clan du Tonnerre Dispe
 
 Le Clan du Tonnerre Dispersé n'aurait jamais cru que quelqu'un puisse franchir le lac de tonnerre pour s'infiltrer dans le clan. C'était impensable. Seuls des cultivateurs de la troisième étape pouvaient y entrer sans être blessés. Personne d'autre ne le pouvait!
 
-Seul Wang Lin en était capable. Son âme originelle était un éclair de tonnerre au même niveau d'existence que cet éclair éternel. C'était pourquoi il pouvait accomplir ce prodige presque impossible!
+Seul Wang Lin en était capable. Son âme originelle était un éclair de tonnerre au même niveau d'existence que cet tonnerre éternel. C'était pourquoi il pouvait accomplir ce prodige presque impossible!
 
 Désormais arrivé dans un lieu crucial du Clan du Tonnerre Dispersé, il faisait face au brouillard de tonnerre. Le voile était levé, lui permettant de tout voir clairement, et il venait d'apprendre l'un des sorts secrets du clan: le Sort de Transformation du Tonnerre en Brouillard!
 

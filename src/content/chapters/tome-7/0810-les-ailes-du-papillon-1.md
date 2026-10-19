@@ -10,7 +10,7 @@ Cet homme vêtu de bleu était d'âge moyen. Ses yeux étaient froids, mais d'un
 
 Il sortit de la porte de l'autel et s'éleva dans les airs. Sa silhouette n'était pas encore tout à fait solidifiée; si on le regardait, on pouvait encore distinguer l'autel derrière lui.
 
-Wang Lin flottait dans les airs, et à ses côtés se trouvait le papillon apparu après l'activation du Char de Guerre Anti-Dieu. Le papillon battait doucement des ailes pour maintenir sa suspension.
+Wang Lin flottait dans les airs, et à ses côtés se trouvait le papillon apparu après l'activation du Char de Guerre Divin. Le papillon battait doucement des ailes pour maintenir sa suspension.
 
 Les membres du Clan des Immortels Élus, empreints de prudence, reculèrent tout en fixant l'homme d'âge moyen. Les yeux de Ta Shan étaient glacials lorsqu'il fit un pas en avant et cria: « Qui est cet homme?! »
 

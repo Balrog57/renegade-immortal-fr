@@ -20,7 +20,7 @@ Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il
 
 « Au sein du Clan du Tonnerre Dispersé, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
 
-« Il y avait aussi le Fouet d'Âme. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
+« Il y avait aussi le Fouet de l'Âme. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait trait pour trait à Na Duo! »
 
 « D'après les nouvelles du Clan du Tonnerre Dispersé, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 
@@ -74,9 +74,9 @@ Suspendu là, Wang Lin baissa la tête et contempla le Royaume Céleste du Vent 
 
 L'effondrement du Royaume Céleste du Vent n'était pas irréversible et, grâce aux bêtes moustiques, il n'avait pas été total. Cet endroit était bien plus préservé que les Royaumes Célestes de la Pluie ou du Tonnerre.
 
-Quant au Royaume Céleste de la Foudre, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
+Quant au Royaume Céleste du Tonnerre, Wang Lin ne s'y étant jamais rendu, il ignorait l'état des changements qui s'y étaient produits.
 
-« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste de la Foudre est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel intermédiaire jaillit dans son Sens Divin qui enveloppait tout le royaume.
+« Utilisons ce Royaume Céleste du Vent comme base. Si le Royaume Céleste du Tonnerre est aussi bien préservé, je pourrai l'intégrer également! » Wang Lin prit une profonde inspiration et leva les mains. Sa culture de Vide Spirituel intermédiaire jaillit dans son Sens Divin qui enveloppait tout le royaume.
 
 Les fragments du Royaume Céleste du Vent convergèrent de toutes parts, comme poussés par une force invisible vers le centre!
 
@@ -104,6 +104,6 @@ Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre co
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler, tapies au sol, en suivant le mouvement du continent.
 
-Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de la Foudre!
+Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste du Tonnerre!
 
-Le Royaume Céleste de la Foudre était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.
+Le Royaume Céleste du Tonnerre était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.

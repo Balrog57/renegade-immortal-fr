@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 832 - Moongazer Serpents Joy
 slug: la-joie-des-serpents-lunaires
 ---
-Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le Drapeau de l'Âme Honorée qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
+Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le Étendard de l'Âme qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
 
 Le Serpent aux yeux de lune, long de 330 mètres, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
 
